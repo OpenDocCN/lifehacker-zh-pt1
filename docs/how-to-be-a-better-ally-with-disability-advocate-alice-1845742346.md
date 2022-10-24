@@ -1,0 +1,41 @@
+# 如何成为一个更好的盟友，残疾人倡导者黄陈小萍
+
+> 原文:[https://life hacker . com/how-to-be-a-better-ally-disability-advocate-Alice-1845742346](https://lifehacker.com/how-to-be-a-better-ally-with-disability-advocate-alice-1845742346)
+
+本周我们将学习残疾人权利，以及如何在残疾人活动家黄陈小萍的帮助下成为一个更好的盟友。请听爱丽丝谈论残疾人给对话带来的独特视角，非残疾人可以做些什么来促进和保护平等，以及为什么 [Crip Camp](https://cripcamp.com/) 是必不可少的观看。
+
+Watch
+
+爱丽丝是一名残疾人活动家、 [残疾能见度项目](https://disabilityvisibilityproject.com/) 的创始人和主任，该项目是一个与StoryCorps的社区合作伙伴，也是一个致力于在2020年扩大残疾、媒体、和文化的在线社区。她还有一个名为 [残疾可见性](https://disabilityvisibilityproject.com/podcast-2/) 的播客，最近还出版了《残疾可见性 [*:来自21世纪的第一人称故事*](https://disabilityvisibilityproject.com/book/) *》一书。*
+
+[https://art19.com/shows/96bf1671-b079-4f44-b7d2-e95d655de263/episodes/083a3515-d10a-4ffc-a187-03866881da22/embed](https://art19.com/shows/96bf1671-b079-4f44-b7d2-e95d655de263/episodes/083a3515-d10a-4ffc-a187-03866881da22/embed)
+
+T2】
+
+听听上面的升级或者在所有通常提供播客的地方找到我们，包括[Google Play](https://play.google.com/music/listen?u=0#/ps/Illldmn6f4jkwb32lslhae3laru)[Spotify](https://open.spotify.com/show/43qzAEOZ861D4aXaBXaRKj)[iHeartRadio](https://www.iheart.com/podcast/8-The-Upgrade-by-Lifehacker-28037794)和NPR一号。
+
+## **本周集锦**
+
+#### **来自黄陈小萍的采访:**
+
+论承认健全人特权的重要性；
+
+> 我想你知道很多人只是没有意识到，“哦，就像，我可以搬到另一个城市，如果我，你知道，有办法的话。”而很多残疾人不能像今晚一样收拾东西就走或者决定去酒吧。你知道，只是，没那么容易。有点复杂。但是我想你知道，非残疾人可以做很多事情，让这个世界变得更友好，更容易接近，只要理解他们自己的特权，承认它，也理解我们都有集体责任。你知道我们可以为彼此创造机会。我认为残疾人令人敬畏的一点是，我热爱我的社区，这就是我们相互依存的意识。
+
+关于疫情如何改变对非残疾人的看法:
+
+> 你知道，在大大小小的方面，我觉得疫情让很多非残疾人意识到，“哇，这就像，你知道，这种生活真的很不一样。”当他们不能立即得到他们想要的东西时，这是令人沮丧的。我觉得像许多慢性病患者或只是完全你知道，他们的整个生活都集中在他们的床上或沙发上。他们说，“欢迎来到我们的世界。”你现在对困难和挑战有了一点点了解，因为，你知道，有一件事让我很恼火，那就是残疾人一直在为办公室的远程工作选择而斗争...当非残疾人突然被夺走了某些东西。所有这些事情突然变得不那么困难了。它们不再是问题了。我认为这让我非常愤怒，因为我们所做的很多工作都被抹去了。它还没有被承认。我真的希望，你知道，当我们一起走出这一切的时候，我们不会再回到正常状态。我希望工作场所、组织和机构在适应疫情的过程中继续做他们正在做的事情。但是你留着吧。留着吧。因为这只会增强他们的影响力和包容性。
+
+你可以通过一些小方法成为更好的盟友:
+
+> 当残疾人告诉你某件事有问题时，相信他们。你知道，当他们说，“嘿，你朋友说的这个不太酷”，或者，“哦，我喜欢你放的这个视频，但是你注意到你没有说明吗？或者，你知道，“我看到你发布了很多很棒的照片，你想过添加替代文字吗？”“你知道，这些都是人们每天都可以做的小事，只需要一点点访问权限，就能说明很多问题。因为如果你说张贴内容，例如，特别是[与]主要出版物...如果你不给它加标题。如果你不提供图像描述，你就是在说你不关心很大一部分人。残疾人早就说过，无障碍不仅帮助残疾人，而且惠及所有人。
+
+想听更多爱丽丝关于残疾人权利的对话，我们建议听完整集。
+
+对未来的剧集有什么反馈或想法吗？想上节目吗？请拨打347-687-8109给我们留言，或者给upgrade@lifehacker.com发送语音备忘录。
+
+### **一集文字记录**
+
+[https://www.scribd.com/embeds/485533963/content?start_page=1&view_mode=scroll&access_key=key-wC9VsT9r6Fm6igdpCzsC](https://www.scribd.com/embeds/485533963/content?start_page=1&view_mode=scroll&access_key=key-wC9VsT9r6Fm6igdpCzsC)
+
+T2】

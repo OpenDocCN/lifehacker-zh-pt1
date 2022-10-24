@@ -1,0 +1,31 @@
+# 什么时候你应该说“谢谢”而不是“对不起”
+
+> 原文:[https://life hacker . com/when-you-should-say-thank-you-inst-of-sorry-1846392106](https://lifehacker.com/when-you-should-say-thank-you-instead-of-sorry-1846392106)
+
+正确而有效的道歉是一门不精确的艺术。任何真正令人满意的道歉都会传达出*为什么*你感到抱歉，以及你明白你潜在的过错可能会对其他人产生怎样的影响。
+
+Watch
+
+但有时，抱歉并不能解决问题。受伤害的一方可能会认为你的道歉只是为了安抚他们，或者是为了方便起见，在一段艰难的时期后平息事端。不管出于什么原因，如果你觉得你的道歉没有足够的说服力，你可能会选择一种不同的，有些非正统的方法:说谢谢。
+
+从本质上来说，道歉是承认有罪，这至少表明愿意从错误中成长和学习。说谢谢有类似的效果，尽管比传统的道歉更直接，因为它传达了你已经从错误中吸取了教训——或者至少你正在努力。
+
+### “谢谢你”让它成为一次学习经历
+
+有一些书讲述了如何在 [精心制作一个有效的道歉](https://www.google.com/search?q=Sorry+About+That:+The+Language+of+Public+Apology&stick=H4sIAAAAAAAAAGWUz2vUQBTHN6utbVq1myLInmJPtQibH5uk6aWV4kFtUdp6EJGwk2Qym01m8mOaH3tT9C4KnjwpiAf9B3oo4s2CHhR68weigicvHjy61s1swRwCn_e-85333kwyMTZ3vOW1ZBnoElr0FUMRACG9VCRY7EQkIF7XTfe4fxpbU2AP5nSPm_7LSujTwtd7Q0Swn8hGjPY4vhW2JFuNbNUYgg5RBNuVjyd7sWqlVsUQF77XxmrFVS2My0i3en2TOfdNWrLFvgRNHwZMnEcpwl48FLdL7Lf1quLMypBm4mEOgEzTcZUD_URx2glrNpU0M1Zlts_A1JYjj1llmkXlaIhY1fMiNPtMHUhprBsZ49BWHC8aucs48m18qAtq9BLK9AhkhlToGuM-sCHwF1mxA7_M1hhiCM2oagUhq5Bo5lXDzxzNVBgkGUyHgNUgpQqbnBZqGkyTSpk6gc8OEISJCkbbeXaCWLGeB6g-WD5M9xVa5EmOKrWew1AK5dEZIKipEuucSmGs-DFjFUCoImcol9tGUmQJSyO9jEO73xuVQsPFmJmDRDEcuRpT6eSDSUv40AX2F7EijaZo9krkj64OzHOUg6rnsAdo_IV7UZ-a-fH742zzSf3-89f73KM6P7NGSOoG5YYbdKjrbBFhgR-_gGmXloLIn2xOHdhLhWZZxnyteZw_HBACfmrTpVtknThdWAo3hRv85LobAjdJr0BhiedXSRC4Nu0SLJzjTzUbLZsFWgef58Bzlv8_PHdiY_LgYlPLVl9y9aX6fH0OK9bOu4dvx683aoNn5dellebZBYE_djFdI3YnaLz5ln66LP5cXpjlJ7Y6BcEkLBurGzsfHrw_sjx3ZvLzrdPi3f2vyw1brIt3ni6vnB4Tufm6_P1arbY7baws1AY73d599mr86AQ3U5t-PCZtkiQpxfOAbFNxC3Xo0uDtimsd7G13PFckULy6DYKuLZ4_-MWU98a5P99toLWJBAAA&sa=X&ved=2ahUKEwj0hNnaypLvAhXoGFkFHeNPBeEQ-BYwInoECAQQRw&biw=1440&bih=670) ，但是表达感谢是一种更直接的方式。表达感谢是在奉承受委屈的人，而不是强调你的错误。
+
+例如，如果你在随意的谈话中倾向于谈论某人，而他们沮丧地向你提起这件事，你应该感谢他们让你注意到这个问题。你要让他们知道，你感谢他们对你的行为让他们感到沮丧的深刻见解，而不是仅仅提供一个词的道歉。
+
+说谢谢，或者你欣赏一个被强调的问题，相当热情地暗示你正在从容应对批评。当理论上的争吵已经解决时，你是否还在重新提起你脑海中的争吵，这一点几乎没有疑问，因为你已经表明你绝不是一个痛苦的人。
+
+### 这有助于增强对方对你的信心
+
+如果你真的对某事感到抱歉，至少你希望对方相信你有能力解决问题。在这方面，用礼貌代替道歉会对你有所帮助。在2019年 [发表在*市场营销杂志*](https://journals.sagepub.com/doi/abs/10.1177/0022242919889894?casa_token=AVI4cGWTzTAAAAAA%3AefKtBnGPN5uV4mxpm1g7h2btYYrHSLa2zw63fz3AzzPBC0IpHSa5wOEPXwukF0xxQNbPhrzUHSfO&journalCode=jmxa) 上的一项研究中，研究人员发现，这种动态在零售环境中运作得非常完美。在这项研究中，当零售员工感谢他们指出错误，而不是道歉时，消费者对自己感觉更好。
+
+通过感谢别人来承认错误会让你感到更有力量，而不是温顺。它暗示，“H是的，我看到了，我会继续努力，因为这完全在我的掌握之中。”
+
+### 它将焦点从你身上引开
+
+并不是说你应该为了不诚实的目的而转移任何指责。毕竟，假设是你做错了什么。但是说“谢谢”反过来也让另一方有责任变得亲切，因为尽管受到批评，你还是这么做了。
+
+毕竟，达成解决方案需要双方的合作。直接说谢谢会把球踢回给对方，表明你明白他们为什么不高兴，你会努力在未来做得更好。

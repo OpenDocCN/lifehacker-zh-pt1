@@ -1,0 +1,25 @@
+# 你有“身体检查”的问题吗？
+
+> 原文:[https://life hacker . com/do-you-have-a-body-checking-problem-1849030433](https://lifehacker.com/do-you-have-a-body-checking-problem-1849030433)
+
+在一天当中，你可能会发现自己不止一次地寻求关于我们外表的反馈，无论是检查我们的体重，照镜子，试穿不同的衣服，还是自拍。
+
+Watch
+
+这种寻找关于你身体信息的习惯被称为“ [”身体检查](https://www.healthline.com/health/body-checking) ，”当在适度中完成时，这是一种完全正常的行为——一个间歇的机会让你的小精灵放心，一切正常。当谈到身体检查习惯时，我们都有自己的习惯和惯例——但是如果走极端，身体检查可能会成为一种困扰，恶化你的情绪，降低你的自我形象。
+
+## **当身体检查失控时**
+
+当身体检查变成一种强迫行为时，问题就出现了。也许你一天称好几次体重，你的情绪会随着体重计上的数字而波动。其他行为可能包括过度测量身体部位，如腰围或臀围；或者拍大量的自拍照来监控你长相的某个方面。
+
+在一项 [2018元分析](https://onlinelibrary.wiley.com/doi/epdf/10.1002/eat.22867) 中，发现强迫性身体检查与负面身体形象和饮食紊乱相关。另一项 [2019年研究](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC6530359/) 显示，对于女性来说，身体检查导致个人不满，无论她们被监控的是身体的哪个部位。
+
+## **身体检查习惯失控的征兆**
+
+一些 [迹象身体检查的习惯正在成为一个问题](https://www.anxiety.org/monitoring-thigh-gap-how-body-checking-affects-mental-health) : 如果它削弱了你的集中注意力的能力，如果它导致你的工作或家庭生活的中断；如果它导致你不吃饭；或者它是否引起了罪恶感、羞耻感或担忧。如果你发现自己因为害怕吃饭而回避社交聚会；如果你花过多的时间担心你的体重或长相；或者，如果你对自己身体形象的关注妨碍了你的生活，这些都是身体检查成为问题的迹象。
+
+## 如果身体检查有问题，该怎么办
+
+首先也是最重要的，如果你的孩子检查的习惯导致了饮食紊乱，寻求T2的专业支持是很重要的。国家饮食失调协会有一条 [帮助热线](https://www.nationaleatingdisorders.org/help-support/contact-helpline) ，你可以通过在线聊天或发短信/打电话800-931-2237进入。如果你正经历一场危机，需要立即帮助，发短信给NEDA，号码是741741。
+
+当谈到检查你的身体检查行为时， [健康热线](https://www.healthline.com/health/body-checking#prevention) 建议定期离开社交媒体，因为像Instagram这样的应用程序只能助长对身体形象的关注。此外，监控你自己，并努力查明触发你身体检查冲动的情况——跟踪你一天的行为以查看是否有任何模式，然后尝试开发替代性应对策略，可以取代身体检查行为(例如，、、[执行口头确认，以提升你的情绪和自信](https://lifehacker.com/how-to-embrace-daily-verbal-affirmations-without-feeli-1847521664)、，而不是在镜子里批判地看着你自己)。如果这个习惯已经上升到一种强迫的程度， [寻求一个训练有素的治疗师](https://lifehacker.com/how-to-select-the-right-therapist-for-you-1833246447) 的帮助。

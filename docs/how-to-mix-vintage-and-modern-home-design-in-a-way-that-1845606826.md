@@ -1,0 +1,21 @@
+# 如何将复古和现代家居设计融合在一起
+
+> 原文:[https://life hacker . com/how-to-mix-vintage-and-modern-home-design-in-a-way-that-1845606826](https://lifehacker.com/how-to-mix-vintage-and-modern-home-design-in-a-way-that-1845606826)
+
+去传统家具店，看到一个你喜欢的地板样板间，然后买下来，在你自己的家里重新打造一灯一灯的样子，这样的日子已经一去不复返了。现在，我们的家被精心“策划”,以反映我们的个人风格和哲学——或者至少在Instagram上看起来不错。
+
+Watch
+
+这种造型经常将现代设计与一些有品味的复古作品相结合。听起来不错，但是你实际上是怎么做的呢？新奥尔良刊物 [Gambit向当地的一些室内设计师](https://www.nola.com/gambit/news/the_latest/article_185388d0-1d4a-11eb-9cc3-a3859d3ef90d.html) 寻求一些建议。他们是这样说的。
+
+### 围绕一件经典作品进行设计
+
+在跳蚤市场找到一件你不能落下的古董家具或装饰品？现在买，以后再担心是否搭配。室内设计师惠特尼·琼斯 [告诉甘比特](https://www.nola.com/gambit/news/the_latest/article_185388d0-1d4a-11eb-9cc3-a3859d3ef90d.html) “当你能找到一个大的陈述作品时，它真的会比试图引入与你现有作品搭配的小作品更能节省预算。
+
+### 不要害怕大胆尝试
+
+如果你已经完全厌倦了灰色墙壁这种看似永无止境的趋势，加入一些颜色和图案，打造属于你自己的空间。但是扔掉一些中世纪图案的壁纸并不总是有效的。室内设计师查德·格拉西 [告诉甘比特](https://www.nola.com/gambit/news/the_latest/article_185388d0-1d4a-11eb-9cc3-a3859d3ef90d.html) “这不仅仅是在一个房间里放一堆东西。“他们都必须有某种语言，一起工作，并有理由在那里...如果某件事感觉不对劲，那么它很可能就不对劲。”
+
+### 将简单的现代单品与华丽的复古单品搭配
+
+有时候，复古款是适合任何地方的经典木制梳妆台。其他时候，他们需要关注。在这种情况下， [用时尚、现代的家具和配件](https://www.nola.com/gambit/news/the_latest/article_185388d0-1d4a-11eb-9cc3-a3859d3ef90d.html) 将它们包围起来，有助于所有的东西都融合在一起，而不会显得不同的时间段互相竞争。

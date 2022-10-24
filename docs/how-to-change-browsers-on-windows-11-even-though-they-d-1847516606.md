@@ -1,0 +1,21 @@
+# 如何在Windows 11上更换浏览器，即使他们不希望你这样做
+
+> 原文:[https://life hacker . com/how-to-change-browsers-on-windows-11-even-they-d-1847516606](https://lifehacker.com/how-to-change-browsers-on-windows-11-even-though-they-d-1847516606)
+
+Windows 11为平台带来了令人兴奋的用户界面更新 ，居中的任务栏，圆角窗口，以及整体简约的设计，让这个操作系统感觉像是属于2021年的。然而，这并不全是好消息。事实证明，微软已经让选择自己的浏览器 变得越来越困难，并积极地将Edge作为默认选择。总之就是乱七八糟的。
+
+Watch
+
+## Windows 11中的浏览器选择是怎么回事？
+
+在Windows 11上下载第三方浏览器后首次打开链接时，您会看到一个弹出窗口，询问您希望如何打开该链接(即您希望使用哪个浏览器)。由于你在Windows 10中也看到了一个弹出窗口，你可能会认为这个过程完全一样——你选择你想要的浏览器，然后点击“ **OK** ”
+
+不幸的是，有一个主要的区别:除非你记得点击容易错过的“**总是使用这个应用程序**”选项，*每个后续链接都将在微软Edge* 中打开。即使您尝试以独占方式使用第三方浏览器，也不会再看到此弹出窗口。那么w 的帽子给了什么？
+
+微软并不是完全反竞争的，因为它仍然有办法将谷歌Chrome设为你的默认网络浏览器...但是不容易。那里的*应该是一个简单的选项，说“Windows，请总是在谷歌浏览器中打开我的东西，”但是我n代替，在这个例子中你将需要为每个单独的文件类型设置默认的浏览器，比如HTM、HTML、PDF、SHTML、SVG、WEBP、XHT、XHTML、FTP、HTTP和HTTPS。*
+
+*Windows 11目前就是这么做的。大多数网络浏览器不会弹出这个窗口，而是会提示你打开**设置**的**默认应用**部分，在这里你需要为列出的每种文件类型选择你想要使用的网络浏览器(当然，每种浏览器的默认设置都是微软Edge)。要自己进入这个设置页面，只需前往**设置>应用>默认应用**。*
+
+*[The Verge用这个新“系统”测试了](https://www.theverge.com/22630319/microsoft-windows-11-default-browser-changes) Firefox、Chrome、Opera、Vivaldi和Brave，只有Firefox设法自动改变了所有这些选项，而不需要你为它们做这些。在同一篇文章中，The Verge强调了Mozilla、Vivaldi和Opera等各种网络浏览器制造商对微软在用户选择方面的发展方向的担忧。*
+
+*这很可惜，因为Edge——尽管它名声在外——确实是一款 [好浏览器](https://gizmodo.com/why-you-should-ditch-google-chrome-for-microsoft-edge-1846567979) 。我猜微软认为让你相信这个事实的唯一方法就是强迫你使用它。这是让用户参与进来的一种方式，但这确实感觉像是掠夺。*

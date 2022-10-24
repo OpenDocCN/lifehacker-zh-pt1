@@ -1,0 +1,13 @@
+# 如何给你的药丸包装贴上标签，这样你就不会错过一剂药
+
+> 原文:[https://life hacker . com/how-to-label-your-pill-package-so-you-never-miss-dose-1849671977](https://lifehacker.com/how-to-label-your-pill-package-so-you-never-miss-a-dose-1849671977)
+
+如果你服用很多药物，你可能会有一些系统来确保你不会错过任何一种——比如一个根据应该服用的日期和时间来划分药片的组织者，或者在你的手机上的一系列提醒。但是，当你只有一套药丸，而你不需要整个组织系统，你只是想确保你不会迷失方向呢？进入这个我从一个r edditor 那里学来的 [的简单黑客程序。](https://www.reddit.com/r/lifehacks/comments/y6ewqm/lpt_write_the_date_on_your_blister_packs_so_you/)
+
+Watch
+
+这种方法适用于泡罩包装，这种扁平包装中的每一粒药丸都有自己的小气泡。你用记号笔在每粒药丸上写下日期。redditor在泡沫的清晰前沿写道；我也通过在箔面上写字来做到这一点。当你第一次拿到处方时，花一分钟给药片贴上标签，之后，你会一直有一个视觉提醒，提醒你当天是否服药。
+
+现在，这个技巧只能告诉你是否已经服用了当天的药片，所以你仍然需要其他方式来提醒自己实际服用。你可能想把包裹放在你经常能看到的地方(比如放在冰箱上，或者放在与眼睛齐平的架子上)，这样你就能确保每天都能看到它。或者你可能想尝试将药物应用到你已经拥有的另一个习惯 中，比如刷牙。
+
+顺便说一句，一些药店提供一项服务，他们会将你的药物重新包装到一个泡罩包装中，即使它们通常是在瓶子中。仅仅是为了避免购买和填充药丸盒，这种麻烦值得吗？这取决于你。但是你可能会发现贴有标签的泡罩包装更有趣一些。正如一位redditor [所说](https://www.reddit.com/r/lifehacks/comments/y6ewqm/comment/isq1mj2/?utm_source=reddit&utm_medium=web2x&context=3) :“太好了，我的抑郁症的降临日历。”

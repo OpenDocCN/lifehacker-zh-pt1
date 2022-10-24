@@ -1,0 +1,27 @@
+# 如何让你的垃圾处理器不拉在你身上
+
+> 原文:[https://life hacker . com/how-to-keep-you-garbage-dispose-from-crapping-out-on-y-1848984851](https://lifehacker.com/how-to-keep-you-garbage-disposal-from-crapping-out-on-y-1848984851)
+
+垃圾处理器的工作是保持在视线之外，让食物垃圾消失。因此，当它正常工作时，很容易忘记它。这反过来又让人很难记住你的垃圾处理器是一个至少需要最低限度维护的设备。
+
+Watch
+
+但是除了 [不把非食物物品和油脂等东西](https://lifehacker.com/please-dont-put-these-things-down-your-garbage-disposal-1832877161) 放进你的垃圾处理器，你还能做什么？事实证明，有一些方法可以让你的垃圾处理器保持最佳状态，避免昂贵的维修费用。下面是要做的事情。
+
+## 使用时，请务必让水流动
+
+仅仅扳动开关是不够的:当你打开垃圾处理器时，确保你水槽里的水是流动的 。把它想象成吞下药丸时喝一口水——除了在这个场景中，食物残渣是药丸，而垃圾处理器和管道是你的喉咙。
+
+## 确保水是冷的
+
+当我们谈到这个话题时，在运行垃圾处理器时，总是使用冷水 :它会让食物移动，同时硬化/凝结任何脂肪。另一方面，热水会融化脂肪并软化食物，使它们更容易粘在器具的侧面。
+
+## 每隔几天运行一次
+
+即使你不认为你有任何食物垃圾需要磨碎，每隔几天 [就会运行你的垃圾处理器](https://todayshomeowner.com/top-5-tips-to-keep-your-garbage-disposal-running-right/) 。这将确保下面的任何食物都不会变硬，并且处理器的组件不会因为没有使用而生锈或腐蚀。
+
+## 让它运行得更久一点
+
+按下开关启动垃圾处理器后，根据它发出的声音，通常很容易判断它何时完成了食物磨碎。但是当它听起来像是完成了，不要马上关掉它。
+
+相反，让垃圾处理器(和冷水) [再运行大约一分钟](https://todayshomeowner.com/top-5-tips-to-keep-your-garbage-disposal-running-right/) ，以确保你给垃圾一个机会通过垃圾处理管道。你也可以在这一点上滴几滴洗碗皂来帮助清洁处理器和管道。

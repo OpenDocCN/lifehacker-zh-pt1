@@ -1,0 +1,21 @@
+# 如何看土拨鼠菲尔告诉我们我们的苦难何时结束
+
+> 原文:[https://life hacker . com/how-to-watch-Phil-the-groundhog-tell-us-when-our-experience-1846174740](https://lifehacker.com/how-to-watch-phil-the-groundhog-tell-us-when-our-suffer-1846174740)
+
+宾夕法尼亚州的东北风不会阻止土拨鼠菲尔履行他的虚拟工作职责:这只著名的土拨鼠将在明天，2月2日出现，它将预测未来六周的天气。今年我们不能亲自和菲尔一起庆祝T2了(但是你真的有这个打算吗？)。相反，土拨鼠日的体验将是流媒体的，就像过去12个月的其他事情一样。
+
+Watch
+
+### 如何观看
+
+普苏塔尼·菲尔将在早上7:45从他的洞穴中出现，检查天气状况并发现他的影子(或者没有)。你可以像往常一样通过你的有线电视提供商收看当地和全国的新闻频道；如果你没有有线电视，你有两种选择。直接在groundhog.org的 [网站上观看，全天的活动将在这里直播，从早上6:30开始，还有一些预披露的庆祝活动。这一天还将在彭索塔尼的和](https://www.groundhog.org/) [YouTube](https://www.youtube.com/channel/UCvdyqejlX5ZgvrPLOXHCpQA) 页面上直播。对于宾夕法尼亚州居民来说，当地网络 [PCN](https://pcntv.com/groundhog-day/) (宾夕法尼亚州有线电视网)有一个全面的网络列表，可以观看今年的土拨鼠表演。
+
+你甚至可以通过短波收音机收听:普苏塔尼 [提供坐标](https://www.groundhog.org/media) 以及收听冬季判决的频道。
+
+### 参与虚拟活动
+
+哟你可以"参加"庆祝活动，作为一个纸板剪影，如果那是你的事情。用电子邮件把你的土拨鼠日随身物品中一张1MB或更小的你自己的照片发给[director@ghogclub.com](mailto:director@ghogclub.com)。活动组织者将把图像印在纸板上，并在当天放在观众座位上。你可能需要购买自己的剪贴画(这个世界上没有免费的东西)，所以如果你想知道细节，现在就联系我们。
+
+像其他名人一样，菲尔也有自己的 [C ame os](https://www.cameo.com/punxsyphil?qid=1610147585) 可供购买。只需99美元，你就可以从这只土拨鼠那里获得一条个性化信息。
+
+你也可以在一天开始前参加一个虚拟的寻宝游戏；只需下载“Eventzee app”应用程序并创建帐户。或者使用groundhog.org的 [上指定的二维码获得应用程序，并使用活动代码“菲尔”加入在线寻宝游戏。](https://www.groundhog.org/about)

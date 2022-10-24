@@ -1,0 +1,22 @@
+# 如何自动为你的Instagram故事添加标题
+
+> 原文:[https://life hacker . com/how-to-automatically-caption-your-insta gram-stories-1846830377](https://lifehacker.com/how-to-automatically-caption-your-instagram-stories-1846830377)
+
+你现在可以在Instagram故事中添加一个“字幕贴纸”，它可以自动将你的音频转录成字幕，而不需要第三方应用程序。这对于创作者和观众来说都是一个有用的工具，因为有听觉障碍的人*和*更容易获得直播字幕视频，这些人更喜欢关掉声音观看。
+
+Watch
+
+与IGTV直播视频中的自动字幕不同，新的字幕贴纸看起来更像是有意的视频元素，而不是屏幕底部的简单文本——尽管如果你喜欢，你也可以选择普通的字幕外观。像其他Instagram贴纸一样，你可以改变标题的位置、颜色、大小和字体，并编辑标题文本，这对于应用程序误听单词的情况非常有用。您也可以使用钢笔工具在屏幕字幕下方或上方绘图。
+
+在推出时，字幕贴纸只适用于英语，因此只面向以英语为主的国家的iOS和Android用户。Instagram表示，这种贴纸很快也可以用于Instagram Reels视频，并可能在未来集成到其他类型的Instagram视频内容中。
+
+### 如何给Instagram故事添加说明贴纸(以及最终的卷轴)
+
+1.  打开Instagram应用程序，然后录制新故事或播放视频。您也可以选择保存在设备上的视频来发布。
+2.  编辑视频时，从顶部的编辑选项中选择贴纸图标。
+3.  从列表中选择**“标题”**。
+4.  将标签放在您希望它出现的位置。视频播放时，您会看到文本预览。
+5.  如有必要，轻按一个单词进行编辑，并使用贴纸编辑选项来更改标题的设计和布局。
+6.  完成编辑后，发布视频。视频播放时，字幕会自动出现。
+
+[ [TechCrunch](https://techcrunch.com/2021/05/04/instagram-adds-a-captions-option-for-stories-and-soon-reels/) ]

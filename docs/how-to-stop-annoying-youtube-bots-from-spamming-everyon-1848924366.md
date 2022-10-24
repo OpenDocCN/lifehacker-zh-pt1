@@ -1,0 +1,30 @@
+# 如何阻止恼人的YouTube机器人向每个人发送垃圾邮件
+
+> 原文:[https://life hacker . com/how-to-stop-烦人-YouTube-bots-from-spamming-everyon-1848924366](https://lifehacker.com/how-to-stop-annoying-youtube-bots-from-spamming-everyon-1848924366)
+
+机器人和垃圾评论在YouTube上并不新鲜，但最近该网站充斥着试图欺骗观众评论他们最喜欢的频道的虚假账户。这些诈骗账户使用与他们正在利用的YouTube频道相同的名称和个人资料图像，这些机器人试图欺骗其他用户，让他们认为他们赢得了特殊的奖励，要求他们点击链接或通过DMs联系他们，或向WhatsApp或Telegram等外部消息应用程序发送短信。
+
+Watch
+
+许多用户会立即识别这些骗局，但这些机器人通常会针对视频和社区帖子进行免费赠送和其他竞赛，一些用户可能会上当。毕竟，之所以有这么多的机器人账户，是因为这些伎俩*管用*，即使不经常。
+
+希望YouTube对这些骗局采取行动，但迄今为止，他们对内容创作者的回应一直是简单地使用已经可用的评论审核工具。不幸的是，这些选项要么过于有限，无法有效阻止垃圾邮件，要么过于严格，会影响渠道的社区参与。
+
+幸运的是，YouTuber ThioJoe创建了一个名为 [的开源工具来清除YouTube垃圾邮件发送者](https://github.com/ThioJoe/YT-Spammer-Purge) ，帮助YouTube创建者从他们的视频中大量删除这些烦人的评论:
+
+ [https://lifehacker.com/embed/inset/iframe?id=youtube-video--vOakOgYLUI&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video--vOakOgYLUI&start=0) 
+
+虽然这个工具对内容创建者很有帮助，但对用户来说没什么用。如果你被这些机器人惹恼了，你可以不发表评论以避免垃圾回复，但是再次声明:社区参与是YouTube吸引力的一部分。
+
+我们希望YouTube采取更积极的措施来打击假冒的模仿账户和垃圾邮件机器人，这样它们就不会对每个人都构成问题，但现在，用户需要注意这个问题。bot注释的一些迹象是:
+
+*   糟糕的语法或不寻常的措辞
+*   特别奖或其他利益的要求
+*   通过WhatsApp、Telegram、Signal或其他第三方消息服务联系他们的请求
+*   奇怪的链接(不要点！)
+
+此外，如果你评论一个视频，参加一个频道的官方赠品或比赛，请注意规则。如果YouTube频道说他们将在视频或社区帖子中宣布获胜者，那么那个随机的相似账户评论“你赢了”和“在WhatsApp上领取你的奖品”是假的。如果这些评论随机出现在一个不相关的视频中，它们肯定是假的。
+
+如果你不确定一个账户是否合法，只需查看频道页面来确认它是否是真实的人。
+
+如果账号是假的，进入频道的**“关于”**标签，点击**“统计”**下的旗帜图标，选择**“报告用户”**，填写表格。如果该频道正在模仿另一个YouTube，让他们知道，希望他们也能报告该帐户和/或禁止他们使用YouTube Studio评论审核工具进行评论。

@@ -1,0 +1,15 @@
+# 你的玉米卷需要结构支撑
+
+> 原文:[https://life hacker . com/your-tacos-need-structural-support-1849385179](https://lifehacker.com/your-tacos-need-structural-support-1849385179)
+
+让玉米卷站起来一直是个挑战。除非你 [提前计划](https://lifehacker.com/eat-a-taco-over-a-tortilla-to-create-another-taco-1802006752) ，有一种理解是你会 结束用手指将零散的配料舀进嘴里—但在开始时，意图是用一个直立的美味包裹开始。不要把你的馅料赶过盘子，用纸杯蛋糕衬垫把单个玉米卷直立起来。
+
+Watch
+
+有一些墨西哥卷站在那里的黑客，像使用 [鸡蛋纸盒，或翻转的松饼](https://lifehacker.com/use-an-https://lifehacker.com/use-an-egg-carton-or-a-muffin-tin-as-a-taco-holder-1776050714egg-carton-or-a-muffin-tin-as-a-taco-holder-1776050714) 锅。虽然这些对于同时填充或服务几个来说很棒，但我发现这些选项对于实际使用的个人来说有点笨重。基本上，你仍然需要把一个玉米卷转移到你的盘子里，如果你想在吃东西的间隙休息一下，你的玉米卷会倒下，它的内脏会掉到你的盘子里。不漂亮。
+
+你*可以*购买专为这一目的制作的玉米卷支架，像 [恐龙形状的支架](https://lifehacker.com/why-wouldnt-you-want-a-dinosaur-to-hold-your-tacos-1797242948) 或 [三聚氰胺一号](https://www.potterybarn.com/products/mason-modern-melamine-taco-holder/?catalogId=84&sku=7018348&cm_ven=PLA&cm_cat=Google&cm_pla=Tabletop%20%26%20Bar%20%3E%20Serving%20Trays%20%26%20Platters&cm_ite=7018348_14552546110&gclid=CjwKCAjw6MKXBhA5EiwANWLODC-RBHEFV0CpqlUpkWTyiHkmSseFB3mw76Cpjc9ZL4yiMevYqJ8qIxoCiDgQAvD_BwE) ，但如果你需要为家中每个爱吃玉米卷的人准备一个，你可能会有一个装满六只笨重恐龙的橱柜，或同样多的波浪形三聚氰胺盘子，占用宝贵的空间。用阿尔顿·布朗的话来说，这些物件是单任务的，我的厨房里没有空间放这些垃圾。
+
+为了让你的玉米卷保持直立，处于完美的折叠位置，使用纸杯蛋糕衬垫。这些衬垫独特的手风琴式褶裥使边缘能够支撑玉米卷的半月形，圆形底座使东西保持稳定。填满的玉米卷的重量将其固定在衬垫中，并产生足够的张力来防止衬垫的壁张开。此外，纸杯蛋糕衬垫有24到150个袖子，这样你就可以为聚会准备一份墨西哥玉米卷晚餐，而且还有足够的剩余来做甜点。你甚至可以拿起玉米卷的纸质衬垫，用它接住任何掉落的配料，然后倒回剩下的玉米卷上，或者直接放进嘴里。
+
+我已经发现 [纸杯蛋糕衬垫](https://www.michaels.com/white-baking-cups-by-celebrate-it/10664743.html?r=g&cm_mmc=PLASearch-_-google-_-MICH_Shopping_US_N_AllProducts_N_Standard_BOPIS_N-_-&Kenshoo_ida=&kpid=go_cmp-1545032874_adg-60529718524_ad-293389188148_pla-1339141004613_dev-c_ext-_prd-10664743&gclid=CjwKCAjw6MKXBhA5EiwANWLODHnOn4p_52AuKIl9046_Vq4AggUZ2MjNDb5LzFcbfCdDZjBs20_AiBoCvDMQAvD_BwE) 非常适合硬壳玉米卷(松脆的外壳已经保持了它们的形状，它们只需要侧面支撑)，但是纸缺乏结构完整性来支撑软玉米或玉米粉圆饼的松软。不要绝望:对于那些人来说， [锡箔纸杯蛋糕衬垫](https://www.amazon.com/Wilton-415-207-BAKECUPS-Silver-FOIL/dp/B00004Y68D/ref=asc_df_B00004Y68D/?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/your-tacos-need-structural-support-1849385179&asc_source=&hvadid=241988521582&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=9004365&hvnetw=g&hvpone=&hvpos=&hvptwo=&hvqmt=&hvrand=4200738272424562562&hvtargid=pla-445253006070&linkCode=df0&psc=1&tag=kinjalifehackerlink-20) 提供更好的支撑和 a re是一个极好的选择。对于超重的玉米卷，你可以把它们加倍。雷诺兹制作了一套 [纸杯蛋糕衬垫](https://www.target.com/p/reynolds-silver-foil-baking-cups-2-5-34-32ct/-/A-14771137?ref=tgt_adv_XS000000&AFID=google_pla_df&fndsrc=tgtao&DFA=71700000012732781&CPNG=PLA_Grocery%2BShopping_Local%7CGrocery_Ecomm_Food_Bev&adgroup=SC_Grocery&LID=700000001170770pgs&LNM=PRODUCT_GROUP&network=g&device=c&location=9004365&targetid=pla-82461062689&ds_rl=1246978&ds_rl=1248099&gclid=CjwKCAjw6MKXBhA5EiwANWLODIiXG8ZRmD1Gz-jIb5XWgAnvZZsZ0DTxhVT1ozohsVhzPIRNLPXpUBoCSUEQAvD_BwE&gclsrc=aw.ds) ，包括锡纸衬垫和纸质衬垫。我相信我们的目的是在烘焙纸杯蛋糕时使用其中一个，但对于我们的玉米卷来说，这是一个理想的二合一玉米卷内衬场景。只需拿出你现在需要的松脆玉米饼纸，把锡纸衬垫放回下周的软玉米饼星期二。再也不会有玉米饼在你的眼皮底下倒下了。

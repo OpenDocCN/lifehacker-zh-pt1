@@ -1,0 +1,19 @@
+# 如何防止熊的攻击
+
+> 原文:[https://life hacker . com/how-to-prevent-a-bear-attack-1848951820](https://lifehacker.com/how-to-prevent-a-bear-attack-1848951820)
+
+遭遇熊不再仅仅是农村的偶然事件。本周，一只熊被打了镇静剂，并被从T4新泽西哈莱登的郊区小镇的后院移走。四月，纽约州阿什维尔市的警察接到了三起在市中心看到熊的报告。这两个社区加入了越来越多的州的名单，包括俄勒冈州的[康涅狄格州的](https://portal.ct.gov/deep/wildlife/nuisance-wildlife/living-with-black-bears) 和T21的【北达科他州的 ，这些州在过去几年里经历了越来越多的熊目击报告。 
+
+Watch
+
+如果你从来没有和熊面对面过，你可能很久都不能这么说了。那么，如果你的号码被叫了，你该怎么办呢？你还记得你的童子军或女童子军训练吗？如果没有，这里有一些来自T4国家公园管理局的提示，如果你发现自己在遭遇熊时站在了错误的一边。
+
+表明你的身份。美国国家公园管理局建议冷静地与熊交谈，让它有机会认出你是人，而不是猎物。 [如果你不知道如何开始对话，请随意使用这些假设的问题。然后一定要站稳脚跟，慢慢挥动手臂。如果它走近或用后腿站立，不要惊慌；它只是想更好地看看你。](https://lifehacker.com/use-these-hypothetical-questions-to-start-a-conversatio-1847084735)
+
+不要害怕。美国国家公园管理局指出，熊不想攻击人，它们想不受打扰。他们对你虚张声势，以摆脱这场冲突，但你必须保持冷静。低声和熊说话将有助于你和它保持冷静，而尖叫或突然移动可能会引发攻击。
+
+慢慢地向旁边移动。面对熊时，如果有两件事是你不想做的，那就是突然移动和转身。熊认为人类侧身移动没有威胁，如果你的工作方式是不被攻击的话，这一点很重要。这样做，你可以避免绊倒或摔倒，并且你可以盯着熊( [不与熊](https://www.pbs.org/wnet/nature/the-good-the-bad-and-the-grizzly-what-to-do-if-you-encounter-a-bear/117/#:~:text=If%20you%20encounter%20a%20grizzly,(you%20cannot%20outrun%20it).) 进行直接眼神接触)。
+
+不要跑。如果你和熊面对面，现在不是 [占用再次运行](https://lifehacker.com/how-to-ease-back-into-running-this-spring-without-getti-1848657363) 的时候。熊的最高速度可达每小时35英里。尤塞恩·博尔特自己也跑不过。
+
+不要爬树。我不想打击你，但是熊也可以爬得比你快。如果你的计划是放弃地面，选择海拔更高的，你可能最终会把自己画到一个角落里，一只熊很容易爬上来抓住你。

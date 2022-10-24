@@ -1,0 +1,49 @@
+# 自恋者的三种类型及其识别方法
+
+> 原文:[https://life hacker . com/the-this-type-of-this-an-that-the-this-the-this-type-of-that-how-to-recognize-the-the-1846734477](https://lifehacker.com/the-three-types-of-narcissists-and-how-to-recognize-the-1846734477)
+
+你可能永远也不会遇到比才华横溢的里普利先生更宏伟的人，但是各种各样的自恋者就在我们中间。然而，尽管他们有不同的怪癖，自恋者更广为人知的特征在很大程度上是相同的；患有这种疾病的人通常渴望在群体中获得极大的关注，难以表达对他人的同情或考虑，并带着一种压倒一切的权利感在这个世界上行走。
+
+Watch
+
+然而，在表面之下，当谈到自恋者的定义和他们做这些事情的心理动机时，有许多微妙之处。
+
+自恋源于希腊神话 [那西塞斯](http:// The Punishment of Narcissus - Greek Mythologyhttps://www.greekmythology.com › Myths › Mortals) ，一个美丽的年轻人最终爱上了自己的倒影，同时拒绝了他遇到的每一个年轻女子的浪漫挑逗。 [自恋型人格障碍](https://www.mayoclinic.org/diseases-conditions/narcissistic-personality-disorder/symptoms-causes/syc-20366662) 可以是一个广泛的分类领域，包括通常会产生破坏性结果的不同种类的破坏性行为。基本上，NPD存在于一个范围内，外行人可能很难区分不同类型的自恋者。
+
+以下是如何理解商标倾向的方法，如果你曾经遇到过表现出商标倾向的人——因为肯定会有很多差异。
+
+### 浮夸的自恋者
+
+暴露狂或浮夸的自恋者往往对他人的困境视而不见，但以某种方式暗示他们比生活更伟大。他们比你认识的大多数人更有可能有个性，需要与他们外向性格相称的关注和崇拜。
+
+它们也非常可爱。在最近一次健康 杂志的采访中，佐治亚大学的心理学家Keith Campbell将这种类型的人比作现实生活中的Tony Stark。“他们有时很讨人喜欢，就像政治家或名人一样，人们尊敬他们，所以他们不必总是那么刻薄，”他告诉该出版物。
+
+这是那种自恋多的 [通常与商业大亨](https://hbr.org/2004/01/narcissistic-leaders-the-incredible-pros-the-inevitable-cons) 以及公众眼中的其他人联系在一起。这些人倾向于炫耀自己的成就，并且经常以牺牲周围的人为代价。换句话说，他们通常不会羞于谈论他们的主要兴趣——他们自己——偶尔他们会用自恋的热情作为燃料，爬到 [很高的位置](https://lifehacker.com/could-trump-really-be-disqualified-from-holding-office-1846069145) 。
+
+### 脆弱或“隐秘”的自恋者
+
+你说，一个低调的自恋狂？是的，实际上。尽管这种自恋有一些传统的方面——首先，需要不断得到肯定——但它最终是自恋者缺乏自尊的产物。
+
+在接受2018年 商业内幕 [采访时，治疗师埃莉诺·格林伯格解释说，这种特殊类型的人喜欢抓住与他们自己无关的成功、声望或地位，比如衣服或汽车。](https://www.businessinsider.com/how-to-spot-different-types-of-narcissist-2018-1)
+
+她告诉网站:
+
+> 当有人觉得自己很特别，因为他们穿了一件设计师设计的衣服，其他人也能看出来，这就是联想中的特别。对于壁橱自恋者来说，他们通常会自我怀疑，他们在寻找他们可以理想化的人。
+
+此外，这种类型的自恋者非常敏感。批评，即使是很小的批评，也是你能让这种人遭受的最糟糕的事情。此外，这种自恋者可能会不断地向亲近的人寻求安慰。
+
+2019年，迈阿密大学心理学家Berit Brogaard在 [今日心理学](https://www.psychologytoday.com/us/blog/the-mysteries-love/201906/vulnerable-vs-grandiose-narcissism-which-is-more-harmful) 中写道:
+
+> 正如Craig Malkin博士在*反思自恋*中指出的，脆弱的自恋者“和任何其他自恋者一样确信自己比别人优秀，但他们 [内心害怕](https://www.psychologytoday.com/us/basics/fear) 的批评，以至于他们远离，甚至似乎被人和 [的关注](https://www.psychologytoday.com/us/basics/attention) 所恐慌。”
+
+### 恶性自恋
+
+这是这种情况的最极端的形式，通常涉及到某人积极寻求以情感和偶尔身体的方式伤害他人。虽然它没有被《精神疾病诊断和统计手册》(DSM-5) 正式承认，但许多研究人员确实认为它是NPD的一种更严重的形式。新西兰奥克兰大学的研究人员在2010年进行的一项研究确定，恶性自恋是一种“严重的人格障碍，会给家庭和社会带来灾难性的后果”，尽管“在精神病学文献和研究中很大程度上被忽视了”
+
+正如 [健康热线](https://www.healthline.com/health/malignant-narcissism) 指出的，恶性自恋是各种心理健康问题的组合，包括自恋型人格障碍、反社会型人格障碍、攻击性、虐待狂和偏执。这是一种渴望混乱和无序的自恋，几乎总是以牺牲他人为代价。
+
+许多学术研究 探索恶性自恋和暴力犯罪之间的联系是有原因的。正如格林伯格告诉Business Insider的那样，恶性自恋者努力制造混乱，因为这种情况适用于“那些完全可以破坏他人职业生涯的人，他们基本上可以从情感、身体和精神上满足人们。”
+
+### 可能很难分析其中的微妙之处
+
+对于那些可能与自恋者近距离接触的人来说，最主要的问题是不要妄下结论或指责。NPD是一种心理疾病，最好由精神病医生或注册心理健康专家来诊断。然而，你能做的是了解如何处理一些行为模式，比如了解如何与某人 [交谈，谁在给你](https://lifehacker.com/what-to-say-when-someone-is-gaslighting-you-1846703809) 打气，或者如果你被热恋一如既往，人们希望NPD患者能得到心理治疗，尽管这可能是一个很难的要求。

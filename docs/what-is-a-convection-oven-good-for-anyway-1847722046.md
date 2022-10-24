@@ -1,0 +1,23 @@
+# 对流烤箱到底有什么用？
+
+> 原文:[https://life hacker . com/what-a-convection-oven-good-for-anyway-1847722046](https://lifehacker.com/what-is-a-convection-oven-good-for-anyway-1847722046)
+
+如果你像我一样，有一个对流设置的烤箱，你很可能不知道它是如何工作的，它是用来做什么的，或者如何实际使用它。在 [传统烤箱](https://www.maytag.com/blog/kitchen/convection-vs-regular-oven.html) 中，热量来自放置在顶部和底部的加热单元，而对流烤箱有风扇和排气系统，使空气循环。所以，这有什么区别吗？
+
+Watch
+
+## 对流烤箱有什么优点？
+
+对流烤箱有大量的空气流动，这确保了整个烤箱的温度均匀。这将使你的烘烤时间减少25 %,更加节能，并且变褐更加均匀。一个对流烤箱可以 [用于你的大部分烘焙需求](https://www.whirlpool.com/blog/kitchen/convection-vs-regular-oven.html) ，包括烤肉和蔬菜，以及烹饪砂锅菜。
+
+如果你有一个空气油炸锅，你真的只是有一个 [迷你对流烤箱](https://www.thespruceeats.com/air-fryer-vs-convection-oven-4774315) ，其中热空气通过油炸篮循环，快速均匀地烹饪你的食物，并给它松脆的质地。如果你想要一个比空气油炸锅稍大的对流烤箱——但是*不想替换你的整个烤箱——现在也有带对流设置的烤箱可以放在你的工作台上。*
+
+## 什么时候使用对流烤箱*而不是*是个好主意？
+
+虽然对流烤箱有很多用途，但它不太适合用 [烘焙精致的菜肴](https://lifehacker.com/your-convection-setting-may-not-be-the-best-choice-for-1826800725) ，如蛋糕、速食面包、饼干或曲奇，因为它会促使面包皮形成得太快，导致烘焙的食物变得更扁平。(吹入的空气也会导致面糊飞溅，烘烤不均匀，尽管这种情况很少见。)还有一个事实是，大多数食谱都是用传统烤箱制作的，这意味着如果你打算用对流烤箱，你需要做相应的调整。
+
+## 你如何调整对流烤箱的食谱？
+
+对流烤箱会比普通烤箱更快地加热你的菜肴。为了适应食谱，你要么想降低温度 [，要么想缩短烘烤时间](https://www.bhg.com/recipes/how-to/cooking-basics/convection-ovens-converting-recipes/) 。如果你决定调整温度，将温度降低25度，烘烤的时间与食谱中推荐的时间相同。如果你想调整烹饪时间，将温度设置在指定的温度，然后在标记处检查是否熟透。
+
+更新于美国东部时间9月22日下午12:35，包括更多关于对流烤箱和烘焙的信息。

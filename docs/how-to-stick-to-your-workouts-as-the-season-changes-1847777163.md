@@ -1,0 +1,37 @@
+# 随着季节的变化，如何坚持锻炼
+
+> 原文:[https://life hacker . com/how-to-stick-to-your ' s tools-as-the-season-changes-1847777163](https://lifehacker.com/how-to-stick-to-your-workouts-as-the-season-changes-1847777163)
+
+如果你为了炎热的夏天而跳过一些锻炼，你并不孤单或者，也许你终于进入了一个固定的锻炼日程，只是因为季节的变化而影响了你的连贯性。现在秋天到了，义务也趋向于*落入一个更可预测的时间表中，是时候确保健身成为你日常生活的一部分了。无论你是试图坚持你的夏季习惯，还是你正在学习如何开始第一次锻炼，这里有一些小贴士可以帮助你坚持你的目标。* 
+
+Watch
+
+## **为了一致，从小处开始**
+
+改变不是来自一次特定的锻炼；变化来自于一致。其实， [一致性是解决你大部分健身问题的方法。](https://lifehacker.com/consistency-is-the-solution-to-most-of-your-fitness-pro-1845417358)T3】
+
+从小处着手，你首先需要放弃全有或全无的心态。一个俯卧撑不是比没有俯卧撑好吗？如果安排大块大块的时间锻炼对你来说不可行，你可以试试 [【锻炼】【零食】而不是](https://lifehacker.com/if-you-dont-have-time-for-a-workout-try-exercise-snack-1839892614) 。(虽然 [我们并不是说](https://lifehacker.com/how-short-can-a-workout-be-and-still-be-effective-1847468871) 一次“四次- 二次锻炼”会给你带来重大收获)。当你的目标是粉碎眼前的五分钟锻炼，而不是为了追求某个抽象的比基尼身材而太快筋疲力尽时，心理斗争就更可行了。当有疑问时，一天一天去想。
+
+## **破解你的动力**
+
+我们中的一些人并不是天生喜欢做困难的事情。很奇怪，但是还好。
+
+你的目标可能是物质上的，但它有助于 [让你的动力来自于](https://lifehacker.com/how-to-motivate-yourself-into-an-exercise-routine-youll-5950484) 。如果你只是被渴望在某个遥远的时间看到某个特定的方向所驱使，你会让自己失望。相反， [专注于“越来越热”以外的事情](https://lifehacker.com/how-training-for-a-hunting-trip-gave-me-a-bigger-ass-1847731726) 能让你意识到锻炼真的有用。
+
+即使你的目标与性感无关，你可能仍然会用“是的，我粉碎了我的目标”对“*不，我失败了*”这样的二进制来破坏你自己考虑 [从一个开放式问题](https://lifehacker.com/to-motivate-yourself-to-train-start-with-a-question-1844042554) 开始，启动你的训练。
+
+## **加入季节性训练**
+
+充分利用天气！想想秋天徒步穿越树叶，报名参加当地假日主题的5公里跑，或者甚至学习如何在寒冷的中举重。此外，“如果你觉得有点缺乏动力，改变你的锻炼甚至你的锻炼环境会产生奇迹，”克里斯·瑞安说，他是一名认证的功能性力量教练，前一级运动员和T5【镜子】T6教练。因此，即使你不参加你所在城镇的火鸡赛跑，给你的生活方式增加多样性对你的精神和身体都有好处。
+
+## **为季节性挑战做好准备**
+
+突发新闻:天气糟透了。(至少、在很多地区的部分——或者大部分——时间很糟糕。学习如何 [打扮](https://lifehacker.com/how-to-run-outdoors-in-the-winter-1745499007) ，或者准备好蹲下 [在家锻炼](https://lifehacker.com/how-to-work-out-when-you-cant-go-to-the-gym-1842299641) 。我们整理了2020年我们最好的家庭锻炼建议(我想知道2020年发生了什么来激发这个建议？).
+
+## **安排期待的事情**
+
+我已经报名参加了春季马拉松，这意味着我的 [冬跑](https://lifehacker.com/what-to-wear-to-run-in-the-cold-1831870049) 日程已定。O 我最大的动力之一恰好是财务:如果我要花钱跑步，那么，我最好跑步。
+
+报名参加健身班，和日历上的朋友一起去远足——任何能增加责任感(和兴奋感)的事情！)来帮助你朝着自己的目标努力。
+
+随着季节转换，很容易陷入冬眠模式。但是当你个性化你的健身目标时，无论是精神上还是身体上，坚持下去都会容易得多。

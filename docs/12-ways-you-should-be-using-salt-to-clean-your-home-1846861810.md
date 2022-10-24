@@ -1,0 +1,31 @@
+# 你应该用盐来清洁你的家的12种方法
+
+> 原文:[https://life hacker . com/12-ways-you-should-be-use-salt-clean-you-home-1846861810](https://lifehacker.com/12-ways-you-should-be-using-salt-to-clean-your-home-1846861810)
+
+这是任何厨房的主食，也是最简单的调味料，与搭配，从肉到调料到巧克力。但是你知道吗 [s 氯化钠](https://www.thekitchn.com/3-reasons-salt-is-a-smart-cleaning-choice-236539) 的过程质地和水分吸收作用 使它完美用于去除污渍和擦洗污垢？当与醋或柠檬混合时，盐可以成为厨房、浴室和其他地方的强力清洁剂。这里有12种方法可以用盐来清洁你的家。
+
+只需将我们的 [盐放在你的](https://lifehacker.com/how-to-remove-stains-from-a-butcher-block-countertop-1846674930) 台面上，然后将一个柠檬切成两半，用露出的柠檬擦洗台面。将盐和柠檬放置一夜，然后在早上用布和温水清洗。你可以用柠檬汁和盐做一个糊状物来达到同样的效果。
+
+铸铁煎锅里的食物结了硬皮很难清理，但是,用 [盐擦洗](https://lifehacker.com/clean-cast-iron-and-carbon-steel-cookware-with-a-salt-s-5854618) 可以去除结了硬皮的食物而不会损坏煎锅。从h 吃炉子上的锅开始，往锅里喷植物油。然后倒适量的盐覆盖在锅的表面，并用阿瑟纸巾将锅刮干净。对于顽固污渍，用一团锡纸 代替纸巾刮去任何结痂的污渍。彻底冲洗并擦干，然后再次喷洒植物油。用纸巾将油擦在锅表面。
+
+大麻会变得很恶心。长时间使用后，树脂开始堆积，随着嘴巴通过它呼吸的次数越来越多，你可以想象会有什么卡在它的缝隙里。初看起来，清洗烟枪似乎很难，但是一点酒精、盐和充分的摇动将会使树脂和粘性物质变得松散并被去除。
+
+取四分之一杯99%异丙基外用酒精和岩盐(分别是 [和](https://lifehacker.com/how-to-clean-your-bong-and-other-smoking-devices-1846239271) )。将溶液倒入烟管，确保盖住所有开口，并摇动，直到你看到树脂开始脱落。下次使用前冲洗并晾干。你也可以用同样的方法和溶液在一个Ziploc袋子里清洗一个 [杂草管](https://lifehacker.com/how-to-properly-clean-a-cannabis-pipe-1834076628) 。
+
+任何含有柠檬酸的天然食物在与盐结合使用时都会产生神奇的清洁效果，因为柠檬酸可以杀死细菌，是清除浴室中霉菌和肥皂泡沫的绝佳选择。在你的 [浴缸里撒上犹太盐](https://lifehacker.com/how-to-clean-your-bathtub-and-tile-1843422181) 就像你撒Ajax或Comet一样，然后拿一个中等大小的葡萄柚，把它切成两半，用裸露的一面擦洗你的浴缸。然后剩下的就是冲洗了。
+
+盐也可以防止霉菌在你的塑料浴帘上滋生。只需将我们的半杯盐放入装有一加仑水的桶中。 [将浴帘](https://lifehacker.com/keep-your-shower-clean-with-car-wax-and-salt-water-1832435869) 浸泡在溶液中一小时。把窗帘挂起来，晾干。每月重复这个方法来防止霉变。
+
+对于因油污或污泥引起的小堵塞，一点点热水和盐可以疏通你的厨房或浴室水槽。将三杯或三杯以上的开水倒入下水道，接着是 [两勺泻盐](https://www.timothyoffheating.com/about/blog/how-stuff-works/5-more-ways-to-unclog-a-drain/#:~:text=Water%20%26%20Salt,help%20break%20up%20the%20clog.) 。静置一分钟后，再倒入一两杯清水。盐可以分解任何粘性物质，清除管道中的有害化学物质。
+
+在清洁孩子的东西时，刺激性化学物质越少越好。谢天谢地，用盐和柑橘清洗浴缸的方法同样适用于你的小宝宝或婴儿的浴缸。你会想把盐倒在浴缸里，切开一个柠檬用作浴缸擦洗器。 [柠檬和盐会在擦洗污垢的同时杀死细菌](https://offspring.lifehacker.com/how-to-clean-your-toddlers-bathtub-1822761687) 。
+
+如果你是一个爱喝咖啡的人，你可能会注意到你最喜欢的咖啡杯上有黑色的环或棕色的杯底。不过，一点盐和水就能洗掉这些污渍。只是w 等人往马克杯里面泼了一点水，然后p 我们的T5】一汤匙盐T7】倒入马克杯，和往常一样刷洗。使用柠檬片也有助于去除污渍。用热水冲洗，必要时重复。 
+
+久而久之，你腋下的汗水最终会弄脏你最好的衬衫，但是去除这些污渍只需要四汤匙盐和一升热水。将盐溶解在沸水中，取一块海绵或布浸入溶液中，然后轻拍污渍。继续轻拍，直到你看到污渍消失。冲洗衬衫，让它晾干。
+
+洒出来的酒不一定是你最喜欢的桌布的尽头。在污渍形成之前， [在污渍上撒盐，](https://vinepair.com/wine-blog/5-ways-remove-red-wine-stain/) 可以完全防止污渍。一旦发生泄漏，用纸巾和一些苏打水轻擦。然后在受影响的地方撒上大量的盐——大量的盐，因为盐太多了，整个斑点都看不见了。倒掉多余的盐，像往常一样清洗材料。就好像事故从未发生过一样。
+
+如果你和我一样，你喜欢用梅森罐子装所有东西，但是清理那些小罐子很困难。你的手永远放不进容器，清洁棒不可避免地会漏掉一些部分。盐会进入这些小地方，清除任何残留的颗粒，给你的罐子消毒。将热水、 [四分之一杯粗盐、](https://www.onegoodthingbyjillee.com/bartenders-trick-for-cleaning-glass-bottles/) 和一点白醋混合到玻璃杯中。紧紧盖住开口并摇晃。你会看到污渍马上就消失了。然后冲洗并晾干。这种方法非常适合形状独特的花瓶和瓶子。
+
+盐的粗糙纹理 [有助于在紧要关头清洁最顽固的地板污垢](https://www.cookist.com/how-to-clean-with-salt-11-do-it-yourself-remedies-for-ecological-cleaning/) 。拿一把盐，加入一升半的热水中。在瓷砖、薄浆和其他硬表面上使用这种清洁剂。但是不要在大理石地板上使用这种方法，因为盐粒太粗，会损坏大理石。

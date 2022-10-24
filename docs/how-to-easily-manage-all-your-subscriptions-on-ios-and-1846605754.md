@@ -1,0 +1,11 @@
+# 如何轻松管理您在iOS和Android上的所有订阅
+
+> 原文:[https://life hacker . com/how-to-easy-management-all-your-subscriptions-on-IOs-and-1846605754](https://lifehacker.com/how-to-easily-manage-all-your-subscriptions-on-ios-and-1846605754)
+
+在这个艰难的时期，没有什么概念比“自动更新”更像是一把双刃剑(T2)尽管想都没想就自动收取月费或年费似乎很方便，但我们经常会注册太多免费试用和自动支付服务，以至于无法牢牢记住。
+
+幸运的是，iOS和Android都内置了系统来监控你讨厌的订阅何时更新(我正看着你呢，Squarespace！)所以不会再有惊喜收费了。
+
+在你的iPhone上，进入**设置**、 **Apple ID** ，然后**订阅**。在那里，请确保您已打开续订收据，以便在您的订阅即将续订时收到电子邮件。您也可以设置一个便捷的快捷方式，只需轻轻一点就可以完成整个过程。关于这个快捷方式的更多信息，请看这个Twitter帖子。
+
+在安卓系统上，访问你的谷歌账户的 [支付&订阅](https://myaccount.google.com/payments-and-subscriptions) 部分。然后点击**播放商店**、**汉堡图标**，以及**订阅**。(有趣的事实:我刚刚得知汉堡图标看起来不像一个真正的汉堡。)现在，你至少可以监控你有哪些订阅，并查看它们何时续订，这样你就可以选择取消它们。

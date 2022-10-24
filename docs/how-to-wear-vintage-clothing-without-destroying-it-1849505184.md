@@ -1,0 +1,47 @@
+# 如何穿复古服装而不破坏它
+
+> 原文:[https://life hacker . com/how-to-wear-vintage-clothing-without-destroying-it-1849505184](https://lifehacker.com/how-to-wear-vintage-clothing-without-destroying-it-1849505184)
+
+假设你在跳蚤市场购买了一件完美的复古衬衫，或者在阁楼上发现了一箱你父母或祖父母的衣服，并找到了一些实际上很合身的衣服。然后，在对衣服进行初步评估后，你确定它还有一些寿命，并决定穿上它。当然，你(很可能)不会在与朋友聚会前穿上那件复古丝绸衬衫，但在你选择穿它的场合，有一些不太明显的策略可以让它保持良好的身材。
+
+Watch
+
+## 如何穿复古服装而不毁了它
+
+考虑到这些年来服装的尺寸、材料和合身程度发生了巨大的变化，找到一件真正适合你的复古服装是一个小小的奇迹。(尤其是如果你和前几代人的比例不一样的话。)所以，如果你找到了一件适合你的作品，你会想让它尽可能地持久。以下是如何做到这一点。
+
+### 穿之前检查和修理
+
+在你穿着这件复古服装离开家之前，花点时间去 [彻底检查一下](https://www.theguardian.com/lifeandstyle/2022/sep/06/no-snags-no-spills-no-sweating-how-to-wear-vintage-clothes-without-ruining-them) (如果你还没有这样做的话)。虽然有些修复工作最好留给专业人士去做，比如去除污渍和修补漏洞，但其他一些工作非常简单，你可以在家里完成。
+
+首先，检查衣服上的所有扣子，看它们是否扣牢了。如果没有，用聚酯线把它们重新缝上——聚酯线比最初用来做衣服的棉线更结实，而且随着时间的推移容易断裂。
+
+别忘了接缝，这些年来可能已经脱落或变松了。但是除非你有重新缝制的缝纫技术，否则最好把衣服拿到专业人员那里去修理。
+
+如果这件衣服有拉链， [用铅笔在齿](https://coveteur.com/maintain-vintage-fashion) 上划一下，应该很容易滑动开合，避免卡住。
+
+### 小心穿好衣服
+
+穿复古服装前先洗手。此外，在你穿衣服的时候，摘下任何戒指或其他首饰 [，它们可能会妨碍](https://www.theguardian.com/lifeandstyle/2022/sep/06/no-snags-no-spills-no-sweating-how-to-wear-vintage-clothes-without-ruining-them) 。
+
+### 从内部保护他们
+
+许多为女性制作的复古服装在设计时都假设它可以穿在当时常见的内衣上，比如背心、全衬裙和半衬裙。然后，那些在衣服和穿着者身体之间形成屏障的物品将会更经常地被洗涤。
+
+今天穿你的复古服装时，采取同样的方法。没有必要投资购买与时代相适应的内衣，但是在古董衣服下面穿某种类型的汗衫或其他易洗的薄外套在今天也能达到同样的目的。
+
+另一种选择是将 [可洗、可移除的吸汗垫](https://www.theguardian.com/lifeandstyle/2022/sep/06/no-snags-no-spills-no-sweating-how-to-wear-vintage-clothes-without-ruining-them) 放在物品的腋下。但在这种情况下，不要使用背面有粘性的东西，如月经垫或衬垫，因为它们可能会在移除时损坏衣服的内部。
+
+### 明智地搭配配饰
+
+穿复古服装时，选择配饰应该更多地是为了保持它的完整性，而不是时尚。避免任何可能挂在衣服上的首饰——还有 [，包括带搭扣的手提包](https://www.theguardian.com/lifeandstyle/2022/sep/06/no-snags-no-spills-no-sweating-how-to-wear-vintage-clothes-without-ruining-them) ，或者斜挎包。
+
+### 少洗
+
+每次你洗一件旧衣服，它的纤维都会分解一点，从而缩短它的寿命。这就是为什么不推荐在每次穿完后洗复古衣物的原因。当然，如果它被弄脏了，或者你穿着它出了很多汗，那就另当别论了。但是如果你只戴了几个小时，没有任何反应，你最好还是把它拿出来。
+
+### 穿上衣服后晾干
+
+如果你确定你的衣服不需要洗(或者它是一件像外套一样的东西，反正每次穿完后通常不会洗)，你仍然应该 [晾干](https://www.moth-prevention.com/blogs/the-art-of-prevention/how-to-clean-vintage-clothes) 。
+
+理想情况下，这意味着在有微风的日子里把它们挂在户外阳光下。但是如果/当那不可能的时候，把它挂在室内，室外，在一个有自然光和风扇的房间里(相对于在壁橱或衣柜里)。

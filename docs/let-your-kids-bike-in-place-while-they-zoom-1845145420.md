@@ -1,0 +1,23 @@
+# 让你的孩子原地骑车，而他们缩放
+
+> 原文:[https://life hacker . com/let-your-kids-bike-in-place-while-they-zoom-1845145420](https://lifehacker.com/let-your-kids-bike-in-place-while-they-zoom-1845145420)
+
+在Lifehacker，我们已经鼓励你创建自己的Peloton式健身车的DIY版本(我们的健康编辑尝试了足够长的时间，给了它 [她的批准](https://vitals.lifehacker.com/what-its-like-to-live-with-a-diy-exercise-bike-1844946460) )。但是如果你的小孩已经有了一辆带辅助轮的自行车，你可以不花一毛钱为他们造一辆类似的——你可以用它来让他们在幼儿园的课堂上尽情摇摆。
+
+Watch
+
+父母Julie Bredemeier Fulks想出了如何为她精力充沛的幼儿园孩子Charleston制作一辆家用健身车，并好心地在脸书 与我们分享她的才华:
+
+ [https://lifehacker.com/embed/inset/iframe?id=fb-10217870875794044&autosize=1](https://lifehacker.com/embed/inset/iframe?id=fb-10217870875794044&autosize=1) 
+
+这个装置实际上只是一辆带训练轮的自行车和一双看起来像是成人运动鞋的东西。看起来小Char正在使用一双相当不错的耐克鞋——可能是因为鞋子的形状和坚固性——来稳定她的自行车训练轮。(我会先试一双旧的、快报废的，看看是否还能撑得住。)
+
+我怀疑这是为了减少摩擦而在地毯的另一端设置的。如果你在坚硬的地板上工作，试着在运动鞋下面放一块瑜伽垫或结实的厨房地垫来稳定自行车。当然，目标是呆在原地，不要撞到他们的桌子。在你让他们踩着踏板通过数学课之前，先测试一下，缓慢而稳定。
+
+Fulks在她的帖子中说，她的大女儿Ella现在要求一辆带训练轮的自行车用于同样的目的。如果你的孩子已经从辅助轮上毕业了，但是你因为当时不太理解的原因而坚持使用它们，你可能会考虑将他们的自行车从一个户外的、夏季娱乐的工具重新转换成一个室内的、虚拟学习的工具。
+
+你也可以从那些认为他们的孩子不再需要辅助轮的人那里得到一个二手的选择，因为他们还没有看过富尔克的视频。
+
+* * *
+
+<small>*遇见地球上最聪明的父母！加入我们的*</small> [<small>*育儿脸书群*</small>](https://www.facebook.com/groups/2018785615043946) <small>*。*T15】</small>

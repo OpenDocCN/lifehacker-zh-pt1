@@ -1,0 +1,29 @@
+# 如何解决您的Pixel消息传递缓慢的问题
+
+> 原文:[https://life hacker . com/how-to-fix-slow-messaging-on-your-pixel-1848921960](https://lifehacker.com/how-to-fix-slow-messaging-on-your-pixel-1848921960)
+
+信息传递应该是即时的:你发送一条信息，收件人在几秒钟内阅读。他们给你一个回复，你很快就会知道接下来会发生什么。但是如果你的信息像骑马一样收发，事情就会变得令人沮丧。这就是最近困扰一些Pixel用户的问题，因为带附件的MMS消息，甚至群聊，都要花费*永远*才能到达它们应该在的地方。
+
+Watch
+
+这个问题似乎不是一个新问题。我第一次注意到它是从5月12日星期四的 [这条Reddit帖子](https://www.reddit.com/r/GooglePixel/comments/uo49v3/mms_and_sms_are_extremely_slow/?utm_source=share&utm_medium=web2x&context=3) 开始的，但还有四个月前的 [这条帖子](https://www.reddit.com/r/GooglePixel/comments/rue74i/attachments_are_slow_to_send_and_receive_with/) 也同样抱怨在加拿大*使用Pixel 6 Pro时附件太慢。*两个线程中的用户都对他们的像素上的缓慢消息传递表示失望，从15分钟到几个小时不等。 [一位用户甚至抱怨说](https://www.reddit.com/r/GooglePixel/comments/uo49v3/comment/i8d0k1o/?utm_source=share&utm_medium=web2x&context=3) 他们在T-Mobile上的Galaxy S21也遇到了同样的问题，因此，尽管大多数情况似乎都来自像素，但这个问题可能会超出谷歌手机的范围。
+
+虽然遇到这样的软件问题并不好玩，尤其是当谷歌没有明确的修复措施时，但有一些变通办法可以加快附件和群聊的速度。
+
+## 清除你的消息应用的缓存
+
+你应该做的第一件事就是清空你的消息缓存。可能是手机上存储了太多的信息数据，导致附件无法正常接收。为此，强制关闭你的消息应用，进入到**设置>应用**，选择你特定的消息应用，然后**存储&缓存**。尝试先点击“清除缓存”来清除缓存如果不行，可以试试“清空存储。 " ( 此选项不会删除你的信息，但会重置应用程序，因此你需要在必要时重新登录。)
+
+## 在5G和LTE之间切换，以强制移动消息
+
+如果清除缓存和数据不能解决你的问题，你可能想尝试在5G和4G之间切换，以发送或接收消息。这一招很有效，但肯定不方便。要交换，进入**设置>网络&互联网>模拟人生>首选网络类型**，然后点击“LTE”当你的消息发送后，切换回5G(当然，直到问题再次出现)。
+
+## 暂时替换你的Pixel的默认消息应用
+
+如果事情仍然不稳定，试着换掉你默认的消息应用，即使是很短的一段时间。像最后一步一样，这一步可能会很痛苦，但可能值得一试。您可以从**设置>应用>默认应用>短信应用**中更改您的默认短信应用。现在，选择你想切换到的应用程序。
+
+## 将像素重置为出厂设置
+
+你*可以*试着把你的SIM卡换出来，但是没有一个尝试过这种方法的评论者报告成功，所以这可能不值得你花时间和精力。如果所有这些都失败了，你最好的选择就是将你的手机重置为出厂设置。 [我们已经讨论过为什么重置可以对你的科技](https://lifehacker.com/why-you-should-do-a-factory-reset-on-all-your-older-tec-1848899346) 有好处，它可以根除导致这些消息延迟的任何问题。
+
+您可以尝试从**设置>系统>重置选项>擦除所有数据(工厂重置)**进行传统重置。但是如果你*真的*想确保你的Pixel获得一个新版本的安卓系统，你可以 [按照用户FRDFRDFRH的建议](https://www.reddit.com/r/GooglePixel/comments/uo49v3/comment/i8co8js/?utm_source=share&utm_medium=web2x&context=3) 给你的Pixel刷新一个工厂图像。走这条路线比简单的工厂重置更具技术性，所以如果你选择这样做，请确保仔细阅读谷歌的说明。然而，这可能是解决你问题的一步。至少对FRDFRDFRH是这样。

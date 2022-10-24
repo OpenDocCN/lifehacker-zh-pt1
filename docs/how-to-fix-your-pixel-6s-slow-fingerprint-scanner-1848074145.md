@@ -1,0 +1,23 @@
+# 如何修复Pixel 6的慢速指纹扫描仪
+
+> 原文:[https://life hacker . com/how-to-fix-your-pixel-6s-slow-fingerprint-scanner-1848074145](https://lifehacker.com/how-to-fix-your-pixel-6s-slow-fingerprint-scanner-1848074145)
+
+Pixel 6和Pixel 6 Pro因其众多功能而受到称赞，但这两款设备都有一个常见的批评围绕着指纹扫描仪。今年，谷歌选择了显示指纹扫描仪，这在理论上是很棒的——它允许边到边的显示，而不用担心占用任何屏幕空间(或手机上的任何空间)。
+
+Watch
+
+虽然没有人抱怨将扫描仪放在显示器下面的做法(毕竟，谷歌远不是第一个做出这种设计选择的人)，但评论家和用户都批评了扫描仪的实际*功能*。许多人报告说太慢，感觉不方便，还有，因为这里没有面部扫描选项，你要么接受它要么只使用你的PIN。
+
+## 新的像素更新改进了指纹传感器
+
+谢天谢地，慢速传感器似乎已经是过去式了。 [一次意想不到的像素更新](https://www.droid-life.com/2021/11/16/google-releases-new-november-updates-for-pixel-6-pixel-6-pro/)11月16日星期二，表明这个问题已经被修补，或者至少得到了解决。这些手机有两个新的更新，SD1A.210817.037和sd1a . 210817.037 . A1(“A1”更新是针对威瑞森像素设备的)。虽然一开始不清楚这些更新是为了什么，但威瑞森还是说漏了嘴。
+
+[在其A1更新](https://www.verizon.com/support/google-pixel-6-pro-update/?CMP=afc_m_p_cj_na_ot_21_99_affiliate-100036542_11365093&cjevent=df55444d47b411ec838600870a82b82a&vendorid=CJM&AID=11365093&SID=76086X1526367X5d23d440984b3279c758c63c2cc8e1f3&PUBID=100036542&cjdata=MXxOfDB8WXww) 的变更日志中，威瑞森声明，“当前的软件更新提高了您设备的指纹传感器的性能。”虽然这种描述没有直截了当地说“指纹传感器和你希望的一样快”，但它仍然是朝着正确方向迈出的一大步。
+
+在这次更新之后，我们需要看到指纹传感器的真实测试，看看Pixel 6和6 Pro的显示解决方案现在是否可以与市场上的其他类似设计相媲美。无论如何，如果你有这两个设备中的一个，你一定要尽快更新你的。
+
+## 如何更新您的Pixel 6或6 Pro
+
+若要开始，请打开设置应用程序。朝页面底部看，然后点击**系统** **>** **系统更新**。如果有可用的更新，它将出现在此处。要安装它，只需按照屏幕上的指示。
+
+[ [机器人生命](https://www.droid-life.com/2021/11/16/google-releases-new-november-updates-for-pixel-6-pixel-6-pro/)

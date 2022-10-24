@@ -1,0 +1,28 @@
+# 是时候看另一个iPhone广告了
+
+> 原文:[https://life hacker . com/time-to-watch-another-iphone-commercial-1849452112](https://lifehacker.com/time-to-watch-another-iphone-commercial-1849452112)
+
+又到了一年中的这个时候:学校要开学了，万圣节的装饰品已经出现在商店的货架上，你认识的每一个苹果呆子都在 [*乞求*你不要买iPhone](https://lifehacker.com/its-a-bad-time-to-buy-an-iphone-1849414202) 。为什么？因为苹果即将发布iPhone 14和14 Pro，拥有下一代智能手机的所有新功能。
+
+Watch
+
+苹果公司于周三 宣布其下一个重大事件将于9月7日周三美国东部时间上午10点开始，没有给出其他细节。这可能有点令人困惑:如果该公司的公告只说“苹果活动”，没有描述、议程甚至暗示，我们如何确定苹果计划在那一天推出iPhone 14阵容？
+
+这是一个公开的秘密。虽然苹果没有给我们任何官方迹象表明它将在下个月推出新的iPhone，更不用说了，但历史先例，再加上泄露和传言，可以肯定地说，今年9月的活动真的是一场iPhone 14派对。
+
+## 苹果预计在9月7日宣布什么？
+
+[基于这个推测](https://9to5mac.com/2022/01/25/iphone-14-features-roundup/amp/) ，我们预计今年会有四款新的iPhones，类似于最近的产品周期。然而，事情正在发生变化:有证据表明苹果正在从产品线中放弃iPhone mini ，取而代之的是增加了第二个非专业的“Max”选项。现在，阵容将(暂定)包括:
+
+*   iPhone 14 (6.1英寸显示屏)
+*   iPhone 14 Max (6.7英寸显示屏)
+*   iPhone 14 Pro (6.1英寸显示屏)
+*   iPhone 14 Pro Max (6.7英寸显示屏)
+
+据传，最大的变化将出现在专业版iPhones上。这些设备可以将显示屏顶部的“凹口”剪切块替换为组合的“小球”和“穿孔”摄像头剪切块。这些切口占据的屏幕空间将比当前切口少得多。这些型号也有望看到相机质量的升级，从1200万像素到4800万像素，可能带有8K视频录制选项。目前还不清楚是否所有的iphone都将获得新的A16芯片，或者它是否将被保留给专业型号。
+
+iPhone 14并不是唯一一款可能出现在日程表上的新产品。苹果预计将开始 [iOS 16的](https://lifehacker.com/all-the-best-new-mail-features-in-ios16-1849181818) 正式发布，并宣布Apple Watch Series 8和Apple Watch Pro，这可能会给品牌带来全新的设计。
+
+## 如何观看iPhone 14演示
+
+苹果希望尽可能多的人观看它的活动，所以它很容易做到这一点。首先，把太平洋时间9月7日星期三上午10点写进你的日历。接下来，前往 [苹果官方活动页面](https://www.apple.com/apple-events/) 或者前往活动预定的 [YouTube页面](https://www.youtube.com/watch?v=ux6zXguiqxM) 观看直播。苹果通常很准时，所以请确保在太平洋时间上午10点准时收看整场节目。(或者节省时间，阅读本网站和许多其他网站在活动结束后几分钟内发布的数百份综合活动摘要中的一份。)

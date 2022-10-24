@@ -1,0 +1,31 @@
+# 获得报酬$10K学会如何在这个夏天烧烤
+
+> 原文:[https://life hacker . com/get-payed-10k-to-learn-how-to-grill-this-summer-1847084715](https://lifehacker.com/get-paid-10k-to-learn-how-to-grill-this-summer-1847084715)
+
+乍一看，烧烤似乎很简单:在火上烹饪食物？人类已经这样做了很久了。但是，任何吃过极干烤鸡或过熟牛排的人都知道，这也需要一些技巧。如果这不是你目前拥有的技能，你可能会对一份暑期工作感兴趣，这份工作会付给你 [、1万美元，让你学习如何烧烤](https://www.reynoldsbrands.com/reynolds-wrap-rookie-griller) 。以下是需要了解的内容。
+
+Watch
+
+### 这项工作需要什么
+
+通常，雷诺兹会在夏季找一位烧烤大师来测试产品和食谱。但是今年，他们走上了不同的方向， [寻找一个经历过烧烤灾难的新手](https://www.reynoldsbrands.com/reynolds-wrap-rookie-griller) 。
+
+具体来说，雷诺兹正在寻找一个充满激情和决心提高他们烧烤技能的人，并愿意与公司分享他们最有趣和最难忘的#GrillFail。被选举的人将:
+
+*   参加与史蒂文·瑞奇伦(Steven Raichlen)一对一的虚拟烧烤课程，他是“美国烧烤大师”，也是30多本书的作者
+*   通过ReynoldsBrands.com的博客记录他们成为烧烤大师的旅程
+*   允许雷诺在ReynoldsBrands.com分享他们的烧烤努力，并在雷诺品牌的社交渠道上分享社交帖子
+
+除了烧烤课，成功的候选人将获得:
+
+*   一万美元的津贴给他们配备烧烤工具
+*   大量的雷诺包装
+
+### 如何申请
+
+申请时，18岁及以上的美国居民应提交以下材料:
+
+*   你最大的#烧烤失败或最“烧烤化”的姿势的照片
+*   你的烤架失败背后的故事，以及为什么你值得拥有令人垂涎的雷诺兹包新秀烤架的头衔(限250字)
+
+请务必附上您的年龄、城市和州，并将材料通过电子邮件发送至。申请必须在美国东部时间2021年6月18日晚上11:59之前收到。要了解更多信息， [在此](https://drive.google.com/file/d/1Gpkcos8kGW2dCk6LogFJlcjzpLVHkgyI/view) 阅读规则、条款和条件。

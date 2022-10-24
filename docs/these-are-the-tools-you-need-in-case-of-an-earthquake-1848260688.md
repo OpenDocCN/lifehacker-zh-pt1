@@ -1,0 +1,29 @@
+# 这些是你在地震、洪水或野火发生时需要的工具
+
+> 原文:[https://life hacker . com/these-is-the-tools-you-case-of-an-stationary-1848260688](https://lifehacker.com/these-are-the-tools-you-need-in-case-of-an-earthquake-1848260688)
+
+美国的不同地区容易遭受不同类型的自然灾害。虽然你手头可能已经有一个基本的急救包，里面有食物、水和急救箱，但你可以——也应该——投资购买其他工具，这取决于你居住的地方和你附近最有可能发生的自然灾害的类型。
+
+Watch
+
+## 地震时需要的工具
+
+美国的大地震主要发生在西海岸，会造成重大的结构性破坏，包括对公共设施的破坏。如果你住在地震多发地区，可能需要关闭水或天然气管道，那么关闭工具 是你应急装备中必不可少的。如果你没有这样的工具，一个大的活动扳手可以在必要的时候发挥作用。这将适合不同尺寸的开关，即使把手坏了也能派上用场。
+
+手头上另一个重要的东西是灭火器。倒下的电线和煤气总管的破裂会引起火灾——即使是当地电力服务的小短路也会引发火灾。准备一个最新的充满电的 [灭火器](https://www.amazon.com/First-Alert-1038789-Standard-Extinguisher/dp/B01LTICQYE?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/these-are-the-tools-you-need-in-case-of-an-earthquake-1848260688&asc_source=&tag=kinjalifehackerlink-20) 。为了更紧凑的选择，你也可以把 [气雾喷火](https://www.amazon.com/dp/B001229JCU/ref=sspa_dk_detail_1?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/these-are-the-tools-you-need-in-case-of-an-earthquake-1848260688&asc_source=&pd_rd_i=B001229JCU&pd_rd_r=3a660736-4fbe-4563-88b7-137451b7ab00&pd_rd_w=sdaQf&pd_rd_wg=rcrRC&pf_rd_p=9fd3ea7c-b77c-42ac-b43b-c872d3f37c38&pf_rd_r=9RC0YA5AZF7TVHYTZ2SZ&psc=1&spLa=ZW5jcnlwdGVkUXVhbGlmaWVyPUExNzhETUtPR1hBNVVWJmVuY3J5cHRlZElkPUEwMTIxNjYyM1VBSjcxNFdQOTZHWCZlbmNyeXB0ZWRBZElkPUEwNjIxMDE0MkRHQlhVQktXMzRDNCZ3aWRnZXROYW1lPXNwX2RldGFpbCZhY3Rpb249Y2xpY2tSZWRpcmVjdCZkb05vdExvZ0NsaWNrPXRydWU=&tag=kinjalifehackerlink-20) 放在手边。
+
+你应该经常拥有的其他工具是钳子、一把好刀和剪刀，所有这些在紧急情况下都是万能的。最后一项是光源:大多数权威机构推荐使用电池充足的提灯或手电筒，但是为了解放你的双手，你也可以在你的清单上增加一个 [好的头灯](https://www.amazon.com/Princeton-Tec-Modular-Light-System/dp/B07JP8HLWK/ref=as_li_ss_tl?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/these-are-the-tools-you-need-in-case-of-an-earthquake-1848260688&asc_source=&dchild=1&keywords=Princeton Tec Snap&language=en_US&linkCode=ll1&linkId=a02e5995775edd19e6170d794019fb4d&qid=1575514764&s=sporting-goods&sr=1-4&tag=kinjalifehackerlink-20&th=1) 。如果停电了，你需要在房屋受损的情况下导航，这将派上用场。
+
+## 发生洪水时需要的工具
+
+几乎在任何有暴雨和水体的气候带，洪水都是一个问题。在主水管破裂的情况下，这也可能是一个局部问题。首先，洪水应急工具包需要防水，这样你的工具和用品就不会受到损坏，所以建议使用防水箱来保护电池和较小物品的安全，你可以使用 [干袋](https://www.amazon.com/HEETA-Waterproof-Lightweight-Backpack-Transparent/dp/B07PLZP5LN/ref=sr_1_6?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/these-are-the-tools-you-need-in-case-of-an-earthquake-1848260688&asc_source=&crid=7XQ2N85RXOE7&keywords=waterproof case&qid=1640203073&s=sporting-goods&sprefix=waterproof case,sporting,149&sr=1-6&tag=kinjalifehackerlink-20) 来帮助保护大型应急用品的安全。
+
+如果你住在洪水频发的地区，一个 [洪水报警器](https://www.amazon.com/Glentronics-Inc-BWD-HWA-00895001498-Basement/dp/B000JOK11K/ref=sr_1_9?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/these-are-the-tools-you-need-in-case-of-an-earthquake-1848260688&asc_source=&keywords=flood alarm&qid=1640203469&sr=8-9&tag=kinjalifehackerlink-20) 是另一个不错的投资——它会检测地下室或一楼的水位上升，这样你就能尽早知道洪水正在发生。这些有 [有线](https://www.amazon.com/Floor-Water-Sensor-Flood-Detection/dp/B079YB1T8J/ref=sr_1_8?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/these-are-the-tools-you-need-in-case-of-an-earthquake-1848260688&asc_source=&crid=3TW0ZRFRPBFVV&keywords=wired flood alarm&qid=1640203575&sprefix=wired floor alarm,aps,111&sr=8-8&tag=kinjalifehackerlink-20) 和 [电池供电](https://www.amazon.com/Instapark-Leakage-Detection-Sensor-Battery/dp/B01IWTCLHA/ref=sr_1_2_sspa?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/these-are-the-tools-you-need-in-case-of-an-earthquake-1848260688&asc_source=&crid=YZXPGW4BJ1V6&keywords=battery flood alarm&psc=1&qid=1640203645&spLa=ZW5jcnlwdGVkUXVhbGlmaWVyPUExMVRMWVJCNzBOQjhKJmVuY3J5cHRlZElkPUEwNDMyNjQ4M0JFQ0hKQkU0NURVQiZlbmNyeXB0ZWRBZElkPUEwMTk4MDk0MkMzUjJMQUUyV09ZMCZ3aWRnZXROYW1lPXNwX2F0ZiZhY3Rpb249Y2xpY2tSZWRpcmVjdCZkb05vdExvZ0NsaWNrPXRydWU=&sprefix=battery flood alarm,aps,107&sr=8-2-spons&tag=kinjalifehackerlink-20) 型号，也可以在 [智能](https://www.amazon.com/Ring-Alarm-Flood-Freeze-Sensor/dp/B07M943G7L/ref=sr_1_1_sspa?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/these-are-the-tools-you-need-in-case-of-an-earthquake-1848260688&asc_source=&crid=1D7H5HMNRPO1E&keywords=smart flood alarm&psc=1&qid=1640203707&spLa=ZW5jcnlwdGVkUXVhbGlmaWVyPUExRVdSODdHTE00VElQJmVuY3J5cHRlZElkPUEwMzcwODE0MjUwRkRDQVFXVjBFNSZlbmNyeXB0ZWRBZElkPUEwMDA2NDQxM1Y5TVZTWDYzSkUwQiZ3aWRnZXROYW1lPXNwX2F0ZiZhY3Rpb249Y2xpY2tSZWRpcmVjdCZkb05vdExvZ0NsaWNrPXRydWU=&sprefix=smart flood alarm,aps,119&sr=8-1-spons&tag=kinjalifehackerlink-20) 品种中找到，它们会向你的手机发送警报。请注意，如果公用设施中断，手机服务和电力可能会中断。如果你在一个洪水易发的地区，投资一个高质量的电池驱动的模型是一个好主意，这样它将在自然灾害中工作。当然，随身携带一个高质量的防水手电筒也很重要。
+
+## 发生野火时需要的工具
+
+美国西海岸的主要野火越来越常见。这些野火会导致人员疏散、有毒空气，当然还会烧毁房屋。在大多数野火的情况下，当务之急是迅速撤离，但如果你有时间，你也许可以做一些事情来保护你的家。如果你在一个煤渣和火花可能被吹到你的院子里和屋顶上的地区，使用一根超长的花园软管来浇灌这个地区和你的屋顶是一个常见的安全措施。在某些情况下，清除你院子里的过度生长和长草或枯叶也有助于防止损害。
+
+有一个或两个额外的熔炉或HVAC过滤器，额定为烟雾(MERV 10以上)是为野火季节做准备的一个聪明的方法。炉灰和煤烟会很快堵塞过滤器，所以在灾难来临，镇上所有五金店都卖光之前，准备一个备用的。
+
+准备一个“旅行包”也是一个好主意。你可以得到 [防火包](https://www.amazon.com/Fireproof-Waterproof-Money-Document-Bag/dp/B08PBDJBX6/ref=pd_lpo_3?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/these-are-the-tools-you-need-in-case-of-an-earthquake-1848260688&asc_source=&pd_rd_i=B08PBDJBX6&psc=1&tag=kinjalifehackerlink-20) 来保护你的装备和重要文件，万一房子着火，它们也是很好的选择。如果你需要在烟雾弥漫的环境中旅行，一个配有合适过滤筒的好的呼吸器会有很大的帮助。一个呼吸器或者一个 [N95口罩](https://www.amazon.com/Black-Safety-Breathable-Elastic-Bridge/dp/B08P3JZ95C/ref=sr_1_1_sspa?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/these-are-the-tools-you-need-in-case-of-an-earthquake-1848260688&asc_source=&crid=5X5NJNS76AEU&keywords=n95 mask&psc=1&qid=1640205467&spLa=ZW5jcnlwdGVkUXVhbGlmaWVyPUFQTUhGTUVQS0UwUU0mZW5jcnlwdGVkSWQ9QTAxMDA2MTYzNDhXTTBOQkhWTTEzJmVuY3J5cHRlZEFkSWQ9QTA4MTkwMTgyR1dKVjhaQk05SkZXJndpZGdldE5hbWU9c3BfYXRmJmFjdGlvbj1jbGlja1JlZGlyZWN0JmRvTm90TG9nQ2xpY2s9dHJ1ZQ==&sprefix=n95 ,aps,165&sr=8-1-spons&tag=kinjalifehackerlink-20) 可以帮助保护你的肺部免受烟尘的侵害。在紧急情况下准备一些这样的装备是个好主意，这样你就不会在灾难中耗尽急救人员可用的安全装备。
