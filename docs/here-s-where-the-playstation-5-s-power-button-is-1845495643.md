@@ -18,4 +18,3 @@ PlayStation 5 还要过几周才能上市。因为我们拥有的单元是由索
 
 ### 更多 PlayStation 5
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Here’s Where The PlayStation 5’s Power Button Is](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://kotaku.com/we-finally-played-a-ps5-game-and-it-literally-feels-li-1845486520)</aside>

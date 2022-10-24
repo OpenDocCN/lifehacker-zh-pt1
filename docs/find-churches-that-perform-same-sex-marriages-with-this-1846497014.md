@@ -16,7 +16,7 @@ Watch
 
 令人欣慰的是，一些教堂和牧师正在谴责梵蒂冈的立场，并将继续举行同性仪式。奥地利的教区牧师告诉路透社 “我们将和许多人团结一致，不会拒绝未来任何一对要求庆祝上帝祝福的恩爱夫妻，他们每天都在经历这种祝福，也是在礼拜仪式中。”奥地利牧师加入了许多牧师和教堂的行列，誓言尊重同性伴侣的结合。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Find Churches That Perform Same-Sex Marriages With This Site](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/celebrate-pride-by-supporting-the-black-trans-community-1844079278)</aside>
+
 
 ### 如何找到欢迎同性婚姻的教堂和信仰机构
 

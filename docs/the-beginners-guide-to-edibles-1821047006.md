@@ -90,7 +90,7 @@
 
 *盖德博士同意。“等一下吧。能喝水就喝水。绝对不要和酒精结合。那会让一切变得更糟。”她补充道，并保证“没有危险”。“如果食用大麻剂量过大，一个人可能会感觉非常非常糟糕，但对器官没有毒性。没必要去急诊室。”*
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">*[![Image for article titled The Beginner&#39;s Guide to Edibles](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/what-to-do-if-youre-too-high-1825412214)*</aside>
+
 
 **
 

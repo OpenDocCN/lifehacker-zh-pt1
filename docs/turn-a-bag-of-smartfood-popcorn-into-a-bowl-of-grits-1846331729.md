@@ -6,7 +6,7 @@
 
 Watch
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Turn a Bag of Smartfood Popcorn Into a Bowl of Grits](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/no-you-cannot-turn-potato-chips-into-mashed-potatoes-1846301602)</aside>
+
 
 我没有发明爆米花玉米粉。安森米尔斯有 [一份菜谱](https://ansonmills.com/recipes/568) ，PBS 有 [一份菜谱](https://www.pbs.org/food/recipes/popcorn-grits/) ，外卖有 [一份菜谱](https://thetakeout.com/recipe-how-to-make-easy-fast-shrimp-grits-recipe-popcor-1841736684) ，常伟有 [一份菜谱](https://mindofachef.tumblr.com/post/47797870637/looking-for-a-little-something-different-for-this) ，而且——正如安森米尔斯网站提醒我们的那样——“这道菜的第一个美洲土著版本出现在几千年前，当时土著人在一个挖空的石头里用沙子爆玉米，然后将其捣碎放入热水中。”所以我远不是第一个做玉米饼的人，但我确实认为我是第一个用智能食品品牌白切达爆米花做的人，我确实认为我很聪明。
 

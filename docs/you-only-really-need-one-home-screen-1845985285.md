@@ -8,7 +8,7 @@ Watch
 
 这几乎太容易了。当你拿起手机时，你会把你的一个主屏幕献给你真正想看的几个应用程序。然后，删除其他屏幕。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled You Only Really Need One Home Screen](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-customize-your-iphone-home-screen-in-ios-14-1845450222)</aside>
+
 
 这些应用程序都还在，所以你并没有真正失去任何东西。他们只是眼不见心不烦。当然，安卓用户从一开始就可以这么做，但至少苹果最终允许自己的用户享受这种奢侈。
 

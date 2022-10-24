@@ -8,7 +8,7 @@
 
 如果有东西粘在冰箱里，用浸过热水的布加热。用这个做热敷，把黏糊糊的东西弄松，然后擦掉。对于更顽固的变色，使用三聚氰胺泡沫海绵(又名魔术橡皮擦)。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Our Best Fridge-Cleaning Hacks](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/use-magic-erasers-to-clean-sneakers-grout-and-keyboar-1835154205)</aside>
+
 
 现在我们想*防止*未来的混乱。用 Press 'N Seal wrap 将你的架子排成一行，如果发生泄漏，你可以移除并更换，并将颠倒的调味瓶存放在门边的空鸡蛋盒中，以防止泄漏。
 

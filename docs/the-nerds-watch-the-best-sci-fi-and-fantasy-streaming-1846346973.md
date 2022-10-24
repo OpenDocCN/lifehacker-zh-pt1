@@ -64,7 +64,7 @@ Watch
 
 ***拆迁人***——醇厚的问候。 [抓点塔可钟](https://gizmodo.com/taco-bells-demolition-man-restaurant-gave-us-nacho-frie-1827665977) 看一部有史以来最好的科幻动作片之一。西尔维斯特·史泰龙、韦斯利·斯奈普斯、桑德拉·布洛克、丹尼斯·利瑞——处处追求完美。***
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">**[![Image for article titled The Nerd&#39;s Watch: The Best Sci-Fi and Fantasy Streaming in March](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://gizmodo.com/taco-bells-demolition-man-restaurant-gave-us-nacho-frie-1827665977)**</aside>
+
 
 **[***下凡***](https://io9.gizmodo.com/6-times-women-joined-forces-to-face-movie-horrors-1844918348)——正如*巨颚*对于海洋，*下凡*对于洞穴。一群女人进入了一个黑暗的洞穴，只是希望探索和发现一些地狱般的怪物。这是一部非常非常棒的电影。**
 

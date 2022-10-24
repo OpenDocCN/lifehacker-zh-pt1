@@ -12,7 +12,7 @@ Watch
 
 口罩也只是预防 COVID 传播策略的一部分。它们是*而不是*一个神奇的力场。没有面膜是完美的。也就是说，即使戴着面具，我也绝不会在一个狭小的室内空间里锻炼，那里有很多人在大喊大叫或喘着粗气，就像一个自行车工作室。太多的人会有水滴从他们面具的侧面喷出，穿过前面的洞，直接从他们的鼻子出来，如果他们已经决定他们不必 [戴上他们的面具正确的](https://lifehacker.com/put-your-mask-over-your-damn-nose-1844132568) 。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled How to Choose the Best Face Mask for Exercise](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/put-your-mask-over-your-damn-nose-1844132568)</aside>
+
 
 另一件需要记住的重要事情是，口罩可能会让锻炼变得更加困难。在有氧运动中，它们会让你更难吸入足够的空气。这不一定是个问题，但值得注意。如果你发现戴面具的锻炼真的很痛苦，也计划一些无面具的锻炼，前提是你能找到一个安全的地方去做。(有些人认为戴口罩的副作用可能会让你的锻炼更有效——有点像运动员会搬到科罗拉多去呼吸更稀薄的空气。我们忘记得多快啊！几年前，戴模拟高原训练的面具曾风靡一时 。它们不起作用。)
 

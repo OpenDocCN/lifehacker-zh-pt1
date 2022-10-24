@@ -26,7 +26,7 @@ Watch
 
 CDC [将](https://www.cdc.gov/quarantine/masks/mask-travel-guidance.html) 定义为可接受的口罩，包括 N95s、外科口罩和大多数布口罩。这个面具还得用 [捂着你那该死的鼻子](https://lifehacker.com/put-your-mask-over-your-damn-nose-1844132568) 来数。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Masks Are Now Mandatory on Public Transit](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/put-your-mask-over-your-damn-nose-1844132568)</aside>
+
 
 以下是*不*可接受的屏蔽:
 

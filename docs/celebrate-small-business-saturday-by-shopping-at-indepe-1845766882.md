@@ -20,7 +20,7 @@ Watch
 
 以[Nathan“Nearest”Green](https://unclenearest.com/history)命名，第一位已知的非裔酿酒大师， [大叔 Nearest](https://unclenearest.com/) 共同创立 [小鹿织女，](http://www.amtrakthenational.com/fawn-weaver) 第一位女性和第一位非裔领导一个主要烈酒品牌，2017 年。但这不仅仅是一段不可思议的历史:最近的叔叔生产屡获殊荣的威士忌。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Celebrate Small Business Saturday by Shopping at Independent Retailers](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-help-small-businesses-survive-the-pandemic-1844231262)</aside>
+
 
 ### 拱廊
 

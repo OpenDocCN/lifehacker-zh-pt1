@@ -16,7 +16,7 @@ Watch
 
 获胜者将获得该品牌“威士忌面包车”的钥匙，这是一辆 1978 年的雪佛兰 G20，内部定制，包括胡桃木吧台、皮长椅座、橙色簇绒镶板和音响系统，并将通过社交媒体记录他们的旅行。这个职位有津贴，包括汽油、食物、住宿和活动，获胜者可以带一个朋友、伴侣或他们选择的宠物。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Enter to Win a 2-Week Whiskey-Drinking Road Trip Through the US](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-take-the-best-photos-with-your-iphone-1845243377)</aside>
+
 
 ### 如何进入
 

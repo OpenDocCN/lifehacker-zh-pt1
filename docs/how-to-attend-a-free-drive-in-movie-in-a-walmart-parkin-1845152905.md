@@ -18,7 +18,7 @@ Watch
 
 你可以自带食物和饮料，只要不是酒。如果你在电影期间需要，店内会有消毒洗手间。出于 COVID 安全目的，与会者必须始终呆在车内，停车位将与社会保持一定距离。如果你确实需要离开你的车(比如说，去洗手间)，你必须戴上面罩。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled How to Attend a Free Drive-In Movie in a Walmart Parking Lot](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-create-your-own-backyard-movie-theater-1844221285)</aside>
+
 
 ### 在演什么？
 

@@ -40,7 +40,7 @@ Watch
 
 你也可以使用更便宜的 Peloton 应用程序(或另一个应用程序，如苹果的 Fitness+)来搭配你已经拥有的室内自行车，或者你可以 [将你的自行车放在室内教练](https://lifehacker.com/build-your-own-peloton-style-exercise-bike-and-save-mon-1844446863) 上，来一次完全 DIY 的体验。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled How Much Does It Really Cost to Get Into Fitness?](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/build-your-own-peloton-style-exercise-bike-and-save-mon-1844446863)</aside>
+
 
 ## 运转
 

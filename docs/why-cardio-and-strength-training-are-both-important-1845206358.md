@@ -8,7 +8,7 @@ Watch
 
 我认为人们很容易被一种运动所吸引，因为我们觉得它有趣或方便。然后，当我们觉得自己受到了足够的挑战时，就没有必要再往前看了，对吗？*我已经是一名运动员了*，我记得在我的两个极限阶段都在思考。但这两次，我都错过了什么。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Why Cardio and Strength Training Are Both Important](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/do-this-dumbbell-workout-from-home-1842490289)</aside>
+
 
 ### 力量训练对你有什么帮助
 

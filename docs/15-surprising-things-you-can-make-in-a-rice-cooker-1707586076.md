@@ -68,7 +68,7 @@ Watch
 
 ****芝士蛋糕:**电饭煲在烘焙食物时可以模仿烤箱。如果你渴望芝士蛋糕，在电饭锅碗中混合配料(奶油芝士、鸡蛋、糖、柠檬汁、重奶油和面粉)，开启正常的煮饭周期，当它完成时，你可能有了 [制作芝士蛋糕](https://tasty.co/recipe/easy-rice-cooker-fluffy-cheese-cake) 最简单的方法。**
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">**[![Image for article titled Surprising and Delicious Foods You Can Make in a Rice Cooker](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/impress-your-guests-with-instant-pot-lava-cakes-1826235162)**</aside>
+
 
 ****巧克力蛋糕:**同样， [这款电饭煲蛋糕配方](http://www.food.com/recipe/rice-cooker-chocolate-cake-395536) ，不需要鸡蛋和牛奶(所以很适合纯素食者和过敏体质的人)，只需要将配料混合，等待大约一个小时。**
 

@@ -28,7 +28,7 @@ Watch
 
 除此之外，如果数据安全是一个问题，Handrick 说，你的雇主需要知道你在哪里工作，例如，你将使用虚拟专用网络(VPN ),而不是在公共网络上暴露数据。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled How and When to Tell Your Boss Your Remote Work Location Has Changed](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-look-and-sound-great-on-a-conference-call-1842431127)</aside>
+
 
 #### 长期但暂时的重新安置
 

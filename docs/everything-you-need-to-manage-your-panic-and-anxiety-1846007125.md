@@ -22,7 +22,7 @@ Watch
 
 你们中的许多人最近经历了第一次惊恐发作。欢迎，我吓坏了的小雏鸟。一次恐慌发作并不意味着你会有更多，但对下一次的预期恐惧本身就能使人麻痹。所以，再说一次:有计划是好的。以下是如何度过恐慌症发作的方法，以美妙的“我”的音调为特色。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Everything You Need to Manage Your Panic and Anxiety [Updated]](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-get-through-a-panic-attack-1841061270)</aside>
+
 
 ### 使用这个 BoJack 恐慌攻击黑客
 

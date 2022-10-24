@@ -6,7 +6,7 @@
 
 网上有很多这种灌输的迭代。比例各不相同，但每个配方都可以归结为将一堆里斯的作品倒入酒精中，让酒精在冰箱里放置一夜，然后在第二天过滤掉。这种注入糖果的伏特加有时被用来制作“ [”醉花生酱杯](https://www.delish.com/cooking/recipe-ideas/recipes/a58358/drunken-peanut-butter-cups-recipe) ”或一些类似的酒。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Reese&#39;s-Infused Vodka Is a Trick, Not a Treat](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/we-tried-thanksgiving-flavored-candy-corn-and-it-sucked-1845362924)</aside>
+
 
 起初，我认为这将浪费糖果和伏特加，但后来我决定我们也可以浪费一些波旁酒，因为波旁酒和含糖花生酱糖果似乎比伏特加和含糖花生酱糖果更好。
 

@@ -106,7 +106,7 @@ DoorDash 将在 11 月 3 日(星期二)在全国范围内对所有最低订购 1
 
 Seamless 正与 Chobani 合作，为纽约市地区的投票工作人员创建一个特殊的协议。从 10 月 28 日开始，他们将向 1000 名投票站工作人员发放 40 美元，用于他们在投票站工作后的下一顿无缝餐。您可以在 11 月 11 日之前输入投票员代码进行兑换。只需提交一封电子邮件，并附上您的正式纽约市民意测验工作人员徽章的照片。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Soothe Your Anxiety With These Election Day Deals and Freebies](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-make-sure-your-vote-is-counted-1844166647)</aside>
+
 
 ### 其他交易
 

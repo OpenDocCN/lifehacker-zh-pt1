@@ -42,7 +42,7 @@
 
 
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled How Can a Rejected Ballot be ‘Cured’?](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-make-sure-your-vote-is-counted-1844166647)</aside>
+
 
 ### 你如何报名成为志愿者？
 

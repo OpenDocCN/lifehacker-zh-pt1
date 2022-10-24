@@ -12,7 +12,7 @@ Watch
 
 定时锻炼有点难。如果你想花半个小时在健身自行车上，有人让你保持注意力是有帮助的——就像一个 Peloton 教练在歌曲的合唱部分敦促你加快速度，然后在下一节放松一点。前几天我在室内 骑自行车 [，我不想进行有指导的锻炼。但我试图达到 40 分钟，这是一段很长的时间，所以我开始看着时钟，每过 5 分钟就给自己奖励，比如跳下自行车做俯卧撑，或者在计时器仍在运行的情况下慢跑 30 秒。](https://lifehacker.com/build-your-own-peloton-style-exercise-bike-and-save-mon-1844446863)
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled What Mind Games Do You Play on Yourself During Exercise?](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/build-your-own-peloton-style-exercise-bike-and-save-mon-1844446863)</aside>
+
 
 我知道我不是唯一一个玩这些小心理游戏的人。我们的副主编乔丹·卡尔霍恩(Jordan Calhoun)告诉我，他在休息时间也会做类似的事情来查看手机:“在 x 集之后，我可以查看 Instagram，”他告诉自己，或者“在 x 首歌曲之后，我可以给某某人回短信。”我也很喜欢这个在 [上用实物代币](https://vitals.lifehacker.com/use-physical-tokens-to-count-sets-1845028198) 计数的转折:
 

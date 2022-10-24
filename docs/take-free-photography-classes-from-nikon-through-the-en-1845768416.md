@@ -8,7 +8,7 @@ Watch
 
 但是相机——甚至是我们手机上的相机——有更多的功能。如果你一直在考虑参加摄影课程，现在你的机会来了: [尼康正在免费提供其所有受欢迎的在线课程](https://www.nikonevents.com/us/live/nikon-school-online/) 到 2020 年底。以下是访问它们的方法。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Take Free Photography Classes from Nikon Through the End of the Year](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-take-the-best-photos-with-your-iphone-1845243377)</aside>
+
 
 ### 了解免费课程的哪些内容
 

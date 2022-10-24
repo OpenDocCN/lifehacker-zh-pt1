@@ -30,7 +30,7 @@
 
 (他们甚至制作不锈钢“肥皂”棒来帮助你解决这个问题——我们测试了。)
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled 10 Ways to Banish Bad Smells From Your Home and Your Body](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/does-this-metal-bar-of-soap-de-stink-garlicky-hands-1846037048)</aside>
+
 
 是的，你可以只使用除臭剂或止汗剂，但是如果你是敏感皮肤或者只是喜欢走更自然的路线，你不必忍受更臭的生活。相反， [试试小苏打](https://youtu.be/JxSZ4yRP6vw) ，它可以中和你汗液的酸碱度，减少你腋下 [和脚部](https://lifehacker.com/neutralize-your-horrible-foot-smell-with-baking-soda-ba-5958618) 的异味细菌。换句话说，它是一种天然除臭剂。
 

@@ -24,17 +24,17 @@
 
 如果你的微波炉经常使用，云杉建议每周清洁一次，以防止细菌和病菌入侵。如果你的微波炉里有食物结块和异味，放一碗微波炉安全的水和几片柠檬片在微波炉里煮。让它静置一分钟，然后擦掉变软的部分。(更多微波清洁小技巧， [看这个视频](https://lifehacker.com/clean-your-dirty-microwave-with-a-lemon-1844495764) )。)如果你有一个微波炉转盘，把它和你剩下的盘子一起放在水槽或洗碗机里清洗。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled 12 Neglected Household Items You Should Clean More Often](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/clean-your-dirty-microwave-with-a-lemon-1844495764)</aside>
+
 
 我们都犯过让果酱容器粘在冰箱门内侧搁板上的错误，但你绝不会希望它发展到每个容器都粘在一滩黏糊糊的东西上的地步。家庭清洁网站 Molly Maid 建议每隔 [三到四个月](https://www.mollymaid.com/practically-spotless/2019/july/how-often-should-i-clean-my-refrigerator-and-how/) 对你的冰箱进行一次深度清洁。从冰箱中取出所有物品，并移除物理抽屉。用抹布和热肥皂水擦拭内部。像手洗餐具一样清洗水槽中的保鲜盒抽屉。清洁后请务必擦干抽屉。一旦你清理了内部的任何杂物，擦干它，把抽屉和食物放回里面。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled 12 Neglected Household Items You Should Clean More Often](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/our-best-fridge-cleaning-hacks-1844362067)</aside>
+
 
 Molly Maid 还建议拿起你的吸尘器和刷子附件，清除堆积在冰箱后外部烤架上的灰尘。吸尘将确保电机和冷却设备畅通并正常工作。
 
 说到定期清洁，T2 经常被忽视，因为这样做太难了。但是定期维护让你的烤箱更容易保持闪亮。有些人季节性地清洗他们的烤箱，在春季大扫除期间和节前节后。博客 Clean My Space 的创始人梅丽莎·梅克(Melissa Maker)，告诉食品和厨房网站 [Food52](https://food52.com/blog/24054-how-often-to-clean-refrigerator-oven-stovetop-microwave) 如果你的烤箱有自清洁功能，就使用它。“炉子的内部有一种特殊的涂层，如果你使用海绵，你会破坏涂层，使你的保修无效，你的炉子也不会工作。”然而，我们已经报道了使用你的烤箱的自动清洁功能的危险，所以我要确保你在打开烤箱之前做好自动清洁的准备。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled 12 Neglected Household Items You Should Clean More Often](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/the-best-ways-to-clean-every-part-of-your-oven-1844867942)</aside>
+
 
 如果你想避免自我清洁的选择，迈尔建议在任何溢出物或液滴上撒上盐来吸收任何液体。一旦完全吸收，它可以很容易地被清除或抹去。这小小的一招将把你从-的背上救下来。
 

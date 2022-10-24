@@ -10,7 +10,7 @@
 
 手举重还是举重。小哑铃可以用来举起上半身，如果你能够举起足够长的时间来疲劳你的肌肉，你仍然会变得更强壮。大哑铃会增加体重下蹲、跨步和弓步的挑战。这里有一个哑铃练习 的图表，这里有一个你可以用一对哑铃 做的 [简单锻炼。](https://lifehacker.com/do-this-dumbbell-workout-from-home-1842490289)
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled 7 Ways to Work Out With Limited Equipment](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/do-this-dumbbell-workout-from-home-1842490289)</aside>
+
 
 阻力带给你最大的，如果你买一双重型的话，可以提供数百磅的阻力。下面是 [一个招式图](https://vitals.lifehacker.com/this-exercise-chart-is-full-of-travel-friendly-resista-1784267047) ，和一个 [经典练习](https://vitals.lifehacker.com/use-resistance-bands-for-travel-friendly-workouts-1758183618) 像二头肌弯举的视频合集，翻译为 阻力带使用。
 

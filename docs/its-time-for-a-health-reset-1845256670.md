@@ -20,7 +20,7 @@ Watch
 
 如果你的孩子错过了健康访视，确保他们没有错过疫苗 或必要的筛查。同样，如果您错过了体检或其他常规护理，如洗牙，请致电您的医疗服务提供者，询问您是否应该接受检查。他们可能会说不，没什么大不了的，明年见；但是如果某些事情对你很重要，考虑到你的病史，他们可以让你知道。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled It&#39;s Time for a Health Reset](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/can-you-still-go-to-the-doctor-during-a-pandemic-1844278703)</aside>
+
 
 疫情的一个亮点是，医疗服务提供商正在发现他们可以通过远程医疗(如视频通话)做多少事情。你也许可以这样做一些你通常会亲自做的访问:例如，治疗。
 

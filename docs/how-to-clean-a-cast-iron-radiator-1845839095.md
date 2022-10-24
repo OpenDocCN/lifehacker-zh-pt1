@@ -18,7 +18,7 @@ Watch
 *   两块布——一块用来洗，一块用来干
 *   覆盖地板的桌布或塑料
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled How to Clean a Cast Iron Radiator](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/is-a-steam-cleaner-as-useful-as-the-internet-claims-1845824477)</aside>
+
 
 ### 关闭散热器
 

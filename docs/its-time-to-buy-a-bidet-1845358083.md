@@ -28,7 +28,7 @@ Watch
 
 或者你可以走高端路线:如果你喜欢 [日本的高科技厕所](https://lifehacker.com/you-need-the-kind-of-electronic-toilet-thats-popular-in-1834220226) 的想法，有像 [这种](https://www.amazon.com/Ultimate-Elongated-Installation-Adjustable-Posterior/dp/B007HIKQCK/ref=sr_1_1?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/its-time-to-buy-a-bidet-1845358083&asc_source=&dchild=1&keywords=computerized bidet&qid=1602603883&refinements=p_36:1253532011&rnid=1243644011&s=hi&sr=1-1&tag=kinjalifehackerlink-20) 的坐浴盆，提供多种按钮和设置，还有包括加热座和洗完屁股后风干的功能。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled It&#39;s Time to Buy a Bidet](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/you-need-the-kind-of-electronic-toilet-thats-popular-in-1834220226)</aside>
+
 
 如果你不能安装坐浴盆，或者如果你外出旅行并经常远离你的家庭厕所，试试 [坐浴盆瓶或近瓶](https://lifehacker.com/use-a-squeeze-bottle-as-a-diy-bidet-1842643743) 。(如果你生过孩子，你可能会在离开医院的时候拿到一个这样的东西。同样的想法，但你也可以用一个形状更方便的喷嘴 来得到花哨的 [。)](https://www.amazon.com/Eco-Friendly-CleanMommy-Soothing-Postpartum-Perineal/dp/B07VQLGLGC?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/its-time-to-buy-a-bidet-1845358083&asc_source=&tag=kinjalifehackerlink-20)
 

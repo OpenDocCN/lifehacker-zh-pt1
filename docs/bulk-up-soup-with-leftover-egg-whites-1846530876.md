@@ -8,7 +8,7 @@ Watch
 
 鸡蛋在 [用大量黄油](https://skillet.lifehacker.com/fry-your-eggs-in-too-much-butter-1845206587) 全煎(显然)很好吃，但我对这些蛋黄以及它们在蛋羹中的作用着迷。用它们，我做了 [甜奶油冰淇淋](https://twitter.com/clairelizzie/status/1371939087087640578) 和 [香蕉布丁](https://twitter.com/clairelizzie/status/1369511796290166785) ，两个出来都那么黄，你会以为我加了食用色素。这种对蛋羹的专注带来了几道美味佳肴，但却给我留下了过剩的蛋清。我还计划治愈相当多的接近橙色的球体，这只会增加我的蛋清供应。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Bulk Up Soup With Leftover Egg Whites](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/what-to-do-with-extra-egg-whites-and-yolks-1843340902)</aside>
+
 
 蛋清擅长提供两样东西:结构和蛋白质。我主要用它们来给蛋白甜饼、巴芙洛娃和酸奶增肥，但我只能吃这么多前两种，我只是没喝够让后者成为有效的鸡蛋- 白色消费策略。我从不推荐任何人做或吃蛋白煎蛋卷(又名变态的煎蛋卷)，但是所有额外的蛋白质在一碗肉汤里是非常受欢迎的。
 

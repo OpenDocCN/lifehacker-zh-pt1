@@ -6,7 +6,7 @@
 
 但首先，有一个关于咖啡过滤器的说明。我们之前已经介绍过 [和](https://lifehacker.com/use-extra-coffee-filters-to-replace-paper-towels-and-te-1833773821) 它们如何有助于清洁你的家。只是一定要在清洗咖啡机之前清空垃圾桶里用过的过滤器，因为咖啡渣会堵塞水槽。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled How to Clean Every Type of Coffee Maker](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/use-extra-coffee-filters-to-replace-paper-towels-and-te-1833773821)</aside>
+
 
 ## 滴液器
 

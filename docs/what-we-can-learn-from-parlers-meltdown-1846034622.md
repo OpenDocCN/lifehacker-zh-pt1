@@ -30,7 +30,7 @@ Watch
 
 简而言之，如果没有必要，为什么要放弃关于自己的信息呢？把这些留给 LinkedIn 吧，它才是重要的。如果不是，做你想做的人——而不是你自己。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled What We Can Learn From Parler&#39;s Meltdown](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-stop-the-twitter-trolls-and-clean-up-your-feed-1841641699)</aside>
+
 
 ### 停止钓鱼
 

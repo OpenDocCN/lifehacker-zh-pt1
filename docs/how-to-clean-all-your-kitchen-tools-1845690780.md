@@ -12,7 +12,7 @@
 
 清洁搅拌机时，不要冒险割伤手指。取而代之的是，用热水和洗洁精将它装满一半。让搅拌机运转几秒钟，让里面的东西变松，然后冲洗干净。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled How to Clean All Your Kitchen Tools](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/clean-your-kitchen-and-more-with-barkeepers-friend-1845550413)</aside>
+
 
 如果你有生锈的厨房剪刀，把刀刃弄湿，洒在酒吧老板的朋友身上。 形成糊状，静置一分钟，然后擦洗掉，冲洗干净。铁锈会消失的！
 

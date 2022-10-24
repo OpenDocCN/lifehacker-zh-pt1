@@ -6,7 +6,7 @@
 
 Watch
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Win $1,000 for Having the Most Creative Face Mask Design](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/put-your-mask-over-your-damn-nose-1844132568)</aside>
+
 
 ### 如何进入
 

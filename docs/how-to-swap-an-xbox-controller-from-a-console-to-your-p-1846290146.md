@@ -8,7 +8,7 @@ Watch
 
 奇怪的是，这个方便的功能基本上是隐藏的。微软几乎没有在任何官方文档中提到它，直到最近在 Reddit 和 Twitter 上的帖子，该功能才在 video 0-w 上显示出来，这很奇怪，因为这是目前 Xbox Series X|S 控制器基本上独有的功能。你不能用一个 [PlayStation 4 或 5 游戏手柄](https://lifehacker.com/how-to-use-a-playstation-5-controller-with-steam-1845742247) ，Switch 的 Joycons 或 Pro 控制器，甚至 Xbox One 或 [Xbox Elite 控制器](https://lifehacker.com/how-to-use-an-xbox-series-x-or-elite-controller-with-st-1846022283) 来做到这一点。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled How to Swap an Xbox Controller From a Console to Your PC or Phone](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-connect-xbox-and-playstation-controllers-to-your-1842640968)</aside>
+
 
 X|S 系列控制器支持两种类型的无线通信——蓝牙和微软专有的 Xbox Wireless——它能记住每种类型最近使用的设备。因此，您可以通过 Xbox Wireless 将控制器连接到 Xbox 主机(或通过 Xbox Wireless 适配器加密狗连接到 PC)，以及通过蓝牙连接到智能手机、平板电脑或 PC，控制器将记住这两者。其他控制器一次只能记住一个蓝牙设备。
 

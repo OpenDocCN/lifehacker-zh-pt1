@@ -10,7 +10,7 @@
 
 对于一杯肮脏的马提尼酒，一杯大胆的血腥玛丽，或者一杯浓汤凯撒或米开朗琪罗，我绝对是垃圾。这些东西是好的，因为它们丰富而美味，感觉有点不对劲。我在喝盐水吗？我在喝汤吗？我喝醉了吗？是的。对所有的都是。味精将这种氛围带到了一个新的高度，让你的血液更愉快，你的马提尼酒更肮脏。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled 9 Unexpected Things You Should Season With MSG](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/make-an-absolutely-filthy-martini-with-msg-1836892332)</aside>
+
 
 人们(主要是 Pinterest 上的人)过去常说福乐鸡快餐店三明治和鸡块的秘密配料是泡菜汁，但这从来都不是真的。他们鸡肉诱人味道的秘密是并且一直是味精。一旦你意识到这一点，你的油炸食物游戏将会升级到下一个级别。你可以用这些知识来制作你自己的 nugs ，但是你也可以向任何干盐水或面糊混合物中加入几茶匙，以获得简单、额外的美味。
 
@@ -18,7 +18,7 @@
 
 咸焦糖很 2011，味精焦糖完全是 2034。这是反差的极致——黄油味、甜味、咸味和深深的咸味。像鱼酱焦糖，只是更甜点(和素食)友好。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled 9 Unexpected Things You Should Season With MSG](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/make-the-ultimate-salted-caramel-with-msg-1837100417)</aside>
+
 
 你知道吗，在一个大的飞行管 [里的天空中会降低你对甜食和咸食的敏感度](https://www.bbc.com/future/article/20150112-why-in-flight-food-tastes-weird) ？你知道吗，它还能增强你发现鲜味的能力？这两件事都是真的，这就是为什么人们在飞机上点番茄汁，也是为什么我每次旅行都带着一小罐味精。(我知道大多数人已经有一段时间没有去旅行了，但也许有一天会去！如果你真正能品尝到的只有美味的东西，你还不如用周围最美味的水晶来调味。
 

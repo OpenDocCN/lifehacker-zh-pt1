@@ -10,7 +10,7 @@ Watch
 
 虽然听起来我只是脾气暴躁，或者试图阻止我的朋友在我看 YouTube 或玩游戏时纠缠我——偶尔是真的——但每当我遇到软件或硬件问题时，这条建议是我自己武器库中的第一个工具。我关闭了有问题的设备，等待几秒钟，重新开机，看看是否解决了问题。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled The First and Best Way to Troubleshoot a Fussy Device](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-often-should-you-reboot-your-computer-1846008347)</aside>
+
 
 为什么这个效果这么好？简而言之，你正在重置设备及其软件，回到一个已知的状态——理论上。你所做的任何古怪和临时的修改，或者任何由你或其他外部因素引起的软件异常，都应该消失。你的设备的内存中不会有任何东西存在，因为它会被关闭。你基本上是在重置你的设备的所有连接，不管它们是什么，它应该会恢复到以前的正常状态。如果它是一个简单的设备(网络交换机)而不是一个复杂的设备(你的笔记本电脑)，那就更是如此。
 

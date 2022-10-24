@@ -14,7 +14,7 @@ Watch
 
 首先:当你坐下来工作时，你感到舒服吗？如果你一直凑合着坐在一把不舒服的椅子上，请换一把更好的，或者采取措施让你现有的那把更适合你。调整椅子的座位深度、高度和背部支撑会有很大的不同，正如我们的阿布·扎法尔在他 [邀请一位人体工程学专家评估他的工作空间](https://lifehacker.com/how-to-ergonomically-optimize-your-desk-to-avoid-aches-1841814945) 时发现的那样。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Tweak Your Work-From-Home Life for Better Health](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-ergonomically-optimize-your-desk-to-avoid-aches-1841814945)</aside>
+
 
 但如果这不是你的风格，好消息是:你不必找到完美的椅子和位置。如果你感觉更好，你可以简单地在白天四处走动。重要的是你感到舒适，而不是你找到舒适的确切方式。我坐在一张带枕头脚凳的木椅上，每隔几分钟就换一次位置。这在任何人体工程学指南中都没有提到，但对我来说很有用。
 

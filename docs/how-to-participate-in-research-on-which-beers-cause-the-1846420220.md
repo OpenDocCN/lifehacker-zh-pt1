@@ -23,7 +23,7 @@ Watch
 *   没有怀孕或有任何酒精禁忌症，诊断成瘾，抑郁或焦虑。
 *   接受新冠肺炎测试
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled How to Participate in Research on Which Beers Cause the Worst Hangovers](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-cure-a-hangover-1836042719)</aside>
+
 
 ### 如何申请
 

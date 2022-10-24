@@ -6,7 +6,7 @@
 
 Watch
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Throw Out Your Romaine Lettuce Again, FDA Says](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/will-smashing-lettuce-on-the-counter-make-your-salad-be-1844787676)</aside>
+
 
 ### 有问题的罗马人
 

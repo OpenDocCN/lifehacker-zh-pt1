@@ -10,7 +10,7 @@
 
 *其余三分之二不一定会被丢弃，而是进入了全球贸易的迷宫。一些多余的衣服——尽管没有确切数量的数据——最终进入了巨大的全球再利用市场。来自世界各地的商人收集衣服，对它们的状况进行分级，然后将它们送去回收，再次穿着，或者变成抹布和床垫填料。*
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">*[![Image for article titled Worn Out: The Fashion Industry&#39;s Giant Waste Problem](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://gizmodo.com/worn-out-the-fashion-industrys-big-oil-problem-1846433952)*</aside>
+
 
 *不过，有一个问题。目前，时尚产业正在生产如此多的东西，以至于这个全球网络 [变得不堪重负。](https://www.bloomberg.com/opinion/articles/2018-01-15/no-one-wants-your-used-clothes-anymore) 服装产量从 2000 年起已经翻了一番，时尚产业现在每年生产[1500 亿件](https://www.vogue.com/article/fast-fashion-environmental-impact-sustainability-parsons-zady) 。社会通过购买更多的衣服来跟上所有新衣服的生产:今天平均每个人购买的衣服比 20 年前多 60%。*
 

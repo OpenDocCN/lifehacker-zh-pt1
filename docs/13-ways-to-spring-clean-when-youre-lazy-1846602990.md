@@ -6,7 +6,7 @@
 
 如果你没有像建议的 那样每两周给你的微波炉好好清洗一次 [，那么可能会有一层你几个小时都不想擦洗的污垢。为了减轻负担，在微波炉里放一碗加了柠檬和醋的水，让水沸腾。让它静置一分钟，然后拿一块热抹布轻松擦拭内部。](https://lifehacker.com/12-neglected-household-items-you-should-clean-more-ofte-1846588570/slides/2)
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled 13 Ways to Spring Clean When You&#39;re Lazy](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/clean-your-dirty-microwave-with-a-lemon-1844495764)</aside>
+
 
 在疫情 期间，能够保持杂乱变得更加[困难。在前疫情时代，花更多的时间在房子外面可以让你更有规律地清理结构和清理杂物；然而，既然我们一直在家，就很容易让杂物堆积起来。指定一个或两个垃圾桶，特别是用于存放各种杂物，扔掉你遇到的不需要的物品，然后你可以自由地用那些你不确定的物品进行更深入的清洁。](https://www.curbed.com/2020/10/clutter-untidy-history-quarantine-jen-howard-book.html)
 

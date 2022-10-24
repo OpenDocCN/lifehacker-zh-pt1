@@ -6,7 +6,7 @@
 
 Watch
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled This Guide Walks You Through Every Step of Voting in 2020](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-register-to-vote-online-1845004462)</aside>
+
 
 ### **如何注册投票或查看您的状态**
 

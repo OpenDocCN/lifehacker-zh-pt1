@@ -6,7 +6,7 @@
 
 Watch
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled When Not to Use a Magic Eraser](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/use-magic-erasers-to-clean-sneakers-grout-and-keyboar-1835154205)</aside>
+
 
 尽管它们看起来像海绵，但神奇的橡皮实际上是三聚氰胺泡沫块，这是一种多孔材料，并不像听起来那么可爱。根据 HowStuffWorks.com 的说法，三聚氰胺泡沫是由硬化的三聚氰胺树脂线包裹的微小气泡制成的。这些线完整时非常坚硬，断裂时非常锋利，就像微小的玻璃碎片。在表面上摩擦神奇的橡皮擦使其强大的功能组合发挥作用:三聚氰胺树脂将东西擦掉，气泡立即吸收它。如果有任何剩余，一点额外的压力会将三聚氰胺分解成微小的颗粒，这增加了更多的研磨力。这就像用砂纸来吸尘一样。
 

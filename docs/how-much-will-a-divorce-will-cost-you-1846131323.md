@@ -20,7 +20,7 @@ Watch
 
 另一个更复杂的选择是，这需要一名律师作为第三方调解人(这种方式的变体被称为)。这里没有法院或任何形式的裁决——这只是解决一些悬而未决的问题，同时避免浪费法庭时间的一种方式。根据 NOLO 的一项调查，寻求调解的人平均花费 970 美元用于调解。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled How Much Will a Divorce Cost You?](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-stay-in-love-during-the-pandemic-according-to-a-1843981015)</aside>
+
 
 ### 有争议的离婚要花多少钱？
 

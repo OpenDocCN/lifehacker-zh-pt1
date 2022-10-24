@@ -4,7 +4,7 @@
 
 我不知道这是什么时候发生的，但在某个时候，我们——作为一个社会——认为食用一种碳水化合物是不礼貌的。也有一些例外，比如塔可钟的 [现已退役的](https://skillet.lifehacker.com/learn-how-to-make-taco-bell-potatoes-because-they-will-1844608145) 辣土豆软塔可和英国的薯条黄油，但在大多数圈子里，carb-on-carb 是相当罕见的配置。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Should You Eat Ramen on Toast?](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/mixing-mayo-and-saltines-is-not-as-bad-as-it-should-be-1845315634)</aside>
+
 
 土豆是最容易逃脱的。我上面提到的 taco 和 butty(在英国是“奇怪的小三明治”)都使用土豆作为“填充碳水化合物”，以小麦为基础的碳水化合物作为输送系统。另一方面，摄入两种以小麦为基础的碳水化合物感觉很尴尬——但这正是读者 Kurt 建议我做的。
 

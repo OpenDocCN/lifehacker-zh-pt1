@@ -20,6 +20,6 @@ Watch
 6.  要么通过免下车窗口取车，要么要求路边取车。
 7.  吃薯条。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Gorge Yourself on McDonald&#39;s Fries Every Friday, From Now Until Summer](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/make-retro-mcdonalds-fries-with-beef-tallow-1838259817)</aside>
+
 
 每位顾客每周五可以享受一次这一优惠。(同样，这不是一个建议或挑战。)

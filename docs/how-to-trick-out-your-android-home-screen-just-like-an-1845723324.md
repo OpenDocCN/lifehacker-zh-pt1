@@ -4,7 +4,7 @@
 
 拥有新 iOS 14 的 iPhone 用户现在可以享受带有小工具和可下载模板的定制主屏幕。Android 用户可能会觉得他们错过了让他们的主屏幕看起来像 Windows 95 或动物穿越的机会，但就像《绿野仙踪》中的铁皮人一样，他们实际上一直拥有这种能力。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled How to Trick Out Your Android Home Screen Just Like an iPhone](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-customize-your-iphone-home-screen-in-ios-14-1845450222)</aside>
+
 
 只需长按主屏幕上的空白区域，从下拉菜单中选择“widgets”。然后，您可以选择一个预制的小部件，并将其放在您的屏幕上，调整大小和位置。如果你想变得非常花哨，就像在 iPhone 中一样，你可以下载第三方应用程序来创建自己的小工具。可以使用[KWGT Kustom Widget Maker](https://play.google.com/store/apps/details?id=org.kustom.widget&hl=en_US&gl=US)、 [终极定制 Widget](https://play.google.com/store/apps/details?id=in.vineetsirohi.customwidget&hl=en_US&gl=US) ，或者[chronous 信息 Widgets](https://play.google.com/store/apps/details?id=com.dvtonder.chronus&hl=en_US&gl=US) 。
 

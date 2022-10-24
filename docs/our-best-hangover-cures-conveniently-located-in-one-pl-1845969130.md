@@ -6,7 +6,7 @@
 
 如果你今天早上感觉有点虚弱，正在寻找宿醉疗法，你应该知道，真的没有任何真正的由科学支持的 T2 疗法 T3 T4 T5。但是有一些策略可以帮助你在整个过程中感觉更好，或者至少更舒服。以下是 Lifehacker 档案中的一些方法。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Our Best Hangover Cures, Conveniently Located in One Place](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-cure-a-hangover-1836042719)</aside>
+
 
 当一切都失败的时候， [科学地思考宿醉](https://lifehacker.com/cure-your-hangover-with-science-1520382540) 。或者更确切地说，看着别人带你走过整个过程。提醒自己，酒精虽然美味，却是一种毒药，你的身体会做出相应的反应——包括让你觉得自己像垃圾。
 

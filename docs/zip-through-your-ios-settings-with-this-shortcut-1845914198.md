@@ -16,4 +16,3 @@ Watch
 
 我知道你可以通过长按主屏幕上的设置图标 [调出上下文菜单](https://lifehacker.com/how-to-use-faster-context-menus-in-the-latest-ios-13-an-1836501619) 来获得这种功能，但是你不能用你最关心的设置菜单来配置它。所以，这就对了。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Zip Through Your iOS Settings With This Shortcut](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/haptic-touch-is-the-most-underrated-feature-in-ios-1843586078)</aside>

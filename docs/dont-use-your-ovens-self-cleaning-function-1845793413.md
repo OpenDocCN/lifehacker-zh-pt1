@@ -32,7 +32,7 @@ Watch
 
 看看你是否有一个带 [蒸汽清洁选项](https://www.brandsourceservice.net/single-post/2017/11/15/Self-Cleaning-Ovens-VS-Steam-Cleaning-Ovens) 的烤箱，因为蒸汽使用较低的温度来破碎固体，并提供一个较少磨损的选项来清洁你的烤箱。“因为蒸汽清洁使用较低的温度，炉门不会自动锁定，就像它在自清洁模式下一样，”通用电器 [说。这是清洁烤箱的一个少烟的选择。](https://www.geappliances.com/ge/range-stove/range-cleaning-options.htm)
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Don&#39;t Use Your Oven&#39;s Self Cleaning Function](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/our-best-fridge-cleaning-hacks-1844362067)</aside>
+
 
 ### 或者只是手动清洗你的烤箱
 

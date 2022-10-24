@@ -6,7 +6,7 @@
 
 但事实并非如此！
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled How to Properly Load a Dishwasher](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/you-can-put-much-more-in-your-dishwasher-than-plates-an-1833578190)</aside>
+
 
 因此，这里有一个 [有用的视觉指南](https://lifehacker.com/c/video) 向你展示如何最大限度地提高能源效率，并确保一切都是干净的。请记住，水将从下面向上喷射，因此将进食面*朝向清洁剂*。此外，底部机架的压力更大，因此有可能断裂或弯曲的东西应该放在顶部机架上。
 

@@ -6,7 +6,7 @@
 
 Watch
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled How to Get Free Wings Every Time March Madness Goes Into Overtime](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/is-this-the-easiest-way-to-eat-chicken-wings-1845145029)</aside>
+
 
 ### 如何获得免费翅膀
 

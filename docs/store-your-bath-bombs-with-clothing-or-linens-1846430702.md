@@ -6,7 +6,7 @@
 
 Watch
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Store Your Bath Bombs With Clothing or Linens](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-perfect-the-art-of-bathing-1844593912)</aside>
+
 
 当你将氢弹放入湿气中时，它们会发生酸碱反应，从而产生气泡。想想你小时候做的小苏打和醋火山——这基本上就是一个浴弹，只不过酸是结晶的柠檬酸(而不是液态乙酸)，还有很多其他成分，比如保湿油、美丽的着色剂和令人恼火的闪光物。一旦结晶酸接触到水，它就会溶解并开始与小苏打相互作用，这时奇迹就发生了。让东西真正起泡需要一点水，但是坐在潮湿的环境中(像你的浴室)，会降低你的洗澡炸弹的质量，因为它等待着被部署。
 

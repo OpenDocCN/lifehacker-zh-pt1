@@ -8,7 +8,7 @@ Watch
 
 这并不是说你需要昂贵的设备:你完全可以用你的智能手机拍出像样的宠物照片。在纽约时报 的一篇文章中，J.D. Biersdorfer 为我们进行了分析。以下是需要了解的内容。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled How to Take the Classy Portraits Your Pet Deserves](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-take-the-best-photos-with-your-iphone-1845243377)</aside>
+
 
 ### 1.选择时间和地点
 

@@ -10,7 +10,7 @@ Watch
 
 抖音用户 [@gettishow](https://www.tiktok.com/@gettishow?lang=en) 必须停止。她必须为她的烹饪罪行负责，包括 [将巧克力注入一个无辜的煮鸡蛋](https://www.tiktok.com/@gettishow/video/6926322238450928901?source=h5_m&is_copy_url=1&is_from_webapp=v1&lang=en) ，用书呆子糖果 制作 [意大利面(她称之为“Getti 意大利面”)，以及](https://www.tiktok.com/@gettishow/video/6928904532319685893?lang=en&is_copy_url=1&is_from_webapp=v1) [将一袋火红的奶酪](https://www.tiktok.com/@gettishow/video/6925967021368675589?source=h5_m&is_copy_url=1&is_from_webapp=v1&lang=en) 煮成鲜橙色的泥，然后将其与盒装通心粉和奶酪混合。你可以观看 Lifehacker 自己的 Claire Lower 和 Joel Khan 在他们的 [*Hack 或 Wack:零食版*](https://lifehacker.com/no-you-cannot-turn-potato-chips-into-mashed-potatoes-1846301602) 系列中尝试它。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled The Out-of-Touch Adults’ Guide to Kid Culture: Food Crimes and Viral Facials](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/no-you-cannot-turn-potato-chips-into-mashed-potatoes-1846301602)</aside>
+
 
 Getti 的肮脏食谱让我陷入了一个恶心的互联网厨师的迷你兔子洞，包括 [这个家伙](https://www.tiktok.com/@elis_kitchen?is_copy_url=1&is_from_webapp=v1)[用啤酒、芥末和一半一半的](https://www.tiktok.com/@elis_kitchen/video/6923774651978026246?is_copy_url=1&is_from_webapp=v1) 烹饪意大利面，并通过在水中煮沸 Lay 的薯片和添加奶酪来制作“奶酪土豆泥”，以及一个用前臂作为擀面杖并给她的孩子喂一种叫做 [意大利馅饼的东西的女人](https://www.facebook.com/watch/?v=232107811876833) 这些厨师是否在玩弄这些可怕的“食物黑客”还不能确定，但由于卡夫出售预包装版本的[Flamin ' Hot chetos Mac ' n Chees](https://www.cheetos.com/products/cheetos-mac-n-cheese-flamin-hot)e，很明显人们实际上是认真对待的。*不寒而栗*。
 

@@ -6,7 +6,7 @@
 
 Watch
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Celebrate National Sandwich Day by Putting Mayo on Your Breakfast Sandwich](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/why-you-should-save-every-drop-of-bacon-grease-1829607931)</aside>
+
 
 什么是真正美味的早餐三明治？当然是蛋黄酱。我从来都不理解早餐三明治中不放调味品的倾向。它们是*三明治*，和其他的没什么区别，没有调料的三明治都是干的。只要轻轻一抹奶油和扑鼻的调味品，任何三明治——包括早餐三明治——就能变得美味可口，为什么不把你的吐司涂上蛋黄酱呢？
 

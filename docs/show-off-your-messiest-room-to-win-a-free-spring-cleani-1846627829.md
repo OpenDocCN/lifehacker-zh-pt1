@@ -18,7 +18,7 @@ Watch
 *   价值 500 美元的组织产品，包括 [集装箱商店的玛丽近藤线](https://www.containerstore.com/marie-kondo) 。
 *   1 年 VIP 会员资格和 100 美元与[Grove Collaborative](https://www.grove.co/)一起消费。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Show Off Your Messiest Room to Win a Free Spring Cleaning](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/the-best-things-to-take-apart-for-deep-cleaning-1846584550)</aside>
+
 
 ### 如何进入
 

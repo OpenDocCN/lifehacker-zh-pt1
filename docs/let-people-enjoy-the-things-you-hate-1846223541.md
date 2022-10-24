@@ -10,7 +10,7 @@
 
 如果你是一个固执己见的人，当一个朋友翻唱了一首你讨厌的艺术家的歌，或者对一个有着复杂个人经历的作者的新书赞不绝口时，你可能很难不去理会。然而，有些时候表达自己的观点是合适的，即使这会引发分歧或争论，有些时候则不合适。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Let People Enjoy the Things You Hate](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-have-a-tough-conversation-with-someone-youre-qua-1843155791)</aside>
+
 
 ### 如果无害，就保持安静
 

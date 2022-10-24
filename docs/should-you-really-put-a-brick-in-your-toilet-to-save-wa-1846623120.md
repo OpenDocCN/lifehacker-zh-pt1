@@ -6,7 +6,7 @@
 
 Watch
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Should You Really Put a Brick In Your Toilet to Save Water?](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/you-need-the-kind-of-electronic-toilet-thats-popular-in-1834220226)</aside>
+
 
 这种经典的 DIY 方法背后的想法很简单:在马桶水箱里放一块砖会占用空间，减少每次冲水的用水量。如果操作得当，它确实有效——但是如果你不小心，你聪明的低流量装置要么什么也做不了，要么严重损坏你的马桶和管道。以下是你需要知道的正确做法。
 

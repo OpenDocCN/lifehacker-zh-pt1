@@ -8,7 +8,7 @@ Watch
 
 到现在为止，你可能已经熟悉了这样一个概念:利用面试不仅可以表达你为什么适合这个职位，还可以判断这个组织是否适合你。通常，重点是找出公司文化是否适合你——这当然很重要。但公司的价值观也是如此， [专注于高管沟通的高级领导教练克里斯蒂·赫奇斯](https://www.thehedgescompany.com/meet-kristi) 最近在《哈佛商业评论 的 [文章中写道。以下是如何确定一个组织的价值观是什么，以及它们是否与你的价值观相吻合。](https://hbr.org/2020/10/how-to-tell-if-a-prospective-employer-shares-your-values)
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled How to Figure Out Whether Your Values Align With a Prospective Employer&#39;s](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-ace-a-job-interview-1837902479)</aside>
+
 
 ### 文化与价值观
 

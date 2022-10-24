@@ -18,7 +18,7 @@ NBC 新闻驻白宫记者 Kristen Welker 将担任这场 90 分钟辩论的主�
 
 谈到 COVID，候选人将再次跳过辩论前的握手。虽然拜登、特朗普和韦尔克不会在舞台上戴口罩，但观众会要求他们戴口罩。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled How to Watch the Final Biden/Trump Presidential Debate Before the 2020 Election](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-make-sure-your-vote-is-counted-1844166647)</aside>
+
 
 ### **如何观看最后一场总统辩论**
 

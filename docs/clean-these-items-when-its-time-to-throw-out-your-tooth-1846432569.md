@@ -18,7 +18,7 @@ Watch
 
 你需要更换的牙刷也可以提醒你清理浴室里的水泥浆。我翻遍了无数刷洗设备，想找到一把完美的刷子来刷进浴室的瓷砖，但完美的解决方案就在我眼前:使用旧牙刷是一种乏味但有效的方法，可以彻底清洁浴室墙壁和地板上的水泥浆，直到你更换下一个为止。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Clean These Items When It&#39;s Time to Throw Out Your Toothbrush](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/the-best-ways-to-clean-grout-1845863047)</aside>
+
 
 ### 更新你的电器
 

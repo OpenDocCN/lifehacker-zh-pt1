@@ -8,7 +8,7 @@ Watch
 
 听着，碗人:你需要一个杯子的高边来正确地将冰淇淋舀到你的勺子里。碗壁太低，会导致你把冰淇淋推来推去，永远不会送到你饥饿的嘴里。此外，杯柄可以让你的体温远离冰冻的食物，延缓其融化。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Ice Cream Deserves to Be Eaten From a Mug](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/add-structure-to-your-day-with-the-perfect-morning-rout-1844606619)</aside>
+
 
 说到融化，一旦你的冰淇淋最终变成液体，我有好消息告诉你！已经在杯子里了！所以你可以很容易地把杯子倒回去，喝你新做的汤。或者更好的是(正如另一个乔尔 建议的那样)，加入一些咖啡，现在你有了一种全新的饮料——更少的清理。
 

@@ -24,7 +24,7 @@ Watch
 
 显然，这说起来容易做起来难，但是 Silver 说 2016 年和 2020 年之间的一些比较是被误导的。首先，我们不应该根据一次选举的样本量得出任何绝对的结论(不管后果有多严重)。此外，即使目前的民意调查是错误的，西尔弗说拜登仍然有可能赢得 选举。此外，不能保证民调误差会像四年前那样有利于特朗普。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled How to Deal With Anxiety Related to the Election and Polling Numbers, According to Nate Silver](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-make-sure-your-vote-is-counted-1844166647)</aside>
+
 
 ### 等待轮询平均值
 

@@ -38,7 +38,7 @@ Watch
 
 **是给谁的？**骑自行车是另一种低冲击运动，强度等级由你决定。对于间歇来说，这很好，现在 Peloton 和它的许多模仿者(包括 [【苹果健身+](https://vitals.lifehacker.com/how-to-use-apple-fitness-1845886827) )的教练指导的自行车课程有一个完整的市场。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled How to Decide Which Cardio Machine to Buy](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/build-your-own-peloton-style-exercise-bike-and-save-mon-1844446863)</aside>
+
 
 ### 划手
 

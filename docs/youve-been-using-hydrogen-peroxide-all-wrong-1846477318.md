@@ -40,7 +40,7 @@ Watch
 
 [用未稀释的家用双氧水喷灌浆](https://www.onegoodthingbyjillee.com/30-uses-for-hydrogen-peroxide-youll-want-to-know-about/) 。等待 10 -20 分钟，然后用粗糙的海绵擦洗——或者，更好的是， [一把旧牙刷](https://lifehacker.com/clean-these-items-when-its-time-to-throw-out-your-tooth-1846432569)——去除污垢和尘垢。根据需要重复多次，以获得想要的结果。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled You&#39;ve Been Using Hydrogen Peroxide Wrong](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/the-best-ways-to-clean-grout-1845863047)</aside>
+
 
 ### 身体和宠物健康
 

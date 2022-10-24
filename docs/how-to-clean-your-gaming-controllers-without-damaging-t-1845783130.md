@@ -18,6 +18,6 @@ Watch
 
 使用消毒擦拭布后，让控制器休息大约 10 分钟，然后用干燥的超细纤维毛巾完全擦干。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled How to Clean Your Gaming Controllers Without Damaging Them](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/the-dos-and-donts-of-disinfecting-your-phone-1842400895)</aside>
+
 
 如果你只是在一般使用之间消毒，这应该足够了。但是，如果您想对控制器进行更深入的清洁，请使用干牙签或棉签轻轻清除每个按钮周围接缝和任何其他容易积聚的区域的灰尘和污垢。完成后，再快速擦拭一下控制器，你就可以开始了。

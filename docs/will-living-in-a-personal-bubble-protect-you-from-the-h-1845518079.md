@@ -10,7 +10,7 @@
 
 我们对寻找新的设备和方法来帮助社交距离并不陌生，但这些豆荚似乎太多了。扣除运费和税费后，你只需花将近 100 美元，就可以遮住整个上半身，达到戴口罩的效果。我们还发现，整个前面板拉链，似乎违背了吊舱的整个目的。(在 [仔细检查制造商的网站](https://utwpods.com/collections/halloween) 后，解开前面板*特别是*破坏了 pod 的整个目的。)
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Will Living in a Personal Bubble Protect You From the Horrors of the Outside World?](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/pool-noodles-are-not-a-good-way-to-enforce-social-dista-1844180889)</aside>
+
 
 在把 shielddPod 带到这个世界上时，我们认为它在保持他人的社交距离方面是有效的，但主要是因为你戴着它看起来很疯狂，他们想远离你。(乔丹发现人们认为这是万圣节服装，或者可能是翻倒的洗衣篮。)
 

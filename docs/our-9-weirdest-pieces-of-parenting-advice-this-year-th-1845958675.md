@@ -36,7 +36,7 @@
 
 所以我们向你展示了如何将 [临时将你的车库改造成一个游戏区](https://lifehacker.com/how-to-turn-your-garage-into-a-playroom-1844236257) 。
 
-<aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Our 9 Weirdest Pieces of Parenting Advice This Year (That We Still Stand By)](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-turn-your-garage-into-a-playroom-1844236257)</aside>
+
 
 你可以创建自己的室内球坑。
 
