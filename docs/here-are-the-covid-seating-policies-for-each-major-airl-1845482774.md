@@ -18,84 +18,84 @@ Watch
 
 此外，预计将进行更多的飞行前 COVID 测试。美国航空公司、联合航空公司、夏威夷航空公司和捷蓝航空公司正在 [推出](https://www.cnbc.com/2020/10/14/travel-and-coronavirus-do-pre-flight-covid-19-tests-work.html) 飞行前测试服务，这使得旅行者可以避免在一些目的地所需的两周隔离期。以下是每家航空公司为使飞行更安全、更容易所做的努力。
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 #### 阿拉斯加航空公司
 
 阿拉斯加航空公司表示，他们在每次飞行前都会用高级 EPA 消毒剂清洁飞机，并将为没有口罩的乘客提供口罩。休息室开放，容量有限，有加强的清洁程序和调整的食品和饮料服务。查看他们的旅游咨询 [页面](https://www.alaskaair.com/content/advisories/coronavirus) 了解更多详情。他们有没有没有中间座位的航班？是的，截至 2021 年 1 月 6 日，中间座位被封锁的航班仍可使用，但不保证额外的空间，因为座位可能会分配给之前被取消航班的乘客。
 
-</section>
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 #### 忠实航空公司
 
 根据他们的网站，该航空公司按照医院级别的清洁程序“定期”清洁飞机。机场为每位顾客提供免费的安全包，包括一个一次性口罩和两块消毒湿巾。查看他们的旅游咨询 [页面](https://www.allegiantair.com/going-distance-health-safety#:~:text=Customers%20are%20encouraged%20not%20to,booked%20flight%20exceeds%2065%25%20capacity.) 了解更多详情。他们有没有没有中间座位的航班？不需要，但是如果预订的航班超过 65%的容量，客户可以要求通知，并提供一份备选航班列表。
 
-</section>
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 #### 美国航空公司
 
 该航空公司表示，他们在航班之间使用环保局批准的消毒剂彻底清洁飞机。所有飞机每周接受一次彻底的静电喷涂。取消了 8 月 3 日或之后签发的短途国际航班头等舱、公务舱、高级经济舱和主客舱机票的改签费。查看他们的旅游咨询 [页面](https://www.aa.com/i18n/travel-info/travel-with-confidence.jsp) 了解更多详情。他们有没有没有中间座位的航班？不需要，但是对于至少 70%的乘客已经办理登机手续的航班，乘客可以选择免费转到另一个航班。
 
-</section>
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 #### 德尔塔航空公司
 
 该公司网站称，他们使用静电喷雾器用高级消毒剂对飞机进行消毒，然后执行大量的手动清洁程序来擦拭机舱表面。达美航空对 2020 年 3 月 1 日至 12 月 31 日期间购买的所有机票免收改签费。查看他们的旅游咨询 [页面](https://www.delta.com/us/en/travel-update-center/overview) 了解更多详情。他们有没有没有中间座位的航班？是的。至少在 2021 年 1 月 6 日之前，达美航空将继续封锁中间座位，并限制每个航班的乘客数量(尽管可以为与两个或更多人一起旅行的乘客安排使用中间座位)。在那之前，头等舱的载客量也只有 50%。
 
-</section>
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 #### 边疆航空公司
 
 据 Frontier 网站介绍，每次飞行前，该公司都会用环保局批准的清洗液清洗飞机。飞机每晚在飞行间隙要额外清洁 4 到 6 个小时，使用一种清洁剂，该公司称这种清洁剂可以有效抗病毒 30 天。所有乘客和机组人员将在登机口用非接触式温度计测量体温。任何体温在华氏 100.4 度或以上的人都不能登机。查看他们的旅游咨询 [页面](https://www.flyfrontier.com/committed-to-you) 了解更多详情。他们有没有没有中间座位的航班？不，Frontier 去年 5 月取消了对被封锁的中间座位收费的计划。
 
-</section>
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 #### 夏威夷航空公司
 
 夏威夷航空公司表示，他们在每次飞行后都使用静电喷雾对所有飞机进行彻底消毒，这种静电喷雾是 EPA 认可的医院级消毒剂。试图避免夏威夷强制 14 天自我隔离的旅客可以在航班起飞前不迟于 72 小时显示阴性 COVID 结果。檀香山的鸡蛋花酒廊和所有顶级俱乐部都暂时关闭。查看他们的旅游咨询 [页面](https://www.hawaiianairlines.com/coronavirus) 了解更多详情。他们有没有没有中间座位的航班？是的，虽然你的确切座位可能会在登机口有所改变，以最大化整个机舱的空间。
 
-</section>
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 #### 捷蓝航空公司
 
 该航空公司在其网站上称，该公司每晚都会使用一种有效对抗冠状病毒的医院级消毒剂对飞机进行深度清洁。捷蓝航空提供一种基于唾液的家庭新冠肺炎测试，可以在航班起飞前 72 小时进行。该航空公司还分发个人防护包，其中包括洗手液和两张消毒湿巾，供客户在飞机上使用。查看他们的旅游咨询 [页面](https://www.jetblue.com/travel-alerts) 了解更多详情。他们有没有没有中间座位的航班？可以，但是不保证。至少到 2020 年 12 月 1 日，捷蓝航空的座位销售上限为 70%，尽管该公司不再保证你不会坐在陌生人旁边，因为一些中间座位可能会被分配。
 
-</section>
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 #### 西南航空公司
 
 该公司表示，他们在机舱内使用环保局批准的医院级消毒剂，每架飞机每晚都要清洁六个多小时。该公司不收取更改或取消航班的费用。查看他们的旅游咨询 [页面](https://www.southwest.com/Coronavirus/?clk=CORONAVIRUS_TA&cbid=5228061) 了解更多详情。他们有没有没有中间座位的航班？是的，但那将在 12 月 1 日结束。
 
-</section>
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 #### 精神航空公司
 
 Spirit 表示，他们使用了两种美国环保署注册的“雾化”处理方法来给飞机消毒。第一种是安全的高级消毒剂，可有效对抗 COVID，第二种是抗菌屏障，可在接触 30 天后杀死细菌和病毒。该公司对在 2020 年 10 月 31 日星期六之前预订旅行的客户免收改签和取消费用。查看他们的旅游咨询 [页面](https://www.spirit.com/notices) 了解更多详情。他们有没有没有中间座位的航班？没有，尽管航空公司说除非万不得已，否则不会在订票时安排中间座位。
 
-</section>
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 #### 联合航空公司
 
 该公司表示，在起飞前，他们使用静电喷雾对所有飞机的机舱从地板到天花板进行消毒。他们还用紫外线 C 照明棒给飞行员驾驶舱的开关和触摸屏显示器消毒。在超过 70%的乘客已经办理登机手续的情况下，航空公司将允许客户免费转到另一个航班。该航空公司表示，登机口代理人也将减少每次登机的乘客数量。查看他们的旅游咨询 [页面](https://www.united.com/en/US/fly/covid-update.html) 了解更多详情。他们有没有没有中间座位的航班？没有。
 
-</section>
+
 
 在制定国际旅行计划之前， [确保您了解](https://www.cnn.com/travel/article/us-international-travel-covid-19/index.html) 您的目的地是否需要 14 天的检疫或额外的 COVID 测试。

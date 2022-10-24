@@ -2,11 +2,11 @@
 
 > 原文：<https://www.avclub.com/yes-gigli-really-is-that-bad-1847170362>
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 当爱情遭遇喜剧时，卡洛琳·斯莱德回顾了这部浪漫喜剧多年来的历史，一次一个幸福的结局。
 
-</section>
+
 
 当 [*吉利*](https://www.avclub.com/gigli-1798199372) 德在 Starz 上映几个月后，宣传片都是关于这部电影有多糟糕的引言。Starz Encore 的宣传主管 Steve Belgard [解释道](https://bombreport.com/yearly-breakdowns/2003-2/gigli/) “如果我们把它当成一部好电影来宣传，我们的可信度就会受到打击。这是一个罕见的壮举，当一部电影不仅与评论家发生冲突，损失了 7000 万美元的票房，而且还让公众反对名人关系，并单枪匹马地扼杀了奥斯卡提名导演的职业生涯。就像之前的《T21》《吉利》《T22》一样，《伊师塔》《T16》《T17》《T18》《T19》《T20》几乎立刻成为电影史上最糟糕的笑点。和 Ishtar 一样，许多嘲笑过吉利的人可能从来没有真正见过吉利。T29】
 

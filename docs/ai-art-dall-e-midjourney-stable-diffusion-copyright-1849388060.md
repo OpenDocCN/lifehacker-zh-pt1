@@ -8,13 +8,13 @@
 
 **
 
-<section class="q35npn-0 MZtuu">*![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)*
+*![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)*
 
 #### *谁在做 AI 艺术？*
 
 **目前人们正在使用的知名平台屈指可数，其中最受欢迎的三个是* [*【中期】*](https://www.midjourney.com/home/?callbackUrl=https%3A%2F%2Fwww.midjourney.com%2Faccount%2F%3FcallbackUrl%3D%252Fpub%252Ffeed%252F%253FcallbackUrl%253D%25252Fapp%25252F)*[*Dall-E*](https://openai.com/dall-e-2/)*和* [*稳定扩散*](https://stability.ai/blog/stable-diffusion-announcement) *。没有人回复对此功能的评论请求。***
 
-</section>
+
 
 **从用户的角度来看，这通常是通过输入文本提示来完成的，因此你可以输入类似“站在彩虹下的山坡上的巫师”的内容，人工智能将试图以图像形式给你一个相当不错的近似。你也可以输入“海绵宝宝哀悼蝙蝠侠的父母”，你会得到和你想的一样的东西。** 
 
@@ -42,13 +42,13 @@
 
 **资深娱乐业艺术家特拉维斯·赖特(Travis Wright)告诉我，“总是需要有人能够给艺术总监提供他们想要的东西，特别是角色设计，但这些算法在短短六个月内进步如此之快，这很可怕，我完全可以看到独立恐怖游戏、纸牌游戏和桌面角色扮演游戏将受益于使用人工智能而不是付钱给艺术家。”** 
 
-<section class="q35npn-0 MZtuu">**![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)**
+**![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)**
 
 #### **人工智能生成的艺术已经被用于商业领域**
 
 **像[*【大西洋】*](https://newsletters.theatlantic.com/galaxy-brain/62fc502abcbd490021afea1e/twitter-viral-outrage-ai-art/) 这样的网站已经被发现在文章顶部使用人工智能生成的艺术作品，这是一个通常为照片(由人类拍摄并付费)或艺术作品(由人类制作并付费)保留的空间。 [*Waypoint* 也报道了一个用人工智能生成的资源](https://www.vice.com/en/article/88qxkv/ai-art-generator-used-to-make-bullet-hell-video-game) 制作的(可怕的)视频游戏。**
 
-</section>
+
 
 **与 Square Enix 和微软合作过的艺术家乔恩·华雷斯(Jon Juárez)同意，一些公司和客户只会非常乐意利用人工智能艺术。“许多作者认为这是一个巨大的优势，因为这种收获过程提供了立即操纵虚假的无版权解决方案的可能性，否则他们将需要几天才能到达同一个地方，或者干脆永远不会到达，”他说。“如果一家大公司看到对他们有用的图像或想法，他们只需将其输入系统，并在几秒钟内获得模拟结果，他们无需向艺术家支付图像费用。这些平台是知识产权的洗衣机。”**
 

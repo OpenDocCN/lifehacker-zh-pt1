@@ -10,7 +10,7 @@ Watch
 
 这是一份提供的细目表，以及各种奖金的“价值”，根据积分的不同，:
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 #### [美国运通金卡](https://www.americanexpress.com/us/credit-cards/card/gold-card/)
 
@@ -18,9 +18,9 @@ Watch
 
 250 美元年费
 
-</section>
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 #### [美国运通白金卡](https://www.americanexpress.com/us/credit-cards/card/platinum/)
 
@@ -28,9 +28,9 @@ Watch
 
 **550 美元年费**
 
-</section>
 
-<section class="q35npn-0 MZtuu">**![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)**
+
+**![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)**
 
 #### **[美国运通蓝色现金优选卡](https://www.americanexpress.com/us/credit-cards/card/blue-cash-preferred/)**
 
@@ -38,9 +38,9 @@ Watch
 
 **第一年免年费**
 
-</section>
 
-<section class="q35npn-0 MZtuu">**![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)**
+
+**![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)**
 
 #### **[首都一创业奖励信用卡](https://www.capitalone.com/credit-cards/lp/travel/lp3/?external_id=WWW_XXXXX_ZZZ_ONL-SE_ZZZZZ_T_SEM2_ZZZZ_c_Zg__kenshoo_clickid__465311527591_667176&target_id=aud-380580878771:kwd-26250459431&gclid=CjwKCAiA17P9BRB2EiwAMvwNyCq3l2oMgi_DESJbkWFSQswHMFbBR6egtD0pIqR0jkaj81to5_5R9BoCuDcQAvD_BwE)**
 
@@ -48,9 +48,9 @@ Watch
 
 **95 美元年费**
 
-</section>
 
-<section class="q35npn-0 MZtuu">**![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)**
+
+**![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)**
 
 #### **[追逐自由伸缩](https://creditcards.chase.com/a1/freedomflex2?CELL=6MC1&jp_cmp=cc/Freedom+Flex_Brand_Exact_Freedom+Flex_SEM_US_NA_Standard_NA_Control/sea/p56964750124/Chase+-+Freedom+Flex&gclsrc=aw.ds&&gclid=CjwKCAiA17P9BRB2EiwAMvwNyOqJmUSoPUASNImKuBbcGbJGi0QckGzOz6CwXyQgsSwh9GO-XbC8lBoCR2oQAvD_BwE)**
 
@@ -58,9 +58,9 @@ Watch
 
 **无年费**
 
-</section>
 
-<section class="q35npn-0 MZtuu">**![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)**
+
+**![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)**
 
 #### **[追逐蓝宝石优选卡](https://creditcards.chase.com/a1/sapphirepreferred/compare?CELL=6RRW&jp_cmp=cc/Sapphire+Preferred_Brand_Exact_Sapphire+Preferred_SEM_US_NA_Standard_NA/sea/p56274819765/Sapphire+-+Travel+-+Rewards&gclsrc=aw.ds&ds_rl=1253080&gclid=CjwKCAiA17P9BRB2EiwAMvwNyB4-wf4tladWAqcuOEHdIeUiN1drbKSmqr3dMQCkynJ5jGinUMuYChoCmfgQAvD_BwE)**
 
@@ -68,4 +68,3 @@ Watch
 
 **95 美元年费**
 
-</section>

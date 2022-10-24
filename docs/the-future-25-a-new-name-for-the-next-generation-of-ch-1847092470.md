@@ -48,7 +48,7 @@
 
 ****
 
-<section class="q35npn-0 MZtuu">**![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)**
+**![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)**
 
 #### **朱利安·巴斯**
 
@@ -58,7 +58,7 @@
 ***教育**:佐治亚州立大学*
 ***社交媒体** :* [*推特*](https://twitter.com/thejulianbass)*，*[*insta gram*](https://www.instagram.com/thejulianbass/)**
 
-</section>
+
 
 **2020 年 7 月 2 日，朱利安·巴斯 [在推特](https://twitter.com/thejulianbass/status/1278714517770440707) 上发布了一个简单的请求，附带一段抖音视频:“如果你们能转发足够多的次数，让迪士尼打电话来，我们将不胜感激。”在这个 20 秒的片段中，巴斯化身为一个手持光剑和织网的绝地，迈尔斯·莫拉莱斯被令人印象深刻的视觉效果所突显。几个小时之内，它就像病毒一样传播开来，以至于迪士尼执行董事长鲍勃·艾格注意到了，而 [欢欣鼓舞](https://twitter.com/RobertIger/status/1278869218889367552?s=20) “全世界都会知道你的名字！！！!"** 
 
@@ -68,7 +68,7 @@
 
 **戏剧专业惊人的剪辑能力演变为展示演技。“作为一名视觉特效艺术家，我所拥有的技能源于我想站在镜头前，在我做这件事的时候看起来不错，”巴斯向解释道。巴斯最近在今年《星球大战日》的迪士尼 [【抖音】](https://www.tiktok.com/@disney/video/6958583572479364357?_d=secCgYIASAHKAESMgowdTGpuYmx+1bUlkWRX0E0ITEIytx4tQNI6uSQfdZzyrcqmZm2AZHVicwnmSU2knYSGgA=&language=en&preview_pb=0&sec_user_id=MS4wLjABAAAAVfUy8qWK4OXB8qTMskwqaI5tpk0jKZFhVAdE_oVvWUQNoFlZBO932QqiElG_MSQ4&share_app_id=1233&share_item_id=6958583572479364357&share_link_id=7B0A3DD9-CD22-4087-B235-3CFA153BADF7&source=h5_m&timestamp=1620174868&tt_from=twitter&u_code=d7ke5kaba302gm&user_id=6725521850238354437&utm_campaign=client_share&utm_medium=ios&utm_source=twitter&_r=1) 中扮演绝地，他希望好莱坞继续打电话来。“我觉得我已经准备好出手了，这才是我现在真正想要的。” *—莱克斯·柯蒂斯***
 
-<section class="q35npn-0 MZtuu">**![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)**
+**![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)**
 
 #### **摩根·布洛克**
 
@@ -78,7 +78,7 @@
 ***学历**:弗吉尼亚联邦大学*
 ***社交媒体**:*[*insta gram*](https://www.instagram.com/morgvn.elizabeth/?hl=en)，**
 
-</section>
+
 
 **爱尔兰踢踏舞通常会让人联想到圣帕特里克节庆祝活动和大河之舞，但 21 岁的摩根·布洛克很自豪能延续这一传统。这位弗吉尼亚州里士满人从 3 岁开始接受多种舞蹈类型的训练，在抖音的病毒舞蹈挑战中找到了灵感。布洛克没有学习梅根·赛恩混音版《野蛮人》挑战中复杂的编舞，而是在她 2020 年 5 月发布的抖音视频中，将它与传统踢踏舞的高踢腿和精确节奏融合在一起。** 
 
@@ -88,7 +88,7 @@
 
 **在抖音成为明星之前，摩根的奉献和热情为她赢得了世界爱尔兰舞蹈锦标赛前 50 名的声望。除了一些巨魔，布洛克对踢踏舞的欣赏和重新诠释得到了大量爱尔兰人的支持。爱尔兰副总理 Leo Varadkar 邀请她在圣帕特里克节表演，Riverdance 领舞 Padraic Moyles 邀请她在他们下一站弗吉尼亚巡回演出。 *—莱克斯·柯蒂斯*** 
 
-<section class="q35npn-0 MZtuu">**![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)**
+**![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)**
 
 #### **肯尼迪·卡特**
 
@@ -97,7 +97,7 @@
 ***家乡**:美国北卡罗来纳州杜伦*
 ***社交媒体**:*[*insta gram*](https://www.instagram.com/internetbby/)**
 
-</section>
+
 
 ****
 
@@ -109,7 +109,7 @@
 
 ****
 
-<section class="q35npn-0 MZtuu">**![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)**
+**![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)**
 
 #### **奥利维亚·克拉克**
 
@@ -119,7 +119,7 @@
 ***学校**:哥伦布女子学校*
 ***社交媒体**:**推特* *，&***
 
-</section>
+
 
 **奥利维亚小时候并不喜欢玩具。比起洋娃娃和游戏，她更喜欢书，尤其是玛娅·安杰洛、托尼·莫里森和伊丽莎白·阿塞维多等黑人女作家的作品。他们的描述性文字启发奥利维亚用自己的文字来塑造女孩的故事，这些女孩和她一样，经历了在白人占主导地位的地方成为黑人的经历。其结果是一本亚马逊畅销书，*黑人女孩，白人学校:蓬勃发展，生存和不，你不能碰我的头发*。**
 
@@ -131,7 +131,7 @@
 
 ****
 
-<section class="q35npn-0 MZtuu">**![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)**
+**![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)**
 
 #### **泰勒·戈登**
 
@@ -141,7 +141,7 @@
 ***学历**:超感高中*
 ***社交媒体** :* [*推特*](https://twitter.com/Tygordonsworld)**
 
-</section>
+
 
 ***杰出的艺术家、商业领袖和历史创造者不仅仅是 14 岁的泰勒·戈登眼中的英雄；他们也是他的客户。他令人惊叹的画作出现在*小大腕*、、[勒布朗·詹姆斯的《时代》杂志年度运动员封面](https://time.com/athlete-of-the-year-2020-lebron-james/)、[以及他自己画副总统卡玛拉·哈里斯的视频](https://abc7news.com/san-jose-teen-paints-joe-biden-portrait-of-kamala-harris-tyler-gordon-art-heirs-to-the-throne/8445261/)、中。“我被你的艺术魅力所折服！你真的很有天赋，”副总统说，感谢泰勒的肖像。*** 
 
@@ -153,7 +153,7 @@
 
 ***泰勒是全球神童奖获得者[《时代》杂志年度最佳少年奖决赛选手](https://time.com/5916772/kid-of-the-year-2020/) 以及贝弗利中心展览 [中最年轻的艺术家之一](https://www.nbclosangeles.com/news/local/young-artist-overcomes-odds-and-inspires-others-with-his-portraiture/2475624/) 像巴斯奎特这样的偶像。他的第一本书， [*我们可以:权力的画像*](https://twitter.com/tygordonsworld/status/1392174914946445315) ，可供预购。这只是泰勒的开始，他希望能为总统和第一夫人绘制白宫官方肖像。 *—莱克斯·柯蒂斯****
 
-<section class="q35npn-0 MZtuu">***![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)***
+***![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)***
 
 #### ***贾登·杰斐逊***
 
@@ -163,7 +163,7 @@
 ***学校**:莫米谷乡村日校*
 ***社交媒体** :* [*推特*](https://twitter.com/Jaden_Reports)***
 
-</section>
+
 
 ****在 2020 年选举期间的政治媒体中，杰登是一个突出的人物。他有所准备。他泰然自若。当时，他只有 12 岁。**** 
 
@@ -173,7 +173,7 @@
 
 “我相信地方新闻业继续采取措施使其新闻编辑室多样化，尽管我相信广播和有线电视网在吸引和关注全国各地的黑人社区方面仍有工作要做，”贾登告诉《The Root》。“我一直在提升黑人的声音，并将继续这样做，因为美国各地的许多社区都面临着对种族的清算，并围绕它重新展开讨论。”*——贾内尔·哈里斯·迪克逊*****
 
-<section class="q35npn-0 MZtuu">****![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)****
+****![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)****
 
 #### ****加布里埃尔·古德温****
 
@@ -183,7 +183,7 @@
 ***学校**:伊尔莫中学*
 ***社交媒体:****推特* *，*****
 
-</section>
+
 
 ********
 
@@ -193,7 +193,7 @@
 
 “拥有并经营一家企业极大地塑造了我的信心。人们很少看到像我这样的女孩做我所做的事情，我很荣幸成为一个榜样和灵感，”她告诉 *The Root* 。“我和我的家人刚刚购买了信心总部。我感觉非常好，在过去的七年里，我不仅提高了自己的创业技能，还增强了自尊和自信。”从评估网上库存到给客户写感谢信，Gabby 在她企业的每一个部门都是强者。她还主持了一个名为 GaBBY Play Date 的活动，向住在临时避难所的女孩传授创业的好处和方法。现在，凭借一本儿童读物、 [*加贝发明了完美的发弓*](https://www.amazon.com/dp/B073Q7ZM33/ref=dp-kindle-redirect?_encoding=UTF8&asc_campaign=InlineText&asc_refurl=https://www.theroot.com/the-future-25-a-new-name-for-the-next-generation-of-ch-1847092470&asc_source=&btkr=1&tag=kinjarootlink-20) ，以及一系列公开演讲机会来教育和激励他人，这位优等生正在实现她的梦想，包括零售空间、女孩创业研讨会和一家发廊。 *—莱克斯柯蒂斯***** 
 
-<section class="q35npn-0 MZtuu">****![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)****
+****![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)****
 
 #### ****克里斯顿·琼斯****
 
@@ -203,7 +203,7 @@
 ***学校**:家庭学校*
 ***社交媒体** :* [*推特*](https://twitter.com/TheTruth2024)****
 
-</section>
+
 
 **********
 
@@ -217,7 +217,7 @@
 
 ********
 
-<section class="q35npn-0 MZtuu">****![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)****
+****![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)****
 
 #### ****迈克尔·雷恩****
 
@@ -227,7 +227,7 @@
 ***学校**:黑兹伍德北中*
 ***社交媒体**:**推特* *，*****
 
-</section>
+
 
 ****当他刚刚 9 岁时，迈克尔“米奇”雷恩带着一个梦想和一个商业计划来到他的父母面前；他很快成为圣路易斯最年轻的拥有自己自动售货机的孩子。现在，13 岁的他在圣路易斯地区拥有了 6 台机器，并拥有了自己的生意，米奇零食贩卖店。**** 
 
@@ -243,7 +243,7 @@
 
 ********
 
-<section class="q35npn-0 MZtuu">****![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)****
+****![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)****
 
 #### ****创世纪·巴特勒****
 
@@ -253,7 +253,7 @@
 ***教育**:我们人民高中*
 ***社交媒体** :* [*推特*](https://twitter.com/GenesisButlerV) *，【T38】*****
 
-</section>
+
 
 ****通过她的组织 [青年气候拯救](https://thesavemovement.org/what-is-youth-climate-save/) ，Genesis Butler 的使命是改变我们对动物农业和气候危机之间联系的看法。“我为青年气候拯救组织感到非常自豪，因为这是第一个由青年领导的气候运动，关注气候变化及其与畜牧业的联系，”她在自己的网站上说。10 岁时，她了解到畜牧业对气候和环境的毁灭性影响。随着对化石燃料的关注，许多人没有意识到畜牧业 [是温室气体排放的重要来源](http://www.fao.org/news/story/en/item/197623/icode/) 。**** 
 
@@ -263,7 +263,7 @@
 
 ********
 
-<section class="q35npn-0 MZtuu">****![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)****
+****![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)****
 
 #### ****克里斯汀汉密尔顿****
 
@@ -273,7 +273,7 @@
 ***学历**:弗吉尼亚联邦大学*
 ***社交媒体** :* [*推特*](https://twitter.com/ThisIsZeroHour) *，*****
 
-</section>
+
 
 ****Khristen Hamilton 是“零时” 的志愿者管理总监，这是一个由青年活动分子组成的跨部门运动，为所有人争取一个宜居的星球，她记得她对气候变化的兴趣被激起的那一刻。这是 2018 年 7 月 21 日，华盛顿特区青年气候游行的日子**** 
 
@@ -289,7 +289,7 @@
 
 ********
 
-<section class="q35npn-0 MZtuu">****![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)****
+****![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)****
 
 #### ****elsa mengistu****
 
@@ -299,7 +299,7 @@
 ***学历**:霍华德大学*
 ***社交媒体**:*[*insta gram*](https://www.instagram.com/elsamengistu/)****
 
-</section>
+
 
 ****环境正义的面孔正在改变，看起来理所当然地像 19 岁的艾尔莎·门格斯图。这位气候变化活动家和组织者出生在埃塞俄比亚，在北卡罗来纳州的海岬长大，是“全球思考，本地行动”这句话的化身。当她发现草根青年气候组织“零点时刻”时，她已经是种族公正、性别平等和移民权利的积极倡导者。它的平台阐明了她所对抗的所有压迫是如何像空气和水质一样不可分割地联系在一起的。“如果我们不致力于气候公正，那么我们就不能致力于任何形式的公正，”她告诉 [绿色事务*。*](https://www.greenmatters.com/p/climate-activists-intersectionality)T6】****
 
@@ -309,7 +309,7 @@
 
 ********
 
-<section class="q35npn-0 MZtuu">****![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)****
+****![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)****
 
 #### ****Kayla Foy****
 
@@ -318,7 +318,7 @@
 ***家乡**:费城*
 **学历**:泽维尔大学(2021 年秋季)****
 
-</section>
+
 
 ****凯拉·福伊确信，在新冠肺炎·疫情期间，相信“科学”是这个国家恢复某种程度正常的最好机会。2020 年 12 月，她是费城地区首批接受辉瑞疫苗的人之一。**** 
 
@@ -334,7 +334,7 @@
 
 ********
 
-<section class="q35npn-0 MZtuu">****![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)****
+****![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)****
 
 #### ****索菲亚·奥格尔****
 
@@ -344,7 +344,7 @@
 ***学历**:福特汉姆大学*
 ***社交媒体**:**推特* *，*****
 
-</section>
+
 
 ****性侵幸存者如何请求保密建议，获取触手可及的资源？2018 年还没有这方面的应用。**** 
 
@@ -362,7 +362,7 @@
 
 ********
 
-<section class="q35npn-0 MZtuu">****![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)****
+****![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)****
 
 #### ****杰伊总是巴顿****
 
@@ -371,7 +371,7 @@
 ***家乡**:纽约布法罗*
 ***学历**:在家上学*****
 
-</section>
+
 
 ****像美国许多黑人孩子一样，杰艾娜·巴顿的父亲也在监狱里。因此，在她 12 岁的时候，她开发了一个应用程序，让孩子们更容易与他们被监禁的父母交流。**** 
 
@@ -385,7 +385,7 @@
 
 ********
 
-<section class="q35npn-0 MZtuu">****![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)****
+****![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)****
 
 #### ****悉尼理发师****
 
@@ -395,7 +395,7 @@
 ***教育**:美国海军学院*
 ***社交媒体** :* [*推特*](https://twitter.com/sydneyabarber?lang=en)****
 
-</section>
+
 
 ****在美国海军学院 175 年的历史中——过去 44 年女性一直被允许参加——21 岁的海军军官候补生悉尼·巴伯作为该机构的第一位黑人女旅长创造了历史。作为该学院最高领导职位的指挥官，巴伯代表了大约 4400 名军校学员，即美国未来的海军和海军陆战队军官。**** 
 
@@ -413,7 +413,7 @@
 
 ********
 
-<section class="q35npn-0 MZtuu">****![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)****
+****![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)****
 
 #### ****奇迹博伊德****
 
@@ -423,7 +423,7 @@
 ***教育**:莎拉 e .古德 STEM 学院*
 ***社交媒体** :* [*推特*](https://twitter.com/MiracleBoyd5)****
 
-</section>
+
 
 ****18 岁时，活动家和青年领袖 Miracle Boyd 已经在这些街道上作为组织者和领导者证明了她对美国系统性种族主义斗争的奉献精神。奇迹在去年夏天的抗议浪潮中成为头条新闻，当时她成了她要与之斗争的警察暴行的受害者。在一名芝加哥警官 [打掉了她的牙齿](https://twitter.com/GKMC18/status/1284347396311388161) 后，她的精神远未崩溃，因为她坚持自己的立场，要求获得拍摄混乱抗议的权利。****
 
@@ -433,7 +433,7 @@
 
 ********
 
-<section class="q35npn-0 MZtuu">****![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)****
+****![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)****
 
 #### ****卡地亚·凯瑞****
 
@@ -443,7 +443,7 @@
 ***学校**:塞萨尔·塔兰特中学*
 ***社交媒体:***[*推特*](https://twitter.com/kids4change757?lang=en) *，”*****
 
-</section>
+
 
 ****许多孩子在前院摆了个柠檬水小摊，赚了些暑期零花钱，或许可以用来买双运动鞋、校服或最新款的 iPhone。2020 年 7 月，当卡地亚得知新冠肺炎·疫情在他位于弗吉尼亚州汉普顿的社区 [消灭了当地商店的婴儿用品时，他用自己柠檬水摊](https://www.washingtonpost.com/lifestyle/2020/08/21/this-11-year-old-sells-cups-lemonade-buy-diapers-single-moms/) 的利润为单身母亲购买尿布和湿巾。**** 
 
@@ -453,7 +453,7 @@
 
 ********
 
-<section class="q35npn-0 MZtuu">****![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)****
+****![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)****
 
 #### ****丹妮尔·弗雷泽****
 
@@ -462,7 +462,7 @@
 ***家乡**:明尼阿波利斯*
 ***社交媒体**:*[*insta gram*](https://www.instagram.com/darnella_frazier03/?hl=en)****
 
-</section>
+
 
 ****如果达内拉没有在一年多前的 2020 年 5 月 25 日站在芝加哥大道上的杯型食品前，如果她没有按下“录制”捕捉到乔治·弗洛伊德一生中最清晰的旁观者镜头 [最后九分 29 秒](https://www.theroot.com/9-minutes-and-29-seconds-prosecutor-s-opening-statemen-1846581136) 如果她没有忍受看着一个她不认识但她认为可能是她父亲、叔叔或兄弟的人被谋杀的创伤和痛苦，对前警官德里克·肖万的有罪判决可能永远不会发生。**** 
 
@@ -478,7 +478,7 @@
 
 ********
 
-<section class="q35npn-0 MZtuu">****![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)****
+****![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)****
 
 #### ****丹妮尔·吉瑟斯****
 
@@ -488,7 +488,7 @@
 ***学历**:麻省理工学院*
 ***社交媒体**:*[*insta gram*](https://www.instagram.com/danielle.g_/?hl=en)****
 
-</section>
+
 
 ****“我一直很重视学生政府，但直到面对新冠肺炎和我们学生团体的生死问题，我才被迫投入这么多时间，”丹妮尔·吉瑟斯告诉《The Root》她竞选麻省理工学院本科生协会主席的决定。“作为麻省理工学院的一名黑人女性，我代表了一小部分人。多元化在我们学生政府的优先事项列表中一直处于较低的位置，我想改变这种情况。”**** 
 
@@ -500,7 +500,7 @@
 
 ****这对搭档又一次取得了胜利。Geathers 的第二个任期将持续到 2022 年 5 月，届时她将毕业并攻读法律学位。 *—阿普利尔·莫特利***** 
 
-<section class="q35npn-0 MZtuu">****![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)****
+****![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)****
 
 #### ****麒麟山****
 
@@ -510,7 +510,7 @@
 ***学校**:密西西比州立大学*
 ***社交媒体** :* [*推特*](https://twitter.com/H_Kylin)*，*[*insta gram*](https://www.instagram.com/k.hill8/?hl=en)****
 
-</section>
+
 
 ****他已经得到了很多人的关注。作为一名一流的跑卫和密西西比大学橄榄球队的最佳球员之一，他在高三的时候创造了一个接近纪录的赛季，麒麟现在是绿湾包装工队的跑卫。但在他成为职业球员之前，这位密西西比州明星利用他的精英力量和 Twitter 平台推动了一项社会正义议程和一项比他更重要的场外变革。**** 
 
@@ -518,7 +518,7 @@
 
 ****2020 年 6 月，当共和党密西西比州州长泰特·里维斯(Tate Reeves)在推特上表示拒绝重新设计带有邦联标志的州旗时， [凯琳的回复](https://twitter.com/h_kylin/status/1275128689638936581?lang=en) 迅速而果断:“要么换旗，要么我就不再代表这个州了&我是认真的。我累了。”他冒着自己的职业生涯和后果的风险的勇气点燃了一场全国性的谈话，并增加了对州议会的压力，最终，终于改变了国旗和，最后在这个国家出现了叛军的标志。因为他愿意抵制美国最臭名昭著的种族主义事件之一，并把他在足球上的未来置于类似凯珀尼克的风险之中，麒麟 [收到了威胁](https://www.si.com/college/2020/09/23/kylin-hill-mississippi-state-flag-daily-cover) 。他妈妈也是。他的祖母也是。但在一个反对种族不公正的抗议愈演愈烈的夏天，大多数人的反应是支持的。7 月， [他被授予](https://www.cbssports.com/college-football/news/mississippi-state-running-back-kylin-hill-receives-key-to-hometown-for-stance-on-state-flag/#:~:text=Kylin%20Hill%20was%20presented%20the,of%20Columbus%2C%20Mississippi%2C%20tonight) 密西西比州哥伦布市的家乡钥匙。这位优等生可能是他所在的黑人占多数的社区中第一个获得全国声誉的运动员，9 月，他登上了《体育画报》的每日封面。“麒麟是一个勇敢的年轻人，他做了一件大胆勇敢的事情，”密西西比州体育局长约翰·科恩告诉 CBS 体育。”他和许多密西西比人一样，有一个大胆的信念，即需要进行一场范式转变。是时候换一面新的旗帜了。”*——詹妮尔·哈里斯·狄克逊*****
 
-<section class="q35npn-0 MZtuu">****![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)****
+****![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)****
 
 #### ****猎户座珍****
 
@@ -528,7 +528,7 @@
 ***学历**:玛丽·奥尔中学*
 ***社交媒体**:*[*insta gram*](https://www.instagram.com/orion_monaco_jean/)****
 
-</section>
+
 
 ****世界上没有做太多好事或尽力帮助别人这种事，对 10 岁的 Orion Jean 来说尤其如此。2020 年 7 月，在他的父母告诉他关于 [思考仁慈全国演讲比赛](https://thinkkindness.org/featured-kindness/kindness-speech-winner-orion-jean/) 的 24 小时内，这位富有同情心的五年级学生 [提交了](https://www.youtube.com/watch?v=ctl1RhutmXU) 最终成为当年的获奖作品。这场胜利为他赢得了 500 美元的奖金，以启动他自己的慈善项目，奥利安决定为在达拉斯儿童健康中心住院的孩子们收集玩具。**** 
 
@@ -541,7 +541,7 @@
 ****“我明白了，如果你想去某个地方或做某件事，你必须相信你能做到。但你也必须付出努力才能达到你想要的目标，”奥利安说，他签署了自己的第一份图书协议，将于 2021 年 9 月出版一本关于领导力的儿童书籍。“向善良赛跑已经花费了数百个小时的工作，但这是为了更大的利益，这就是我为什么这样做。” *—贾内尔·哈里斯·迪克逊*
 T5】****
 
-<section class="q35npn-0 MZtuu">****![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)****
+****![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)****
 
 #### ****艾丽西娅·卡米勒****
 
@@ -550,7 +550,7 @@ T5】****
 ***家乡**:芝加哥*
 ***社交媒体** :* [*推特*](https://twitter.com/kamilalyciaa)*[*insta gram*](https://www.instagram.com/yeyekamil/)*****
 
-</section>
+
 
 **********
 
@@ -566,7 +566,7 @@ T5】****
 
 ****“我学会了用更多的空间来让自己更人性化，”她说。“做这项工作可能会很累，它会导致太多的精神疲惫，你会开始忘记你也是需要帮助的人。”扎克·徐岚琳****
 
-<section class="q35npn-0 MZtuu">****![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)****
+****![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)****
 
 #### ****肯尼迪·米彻姆****
 
@@ -575,7 +575,7 @@ T5】****
 ***家乡**:佛洛桑，莫。*
 ***社交媒体** :* [*推特*](https://twitter.com/__kenmitch?lang=en) *，*[*insta gram*](https://www.instagram.com/kennedymitchum_/?hl=en)****
 
-</section>
+
 
 ****字典经常被用来检查语言错误，但是谁来检查字典中的错误呢？肯尼迪·米彻姆挑起了重担，她给韦氏词典的编辑 发电子邮件，挑战现有的种族主义定义，在当时，种族主义被描述为“一种信念，即种族是人类特征和能力的主要决定因素，种族差异会产生特定种族固有的优越性。”**** 
 
@@ -583,7 +583,7 @@ T5】****
 
 ****肯尼迪对此并不满意，他是密苏里州人，住在离弗格森几英里的地方，2014 年迈克·布朗被警察杀害后的抗议活动点燃了许多年轻黑人的激进主义。在目前的状态下，该条目没有说明系统性压迫，她在她的信息中坚持。“我不得不告诉他们，定义并不代表世界上正在发生的事情，”她告诉 CNNT3。“种族主义在现实生活中的发生方式不仅仅是偏见——它是发生在许多美国黑人身上的系统性种族主义。”肯尼迪是德雷克大学的 2020 届毕业生，她在法律、政治和社会课程中称赞了自己的公共关系专业，并在周四发了这封邮件。第二天早上，编辑亚历克斯·钱伯斯给她发了一封回信。他同意这个定义需要更新，并称赞肯尼迪指出了语言的不足。“如果没有你坚持就这个问题联系我们，这个版本就不会完成，”他在回复信息中说。由于肯尼迪对话语力量的洞察力、韧性和理解， [第二个韦氏词典对种族主义的定义](https://www.merriam-webster.com/dictionary/racism) 现在是:“一个种族群体对另一个种族群体的社会、经济和政治优势的系统性压迫。”刚从大学毕业，这位年轻的变革者已经对正在进行的关于公平和正义的全国性讨论中最关键的一个词做出了词源上的改变。 *—詹妮尔·哈里斯·狄克逊*****
 
-<section class="q35npn-0 MZtuu">****![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)****
+****![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)****
 
 #### ****打电话给伍德沃德****
 
@@ -592,7 +592,7 @@ T5】****
 ***家乡**:弗吉尼亚州劳登县*
 ***社交媒体** :* [*推特、*](https://twitter.com/BellenTheBee)*[*insta gram*](https://www.instagram.com/morethanpeachproject/?hl=en)*****
 
-</section>
+
 
 ****就像每一个关于变革者发起并实施重大文化变革的伟大故事一样， [贝伦](https://www.theroot.com/color-correct-a-9-year-olds-more-than-peach-campaign-m-1843599421) 经历了一场事件，她被召唤去领导一场革命。事情发生在学校。“我的白人同学告诉我，我的皮肤是泥土做的，他的是沙子做的。我的老师说‘他没有别的意思，’”她告诉 *The Root* ，“但是我很困惑，我的*肤色会被认为是负面的，而不是他的。”***** 
 

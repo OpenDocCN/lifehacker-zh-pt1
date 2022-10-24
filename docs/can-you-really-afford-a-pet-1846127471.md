@@ -30,7 +30,7 @@ Watch
 
 除了猫和狗，以下是其他宠物、、[每千只](https://www.kiplinger.com/slideshow/spending/t063-s001-the-cost-of-owning-5-popular-small-household-pets/index.html)、的平均估计成本:
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 #### **鱼**
 
@@ -38,9 +38,9 @@ Watch
 
 **年成本:20 美元**
 
-</section>
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 #### 小鸟
 
@@ -48,9 +48,9 @@ Watch
 
 年度费用:185 美元
 
-</section>
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 #### **Hamster**
 
@@ -58,9 +58,9 @@ Watch
 
 **年度费用**:260 美元
 
-</section>
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 #### 豚鼠
 
@@ -68,9 +68,9 @@ Watch
 
 **年成本:304 美元**
 
-</section>
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 #### **兔子**
 
@@ -78,9 +78,9 @@ Watch
 
 **年度费用**:478 美元
 
-</section>
 
-<section class="q35npn-0 MZtuu">![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
+![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
 
 #### **爬行动物**
 
@@ -88,4 +88,3 @@ Watch
 
 **年度成本**:330-1310 美元
 
-</section>
