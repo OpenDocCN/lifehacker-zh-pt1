@@ -1,6 +1,6 @@
 # 在我开始探索 Genshin Impact 的须弥山地区之前，我希望知道的 17 件事
 
-> 原文:# t0]https://Kota ku . com/genhin-impact-sumu-guide-tips-colei-tighnari-树突-1849473691
+> 原文:# t0]https://Kota ku . com/genhin-impact-sumu-guide-tips-colei-tighnari-dendrites-1849473691
 
 上周，Genshin Impact 发布了第四个主要的开放世界区域，并且对苏美尔的开放世界旅行方式进行了重大的补充。在对这个新地区进行了几十个小时的搜索后，我想出了一个基本的、可行的清单，以确保你在须弥山的冒险中获得最大收益。
 T3】
