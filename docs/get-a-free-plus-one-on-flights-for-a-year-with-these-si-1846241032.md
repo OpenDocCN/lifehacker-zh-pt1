@@ -35,7 +35,7 @@ Watch
 以下是一些其他值得注意的消费旅行卡交易，基于他们当前的欢迎奖金的现金价值，根据积分人 :
 的
 
-![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
 
 #### [追逐蓝宝石优选卡](https://creditcards.chase.com/a1/21/sapphirepreferred/compare/onecta?CELL=6H8X&AFFID=pngc6t7Ewoo-feAKiIZldeA2h2XrU48YCw&pvid=c612e901f6f945cea18cd33acf828db0&jp_cmp=cc/866357/aff/3-10003745/na)
 
@@ -45,7 +45,7 @@ Watch
 
 
 
-![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
 
 #### [追逐蓝宝石储备卡](https://creditcards.chase.com/rewards-credit-cards/sapphire/reserve)
 
@@ -55,7 +55,7 @@ Watch
 
 
 
-![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
 
 #### [美国运通白金卡](https://www.americanexpress.com/us/credit-cards/card/platinum/?eep=26129&extlink=af-us-ccsg-PLALM&irgwc=1&veid=T3IzwkwHpxyOUGjwUx0Mo38SUkEWMOSzSWet0o0&affid=1137073&pid=IR&affname=TPG&sid=12011830006&pmc=137&BUID=CCG&CRTV=controlaffcps&MPR=05)
 
@@ -65,7 +65,7 @@ Watch
 
 
 
-![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
 
 #### [**首都一创业奖励信用卡**](https://www.capitalone.com/credit-cards/venture/)
 

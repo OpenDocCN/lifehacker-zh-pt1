@@ -2,7 +2,7 @@
 
 > 原文：<https://lifehacker.com/why-does-my-64gb-flash-drive-only-show-32gb-free-1846747739>
 
-![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
 
 #### 从 Lifehacker 的高级技术编辑那里获得免费技术支持
 

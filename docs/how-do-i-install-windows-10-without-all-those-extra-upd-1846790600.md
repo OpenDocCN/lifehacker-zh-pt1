@@ -2,7 +2,7 @@
 
 > 原文：<https://lifehacker.com/how-do-i-install-windows-10-without-all-those-extra-upd-1846790600>
 
-![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
 
 #### **从 Lifehacker 的高级技术编辑那里获得免费技术支持**
 

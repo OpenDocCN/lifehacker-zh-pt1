@@ -8,7 +8,7 @@ Watch
 
 下面你可以找到我们对晚间新闻的完整报道的链接(点击/轻触标题以获取帖子)，从公告到预告片，再到传达重要信息的拙劣尝试。
 
-![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
 
 #### [**你先看看 Quantic Dream 的戏剧新作*星球大战*游戏**](https://kotaku.com/your-first-look-at-quantic-dreams-dramatic-new-star-war-1848176894)
 
@@ -16,7 +16,7 @@ Watch
 
 
 
-![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
 
 #### [**世嘉揭秘*音波前沿*，首款开放世界音波游戏**](https://kotaku.com/sega-reveals-sonic-frontiers-the-first-open-world-soni-1848188627)
 
@@ -24,7 +24,7 @@ Watch
 
 
 
-![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
 
 #### [**惊喜:*《黑客帝国》*虚幻演示是一款简单、古怪有趣的开放世界游戏**](https://kotaku.com/surprise-the-matrix-unreal-demo-is-a-simple-weirdly-f-1848189794)
 
@@ -32,7 +32,7 @@ Watch
 
 
 
-**![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)**
+
 
 #### **[**杰夫·基格利以令人失望的含糊其辞打开游戏奖项**](https://kotaku.com/geoff-keighley-opens-game-awards-with-disappointing-vag-1848190235)**
 
@@ -40,7 +40,7 @@ Watch
 
 
 
-**![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)**
+
 
 #### **[**地狱耶，神奇女侠正在主演她自己的大游戏**](https://kotaku.com/hell-yeah-wonder-woman-is-starring-in-her-own-big-game-1848190272)**
 
@@ -48,7 +48,7 @@ Watch
 
 
 
-**![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)**
+
 
 #### **[***太空陆战队 II* 十年后宣布，原**](https://kotaku.com/space-marine-ii-announced-ten-years-after-the-original-1848190699)**
 
@@ -56,7 +56,7 @@ Watch
 
 
 
-**![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)**
+
 
 #### **[***X 特遣队:杀死正义联盟*大干一场期待已久的玩法揭晓**](https://kotaku.com/suicide-squad-kill-the-justice-league-gets-long-awaite-1848188806)**
 
@@ -64,7 +64,7 @@ Watch
 
 
 
-**![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)**
+
 
 #### **[艾伦威克 2](https://kotaku.com/a-decade-later-alan-wake-ii-finally-announced-1848190313)终于宣布**
 
@@ -72,7 +72,7 @@ Watch
 
 
 
-**![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)**
+
 
 #### **[**战斗皇家摔跤游戏看起来很酷搭上了拥挤流派**](https://kotaku.com/battle-royale-wrestling-game-looks-like-a-cool-take-on-1848190991)**
 
@@ -80,7 +80,7 @@ Watch
 
 
 
-**![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)**
+
 
 #### **[**下面是即将上映的*光环*电视剧**](https://kotaku.com/heres-the-first-trailer-for-the-upcoming-halo-tv-series-1848190927) 的首支预告片**
 
@@ -96,7 +96,7 @@ Watch
 
 
 
-**![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)**
+
 
 #### **[**新游戏*夜莺*大概是你下一次旅行的合作固定**](https://kotaku.com/new-game-nightingale-is-probably-your-next-time-traveli-1848190475)**
 
@@ -104,7 +104,7 @@ Watch
 
 
 
-**![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)**
+
 
 #### **[**好消息，*最终幻想 7* 重拍即将登陆 PC**](https://kotaku.com/good-news-the-final-fantasy-7-remake-is-coming-to-pc-1848190538)**
 
@@ -112,7 +112,7 @@ Watch
 
 
 
-**![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)**
+
 
 #### **[***沙丘:香料战争*是一款全新的即时 PC 游戏**](https://kotaku.com/dune-spice-wars-is-a-new-real-time-pc-game-1848191140)**
 
@@ -120,7 +120,7 @@ Watch
 
 
 
-**![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)**
+
 
 #### **[***Homeworld 3* 首秀玩法，看起来棒极了**](https://kotaku.com/homeworld-3-shows-first-gameplay-looks-great-1848191188)**
 
@@ -128,7 +128,7 @@ Watch
 
 
 
-**![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)**
+
 
 #### **[**前告密者开发者正在制作*星际旅行*游戏**](https://kotaku.com/ex-telltale-devs-are-making-a-star-trek-game-1848190850)**
 
@@ -136,7 +136,7 @@ Watch
 
 
 
-**![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)**
+
 
 #### **[***Steelrising* 游戏说如果法国大革命但是用机器人呢？**](https://kotaku.com/steelrising-game-says-what-if-the-french-revolution-but-1848190792)**
 
@@ -144,7 +144,7 @@ Watch
 
 
 
-***![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)***
+
 
 #### ***[***寂静岭*创作者正在开发一款令人毛骨悚然的新恐怖游戏**](https://kotaku.com/silent-hill-creator-is-working-on-a-spooky-new-horror-g-1847950249)***
 
@@ -152,7 +152,7 @@ Watch
 
 
 
-**![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)**
+
 
 #### **[***地平线禁西*的恐龙在新镜头**](https://kotaku.com/horizon-forbidden-wests-dinosaurs-are-suitably-epic-in-1847636602) 中被恰如其分地史诗化**
 
@@ -160,7 +160,7 @@ Watch
 
 
 
-**![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)**
+
 
 #### **[**这是一款华而不实的回合制 RPG 游戏*斯科特朝圣者*盛传**](https://kotaku.com/its-a-flashy-turn-based-rpg-with-scott-pilgrim-vibes-1848187935)**
 
@@ -168,7 +168,7 @@ Watch
 
 
 
-**![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)**
+
 
 #### **[***需要两个*赢得 2021 年游戏大奖(加上所有其他获奖者)**](https://kotaku.com/it-takes-two-wins-game-of-the-year-at-the-2021-game-awa-1848067354)**
 

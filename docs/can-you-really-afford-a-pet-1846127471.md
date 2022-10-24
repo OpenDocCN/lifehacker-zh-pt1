@@ -30,7 +30,7 @@ Watch
 
 除了猫和狗，以下是其他宠物、、[每千只](https://www.kiplinger.com/slideshow/spending/t063-s001-the-cost-of-owning-5-popular-small-household-pets/index.html)、的平均估计成本:
 
-![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
 
 #### **鱼**
 
@@ -40,7 +40,7 @@ Watch
 
 
 
-![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
 
 #### 小鸟
 
@@ -50,7 +50,7 @@ Watch
 
 
 
-![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
 
 #### **Hamster**
 
@@ -60,7 +60,7 @@ Watch
 
 
 
-![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
 
 #### 豚鼠
 
@@ -70,7 +70,7 @@ Watch
 
 
 
-![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
 
 #### **兔子**
 
@@ -80,7 +80,7 @@ Watch
 
 
 
-![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
 
 #### **爬行动物**
 

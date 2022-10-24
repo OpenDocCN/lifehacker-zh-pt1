@@ -40,7 +40,7 @@
 
 光晕无限的战役以军士长被彻底击败而开始。在*光晕 4* 和*光晕 5* 中作为行动基地的人类旗舰[*UNSC Infinity*](https://www.halopedia.org/UNSC_Infinity)，被圣约人部队的一个被称为“放逐”的小派别突袭。(该派系在 2017 即时战略游戏 [*光环战争 2*](https://kotaku.com/halo-wars-2-the-kotaku-review-1792373382) 中扮演角色)。)他们的首领，一个叫阿特里克斯的畜生，把酋长打得鼻青脸肿，然后...把他扔进太空，假设他是起亚。
 
-![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
 
 #### 什么是契约？
 

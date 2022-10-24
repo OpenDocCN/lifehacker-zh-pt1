@@ -2,7 +2,7 @@
 
 > 原文：<https://lifehacker.com/how-to-spot-scam-ios-apps-that-sucker-you-into-making-e-1837053973>
 
-[Lifehacker's Complete Guide to iOS](https://appleios.kinja.com)) : title[![](../Images/71562cabb8ab94eee70dc08ff80378ef.png)](https://appleios.kinja.com)[Lifehacker's Complete Guide to iOS](https://appleios.kinja.com)Apple's iPhone is easy to learn, but difficult to master. Instead of spending hours sifting through settings yourself, check out our giant collection of guides, tips, and tricks for all things iOS.
+[Lifehacker's Complete Guide to iOS](https://appleios.kinja.com)) : title[](https://appleios.kinja.com)[Lifehacker's Complete Guide to iOS](https://appleios.kinja.com)Apple's iPhone is easy to learn, but difficult to master. Instead of spending hours sifting through settings yourself, check out our giant collection of guides, tips, and tricks for all things iOS.
 
 我们定期 [调出在谷歌 Play 商店上发现的可疑应用](https://lifehacker.com/delete-these-banned-apps-from-your-android-1836494919)但是苹果的应用商店也提供了相当份额的威胁。该平台充斥着大量的 iOS 应用，这些应用会欺骗不知情的用户进行昂贵的——在某些情况下，是不公开的——应用内交易。这些应用将他们的骗局隐藏在合法的功能中，以规避苹果的审查程序，然后用虚假的评论和下载来提高他们的用户评级。
 

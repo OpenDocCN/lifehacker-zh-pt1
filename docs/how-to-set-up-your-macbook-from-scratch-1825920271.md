@@ -2,7 +2,7 @@
 
 > 原文：<https://lifehacker.com/how-to-set-up-your-macbook-from-scratch-1825920271>
 
-[Lifehacker's Complete Guide to macOS](https://applemacos.kinja.com)) : title[![](../Images/80a55aae3a4e6ac59b23fae8fccddf22.png)](https://applemacos.kinja.com)[Lifehacker's Complete Guide to macOS](https://applemacos.kinja.com)Many people turn to Macs because they're incredibly easy to operate. That's true, but there's still plenty worth knowing before you can truly master your Mac.
+[Lifehacker's Complete Guide to macOS](https://applemacos.kinja.com)) : title[](https://applemacos.kinja.com)[Lifehacker's Complete Guide to macOS](https://applemacos.kinja.com)Many people turn to Macs because they're incredibly easy to operate. That's true, but there's still plenty worth knowing before you can truly master your Mac.
 
 你还记得上一次清空 MacBook 并重装所有东西是什么时候吗？我猜大概是“从不”，但是有很多理由你可能想要 [消灭你的系统](https://www.youtube.com/watch?v=h67JpMyrOVE) ，从严重的(macOS 的一个主要错误)到一般的(在过去三年里你的系统感觉迟钝)。
 

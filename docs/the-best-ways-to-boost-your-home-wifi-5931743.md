@@ -2,7 +2,7 @@
 
 > 原文：<https://lifehacker.com/the-best-ways-to-boost-your-home-wifi-5931743>
 
-[Lifehacker's Complete Guide to Wifi](https://wifiguide.kinja.com)) : title[![](../Images/be764d30b532adad70daeee8be76d9d7.png)](https://wifiguide.kinja.com)[Lifehacker's Complete Guide to Wifi](https://wifiguide.kinja.com)Wireless networking is complicated, but it doesn't have to be. Let us help you out.
+[Lifehacker's Complete Guide to Wifi](https://wifiguide.kinja.com)) : title[](https://wifiguide.kinja.com)[Lifehacker's Complete Guide to Wifi](https://wifiguide.kinja.com)Wireless networking is complicated, but it doesn't have to be. Let us help you out.
 
 一个好的无线网络设置是一个家庭或公寓的基石，因为如果没有必要，没有人愿意被束缚在桌面上。Wifi 也是最令人沮丧的事情之一。如果你被网速慢、信号差和其他 wifi 问题所困扰，这里有 10 种方法可以让你的家庭无线网络通电。
 

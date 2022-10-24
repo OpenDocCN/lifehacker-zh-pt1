@@ -2,7 +2,7 @@
 
 > 原文：<https://www.avclub.com/yes-gigli-really-is-that-bad-1847170362>
 
-![](../Images/aef335eb562a1da6957ce25a574b4aa1.png)
+
 
 当爱情遭遇喜剧时，卡洛琳·斯莱德回顾了这部浪漫喜剧多年来的历史，一次一个幸福的结局。
 
