@@ -1,6 +1,6 @@
 # 如何判断你的窗扇应该朝里还是朝外
 
-> 原文:[https://life hacker . com/how-to-tell-the-your-window-fan-in-1849102863](https://lifehacker.com/how-to-tell-whether-your-window-fan-should-be-facing-in-1849102863)
+> 原文：<https://lifehacker.com/how-to-tell-whether-your-window-fan-should-be-facing-in-1849102863>
 
 对于许多人来说，开窗风扇是保持凉爽的必要工具——尤其是如果他们没有(或者正在减少)空调的话。即使有空调，窗扇也能为闷热的房间提供一些急需的通风。
 
@@ -24,6 +24,6 @@ Watch
 
 如果你正在用窗扇给你的家降温， [Chris Regan，一位也为《消费者报告》测试空调设备的工程师，推荐](https://www.consumerreports.org/heating-cooling-and-air/should-your-window-fan-face-in-or-out-a2594157374/) 一种多扇方法。这意味着要让房子上层的风扇一直开着——面朝外——以排除滞留在那里的热空气。
 
-然后，一旦夜晚来临，外面不那么热了，打开你家一楼向内的窗户风扇。Regan解释说，这将把较冷的室外空气吹入室内，并与上层面向外的风扇相结合，最大限度地增加室内气流。
+然后，一旦夜晚来临，外面不那么热了，打开你家一楼向内的窗户风扇。Regan 解释说，这将把较冷的室外空气吹入室内，并与上层面向外的风扇相结合，最大限度地增加室内气流。
 
 总的来说，请记住，比起让冷空气进来，开窗风扇在将热空气排出房子(或公寓)方面更有用。

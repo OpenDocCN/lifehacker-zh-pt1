@@ -1,6 +1,6 @@
 # 柠檬真的能让你的眼白更白吗？
 
-> 原文:[https://life hacker . com/can-lemons-really-make-your-whites-whiter-1847566605](https://lifehacker.com/can-lemons-really-make-your-whites-whiter-1847566605)
+> 原文：<https://lifehacker.com/can-lemons-really-make-your-whites-whiter-1847566605>
 
 关于如何保持白色衣物的清洁而不使用硬化学物质，有数不清的窍门。一些建议包括小苏打、醋，甚至阿司匹林——好吧，我们并不反对发挥创造力。不过，有一种选择是将你的蛋白和柠檬一起煮，虽然柠檬酸 [确实是清洁很多东西的好方法](https://lifehacker.com/15-ways-you-should-be-cleaning-your-home-with-citric-ac-1846891661) ，但它对你的衣服来说不值得一试。
 
@@ -12,7 +12,7 @@ Watch
 
 农业工人机会项目 协会 [健康与安全项目主任梅拉妮·福蒂解释说，漂白剂会导致“皮疹、极度头痛、偏头痛、肌肉无力、腹部不适、食道穿孔、恶心和呕吐。”长时间吸入或暴露在皮肤上显然很糟糕，如果不小心摄入，还有令人讨厌的“死亡”风险。好吧。](https://afophs.wordpress.com/2016/11/17/why-you-should-stop-using-bleach-now/)
 
-此外，漂白剂会毁掉一些你最喜欢的图形t恤，这是不可原谅的。
+此外，漂白剂会毁掉一些你最喜欢的图形 t 恤，这是不可原谅的。
 
 ## 然而，煮沸的柠檬并不比清洁剂更能美白
 

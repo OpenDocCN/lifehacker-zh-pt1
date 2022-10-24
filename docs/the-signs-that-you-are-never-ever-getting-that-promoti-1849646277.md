@@ -1,6 +1,6 @@
 # 这些迹象表明你永远也不会得到晋升
 
-> 原文:[https://life hacker . com/the-signs-the-you-never-get-that-promoti-1849646277](https://lifehacker.com/the-signs-that-you-are-never-ever-getting-that-promoti-1849646277)
+> 原文：<https://lifehacker.com/the-signs-that-you-are-never-ever-getting-that-promoti-1849646277>
 
 如果你已经在一份工作上干了一段时间，却没有晋升到下一个级别——尽管你的老板多次承诺最终会升职——你可能会开始觉得自己实际上是被骗了。也许你的老板只是想让给一份(不存在的)奖励，让给你更多的工作；或者也许他们实际上没有能力坚持升职，他们也不想承认这一点。
 
@@ -10,7 +10,7 @@ Watch
 
 *但是你怎么知道承诺的晋升是否不可能发生呢？*
 
-## *V ague承诺vs. 具体的推广时间表*
+## *V ague 承诺 vs. 具体的推广时间表*
 
 *如果你老板的承诺非常含糊，很有可能他们是在告诉你你想听到的，而不是制定具体的时间表或计划来实现它。然而，盖洛说:“我们太关注结果，以至于忘记了自己对他们过去行为模式的判断。”。*
 

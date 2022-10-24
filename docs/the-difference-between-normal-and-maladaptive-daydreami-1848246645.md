@@ -1,6 +1,6 @@
 # 正常和不良白日梦的区别
 
-> 原文:[https://life hacker . com/the-difference-between-normal-and-dis-adaptive-day dreami-1848246645](https://lifehacker.com/the-difference-between-normal-and-maladaptive-daydreami-1848246645)
+> 原文：<https://lifehacker.com/the-difference-between-normal-and-maladaptive-daydreami-1848246645>
 
 我们所有人偶尔都会走神。事实上，据估计，从 [到](https://behavioralscientist.org/daydreaming-might-make-you-more-creative-but-it-depends-on-what-you-daydream-about/#:~:text=Daydreaming%2C%20also%20known%20as%20mind,even%20notice%20when%20it%20happens.) 我们醒着的时间有四分之一到一半是在做白日梦，因为我们的意识从我们目前正在做的或正在经历的事情中游离出来，完全专注于另一个话题。
 

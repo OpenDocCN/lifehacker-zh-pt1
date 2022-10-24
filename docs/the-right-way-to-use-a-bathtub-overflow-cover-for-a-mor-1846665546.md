@@ -1,6 +1,6 @@
 # 用浴缸溢流盖享受更奢华的沐浴
 
-> 原文:[https://life hacker . com/the-right-the-way-to-use-a-tubular-overflow-cover-for-a-mor-1846665546](https://lifehacker.com/the-right-way-to-use-a-bathtub-overflow-cover-for-a-mor-1846665546)
+> 原文：<https://lifehacker.com/the-right-way-to-use-a-bathtub-overflow-cover-for-a-mor-1846665546>
 
 坐在快速冷却的浅浴缸里是放松的反义词。你不必在齐颈深的热水池里尽情享受——天哪，那是*梦*——你被迫选择你身体的哪一部分想要浸入水中，有策略地交替它们以防止暴露的部分变得太冷。
 
@@ -16,7 +16,7 @@ Watch
 
 ## **正确定位**
 
-为了获得最佳效果，你应该始终将盖子的顶部(有大孔的部分)与你的溢流排水管的顶部对齐，而不是底部。这在排水管的商业端产生了一个漂亮的气泡，这是保持上升的洗澡水的关键。用力按压每个小吸盘，确保其牢固。想要一个视觉指南，可以看看这个来自(名字令人难以置信的)bathsofdistinction YouTube频道的视频:
+为了获得最佳效果，你应该始终将盖子的顶部(有大孔的部分)与你的溢流排水管的顶部对齐，而不是底部。这在排水管的商业端产生了一个漂亮的气泡，这是保持上升的洗澡水的关键。用力按压每个小吸盘，确保其牢固。想要一个视觉指南，可以看看这个来自(名字令人难以置信的)bathsofdistinction YouTube 频道的视频:
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-1KL3QmteXLQ&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-1KL3QmteXLQ&start=0) 
 

@@ -1,6 +1,6 @@
 # 个人界限的五种类型(以及如何设置)
 
-> 原文:[https://life hacker . com/the-five-type-of-personal-boundaries-and-how-to-set-t-1847349639](https://lifehacker.com/the-five-types-of-personal-boundaries-and-how-to-set-t-1847349639)
+> 原文：<https://lifehacker.com/the-five-types-of-personal-boundaries-and-how-to-set-t-1847349639>
 
 “个人界限”很容易被认为是一组主观偏好。不过，尽管从某种有限的意义上说，这是对的，但对我们自身界限进行更有意义的审视，有助于我们了解如何在生活中更有效地实施这些原则，尤其是在它们受到损害时。
 
@@ -26,11 +26,11 @@ Watch
 *   情感界限是你在与他人分享亲密感受时的限度，或者说缺乏限度。它还包括你可以投入到某些关系中的情绪能量和劳动。说一些类似的话，“我真的没有时间讨论这个，但也许改天吧，”例如。
 *   **性界限**包括你对性接触的舒适和同意。它超越了不想要的性接触，也适用于你与长期一夫一妻制伴侣的关系。自信地说“那不是我的事”或“我不做那件事”有助于传达一个明确的信息，尤其是在早期。
 *   时间界限涉及到你想如何度过你的时间，以及你将分配给各种努力的时间，比如参加一个熟人的生日聚会。说一些大意为“我可以过来，但只呆几个小时”的话是沟通时间界限的有效方法。
-*   **物质界限**包括“设定你将与谁分享什么的限制”，根据 [CBT心理协会](https://cbtpsychologicalassociates.com/boundaries-relationships/#:~:text=Material%20Boundaries%20refer%20to%20money,someone%20you%20met%20this%20morning.) 的说法。这可能包括不把车借给你家里的人，因为害怕他们不尊重你的财产。根据你和某人的关系你可以决定是否提供一个解释，比如说不借出你的东西，但是注意不要陷入争论。
+*   **物质界限**包括“设定你将与谁分享什么的限制”，根据 [CBT 心理协会](https://cbtpsychologicalassociates.com/boundaries-relationships/#:~:text=Material%20Boundaries%20refer%20to%20money,someone%20you%20met%20this%20morning.) 的说法。这可能包括不把车借给你家里的人，因为害怕他们不尊重你的财产。根据你和某人的关系你可以决定是否提供一个解释，比如说不借出你的东西，但是注意不要陷入争论。
 
 ## 如何实现个人界限
 
-正如心理治疗师F. Diane Barth在 [今日心理学](https://www.psychologytoday.com/us/blog/the-couch/201903/everybody-needs-boundaries-6-ways-make-them-work-you)中解释的界限是关于了解自己和有效地表达一种偏好。
+正如心理治疗师 F. Diane Barth 在 [今日心理学](https://www.psychologytoday.com/us/blog/the-couch/201903/everybody-needs-boundaries-6-ways-make-them-work-you)中解释的界限是关于了解自己和有效地表达一种偏好。
 
 她写道:
 

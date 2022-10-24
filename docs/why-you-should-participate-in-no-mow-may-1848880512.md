@@ -1,6 +1,6 @@
 # 为什么你应该参加“现在不可以”
 
-> 原文:[https://life hacker . com/why-you-should-in-no-mow-may-1848880512](https://lifehacker.com/why-you-should-participate-in-no-mow-may-1848880512)
+> 原文：<https://lifehacker.com/why-you-should-participate-in-no-mow-may-1848880512>
 
 对于那些拥有传统草坪的人来说，在经历了一个寒冷的冬天和潮湿的春天后，现在通常是他们恢复原状的时候。但是，如果我们告诉你，在五月份，你能坐下来享受另一个没有割草的月份吗？
 
@@ -12,17 +12,17 @@ Watch
 
 不割草五月听起来确实是这样的:选择不在五月割草。这在概念上类似于“不刮胡子的十一月”(又名“十一月”)，人们不再刮上唇，而是留起了小胡子。在这种情况下，你家前面的草坪就是你家的胡子。
 
-No Mow May是由英国一个名为 [Plantlife](https://www.plantlife.org.uk/uk/about-us/news/no-mow-may-how-to-get-ten-times-more-bees-on-your-lockdown-lawn) 的保护组织发起的，然后传遍了北美。在美国，一个名为 [蜂城美国](https://beecityusa.org/no-mow-may/) 的团体带头发起了这场运动。
+No Mow May 是由英国一个名为 [Plantlife](https://www.plantlife.org.uk/uk/about-us/news/no-mow-may-how-to-get-ten-times-more-bees-on-your-lockdown-lawn) 的保护组织发起的，然后传遍了北美。在美国，一个名为 [蜂城美国](https://beecityusa.org/no-mow-may/) 的团体带头发起了这场运动。
 
-## 为什么参加No Mow May？
+## 为什么参加 No Mow May？
 
-No Mow May的目的是给你当地的授粉者——如蜜蜂、黄蜂和其他昆虫——一个完成工作的机会。因为尽管修剪完美、外观统一的绿草草坪是美国的标准，但这种做法不仅耗时且昂贵:还对环境和当地生态系统有害。
+No Mow May 的目的是给你当地的授粉者——如蜜蜂、黄蜂和其他昆虫——一个完成工作的机会。因为尽管修剪完美、外观统一的绿草草坪是美国的标准，但这种做法不仅耗时且昂贵:还对环境和当地生态系统有害。
 
 下面是 [蜂城美国](https://beecityusa.org/no-mow-may/) 的解释:
 
 > 传统的单一栽培草坪缺乏花卉资源或蜜蜂的筑巢地，并且经常使用大量的杀虫剂来处理，这些杀虫剂会伤害蜜蜂和其他无脊椎动物。当我们想到栖息地的丧失时，我们倾向于想象推土机和车辙的泥土，但数英亩修剪整齐的草坪和任何开发场地一样都是栖息地的丧失。
 
-在美国，草坪占地约4000万英亩，占土地的2%,使它们成为T2最大的单一灌溉作物，T4最大的灌溉作物。
+在美国，草坪占地约 4000 万英亩，占土地的 2%,使它们成为 T2 最大的单一灌溉作物，T4 最大的灌溉作物。
 
 ## 如何参加没有现在的五月
 

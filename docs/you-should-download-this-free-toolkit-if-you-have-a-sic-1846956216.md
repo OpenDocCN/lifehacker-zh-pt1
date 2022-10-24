@@ -1,6 +1,6 @@
 # 如果你有一只生病或年老的猫，你应该下载这个免费的工具包
 
-> 原文:[https://life hacker . com/you-should-download-this-free-toolkit-if-you-have-a-sic-1846956216](https://lifehacker.com/you-should-download-this-free-toolkit-if-you-have-a-sic-1846956216)
+> 原文：<https://lifehacker.com/you-should-download-this-free-toolkit-if-you-have-a-sic-1846956216>
 
 作为人类，我们大多数人都不愿意谈论(甚至思考)死亡，无论是我们自己的死亡，还是失去亲人——包括宠物。虽然人们从来不想想到他们的宠物会出什么事，但这是拥有一个毛茸茸的伴侣不可避免的一个方面。即使你可能*认为*你知道在你的宠物生命终结的时候你要做什么，但让它真的发生完全是另外一回事。
 

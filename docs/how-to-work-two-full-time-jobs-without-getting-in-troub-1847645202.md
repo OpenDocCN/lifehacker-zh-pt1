@@ -1,8 +1,8 @@
 # 如何做两份全职工作而不惹麻烦
 
-> 原文:[https://life hacker . com/how-to-work-two-全职工作-不惹麻烦b-1847645202](https://lifehacker.com/how-to-work-two-full-time-jobs-without-getting-in-troub-1847645202)
+> 原文：<https://lifehacker.com/how-to-work-two-full-time-jobs-without-getting-in-troub-1847645202>
 
-根据最近来自 [【福布斯】](https://www.forbes.com/sites/jackkelly/2021/08/15/the-remote-trend-of-working-two-jobs-at-the-same-time-without-both-companies-knowing/?sh=72e62fd717f3)[【华尔街日报】](https://www.wsj.com/articles/these-people-who-work-from-home-have-a-secret-they-have-two-jobs-11628866529)[商业内幕](https://www.businessinsider.com/second-jobs-secret-salary-income-money-remote-work-overemployed-2021-8) 的报道，远程工作出现了一个新趋势:同时(并且秘密地)拥有两份全职有薪工作——，享受两份薪水带来的所有福利。如果你在家工作，每周实际工作时间明显少于40小时，你可能会想:这合法吗？如果合法，我该怎么做？
+根据最近来自 [【福布斯】](https://www.forbes.com/sites/jackkelly/2021/08/15/the-remote-trend-of-working-two-jobs-at-the-same-time-without-both-companies-knowing/?sh=72e62fd717f3)[【华尔街日报】](https://www.wsj.com/articles/these-people-who-work-from-home-have-a-secret-they-have-two-jobs-11628866529)[商业内幕](https://www.businessinsider.com/second-jobs-secret-salary-income-money-remote-work-overemployed-2021-8) 的报道，远程工作出现了一个新趋势:同时(并且秘密地)拥有两份全职有薪工作——，享受两份薪水带来的所有福利。如果你在家工作，每周实际工作时间明显少于 40 小时，你可能会想:这合法吗？如果合法，我该怎么做？
 
 Watch
 
@@ -24,7 +24,7 @@ Watch
 
 另一件要考虑的事情是你的雇佣合同是否明确禁止兼职，因为那是你将要做的事情。反兼职条款和政策明确限制公司员工从事兼职工作。如果你的合同禁止你找另一份工作，而你的老板发现你还是做了，他们可能不只是解雇你——他们可能会起诉你违反合同。
 
-不过，正如你所料，也有例外。正如就业律师兼作家丽莎·盖琳为Nolo.com解释的那样，反兼职政策的内容和范围取决于州法律。一些州禁止雇主解雇从事(合法)下班活动的员工，一些州根本不禁止，还有一些州只保护某些类型的行为。“根据具体情况，下班后行为法可能会限制雇主因你兼职而解雇你的权利，除非这与你的工作有冲突或影响你的工作，”盖林写道。了解一点你所在地区的法律不会有什么坏处。
+不过，正如你所料，也有例外。正如就业律师兼作家丽莎·盖琳为 Nolo.com 解释的那样，反兼职政策的内容和范围取决于州法律。一些州禁止雇主解雇从事(合法)下班活动的员工，一些州根本不禁止，还有一些州只保护某些类型的行为。“根据具体情况，下班后行为法可能会限制雇主因你兼职而解雇你的权利，除非这与你的工作有冲突或影响你的工作，”盖林写道。了解一点你所在地区的法律不会有什么坏处。
 
 底线:在签署合同之前，一定要完整阅读合同。如果为时已晚，在没有彻底检查你的“日常工作”合同中的反兼职语言之前，不要接受第二份全职工作。
 

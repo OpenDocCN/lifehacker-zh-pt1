@@ -1,6 +1,6 @@
 # 在抖音管教孩子一点也不好玩——即使这是有预谋的
 
-> 原文:[https://life hacker . com/discipling-kids-on-tiktok-不好笑-即使-如果-它-stag-1846619538](https://lifehacker.com/disciplining-kids-on-tiktok-isnt-funny-even-if-its-stag-1846619538)
+> 原文：<https://lifehacker.com/disciplining-kids-on-tiktok-isnt-funny-even-if-its-stag-1846619538>
 
 抖音是一个多变的地方，充满了可爱的舞蹈动作， [令人不安的](https://offspring.lifehacker.com/stop-with-the-new-teacher-challenge-1844916659)[挑战](https://offspring.lifehacker.com/warn-your-teens-about-the-benadryl-challenge-1844927737) ， [怪异的食物技巧](https://skillet.lifehacker.com/should-you-add-cheetos-to-your-macaroni-1846383754) ， [认真的育儿小贴士](https://lifehacker.com/there-are-some-good-parenting-hacks-on-tiktok-actually-1845226861) 。在抖音另一个奇怪的角落里，生活着一种我们绝对不需要的视频类型:父母公开惩罚或羞辱他们孩子的观点和喜好的做法(通常是假的)。
 
@@ -8,11 +8,11 @@ Watch
 
 这些所谓的惩戒技巧中的一些看起来很明显是排练过的，如果不是完全伪造的话。孩子们似乎经常知道他们正在被录音，并且可能对卧室门被从铰链上取下、一张沙发被掀翻(当他们在沙发上的时候)、或者电子产品被锤子砸成碎片并不感到惊讶。
 
-受欢迎的TikToker[@ Derek _ hensley](https://www.tiktok.com/@derek_hensley?lang=en&is_copy_url=1&is_from_webapp=v3)最近引起了*华尔街日报*专栏作家朱莉·行话的注意，因为一个这样的视频导致他被当地儿童保护服务机构举报。 [行话写道](https://www.wsj.com/articles/kid-shaming-on-tiktok-when-parents-are-the-online-bullies-11617454801?mod=djemalertNEWS) :
+受欢迎的 TikToker[@ Derek _ hensley](https://www.tiktok.com/@derek_hensley?lang=en&is_copy_url=1&is_from_webapp=v3)最近引起了*华尔街日报*专栏作家朱莉·行话的注意，因为一个这样的视频导致他被当地儿童保护服务机构举报。 [行话写道](https://www.wsj.com/articles/kid-shaming-on-tiktok-when-parents-are-the-online-bullies-11617454801?mod=djemalertNEWS) :
 
-> 汉斯莱先生说，他创建一个抖音账户是孩子们的主意。他们告诉他，他很有趣，他的视频可以做得很好。但他说，他并没有打算制作让他们尴尬的视频。他说有一天他正在修理一扇门，把它从铰链上拆了下来，这时他突然想起了Cardi B的歌曲“WAP”。他开始唱他自己的版本:“这房子里没有门…我们不养小屁孩。”他决定以此为基础制作一个视频。
+> 汉斯莱先生说，他创建一个抖音账户是孩子们的主意。他们告诉他，他很有趣，他的视频可以做得很好。但他说，他并没有打算制作让他们尴尬的视频。他说有一天他正在修理一扇门，把它从铰链上拆了下来，这时他突然想起了 Cardi B 的歌曲“WAP”。他开始唱他自己的版本:“这房子里没有门…我们不养小屁孩。”他决定以此为基础制作一个视频。
 > 
-> 他在11月8日首次发布的视频获得了570万次点击量。
+> 他在 11 月 8 日首次发布的视频获得了 570 万次点击量。
 
 > 评论纷至沓来，比如，“这才是正确的育儿方式”和“爸爸说得对！干得好。”
 

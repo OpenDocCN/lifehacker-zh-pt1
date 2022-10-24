@@ -1,14 +1,14 @@
 # 脱离现实的成人儿童文化指南:万圣节即将到来
 
-> 原文:[https://life hacker . com/the-out-of-touch-大人-guide-to-kids-culture-hallowee-1845377079](https://lifehacker.com/the-out-of-touch-adults-guide-to-kids-culture-hallowee-1845377079)
+> 原文：<https://lifehacker.com/the-out-of-touch-adults-guide-to-kids-culture-hallowee-1845377079>
 
-快到万圣节了，疖子和食尸鬼，所以我通灵了，把*恐怖*带到本周的Out--Touch成人 G uide！我说的是来势汹汹的美洲狮，抖音的邪恶，以及韩国男孩乐队BTS难以言喻的宇宙恐怖。
+快到万圣节了，疖子和食尸鬼，所以我通灵了，把*恐怖*带到本周的 Out--Touch 成人 G uide！我说的是来势汹汹的美洲狮，抖音的邪恶，以及韩国男孩乐队 BTS 难以言喻的宇宙恐怖。
 
 Watch
 
-### T2对抖音有什么看法？
+### T2 对抖音有什么看法？
 
-抖音有多邪恶？美国t 的居民称非常流行的视频分享应用 [对国家安全](https://www.whitehouse.gov/presidential-actions/executive-order-addressing-threat-posed-tiktok) 构成威胁。媒体气喘吁吁地报道它给你的孩子带来的许多危险，医生鼓励 [过量服用苯海拉明](https://offspring.lifehacker.com/warn-your-teens-about-the-benadryl-challenge-1844927737)[锉自己的牙齿](https://www.washingtonpost.com/lifestyle/wellness/tik-tok-teeth-filing-dentist/2020/09/24/cddc7de0-fcf4-11ea-8d05-9beaaa91c71f_story.html) ，以及进行一种特别耗时的自杀 。
+抖音有多邪恶？美国 t 的居民称非常流行的视频分享应用 [对国家安全](https://www.whitehouse.gov/presidential-actions/executive-order-addressing-threat-posed-tiktok) 构成威胁。媒体气喘吁吁地报道它给你的孩子带来的许多危险，医生鼓励 [过量服用苯海拉明](https://offspring.lifehacker.com/warn-your-teens-about-the-benadryl-challenge-1844927737)[锉自己的牙齿](https://www.washingtonpost.com/lifestyle/wellness/tik-tok-teeth-filing-dentist/2020/09/24/cddc7de0-fcf4-11ea-8d05-9beaaa91c71f_story.html) ，以及进行一种特别耗时的自杀 。
 
 但另一方面，令人捧腹的抖音青少年可能 [帮助了一场唐纳德·川普拉力赛](https://www.nytimes.com/2020/06/21/style/tiktok-trump-rally-tulsa.html) (嗯， [可能他们并没有真的](https://www.vox.com/the-goods/2020/6/30/21307564/tiktok-trump-rally-tulsa-teens-k-pop) ，但有趣的是当时有多少人相信它)，抖音表示，它希望其用户 [通过分享视频](https://www.tiktok.com/forgood?lang=en) 为世界做好事 [鼓励教育](https://www.tiktok.com/tag/EduTok?langCountry=en)[气候行动主义](https://www.tiktok.com/tag/ForClimate?langCountry=en) ，以及
 
@@ -22,7 +22,7 @@ Watch
 
 在接下来的六分钟里，伯吉斯基本上经历了悲伤的五个阶段:讨价还价、绝望等等。幸运的是，有一个快乐的结局:大猫最终转身溜走了。感谢伯吉斯准确地回应了你应该做的；我们大多数人都会掉头就跑...最后被吃掉了。
 
-说到由美洲狮主演的病毒视频，上周有超过1400万人观看了摇滚女巫 [史蒂薇·妮克斯做她自己版本的“梦”视频](https://www.tiktok.com/@stevienicks/video/6883220570914278662?referer_url=https%3A%2F%2Fpagesix.com%2F&referer_video_id=6883220570914278662&source=h5_t) 我详细的。超过1400万人观看了尼克丝在钢琴前系好她的旱冰鞋，同时假唱她自己的歌曲。
+说到由美洲狮主演的病毒视频，上周有超过 1400 万人观看了摇滚女巫 [史蒂薇·妮克斯做她自己版本的“梦”视频](https://www.tiktok.com/@stevienicks/video/6883220570914278662?referer_url=https%3A%2F%2Fpagesix.com%2F&referer_video_id=6883220570914278662&source=h5_t) 我详细的。超过 1400 万人观看了尼克丝在钢琴前系好她的旱冰鞋，同时假唱她自己的歌曲。
 
 ### **本周科技:谷歌的恐惧**
 
@@ -32,14 +32,14 @@ Watch
 
 ### **本周音乐:我听热门歌曲(所以你不必听)**
 
-和你一样，自从Blue Oyster Cult放弃了 *Agents of Fortune，*之后，我就再也没有听过任何新音乐，但是作为一项公共服务，我查看了Billboard本周在全国排名前三的单曲。这是你孩子耳朵里听到的声音。
+和你一样，自从 Blue Oyster Cult 放弃了 *Agents of Fortune，*之后，我就再也没有听过任何新音乐，但是作为一项公共服务，我查看了 Billboard 本周在全国排名前三的单曲。这是你孩子耳朵里听到的声音。
 
-由Jawsh685和杰森·德鲁罗演唱的《野蛮的爱》(Laxed-Siren Beat):这首充满活力的流行歌曲是目前美国最流行的歌曲。《野蛮的爱》是一位17岁的新西兰制作人和佛罗里达州的资深歌手兼词曲作者的合作作品，片中一个小小的雷鬼被大量的制作技巧淹没了。它不仅非常容易记，而且很容易忘记。真的真的很可怕。
+由 Jawsh685 和杰森·德鲁罗演唱的《野蛮的爱》(Laxed-Siren Beat):这首充满活力的流行歌曲是目前美国最流行的歌曲。《野蛮的爱》是一位 17 岁的新西兰制作人和佛罗里达州的资深歌手兼词曲作者的合作作品，片中一个小小的雷鬼被大量的制作技巧淹没了。它不仅非常容易记，而且很容易忘记。真的真的很可怕。
 
-**《炸药》BTS:** O n另一方面，这是不可怕。韩国男子组合BTS的七名成员个个都很可爱，他们如此受欢迎，最近一次不太周到的采访引发了一场 [国际事件。《炸药》是20世纪70年代迪斯科氛围的完美流行。你应该听听，除非你对那些很棒的东西太冷静了。](https://www.bbc.com/news/world-asia-54513408)
+**《炸药》BTS:** O n 另一方面，这是不可怕。韩国男子组合 BTS 的七名成员个个都很可爱，他们如此受欢迎，最近一次不太周到的采访引发了一场 [国际事件。《炸药》是 20 世纪 70 年代迪斯科氛围的完美流行。你应该听听，除非你对那些很棒的东西太冷静了。](https://www.bbc.com/news/world-asia-54513408)
 
-**“WAP”由卡迪B壮举。梅根·赛恩:**卡迪B 和梅根·赛恩是统治世界的说唱歌手，他们对女性性感的低俗颂歌会让你震惊不已。这是榜单上最棒的歌曲，也许是有史以来最棒的歌曲，但它不适合孩子。即使你的孩子已经喜欢上了。即使你不知道他们会听。
+**“WAP”由卡迪 B 壮举。梅根·赛恩:**卡迪 B 和梅根·赛恩是统治世界的说唱歌手，他们对女性性感的低俗颂歌会让你震惊不已。这是榜单上最棒的歌曲，也许是有史以来最棒的歌曲，但它不适合孩子。即使你的孩子已经喜欢上了。即使你不知道他们会听。
 
 ### 本周游戏:Phasmophobia
 
-如果你听到从你玩游戏的孩子的房间里传来的尖叫声，他们可能正在看一系列的恐惧症。这款多人恐怖游戏自一个月前发布以来，一直在Twitch排行榜上炙手可热。在 *Phasmo中，*玩家是一群幽灵猎人，用相机、十字架、电动势阅读器和占卜板等工具寻找幽灵。这是观看其他人玩的完美恐怖游戏，因为根据Kotaku的Nathan Grayson 的说法，当 *Phasmophobia* 起作用时，它就像一部由玩家表演的即兴恐怖电影，当它出故障时，它很搞笑。然而与恐怖电影不同的是，观众可以和演员聊天，所以如果你警告他们不要打开那该死的门，他们可能真的会听。
+如果你听到从你玩游戏的孩子的房间里传来的尖叫声，他们可能正在看一系列的恐惧症。这款多人恐怖游戏自一个月前发布以来，一直在 Twitch 排行榜上炙手可热。在 *Phasmo 中，*玩家是一群幽灵猎人，用相机、十字架、电动势阅读器和占卜板等工具寻找幽灵。这是观看其他人玩的完美恐怖游戏，因为根据 Kotaku 的 Nathan Grayson 的说法，当 *Phasmophobia* 起作用时，它就像一部由玩家表演的即兴恐怖电影，当它出故障时，它很搞笑。然而与恐怖电影不同的是，观众可以和演员聊天，所以如果你警告他们不要打开那该死的门，他们可能真的会听。

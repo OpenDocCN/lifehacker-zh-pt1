@@ -1,6 +1,6 @@
 # 如何防止地毯污染室内空气
 
-> 原文:[https://life hacker . com/how-to-keep-the-carpet-from-contracting-your-indoor-air-1849497372](https://lifehacker.com/how-to-keep-carpets-from-polluting-your-indoor-air-1849497372)
+> 原文：<https://lifehacker.com/how-to-keep-carpets-from-polluting-your-indoor-air-1849497372>
 
 对于每一个喜欢赤脚踩在地毯上的感觉的人来说，也有其他人认为地毯是最糟糕的地板，是我们搬进来后第一件要拆掉的东西。讨厌地毯也不仅仅是审美上的——地毯可以是[到](https://lifehacker.com/how-to-remove-sunscreen-stains-from-furniture-and-carpe-1847487227) [保持清洁](https://lifehacker.com/how-to-get-pet-vomit-and-its-smell-out-of-your-carpet-1848980277) ，而且无论我们做什么，往往只是表面上的“清洁”。
 

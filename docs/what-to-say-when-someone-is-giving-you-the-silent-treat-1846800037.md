@@ -1,6 +1,6 @@
 # 当有人对你不理不睬时，你该说什么
 
-> 原文:[https://life hacker . com/what-to-say-when-someone ' s-giving-to-you the silent-treat-1846800037](https://lifehacker.com/what-to-say-when-someone-is-giving-you-the-silent-treat-1846800037)
+> 原文：<https://lifehacker.com/what-to-say-when-someone-is-giving-you-the-silent-treat-1846800037>
 
 没有什么比和一个不愿和你说话的人在一起更疏远的了。持续的阻碍会让人感到抓狂；当有人对你不理不睬时，你的思想很容易失控，疯狂地思考自己做错了什么。
 
@@ -20,11 +20,11 @@ Watch
 
 > 消极型人格可能会采用沉默来避免冲突和对抗，而强型人格则会用沉默来惩罚或控制。有些人甚至可能根本没有自觉选择。
 
-从本质上说，沉默是一种有害的(非)交流策略，通常是通过散播怀疑、困惑和焦虑来对他人施加情绪控制。偶尔，这是因为沉默的人在情绪上不知所措，不知道如何用语言表达他们的感受。尽管后一个原因没有那么可怕，但它仍然预示着可怕的后果:2014年，由德克萨斯基督教大学教授保罗·施罗德撰写的一项研究发现，这是已婚夫妇离婚的一个 [预兆。](https://www.sciencedaily.com/releases/2014/08/140804122903.htm)T3】
+从本质上说，沉默是一种有害的(非)交流策略，通常是通过散播怀疑、困惑和焦虑来对他人施加情绪控制。偶尔，这是因为沉默的人在情绪上不知所措，不知道如何用语言表达他们的感受。尽管后一个原因没有那么可怕，但它仍然预示着可怕的后果:2014 年，由德克萨斯基督教大学教授保罗·施罗德撰写的一项研究发现，这是已婚夫妇离婚的一个 [预兆。](https://www.sciencedaily.com/releases/2014/08/140804122903.htm)T3】
 
 ### 怎么知道是不是虐待
 
-如果你正处于一段坚定的关系中，并且第一次经历冷淡，最好评估一下虐待的迹象。正如Healthline指出的，有几处暗示沉默疗法将 [扩散到虐待的领地](https://www.healthline.com/health/silent-treatment#when-its-abusive) 。
+如果你正处于一段坚定的关系中，并且第一次经历冷淡，最好评估一下虐待的迹象。正如 Healthline 指出的，有几处暗示沉默疗法将 [扩散到虐待的领地](https://www.healthline.com/health/silent-treatment#when-its-abusive) 。
 
 一些虐待的标志以受害者道歉或改变方式结束，只是为了打破沉默之墙。健康热线解释道:
 
@@ -38,7 +38,7 @@ Watch
 
 ### 沉默对待该怎么办
 
-解决问题的一个方法是直接说出来，但不要用指责或敌意的方式。精神病学家伊丽莎白·戈登最近 [告诉慈父般的](https://www.fatherly.com/love-money/the-silent-treatment-marriage-advice/) 说，接受方的某人应该使用I-陈述，这可以阐明说话者的感受。例如，你可以说“我注意到你最近很安静”，或者“感觉你在排斥我”。
+解决问题的一个方法是直接说出来，但不要用指责或敌意的方式。精神病学家伊丽莎白·戈登最近 [告诉慈父般的](https://www.fatherly.com/love-money/the-silent-treatment-marriage-advice/) 说，接受方的某人应该使用 I-陈述，这可以阐明说话者的感受。例如，你可以说“我注意到你最近很安静”，或者“感觉你在排斥我”。
 
 解决这个问题的一个相当不确定的方法可能是等它过去，希望它会过去。理论上来说，这是可行的，如果你的伴侣正在努力克服一些他们最终会忘记的事情。
 

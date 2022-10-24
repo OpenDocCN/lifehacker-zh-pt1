@@ -1,12 +1,12 @@
 # 如何在吃饭的时候放慢速度(以及为什么你应该这样做)
 
-> 原文:[https://life hacker . com/how-to-slow-the-hell-down-why-you-eating-y-1847895667](https://lifehacker.com/how-to-slow-the-hell-down-while-youre-eating-and-why-y-1847895667)
+> 原文：<https://lifehacker.com/how-to-slow-the-hell-down-while-youre-eating-and-why-y-1847895667>
 
 你有没有和朋友吃完午餐后靠在椅子上，却发现他们的午餐才刚刚开始？现在，当他们以所谓的“正常”速度进食时，你应该做什么——拨弄你的拇指？
 
 Watch
 
-我明白了。美国人喜欢赞美我们忙碌不停的生活方式。花时间充分享受你的食物？对我来说听起来像欧洲的废话。(开玩笑)。(但请不要试图说服我晚上10点吃晚饭)。
+我明白了。美国人喜欢赞美我们忙碌不停的生活方式。花时间充分享受你的食物？对我来说听起来像欧洲的废话。(开玩笑)。(但请不要试图说服我晚上 10 点吃晚饭)。
 
 作为一个自我诊断为“快吃”的人，“我有很多理由想慢下来，但没有一个是出于减肥的动机。像 [【健康热线】](https://www.healthline.com/nutrition/eating-slowly-and-weight-loss#other-benefits) 和 [【今日心理学】](https://www.psychologytoday.com/us/blog/comfort-cravings/201604/how-eat-slower-6-strategies) 这样的一些消息来源声称，慢慢吃可以改善你的消化，帮助你更好地吸收营养，并且通常会增加你享受食物的程度。
 

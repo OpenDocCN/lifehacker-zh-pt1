@@ -1,6 +1,6 @@
 # 泰德·拉索是一个意想不到的环境故事大师
 
-> 原文:[https://gizmodo . com/ted-lasso-is-an-unexpected-master class-in-environmental-1847695754](https://gizmodo.com/ted-lasso-is-an-unexpected-masterclass-in-environmental-1847695754)
+> 原文：<https://gizmodo.com/ted-lasso-is-an-unexpected-masterclass-in-environmental-1847695754>
 
 最近的 [研究](https://read.dukeupress.edu/environmental-humanities/article/10/2/473/136689/The-Influence-of-Climate-FictionAn-Empirical) 表明，对明显“环保”的娱乐不感兴趣的人会避开它，无论是因为他们不同意它的观点，还是因为他们只是在寻求娱乐。这就是为什么我们需要更多像 [*泰德拉索*](https://gizmodo.com/ted-lasso-actor-brett-goldstein-bravely-breaks-silence-1847606926) 这样的节目。
 
@@ -8,7 +8,7 @@ Watch
 
 《苹果电视+秀》讲述了一个有名无实的角色，一个被雇来执掌英国一支苦苦挣扎的足球队的美国足球教练，以及他的球队和周围的角色阵容。尤其是在疫情期间，该剧一直是 [迎宾](https://observer.com/2021/07/apple-tv-plus-ted-lasso-season-2-viewership-ratings-audience/) 轻松娱乐 [大范围吸引](https://www.politico.com/news/magazine/2021/05/02/ted-lasso-charlie-baker-485105) 的观众。这使得它在这一季突然关注环境不公正——及其完美的执行——如此令人惊讶。
 
-在第二季 的第三集 [中，萨姆·奥比桑亚(Sam Obisanya)是一名年轻的尼日利亚后卫，他已经慢慢成为球队的领袖，他很兴奋地与迪拜航空公司(一家虚构的航空公司)签订了一项广告活动，迪拜航空公司是他俱乐部的赞助商之一。奥比桑亚发信息给他的父亲，期待祝贺，但被告知迪拜航空的母公司Cerithium Oil(一个明确的](https://www.avclub.com/we-want-ted-lassos-characters-to-do-the-right-est-thin-1847419373) [替身](https://twitter.com/bennussdorf/status/1424708303808958472) 为 [壳牌](https://www.arcgis.com/apps/Cascade/index.html?appid=a43f979996aa4da3bac7cae270a995e0) )负责“破坏尼日利亚的环境和贿赂政府官员。”山姆要求不要出现在广告中，俱乐部老板同意了。他更进一步，在球场上发起了一场公众抗议，整个团队都支持他。
+在第二季 的第三集 [中，萨姆·奥比桑亚(Sam Obisanya)是一名年轻的尼日利亚后卫，他已经慢慢成为球队的领袖，他很兴奋地与迪拜航空公司(一家虚构的航空公司)签订了一项广告活动，迪拜航空公司是他俱乐部的赞助商之一。奥比桑亚发信息给他的父亲，期待祝贺，但被告知迪拜航空的母公司 Cerithium Oil(一个明确的](https://www.avclub.com/we-want-ted-lassos-characters-to-do-the-right-est-thin-1847419373) [替身](https://twitter.com/bennussdorf/status/1424708303808958472) 为 [壳牌](https://www.arcgis.com/apps/Cascade/index.html?appid=a43f979996aa4da3bac7cae270a995e0) )负责“破坏尼日利亚的环境和贿赂政府官员。”山姆要求不要出现在广告中，俱乐部老板同意了。他更进一步，在球场上发起了一场公众抗议，整个团队都支持他。
 
 研究发现，即使我们知道虚构的人物是虚构的，但在神经上的和情感上的层面上，我们似乎与他们互动，就好像他们是真实的一样。因此，我们消费的媒体不可避免地对我们自己和我们周围的世界产生了强大的影响。其他节目应该注意到泰德·拉索的大师课，他讲述了非环境媒体的创作者如何能够也应该融入环境问题。
 
@@ -28,7 +28,7 @@ Watch
 
 第四，行动成功！在这一季 的第八集 [中，我们得知铈锂石油公司已经被勒令停止在尼日利亚的运营，奥比桑亚被他慈爱的父亲描述为“是他的翅膀让这一切发生的蝴蝶”在电视和电影中，成功的活动少得惊人。虽然行动主义和政治参与不应该仅仅基于结果，但证明即使有限的胜利也可能发生更有可能鼓励观众站出来。](https://www.avclub.com/we-wish-we-believed-in-ted-lassos-new-ship-as-much-as-t-1847648325)
 
-当然，泰德·拉索还可以用这个故事情节做更多的事情。将导致Cerithium垮台的奥比桑亚称为“蝴蝶”并不承认尼日利亚数十年来反对壳牌的现实世界行动主义，这是由1995年该公司与尼日利亚政府合谋杀害 [肯·沙罗-维瓦](https://www.aljazeera.com/opinions/2015/11/10/the-legacy-of-a-nigerian-human-rights-hero) 和其他奥戈尼活动分子引发的。理想情况下，节目可以突出基层活动家的工作，采取公共行动的名人在与他们协商后这样做。
+当然，泰德·拉索还可以用这个故事情节做更多的事情。将导致 Cerithium 垮台的奥比桑亚称为“蝴蝶”并不承认尼日利亚数十年来反对壳牌的现实世界行动主义，这是由 1995 年该公司与尼日利亚政府合谋杀害 [肯·沙罗-维瓦](https://www.aljazeera.com/opinions/2015/11/10/the-legacy-of-a-nigerian-human-rights-hero) 和其他奥戈尼活动分子引发的。理想情况下，节目可以突出基层活动家的工作，采取公共行动的名人在与他们协商后这样做。
 
 泰德·拉索也可以回到这个故事情节，展示环境问题和行动如何成为角色生活的一部分。也许这支球队成为全世界热爱足球的环保主义者和活动家的最爱，并在一家可再生能源公司找到了一个令人兴奋的赞助商，导致其他俱乐部效仿它的做法 [拒绝化石燃料赞助](https://www.theguardian.com/environment/2021/mar/22/major-climate-polluters-accused-of-greenwashing-with-sports-sponsorship) 。(事实上，该团队最终得到了一款约会应用的赞助，该应用在该节目中也发挥了关键作用。)这样的发展可能会导致良性循环，玩家也会采取更多的环保行动。
 
@@ -36,4 +36,4 @@ Watch
 
 无论这种情况是否会发生，一个轻松的体育节目已经成为文化工作者如何将环境信息融入非环境电视节目的指导性模式，以及他们可能如何做得更多。我们可以也应该通过非小说类的文章和书籍来教育人们，但是通过拥有数百万观众的热门电视节目的叙述来向他们展示更有效。鉴于气候危机的紧迫性和媒体的力量，*泰德·拉索*以最佳状态为环保行动主义建模是一个非常受欢迎的发展。这是我们需要更多的——在每一种媒体中。
 
-Matthew Schneider-Mayerson是一位研究环境文学、媒体、文化和政治的学者。他目前是耶鲁-新加坡国立大学学院环境研究的副教授。
+Matthew Schneider-Mayerson 是一位研究环境文学、媒体、文化和政治的学者。他目前是耶鲁-新加坡国立大学学院环境研究的副教授。

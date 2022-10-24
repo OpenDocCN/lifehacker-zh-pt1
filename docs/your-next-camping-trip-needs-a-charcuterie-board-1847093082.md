@@ -1,6 +1,6 @@
 # 你的下一次野营旅行需要一块烤肉板
 
-> 原文:[https://life hacker . com/your-next-camping-trip-needs-a-charcuterie-board-1847093082](https://lifehacker.com/your-next-camping-trip-needs-a-charcuterie-board-1847093082)
+> 原文：<https://lifehacker.com/your-next-camping-trip-needs-a-charcuterie-board-1847093082>
 
 野营应该是“拔掉插头”和“欣赏简单的东西”，但对我来说它似乎总是很复杂。在外面睡觉和吃饭实际上比在里面睡觉和吃饭更具挑战性，在野外的第一个晚上会感觉有点受不了，尤其是如果你饿了的话。
 

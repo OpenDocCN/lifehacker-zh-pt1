@@ -1,6 +1,6 @@
 # 以下是这些牙齿美白产品的实际效果
 
-> 原文:[https://life hacker . com/here-s-how-effective-these-these-牙齿美白产品-act-1849625435](https://lifehacker.com/here-s-how-effective-those-teeth-whitening-products-act-1849625435)
+> 原文：<https://lifehacker.com/here-s-how-effective-those-teeth-whitening-products-act-1849625435>
 
 每个人都想要更白的牙齿，以至于抖音充斥着伪造的家庭美白食谱 ，甚至有 [口香糖](https://lifehacker.com/teeth-whitening-gum-only-works-if-you-chew-a-ton-of-it-1798709928) 吹嘘(极其微小的)牙齿美白功效。但是让我们假设你跳过所有这些，去做专业的牙齿美白，或者使用看起来合法的家用产品。你的牙齿会白多久？
 
@@ -10,7 +10,7 @@ Watch
 
 ## 专业美白
 
-如果你在牙医那里进行牙齿美白手术(通常被称为椅旁美白)，效果可能会持续6个月到3年，许多牙医说一年是典型的。有各种各样的美白程序，所以问你的牙医他们计划使用什么，效果通常持续多长时间。还可能有后续护理指导，如美白后的头几天不要喝酒和咖啡，这有助于治疗持续更长时间。
+如果你在牙医那里进行牙齿美白手术(通常被称为椅旁美白)，效果可能会持续 6 个月到 3 年，许多牙医说一年是典型的。有各种各样的美白程序，所以问你的牙医他们计划使用什么，效果通常持续多长时间。还可能有后续护理指导，如美白后的头几天不要喝酒和咖啡，这有助于治疗持续更长时间。
 
 ## 家用美白托盘
 
@@ -22,7 +22,7 @@ Watch
 
 ## 美白带
 
-牙齿美白带的效果没有专业治疗持久，但大多数广告称其效果持续六个月。比如佳洁士白条 [承诺](https://crest.com/en-us/oral-care-products/3d-whitestrips/professional-effects-twin-pack)“6个月以上”在你用了20天后每天一次。(他们指出，有些人可能需要经历两个疗程，也就是40天的疗程，才能看到结果。)
+牙齿美白带的效果没有专业治疗持久，但大多数广告称其效果持续六个月。比如佳洁士白条 [承诺](https://crest.com/en-us/oral-care-products/3d-whitestrips/professional-effects-twin-pack)“6 个月以上”在你用了 20 天后每天一次。(他们指出，有些人可能需要经历两个疗程，也就是 40 天的疗程，才能看到结果。)
 
 ## 美白笔
 

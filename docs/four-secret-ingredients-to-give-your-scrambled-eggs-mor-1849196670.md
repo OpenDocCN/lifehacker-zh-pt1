@@ -1,6 +1,6 @@
 # 四种秘方让你的炒鸡蛋更鲜味
 
-> 原文:[https://life hacker . com/four-secret-ingredients-to-give-your-scrambled-eggs-mor-1849196670](https://lifehacker.com/four-secret-ingredients-to-give-your-scrambled-eggs-mor-1849196670)
+> 原文：<https://lifehacker.com/four-secret-ingredients-to-give-your-scrambled-eggs-mor-1849196670>
 
 就像一个母亲带着她的孩子一样，当谈到鸡蛋的制作方法时，我很难选择最喜欢的。我喜欢煎蛋。我喜欢煮鸡蛋。我喜欢荷包蛋。我喜欢炒鸡蛋。正如我尊敬的同事斯蒂芬·约翰森所指出的，煮鸡蛋可以教你如何煮。他们真的给了我们很多礼物。
 
@@ -16,7 +16,7 @@ Watch
 
 ## *加入酱油以增加浓浓的咸味*
 
-*与洋葱粉不同，酱油并不微妙。它尖叫着“鲜味”和“盐”闯入你的炒鸡蛋，老实说，你的鸡蛋对它来说更好。只需一点点就能增加黑色的咸味和发酵的鲜味，更加突出鸡蛋的丰富。酱油的话我更喜欢做一个 [低慢抢](https://lifehacker.com/how-to-make-perfect-scrambled-eggs-no-matter-how-you-l-1819089160)；有时候我 [加一点mirin](https://lifehacker.com/you-should-definitely-add-mirin-to-your-scrambled-eggs-1838015440) 为了甜。*
+*与洋葱粉不同，酱油并不微妙。它尖叫着“鲜味”和“盐”闯入你的炒鸡蛋，老实说，你的鸡蛋对它来说更好。只需一点点就能增加黑色的咸味和发酵的鲜味，更加突出鸡蛋的丰富。酱油的话我更喜欢做一个 [低慢抢](https://lifehacker.com/how-to-make-perfect-scrambled-eggs-no-matter-how-you-l-1819089160)；有时候我 [加一点 mirin](https://lifehacker.com/you-should-definitely-add-mirin-to-your-scrambled-eggs-1838015440) 为了甜。*
 
 ## *将凤尾鱼融化到黄油中，获得深沉、颓废的矿物质*
 

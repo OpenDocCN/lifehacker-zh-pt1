@@ -1,6 +1,6 @@
 # 今天订购星巴克咖啡，即可免费获得一个可重复使用的假日杯
 
-> 原文:[https://life hacker . com/get-a-free-reusable-holiday-cup-with-your-Starbucks-ord-1845593332](https://lifehacker.com/get-a-free-reusable-holiday-cup-with-your-starbucks-ord-1845593332)
+> 原文：<https://lifehacker.com/get-a-free-reusable-holiday-cup-with-your-starbucks-ord-1845593332>
 
 如果你是一个对星巴克和/或季节性热饮感到兴奋的人，那么你可能已经知道今天，这家咖啡连锁店开始供应今年的假日饮料，如果你今天订购一杯，你将获得一个免费的可重复使用的杯子。对其他人来说，现在你知道了。这里有一些关于这个(半)免费赠品的知识。
 
@@ -8,7 +8,7 @@ Watch
 
 ### 如何获得免费星巴克旅行杯
 
-你真的会有太多的冷热饮料外带容器吗？(好吧，现在很多人都不再通勤了，也许吧，但我们现在跳过这个话题。)如果你想再来一杯——和一杯假日(不含酒精的)饮料——你可能想今天就去一趟当地的星巴克。今天只有(显然是11月6日星期五，但我记不清了 ) ，如果你订购任何尺寸的他们的节日调制饮料，你就可以在美国和加拿大免费获得一个他们的 [可重复使用的旅行杯](https://www.usatoday.com/story/money/business/2020/11/05/starbucks-holiday-drinks-red-cups-2020-november-return-eggnog-peppermint/6173250002/)(送完即止)。
+你真的会有太多的冷热饮料外带容器吗？(好吧，现在很多人都不再通勤了，也许吧，但我们现在跳过这个话题。)如果你想再来一杯——和一杯假日(不含酒精的)饮料——你可能想今天就去一趟当地的星巴克。今天只有(显然是 11 月 6 日星期五，但我记不清了 ) ，如果你订购任何尺寸的他们的节日调制饮料，你就可以在美国和加拿大免费获得一个他们的 [可重复使用的旅行杯](https://www.usatoday.com/story/money/business/2020/11/05/starbucks-holiday-drinks-red-cups-2020-november-return-eggnog-peppermint/6173250002/)(送完即止)。
 
  [https://lifehacker.com/embed/inset/iframe?id=twitter-1324336045161283584&autosize=1](https://lifehacker.com/embed/inset/iframe?id=twitter-1324336045161283584&autosize=1) 
 

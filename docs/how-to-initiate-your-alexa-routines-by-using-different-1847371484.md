@@ -1,12 +1,12 @@
-# 如何使用不同的短语启动你的Alexa程序
+# 如何使用不同的短语启动你的 Alexa 程序
 
-> 原文:[https://life hacker . com/how-to-initiate-your-Alexa-routines-by-using-different-1847371484](https://lifehacker.com/how-to-initiate-your-alexa-routines-by-using-different-1847371484)
+> 原文：<https://lifehacker.com/how-to-initiate-your-alexa-routines-by-using-different-1847371484>
 
-[自定义例程](https://lifehacker.com/amazon-echo-just-added-music-radio-and-podcasts-to-al-1824484019) 是亚马逊Echo最便捷的功能之一——你可以使用它们在睡前启动一连串的家庭自动化操作，或者每天早上播放特定的媒体——所有这些都是为了响应一个请求。现在，Alexa可以 [响应每个例程多达七个独特的短语](https://www.theverge.com/2021/7/26/22593874/alexa-smart-home-routines-multiple-custom-phrases) (而不是只有一个)，所以无论你说“Alexa，晚安”还是“Alexa，该睡觉了”或“Alexa，去睡觉吧”等，你都可以触发相同的一系列动作。你也可以使用与实际套路完全无关的措辞——Alexa不知道其中的区别。
+[自定义例程](https://lifehacker.com/amazon-echo-just-added-music-radio-and-podcasts-to-al-1824484019) 是亚马逊 Echo 最便捷的功能之一——你可以使用它们在睡前启动一连串的家庭自动化操作，或者每天早上播放特定的媒体——所有这些都是为了响应一个请求。现在，Alexa 可以 [响应每个例程多达七个独特的短语](https://www.theverge.com/2021/7/26/22593874/alexa-smart-home-routines-multiple-custom-phrases) (而不是只有一个)，所以无论你说“Alexa，晚安”还是“Alexa，该睡觉了”或“Alexa，去睡觉吧”等，你都可以触发相同的一系列动作。你也可以使用与实际套路完全无关的措辞——Alexa 不知道其中的区别。
 
 Watch
 
-要设置您的自定义短语，请打开Alexa应用程序，进入**更多**菜单，然后选择您想要编辑的例程。在“**当**”下，你会看到一个选项来查看或编辑你的触发短语。点击这个，在下一个屏幕上，输入你想要使用的措辞——不要单独输入“Alexa ”,因为这会自动添加到每个自定义短语中。
+要设置您的自定义短语，请打开 Alexa 应用程序，进入**更多**菜单，然后选择您想要编辑的例程。在“**当**”下，你会看到一个选项来查看或编辑你的触发短语。点击这个，在下一个屏幕上，输入你想要使用的措辞——不要单独输入“Alexa ”,因为这会自动添加到每个自定义短语中。
 
 一旦你保存了你的自定义短语，最好测试一下每一个，以确保例程中的所有动作都被正确触发。
 

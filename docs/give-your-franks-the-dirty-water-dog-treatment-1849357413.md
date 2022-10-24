@@ -1,8 +1,8 @@
 # 给你的女友“脏水狗”般的待遇
 
-> 原文:[https://life hacker . com/give-your-Franks-the-dirty-water-dog-treatment-1849357413](https://lifehacker.com/give-your-franks-the-dirty-water-dog-treatment-1849357413)
+> 原文：<https://lifehacker.com/give-your-franks-the-dirty-water-dog-treatment-1849357413>
 
-准备和食用热狗有很多种方法，我喜欢所有的方法。给我一个 [烤狗](https://lifehacker.com/how-to-grill-the-perfect-hot-dog-1849024040) ，一个 [空气炸狗](https://lifehacker.com/air-fryer-hot-dogs-are-the-platonic-ideal-of-gas-statio-1845341836) ，一个劈叉或者螺旋狗，一个Costco狗，或者一个辣椒狗。我会把它们都吃掉。然而，我在心里和胃里对脏水狗有特殊的位置。
+准备和食用热狗有很多种方法，我喜欢所有的方法。给我一个 [烤狗](https://lifehacker.com/how-to-grill-the-perfect-hot-dog-1849024040) ，一个 [空气炸狗](https://lifehacker.com/air-fryer-hot-dogs-are-the-platonic-ideal-of-gas-statio-1845341836) ，一个劈叉或者螺旋狗，一个 Costco 狗，或者一个辣椒狗。我会把它们都吃掉。然而，我在心里和胃里对脏水狗有特殊的位置。
 
 Watch
 
@@ -14,12 +14,12 @@ Watch
 
 **配料:**
 
-*   6-10个热狗，不要去皮的(如果你想多做点，下面的都加倍)
-*   1夸脱水
-*   2汤匙红酒醋
-*   一大撮(1/8茶匙)孜然粉
+*   6-10 个热狗，不要去皮的(如果你想多做点，下面的都加倍)
+*   1 夸脱水
+*   2 汤匙红酒醋
+*   一大撮(1/8 茶匙)孜然粉
 *   一大撮大蒜粉
 *   一大撮磨碎的肉豆蔻
 *   一小撮腌制盐(可选，接近你最有可能在热狗水中找到的所有亚硝酸盐。)
 
-将除了热狗之外的所有材料加入锅中，煮沸，然后转小火慢炖。加入热狗，盖上盖子，煮至少10分钟。从炉子上取下，放在馒头上，浇上你喜欢的配料。(如果你对番茄酱感兴趣，我甚至不会对你使用番茄酱做出评价。)
+将除了热狗之外的所有材料加入锅中，煮沸，然后转小火慢炖。加入热狗，盖上盖子，煮至少 10 分钟。从炉子上取下，放在馒头上，浇上你喜欢的配料。(如果你对番茄酱感兴趣，我甚至不会对你使用番茄酱做出评价。)

@@ -1,6 +1,6 @@
 # 除了你的脚以外，所有你会得脚气的地方
 
-> 原文:[https://life hacker . com/all-the-places-you-can-get-the-not-y-1848680602](https://lifehacker.com/all-the-places-you-can-get-athlete-s-foot-that-aren-t-y-1848680602)
+> 原文：<https://lifehacker.com/all-the-places-you-can-get-athlete-s-foot-that-aren-t-y-1848680602>
 
 癣是一种皮肤真菌感染。脚气也是。股癣也是。这些疾病在不同的地方本质上都是一样的——还有其他的。因此，让我们来谈谈所有不同的地方，你可以得到这种类型的感染，以及如何识别和治疗他们。
 

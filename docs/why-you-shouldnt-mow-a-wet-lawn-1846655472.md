@@ -1,6 +1,6 @@
 # 为什么你不应该修剪湿草坪
 
-> 原文:[https://life hacker . com/why-you-should-wow-a-wet-lawn-1846655472](https://lifehacker.com/why-you-shouldnt-mow-a-wet-lawn-1846655472)
+> 原文：<https://lifehacker.com/why-you-shouldnt-mow-a-wet-lawn-1846655472>
 
 虽然住在一个有足够的草可以被认为是“草坪”的地方有它的好处，但这也意味着必须修剪草坪。考虑到完成室内家务已经够难的了，找时间割草可能会很棘手。有时，你修剪草坪的机会之窗恰好就在雨后。现在可以开始割草了吗，还是应该等到院子里的草干了再割？根据家装传说 [鲍勃维拉](https://www.bobvila.com/articles/mowing-wet-grass/) 修剪潮湿的草坪不是个好主意。原因如下。
 

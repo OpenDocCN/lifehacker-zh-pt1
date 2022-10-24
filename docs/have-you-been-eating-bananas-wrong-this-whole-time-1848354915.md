@@ -1,6 +1,6 @@
 # 你一直都吃错香蕉了吗？
 
-> 原文:[https://life hacker . com/when-you-hacken-eating-banana-this-whole-time-1848354915](https://lifehacker.com/have-you-been-eating-bananas-wrong-this-whole-time-1848354915)
+> 原文：<https://lifehacker.com/have-you-been-eating-bananas-wrong-this-whole-time-1848354915>
 
 欢迎来到我们的香蕉消费大师班，在这里我们将讨论剥香蕉的正确方法。如果你在想，“没有正确的剥香蕉的方法！”你可能还没准备好听说，根据 [奇基塔](https://www.chiquita.com/blog/how-to-open-a-banana-theyre-fun-to-peel/) 她自己的说法，有一种“合适的”方法——而且很可能不是你一生都在做的。
 
@@ -20,7 +20,7 @@ Watch
 
 ## 猴子是这样做的吗？
 
-在互联网上广为流传的说法是“从底部剥皮”是猴子吃香蕉的方式，但是灵长类动物学家凯瑟琳·米尔顿告诉“整个野生猴子和香蕉的联系实际上完全是捏造的。” [这个Quora的回答来自一个自称“野生动物工作者”](https://www.quora.com/Why-do-monkeys-open-bananas-from-the-bottom-1/answer/Stefan-Pociask) 更为直白；他说，网上的智慧虽然令人满意，但实际上是“猪食”很明显，猴子更有可能吃整个水果，连皮一起吃，或者从旁边分开吃。(也就是说，当猴子被*喂食*香蕉时，它们被看到 [选择这种方法](https://www.youtube.com/watch?v=dFG8N-2cvrg) 。)
+在互联网上广为流传的说法是“从底部剥皮”是猴子吃香蕉的方式，但是灵长类动物学家凯瑟琳·米尔顿告诉“整个野生猴子和香蕉的联系实际上完全是捏造的。” [这个 Quora 的回答来自一个自称“野生动物工作者”](https://www.quora.com/Why-do-monkeys-open-bananas-from-the-bottom-1/answer/Stefan-Pociask) 更为直白；他说，网上的智慧虽然令人满意，但实际上是“猪食”很明显，猴子更有可能吃整个水果，连皮一起吃，或者从旁边分开吃。(也就是说，当猴子被*喂食*香蕉时，它们被看到 [选择这种方法](https://www.youtube.com/watch?v=dFG8N-2cvrg) 。)
 
 不管这种方法可以归功于什么物种，这种方法也可以处理你总是不得不手动从你的香蕉(前)底部拉下的黑色尖状物。当你使用从尖端剥离的方法时，它会被压碎，并被皮肤的褶皱吸收，使整个过程更容易。
 

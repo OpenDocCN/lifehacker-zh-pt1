@@ -1,8 +1,8 @@
-# 12个搁板创意，以独特的方式展示你的物品
+# 12 个搁板创意，以独特的方式展示你的物品
 
-> 原文:[https://life hacker . com/12-creative-shelving-ideas-to-give-you-something-to-dis-1847198775](https://lifehacker.com/12-creative-shelving-ideas-to-give-you-somewhere-to-dis-1847198775)
+> 原文：<https://lifehacker.com/12-creative-shelving-ideas-to-give-you-somewhere-to-dis-1847198775>
 
-如果你家里的每一面都被书、小摆设和其他垃圾所覆盖，你可能需要更多的书架。在家里摆放实用的搁板，可以为你的杂乱问题提供完美的解决方案，让你有创意地展示书籍、植物、照片和其他物品。但是把*放在*架子上可能是一个复杂的过程，尤其是如果你没有工具来安全地悬挂它们或者不能钻入你的墙壁。不过，还是有希望的，你可以用创造性的替代方式来悬挂搁板，为你的家增添独特的风格。这里有13个DIY搁板创意来装饰你的家，帮助你保持整洁。
+如果你家里的每一面都被书、小摆设和其他垃圾所覆盖，你可能需要更多的书架。在家里摆放实用的搁板，可以为你的杂乱问题提供完美的解决方案，让你有创意地展示书籍、植物、照片和其他物品。但是把*放在*架子上可能是一个复杂的过程，尤其是如果你没有工具来安全地悬挂它们或者不能钻入你的墙壁。不过，还是有希望的，你可以用创造性的替代方式来悬挂搁板，为你的家增添独特的风格。这里有 13 个 DIY 搁板创意来装饰你的家，帮助你保持整洁。
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-2acsQaAsWgU&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-2acsQaAsWgU&start=0) 
 
@@ -14,7 +14,7 @@
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-M1sv9YrMaDk&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-M1sv9YrMaDk&start=0) 
 
-有时候，做一个架子只需要一块木板、皮带和一些螺丝。木板的每一端都包裹着小皮条(大约1-1/4英寸宽)。皮革在两侧形成两个三角形，用螺钉固定在墙上，并支撑木板(类似于绳索悬挂搁板的功能)。皮革的厚度使木板比绳子更牢固，给人一种皮革人的感觉。
+有时候，做一个架子只需要一块木板、皮带和一些螺丝。木板的每一端都包裹着小皮条(大约 1-1/4 英寸宽)。皮革在两侧形成两个三角形，用螺钉固定在墙上，并支撑木板(类似于绳索悬挂搁板的功能)。皮革的厚度使木板比绳子更牢固，给人一种皮革人的感觉。
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-GVcG8Tr1efk&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-GVcG8Tr1efk&start=0) 
 
@@ -26,7 +26,7 @@
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-YiO01jDteWk&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-YiO01jDteWk&start=0) 
 
-图片盒是一种独特的装饰功能，具有实用价值。你可以用木板制作自己的四乘六或五乘七的盒子，并在里面悬挂图片，打造一个酷炫的3D框架，还可以作为小植物和蜡烛等装饰物品的储物空间。或者，在正面贴上旧相框，做成一个的仿古太极拳。
+图片盒是一种独特的装饰功能，具有实用价值。你可以用木板制作自己的四乘六或五乘七的盒子，并在里面悬挂图片，打造一个酷炫的 3D 框架，还可以作为小植物和蜡烛等装饰物品的储物空间。或者，在正面贴上旧相框，做成一个的仿古太极拳。
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-SSddw6LngxQ&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-SSddw6LngxQ&start=0) 
 
@@ -50,4 +50,4 @@
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-9Sh7v2CBEl8&start=293](https://lifehacker.com/embed/inset/iframe?id=youtube-video-9Sh7v2CBEl8&start=293) 
 
-煤渣砖和木板为你的家打造了一个坚固的可堆叠搁板。用4英尺长的2乘4英寸宽的木板和大约10块煤渣砖，你可以不用锤子或钉子组装一个架子。煤渣砖面向里，木板放在它们之间，固定在砖的开口处，形成一个水平的架子。堆放煤渣块以获得更多的架子，但是要确保你是在水平的地面上，煤渣块不要堆得太高，否则会倾倒。煤渣砖将为重型植物提供一个坚固的架子，甚至可能是你在家里负重的背包。
+煤渣砖和木板为你的家打造了一个坚固的可堆叠搁板。用 4 英尺长的 2 乘 4 英寸宽的木板和大约 10 块煤渣砖，你可以不用锤子或钉子组装一个架子。煤渣砖面向里，木板放在它们之间，固定在砖的开口处，形成一个水平的架子。堆放煤渣块以获得更多的架子，但是要确保你是在水平的地面上，煤渣块不要堆得太高，否则会倾倒。煤渣砖将为重型植物提供一个坚固的架子，甚至可能是你在家里负重的背包。

@@ -1,6 +1,6 @@
 # 如何找到并删除所有旧的、未使用的帐户
 
-> 原文:[https://life hacker . com/how-to-find-and-delete-all-your-old-unused-accounts-1847470037](https://lifehacker.com/how-to-find-and-delete-all-your-old-unused-accounts-1847470037)
+> 原文：<https://lifehacker.com/how-to-find-and-delete-all-your-old-unused-accounts-1847470037>
 
 我们都有不再使用的帐户，但一些应用程序和网站让删除你的个人资料变得很痛苦。在这种情况下，简单地忽略它们是一个更容易的选择。然而， [未使用的帐户是一个主要的安全威胁](https://lifehacker.com/remove-apps-linked-to-your-facebook-account-that-youre-1844251401)—只需一次成功的数据破坏或凭据填充攻击，就可能危及您的个人数据、财务信息或私人文件。
 
@@ -12,7 +12,7 @@ Watch
 
 如果你不能记住你拥有的所有账户，第一步是找到并恢复它们。有几个地方你应该检查保存的登录信息，你应该花时间检查每一个地方，因为它是非常不可能的，你所有的帐户名多年来存储在一个单一的点。
 
-首先要搜索的地方是你的网络浏览器。大多数现代浏览器可以存储您访问的任何网站的登录信息，并且您可以从“设置”菜单中快速找到您存储的任何帐户。以下是在Chrome、Edge、Firefox和Safari中查找的位置:
+首先要搜索的地方是你的网络浏览器。大多数现代浏览器可以存储您访问的任何网站的登录信息，并且您可以从“设置”菜单中快速找到您存储的任何帐户。以下是在 Chrome、Edge、Firefox 和 Safari 中查找的位置:
 
 *   **Chrome:** 进入**设置>密码。**
 *   **Edge:** 进入**设置>个人资料>密码>保存的密码。**
@@ -21,17 +21,17 @@ Watch
 
 [密码管理器](https://lifehacker.com/the-five-best-password-managers-5529133) 也存储你的登录信息，所以如果你使用的话，一定要检查那里有没有保存的登录信息。
 
-许多网站和应用程序允许您使用Apple ID、脸书、谷歌、Instagram或Twitter帐户登录。连接到这些帐户的每个第三方服务都被视为自己的独立帐户，因此最好仔细查看列表，看看哪些帐户可以访问。
+许多网站和应用程序允许您使用 Apple ID、脸书、谷歌、Instagram 或 Twitter 帐户登录。连接到这些帐户的每个第三方服务都被视为自己的独立帐户，因此最好仔细查看列表，看看哪些帐户可以访问。
 
-*   **Apple ID:** 在你的iPhone或iPad上，使用你的Apple ID进入**设置>密码&安全>应用。**
+*   **Apple ID:** 在你的 iPhone 或 iPad 上，使用你的 Apple ID 进入**设置>密码&安全>应用。**
 *   **脸书:**进入**设置>应用和网站。**
 *   **谷歌:**转到[myaccount.google.com](https://myaccount.google.com/)然后点击**“安全”**在“具有帐户访问权限的第三方应用”和**“登录其他网站”下勾选**
 *   **Instagram:** 进入**设置>安全>应用** **&网站**
 *   **Twitter:** 进入**设置和隐私>账户>应用和会话>连接的应用。**
 
-您还应该搜索使用相同用户名或电子邮件地址的帐户。同样好的还有heckusernames.com的 c ，nowem.com的k，amecheck.com的，和usersearch.org的用于查找你的旧用户名。在谷歌上搜索你的用户名 s 也可以，用“账户”、“密码”和“用户名这样的词搜索你的电子邮件收件箱 es 也可以找到一些被遗忘的登录信息。
+您还应该搜索使用相同用户名或电子邮件地址的帐户。同样好的还有 heckusernames.com 的 c ，nowem.com 的 k，amecheck.com 的，和 usersearch.org 的用于查找你的旧用户名。在谷歌上搜索你的用户名 s 也可以，用“账户”、“密码”和“用户名这样的词搜索你的电子邮件收件箱 es 也可以找到一些被遗忘的登录信息。
 
-最后，检查保存在手机、PC或云驱动器上的笔记本和文档，查看你记下的任何登录凭证。
+最后，检查保存在手机、PC 或云驱动器上的笔记本和文档，查看你记下的任何登录凭证。
 
 ### 第二步。找回你的密码
 
@@ -43,9 +43,9 @@ Watch
 
 在理想的情况下，每一个被废弃的账户都会在长时间不使用后自动删除，但大多数只会脆弱地坐在那里，直到用户最终关闭它——但大多数不会，要么是因为用户忽略账户太久，以至于忘记了它的存在，要么是公司让轻松关闭账户和删除数据变得太难了。问题是，无论删除一个账户有多么令人困惑，大多数大型公司都必须遵守国际数据隐私法，该法赋予用户删除数据和关闭账户的权利。诀窍是知道去哪里找。
 
-我们之前已经介绍过如何从15个最受欢迎的社交媒体服务 中删除你的账户和所有个人数据。我们也有一个在会所 做 [同样动作的指南。](https://lifehacker.com/how-to-delete-your-clubhouse-account-because-its-not-a-1846861630)
+我们之前已经介绍过如何从 15 个最受欢迎的社交媒体服务 中删除你的账户和所有个人数据。我们也有一个在会所 做 [同样动作的指南。](https://lifehacker.com/how-to-delete-your-clubhouse-account-because-its-not-a-1846861630)
 
-《消费者报告》也有关于 [删除各种账号](https://www.consumerreports.org/privacy/how-to-delete-online-accounts-you-no-longer-need/) 的指南，包括几个 [顽固坚持的服务](https://www.consumerreports.org/digital-security/tips-for-closing-hard-to-delete-online-accounts-a6499479986/) 像SiriusXM、Walgreens、Groupon。如果那些指南没有，Reddit也是一个很好的来源。
+《消费者报告》也有关于 [删除各种账号](https://www.consumerreports.org/privacy/how-to-delete-online-accounts-you-no-longer-need/) 的指南，包括几个 [顽固坚持的服务](https://www.consumerreports.org/digital-security/tips-for-closing-hard-to-delete-online-accounts-a6499479986/) 像 SiriusXM、Walgreens、Groupon。如果那些指南没有，Reddit 也是一个很好的来源。
 
 然而，这些指南不会涵盖一切，而且几乎不可能列出每个应用程序或网站的确切步骤。但是，有一些通用提示可以帮助您找到如何删除您的帐户:
 

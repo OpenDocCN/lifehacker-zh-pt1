@@ -1,6 +1,6 @@
 # 如何修理一串坏掉的圣诞灯
 
-> 原文:[https://life hacker . com/how-to-fix-a broken-string-of-Christmas-lights-1848199279](https://lifehacker.com/how-to-fix-a-broken-string-of-christmas-lights-1848199279)
+> 原文：<https://lifehacker.com/how-to-fix-a-broken-string-of-christmas-lights-1848199279>
 
 总的来说，技术一直在进步。然而，一串串节日灯——无论是室内的圣诞树，还是屋外的——似乎永远不会变得更好。当然，有不同的种类，但是同样的问题似乎年复一年地出现。
 
@@ -8,7 +8,7 @@ Watch
 
 虽然每次出问题时简单地拿一串新灯可能很诱人，但这造成了许多不必要的浪费。另外，也不能保证下一串会更好。
 
-所以，如果用灯串装饰对你来说很重要，最好熟悉几种修理方法。为BobVila.com撰写的一篇文章中，汤姆·斯卡利西为我们展示了一些。这里有几个可以试试。
+所以，如果用灯串装饰对你来说很重要，最好熟悉几种修理方法。为 BobVila.com 撰写的一篇文章中，汤姆·斯卡利西为我们展示了一些。这里有几个可以试试。
 
 ## 找到坏灯泡
 

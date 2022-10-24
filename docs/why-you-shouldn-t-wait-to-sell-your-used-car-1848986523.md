@@ -1,8 +1,8 @@
 # 为什么你不应该等着卖掉你的二手车
 
-> 原文:[https://life hacker . com/why-you-should-t-wait-to-sell-your-二手车-1848986523](https://lifehacker.com/why-you-shouldn-t-wait-to-sell-your-used-car-1848986523)
+> 原文：<https://lifehacker.com/why-you-shouldn-t-wait-to-sell-your-used-car-1848986523>
 
-如果你一直在考虑卖掉你的车，现在可能是最好的时机。根据劳工统计局 的 [消费者价格指数，二手车和卡车的价格比去年同期上涨了22.7%。虽然这一趋势影响了整个国家，但它对城市的影响最大。](https://www.bls.gov/news.release/pdf/cpi.pdf) [迈阿密从2021年3月到2022年3月二手车价格上涨了35.9%](https://www.iseecars.com/used-car-prices-study)；纽约市涨幅35.2%；而旧金山增长了36.9%。
+如果你一直在考虑卖掉你的车，现在可能是最好的时机。根据劳工统计局 的 [消费者价格指数，二手车和卡车的价格比去年同期上涨了 22.7%。虽然这一趋势影响了整个国家，但它对城市的影响最大。](https://www.bls.gov/news.release/pdf/cpi.pdf) [迈阿密从 2021 年 3 月到 2022 年 3 月二手车价格上涨了 35.9%](https://www.iseecars.com/used-car-prices-study)；纽约市涨幅 35.2%；而旧金山增长了 36.9%。
 
 Watch
 

@@ -1,6 +1,6 @@
 # 如何去除书上的霉菌(并防止它卷土重来)
 
-> 原文:[https://life hacker . com/how-to-remove-mold-from-books-and-prevent-it-from-comi-1849508714](https://lifehacker.com/how-to-remove-mold-from-books-and-prevent-it-from-comi-1849508714)
+> 原文：<https://lifehacker.com/how-to-remove-mold-from-books-and-prevent-it-from-comi-1849508714>
 
 考虑到与霉菌 相关的 [健康风险，这可不是你想在家里或家附近看到的东西。不幸的是，洪水、潮湿和/或不当储存会导致霉菌在我们拥有的任何东西上生长，包括我们的书籍。](https://www.cdc.gov/mold/faqs.htm)
 

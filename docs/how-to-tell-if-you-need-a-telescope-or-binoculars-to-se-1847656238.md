@@ -1,6 +1,6 @@
 # 如何判断你是否需要望远镜或双筒望远镜才能在太空中看到很酷的东西
 
-> 原文:[https://life hacker . com/how-to-tell-if-you-need a-telescope-or-bishop-to-se-1847656238](https://lifehacker.com/how-to-tell-if-you-need-a-telescope-or-binoculars-to-se-1847656238)
+> 原文：<https://lifehacker.com/how-to-tell-if-you-need-a-telescope-or-binoculars-to-se-1847656238>
 
 当人们想到天文学——即使是业余的、后院的天文学——想到的第一件设备可能是 望远镜。这是有道理的，因为我们看到专业人士在天文台使用它们，并且它们已经成为流行文化中对科学感兴趣的人(通常是儿童或年轻人)的简写，或者通常被认为是聪明和好奇的人。
 
@@ -22,12 +22,12 @@ Watch
 ### 双筒望远镜:
 
 *   基本上是“两个望远镜栓在一起”
-*   提供更明亮、更详细的天空3D视图
+*   提供更明亮、更详细的天空 3D 视图
 *   比望远镜更加用户友好和紧凑
 *   更实惠
 
 ## 何时使用望远镜和双筒望远镜
 
-根据Laycock的说法，这取决于你想看什么。当你试图尽可能多地捕捉来自遥远天体的光线时，比如星系，望远镜是更好的选择。他说，当他们试图观察一些小东西时，比如土星环或木星的云，他们也是最好的。
+根据 Laycock 的说法，这取决于你想看什么。当你试图尽可能多地捕捉来自遥远天体的光线时，比如星系，望远镜是更好的选择。他说，当他们试图观察一些小东西时，比如土星环或木星的云，他们也是最好的。
 
 另一方面，双筒望远镜最适合大视野， [莱科克称](https://theconversation.com/why-do-people-look-into-space-with-telescopes-but-not-binoculars-124143) 。这包括观察银河系的星域，或者猎户座星云中围绕着婴儿恒星的光芒。

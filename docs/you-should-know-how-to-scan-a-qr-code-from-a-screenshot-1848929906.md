@@ -1,31 +1,31 @@
 # 你应该知道如何从截图中扫描二维码
 
-> 原文:[https://life hacker . com/you-should-know-how-to-scan-a-QR-code-from-a-a-screen-1848929906](https://lifehacker.com/you-should-know-how-to-scan-a-qr-code-from-a-screenshot-1848929906)
+> 原文：<https://lifehacker.com/you-should-know-how-to-scan-a-qr-code-from-a-screenshot-1848929906>
 
 二维码被用于从打开餐馆菜单到支付的一切事情:只需将你的相机对准二维码，你的手机就会自动打开相关页面。但是当你在一条信息里得到一个二维码会发生什么？或者是截图代替呢？
 
 Watch
 
-虽然iPhone直接在相机应用程序中集成了二维码扫描，但它没有从截图中扫描二维码的选项。但这正是可信的第三方应用和网站的用武之地。
+虽然 iPhone 直接在相机应用程序中集成了二维码扫描，但它没有从截图中扫描二维码的选项。但这正是可信的第三方应用和网站的用武之地。
 
-## 如何从iPhone上的截图扫描二维码
+## 如何从 iPhone 上的截图扫描二维码
 
-在iPhone上扫描截图中的二维码最可靠、最值得信赖的方法是使用 [谷歌应用](https://apps.apple.com/us/app/google/id284815942) (其中包含谷歌镜头功能)。有两种方法:你可以使用谷歌镜头扫描仪或Share sheet。
+在 iPhone 上扫描截图中的二维码最可靠、最值得信赖的方法是使用 [谷歌应用](https://apps.apple.com/us/app/google/id284815942) (其中包含谷歌镜头功能)。有两种方法:你可以使用谷歌镜头扫描仪或 Share sheet。
 
 首先，打开谷歌应用程序，从搜索栏中点击**相机**图标，这将打开谷歌镜头界面。点击左下角的**照片**图标，从列表中选择图片。立即，谷歌应用程序将扫描二维码，你会看到结果就在那里。
 
 有时，使用共享表会更快。当您已经在查看二维码图像或截图时，点击**分享**按钮；从分享表中，选择“用谷歌镜头搜索**”选项。从弹出菜单中，点击“查看结果”按钮。这将在谷歌应用程序中打开二维码结果。你现在可以访问该网站，或者复制网址。**
 
-## **如何在Android上从截图扫描二维码**
+## **如何在 Android 上从截图扫描二维码**
 
-这在Android上要容易得多，尤其是如果你使用 [谷歌镜头](https://play.google.com/store/apps/details?id=com.google.ar.lens&hl=en_IN&gl=US) 应用扫描二维码(这应该是预装在你的智能手机上的)，或者如果你使用 [谷歌照片](https://play.google.com/store/apps/details?id=com.google.android.apps.photos&hl=en_IN&gl=US) 应用作为你的默认图库应用。
+这在 Android 上要容易得多，尤其是如果你使用 [谷歌镜头](https://play.google.com/store/apps/details?id=com.google.ar.lens&hl=en_IN&gl=US) 应用扫描二维码(这应该是预装在你的智能手机上的)，或者如果你使用 [谷歌照片](https://play.google.com/store/apps/details?id=com.google.android.apps.photos&hl=en_IN&gl=US) 应用作为你的默认图库应用。
 
 打开谷歌镜头应用程序，从截图或图像部分找到二维码图像。选择图像，等待镜头为你扫码。完成后，您可以点击**网站**按钮打开链接。
 
-您也可以直接从Google相册应用程序中执行此操作。在Google相册应用中打开带有二维码的图片，点击“**镜头**按钮。这将扫描镜头应用程序中的图像。你会在底部看到同样的打开链接的选项。
+您也可以直接从 Google 相册应用程序中执行此操作。在 Google 相册应用中打开带有二维码的图片，点击“**镜头**按钮。这将扫描镜头应用程序中的图像。你会在底部看到同样的打开链接的选项。
 
 ## 如何在任何设备上使用网站扫描屏幕截图或图像中的二维码
 
-不想使用iPhone上的Google应用程序或Android上的Lens应用程序？你仍然可以使用免费网站扫描任何二维码图像——它可以在任何设备上运行，包括Windows和Mac。
+不想使用 iPhone 上的 Google 应用程序或 Android 上的 Lens 应用程序？你仍然可以使用免费网站扫描任何二维码图像——它可以在任何设备上运行，包括 Windows 和 Mac。
 
-要开始，请在您的设备上打开 [Web QR网站](https://webqr.com/) 并点击相机图标。(如果网站要求你摄像头接入，你可以否认。)接下来，点击“选择文件”按钮，从您的照片库或文件选择器中选择图像。网站现在将扫描二维码，你会在屏幕底部看到结果。只需点击链接，即可在浏览器或连接的应用程序中打开内容。
+要开始，请在您的设备上打开 [Web QR 网站](https://webqr.com/) 并点击相机图标。(如果网站要求你摄像头接入，你可以否认。)接下来，点击“选择文件”按钮，从您的照片库或文件选择器中选择图像。网站现在将扫描二维码，你会在屏幕底部看到结果。只需点击链接，即可在浏览器或连接的应用程序中打开内容。

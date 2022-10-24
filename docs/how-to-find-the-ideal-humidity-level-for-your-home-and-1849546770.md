@@ -1,6 +1,6 @@
 # 如何为你的家找到理想的湿度水平(以及为什么它很重要)
 
-> 原文:[https://life hacker . com/how-to-find the ideal-moisture-level for your home-and-1849546770](https://lifehacker.com/how-to-find-the-ideal-humidity-level-for-your-home-and-1849546770)
+> 原文：<https://lifehacker.com/how-to-find-the-ideal-humidity-level-for-your-home-and-1849546770>
 
 当谈到你家里的温度时，你可能有一个体面的想法，你需要多温暖或多凉爽才能感到舒适，并且基于你的能源成本，你能负担得起。但是你家的湿度水平怎么样？你的恒温器可能会显示它是什么，但理想情况下，它应该是什么？
 
@@ -10,7 +10,7 @@ Watch
 
 ## 理想的室内湿度水平是多少？
 
-根据 [环保局](https://www.epa.gov/mold/mold-course-chapter-2#:~:text=Indoor%20relative%20humidity%20(RH)%20should,Humidifiers) (EPA)的规定，室内湿度应该保持在60%以下——理想情况下在30%到50%之间。室内湿度应该低于60%的原因是，任何高于60%的湿度都会助长你家里的霉菌生长。
+根据 [环保局](https://www.epa.gov/mold/mold-course-chapter-2#:~:text=Indoor%20relative%20humidity%20(RH)%20should,Humidifiers) (EPA)的规定，室内湿度应该保持在 60%以下——理想情况下在 30%到 50%之间。室内湿度应该低于 60%的原因是，任何高于 60%的湿度都会助长你家里的霉菌生长。
 
 即使家里没有淹水，潮湿的空气也会含有足够的水分让霉菌生长——这反过来会导致或激活家庭成员的呼吸系统问题。此外，尘螨在高湿度下生长旺盛，所以这对任何过敏体质的人来说都是个坏消息。蟑螂之类的害虫也是高湿度的粉丝。
 

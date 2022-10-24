@@ -1,6 +1,6 @@
 # 如何决定购买哪种有氧健身器
 
-> 原文:[https://life hacker . com/how-to-decision-that-cardio-machine-to-buy-1846093518](https://lifehacker.com/how-to-decide-which-cardio-machine-to-buy-1846093518)
+> 原文：<https://lifehacker.com/how-to-decide-which-cardio-machine-to-buy-1846093518>
 
 所以你决定为你的家庭健身房买一台专用的有氧健身器。恭喜你。但是应该是跑步机，椭圆机，自行车，还是划手呢？各有利弊。
 
@@ -8,9 +8,9 @@ Watch
 
 ### 踏车
 
-成本:许多受欢迎的型号都在1500美元左右。有不到1000美元的经济型，也有超过2000美元的高档型。
+成本:许多受欢迎的型号都在 1500 美元左右。有不到 1000 美元的经济型，也有超过 2000 美元的高档型。
 
-**尺寸:**典型的占地面积为35"x 77 "， [据《消费者报道》](https://www.consumerreports.org/cro/treadmills/buying-guide/index.htm) 。你还需要在两边和前面留出两到三英尺的空间，腰带后面也要留出足够的空间以防你绊倒。(你希望跑步机的运动把你摔倒在地板上，而不是把你困在一堵无法爬起来的墙上。)如果只是走路，可以用比跑步稍微小一点的跑步机脱身。跑得快的高个子会喜欢更大更长的腰带。
+**尺寸:**典型的占地面积为 35"x 77 "， [据《消费者报道》](https://www.consumerreports.org/cro/treadmills/buying-guide/index.htm) 。你还需要在两边和前面留出两到三英尺的空间，腰带后面也要留出足够的空间以防你绊倒。(你希望跑步机的运动把你摔倒在地板上，而不是把你困在一堵无法爬起来的墙上。)如果只是走路，可以用比跑步稍微小一点的跑步机脱身。跑得快的高个子会喜欢更大更长的腰带。
 
 **有多百搭？**这是一招小马:你可以跑，也可以走，就这样。大多数型号都可以让你调整倾斜度，也可以让你调整速度。
 
@@ -30,19 +30,19 @@ Watch
 
 ### 室内自行车
 
-**费用:**[一个架子大约100美元你可以把一辆普通的自行车放在](https://lifehacker.com/build-your-own-peloton-style-exercise-bike-and-save-mon-1844446863) 上，一辆基本的旋转自行车600美元，一辆典型的Peloton套装2000美元或更多。
+**费用:**[一个架子大约 100 美元你可以把一辆普通的自行车放在](https://lifehacker.com/build-your-own-peloton-style-exercise-bike-and-save-mon-1844446863) 上，一辆基本的旋转自行车 600 美元，一辆典型的 Peloton 套装 2000 美元或更多。
 
-**尺寸:**根据室内健身 的说法，大多数自行车的尺寸为26英寸x 48英寸、T3，但这将因型号而异。如果你自己选择使用训练器，你可以在不用的时候把自行车直立起来，或者把它从训练器上断开。同样，你需要自行车周围大约两英尺的空间来舒适地使用它。
+**尺寸:**根据室内健身 的说法，大多数自行车的尺寸为 26 英寸 x 48 英寸、T3，但这将因型号而异。如果你自己选择使用训练器，你可以在不用的时候把自行车直立起来，或者把它从训练器上断开。同样，你需要自行车周围大约两英尺的空间来舒适地使用它。
 
 **有多百搭？**动感单车让你快速调整速度，这样你就可以冲刺或恢复。更传统的健身自行车通常调整起来有点慢，所以考虑一下你是打算做大量间歇运动还是更喜欢稳态有氧运动。
 
-**是给谁的？**骑自行车是另一种低冲击运动，强度等级由你决定。对于间歇来说，这很好，现在Peloton和它的许多模仿者(包括 [【苹果健身+](https://vitals.lifehacker.com/how-to-use-apple-fitness-1845886827) )的教练指导的自行车课程有一个完整的市场。
+**是给谁的？**骑自行车是另一种低冲击运动，强度等级由你决定。对于间歇来说，这很好，现在 Peloton 和它的许多模仿者(包括 [【苹果健身+](https://vitals.lifehacker.com/how-to-use-apple-fitness-1845886827) )的教练指导的自行车课程有一个完整的市场。
 
 <aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled How to Decide Which Cardio Machine to Buy](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/build-your-own-peloton-style-exercise-bike-and-save-mon-1844446863)</aside>
 
 ### 划手
 
-**费用:**你在一百万个健身房里见过的Concept II型号900美元。经济型划船器价格更低，带屏幕的豪华型号价格在2000美元左右。
+**费用:**你在一百万个健身房里见过的 Concept II 型号 900 美元。经济型划船器价格更低，带屏幕的豪华型号价格在 2000 美元左右。
 
 **尺寸:** 3'x8 '是典型的占地面积，有些机器不用时可以翘起来靠在墙上。
 

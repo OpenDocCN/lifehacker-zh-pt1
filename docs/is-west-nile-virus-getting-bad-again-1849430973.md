@@ -1,16 +1,16 @@
 # 西尼罗河病毒是不是又变坏了？
 
-> 原文:[https://life hacker . com/is-west-Nile-virus-getting-bad-again-1849430973](https://lifehacker.com/is-west-nile-virus-getting-bad-again-1849430973)
+> 原文：<https://lifehacker.com/is-west-nile-virus-getting-bad-again-1849430973>
 
-在纽约市地区数量创纪录的蚊子中发现了西尼罗河病毒，已知至少有两例发生在人类身上。如果你没有经历大约20年前的上一次西尼罗河大恐慌，你可能会想知道这是什么疾病，你是否应该担心它。
+在纽约市地区数量创纪录的蚊子中发现了西尼罗河病毒，已知至少有两例发生在人类身上。如果你没有经历大约 20 年前的上一次西尼罗河大恐慌，你可能会想知道这是什么疾病，你是否应该担心它。
 
 Watch
 
 ## 西尼罗河病毒是什么？
 
-西尼罗河病毒由蚊子传播，除了人以外，它还可以感染鸟类和其他一些动物，包括马。大多数感染这种病毒的人不会有任何症状。大约20%的人会出现发烧和流感样症状，但在极少数情况下——疾病预防控制中心估计，每150人中有一人——该病毒会导致更严重的神经症状。
+西尼罗河病毒由蚊子传播，除了人以外，它还可以感染鸟类和其他一些动物，包括马。大多数感染这种病毒的人不会有任何症状。大约 20%的人会出现发烧和流感样症状，但在极少数情况下——疾病预防控制中心估计，每 150 人中有一人——该病毒会导致更严重的神经症状。
 
-在更严重的情况下，大脑或其膜可能会发炎。症状可能包括颈部僵硬、意识模糊、虚弱、抽搐、麻木、视力丧失或瘫痪。每10名西尼罗河重症患者中就有1人可能死亡。
+在更严重的情况下，大脑或其膜可能会发炎。症状可能包括颈部僵硬、意识模糊、虚弱、抽搐、麻木、视力丧失或瘫痪。每 10 名西尼罗河重症患者中就有 1 人可能死亡。
 
 ## 西尼罗河在哪里是一个问题？
 
@@ -18,9 +18,9 @@ Watch
 
 ## 为什么现在会出现这种情况？
 
-西尼罗河在21世纪初首次成为头条新闻，但它从未真正消失。纽约市 [卫生部指出](https://www1.nyc.gov/site/doh/about/press/pr2022/west-nile-virus-detected-in-record-number--two-human-cases-reported.page) 气温升高使蚊子繁殖更快，这可能有助于疾病的传播。美国西南部的天气 [也比往常](https://www.downtoearth.org.in/news/health/did-climate-change-trigger-us-s-worst-west-nile-virus-outbreak-84392) 潮湿，这对蚊子来说是个好消息，对我们来说却是个坏消息。
+西尼罗河在 21 世纪初首次成为头条新闻，但它从未真正消失。纽约市 [卫生部指出](https://www1.nyc.gov/site/doh/about/press/pr2022/west-nile-virus-detected-in-record-number--two-human-cases-reported.page) 气温升高使蚊子繁殖更快，这可能有助于疾病的传播。美国西南部的天气 [也比往常](https://www.downtoearth.org.in/news/health/did-climate-change-trigger-us-s-worst-west-nile-virus-outbreak-84392) 潮湿，这对蚊子来说是个好消息，对我们来说却是个坏消息。
 
-虽然纽约的发现现在已经成为新闻，但它们并不是唯一的西尼罗河病例。例如，加州今年已经有12例人类病例。
+虽然纽约的发现现在已经成为新闻，但它们并不是唯一的西尼罗河病例。例如，加州今年已经有 12 例人类病例。
 
 ## 我该怎么办？
 

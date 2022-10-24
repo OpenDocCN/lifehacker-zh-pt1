@@ -1,8 +1,8 @@
 # 显然，那些汽车座椅旅行车很棒
 
-> 原文:[https://life hacker . com/thes-car-seat-travel-carts-is-awesome-appearly-1846645604](https://lifehacker.com/those-car-seat-travel-carts-are-awesome-apparently-1846645604)
+> 原文：<https://lifehacker.com/those-car-seat-travel-carts-are-awesome-apparently-1846645604>
 
-有一个10岁的孩子的有趣之处在于，很明显，10年的时间就能让当权者想出比他出生时更好的婴儿用品，就像T2一样。我来自黑暗时代的 [sippy c ups那个洒了](https://www.target.com/p/munchkin-miracle-360-trainer-cup-green/-/A-77286448?ref=tgt_adv_XS000000&AFID=google_pla_df&fndsrc=tmnv&DFA=71700000079335602&CPNG=PLA_DVM%2B0060H00000uK4xZQAS-Munchkin_Google_Always+On_2021_Flight_AO&adgroup=PLA_Munchkin&LID=700000001393753pgs&network=g&device=c&location=9006934&gclid=CjwKCAjw07qDBhBxEiwA6pPbHqtg8tz67gxb3nRQy1GhNFe85aqXn8inY7QMQRFj_O_1qnqmokwBqBoCQ-wQAvD_BwE&gclsrc=aw.ds) ， [非滑行摇篮](https://deltachildren.com/collections/bassinets/products/silent-auto-gliding-elite-bassinet) ，还有*纯音频*婴儿监视器(是的，视频监视器存在，但那狗屎似乎有点过头了)。
+有一个 10 岁的孩子的有趣之处在于，很明显，10 年的时间就能让当权者想出比他出生时更好的婴儿用品，就像 T2 一样。我来自黑暗时代的 [sippy c ups 那个洒了](https://www.target.com/p/munchkin-miracle-360-trainer-cup-green/-/A-77286448?ref=tgt_adv_XS000000&AFID=google_pla_df&fndsrc=tmnv&DFA=71700000079335602&CPNG=PLA_DVM%2B0060H00000uK4xZQAS-Munchkin_Google_Always+On_2021_Flight_AO&adgroup=PLA_Munchkin&LID=700000001393753pgs&network=g&device=c&location=9006934&gclid=CjwKCAjw07qDBhBxEiwA6pPbHqtg8tz67gxb3nRQy1GhNFe85aqXn8inY7QMQRFj_O_1qnqmokwBqBoCQ-wQAvD_BwE&gclsrc=aw.ds) ， [非滑行摇篮](https://deltachildren.com/collections/bassinets/products/silent-auto-gliding-elite-bassinet) ，还有*纯音频*婴儿监视器(是的，视频监视器存在，但那狗屎似乎有点过头了)。
 
 Watch
 
@@ -12,7 +12,7 @@ Watch
 
 使用过手推车的父母压倒性地支持他们。正如小组成员迈克尔指出的，“一个好处是它并不常见，所以你会得到很多有趣的表情。”
 
-如果是新买的，手推车本身可能会有点贵——大约在60美元到90美元之间。然而，在你自己买之前，检查一下你的朋友或家人是否已经有一个你可以借的；一名小组成员说，她计划在她的孩子长大后保留她的手机，这样朋友们可以在需要时借用。
+如果是新买的，手推车本身可能会有点贵——大约在 60 美元到 90 美元之间。然而，在你自己买之前，检查一下你的朋友或家人是否已经有一个你可以借的；一名小组成员说，她计划在她的孩子长大后保留她的手机，这样朋友们可以在需要时借用。
 
 最后，作为一个更便宜的选择，一些父母还建议简单地购买 [一个行李带](https://www.amazon.com/dp/B06XTT17QC?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/those-car-seat-travel-carts-are-awesome-apparently-1846645604&asc_source=&tag=kinjalifehackerlink-20) ，它可以让你将汽车座椅绑在一个滚动的手提行李箱或雨伞推车上。如果你走那条路，确保你先检查产品的使用说明；其中一些带子只用于固定*空的*汽车座椅，特别是当它被绑在一件行李上的时候。
 

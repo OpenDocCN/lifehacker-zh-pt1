@@ -1,6 +1,6 @@
 # 你的木制家具需要一个胡桃木
 
-> 原文:[https://life hacker . com/your-wood-furniture-needs-a-walnut-1849137027](https://lifehacker.com/your-wood-furniture-needs-a-walnut-1849137027)
+> 原文：<https://lifehacker.com/your-wood-furniture-needs-a-walnut-1849137027>
 
 古董或仿古木家具的爱好者都知道，这些古老的家具会有一些取舍。例如，老式的实木家具经久耐用，不像现代的刨花板家具。但正因为如此，它可能会非常重(即难以移动)，如果处于原始状态，价格也会相当昂贵。
 

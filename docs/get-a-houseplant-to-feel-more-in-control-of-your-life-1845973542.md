@@ -1,6 +1,6 @@
 # 养一株室内植物，让你感觉更能掌控自己的生活
 
-> 原文:[https://life hacker . com/get-a-house plant-to-feel-more-in-control of your life-1845973542](https://lifehacker.com/get-a-houseplant-to-feel-more-in-control-of-your-life-1845973542)
+> 原文：<https://lifehacker.com/get-a-houseplant-to-feel-more-in-control-of-your-life-1845973542>
 
 近一年来，我们生活的几乎每个方面都被我们无法控制的事情改变了(主要是新冠肺炎疫情及其影响)。虽然拥有多种有效的疫苗肯定是一个乐观的理由，但这并不意味着这一切将在不久的将来结束。我们仍然不知道事情要多久才会开始恢复“正常”，这使得我们很难提前计划我们喜欢的活动(如旅行)，让我们有所期待。
 
@@ -10,7 +10,7 @@ Watch
 
 ### 用植物来控制我们的控制欲
 
-在为MindBodyGreen 撰写的一篇文章中，伊莱扎·苏利文采访了环境专家和零废物活动家劳伦·辛格，讲述了为什么在这个不确定的时期，拥有一株室内植物可以帮助我们感到更加踏实。其实有四个原因， [据歌手](https://www.mindbodygreen.com/articles/why-houseplants-give-us-sense-of-control) :
+在为 MindBodyGreen 撰写的一篇文章中，伊莱扎·苏利文采访了环境专家和零废物活动家劳伦·辛格，讲述了为什么在这个不确定的时期，拥有一株室内植物可以帮助我们感到更加踏实。其实有四个原因， [据歌手](https://www.mindbodygreen.com/articles/why-houseplants-give-us-sense-of-control) :
 
 1.  观察植物一年四季的生长可以让我们更好地感受时间的流逝——尤其是当每天都是一样的时候。
 2.  照顾一株植物意味着坚持至少某种惯例(再次强调，在这个时代，许多人不再有一个惯例)。

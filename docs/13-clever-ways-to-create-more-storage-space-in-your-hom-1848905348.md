@@ -1,6 +1,6 @@
-# 13种巧妙的方法为你的家创造更多储物空间
+# 13 种巧妙的方法为你的家创造更多储物空间
 
-> 原文:[https://life hacker . com/13-smart-ways-to-create-more-storage-space in-your-hom-1848905348](https://lifehacker.com/13-clever-ways-to-create-more-storage-space-in-your-hom-1848905348)
+> 原文：<https://lifehacker.com/13-clever-ways-to-create-more-storage-space-in-your-hom-1848905348>
 
 如果用什么来定义现代生活，那就是*东西*。我们都有很多，而且我们会获得更多。当你搬进你的第一套成人公寓时，你就开始亲身体验东西是如何悄悄进入你的生活空间，吃光你的书架和抽屉，并最终溢出到地板上不合适的堆里，或者转移到昂贵而不方便的储物单元。
 

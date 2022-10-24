@@ -1,6 +1,6 @@
 # 如何退出预先筛选的信贷优惠
 
-> 原文:[https://life hacker . com/how-to-opt-out-of-pre-screened-credit-offers-1845279227](https://lifehacker.com/how-to-opt-out-of-pre-screened-credit-offers-1845279227)
+> 原文：<https://lifehacker.com/how-to-opt-out-of-pre-screened-credit-offers-1845279227>
 
 如果你厌倦了看到你的邮箱塞满了预先筛选过的信用优惠，你可以选择在五年内，甚至永久地退出这些邮件。所有需要做的就是填写的表格。
 
@@ -24,10 +24,10 @@ Watch
 
 #### **选择退出五年**
 
-拨打免费电话1-888-5-选择退出(1-888-567-8688)或访问[【www.optoutprescreen.com】](https://www.optoutprescreen.com/?rf=t)。您将被要求提供某些个人信息，包括您的电话号码、姓名、社会保险号和出生日期。联邦法律确保您提供的信息是保密的，并且只能用于处理您的请求。
+拨打免费电话 1-888-5-选择退出(1-888-567-8688)或访问[【www.optoutprescreen.com】](https://www.optoutprescreen.com/?rf=t)。您将被要求提供某些个人信息，包括您的电话号码、姓名、社会保险号和出生日期。联邦法律确保您提供的信息是保密的，并且只能用于处理您的请求。
 
 #### **永久退出**
 
 在[【www.optoutprescreen.com】](https://www.optoutprescreen.com/?rf=t)启动永久退出流程。要完成该请求，您必须邮寄一份签名的*永久退出选择表*，该表将在您完成初始在线请求表后提供。
 
-退出请求应在五个工作日内处理，尽管您可能需要60天才能停止接收预先筛选的报价。
+退出请求应在五个工作日内处理，尽管您可能需要 60 天才能停止接收预先筛选的报价。

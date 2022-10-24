@@ -1,6 +1,6 @@
 # 如何摆脱脚气
 
-> 原文:[https://life hacker . com/how-to-摆脱运动员的脚-1846577031](https://lifehacker.com/how-to-get-rid-of-athletes-foot-1846577031)
+> 原文：<https://lifehacker.com/how-to-get-rid-of-athletes-foot-1846577031>
 
 脚趾间片状发痒的皮肤是香港脚的典型症状。这种真菌感染通常可以用非处方药软膏治疗，但在开始治疗之前，有几件事你应该知道。
 

@@ -1,17 +1,17 @@
 # 用冻干蔬菜制作多功能蔬菜粉
 
-> 原文:[https://life hacker . com/make-versatile-veggie-powders-out-of-free-dry-veget-1847378571](https://lifehacker.com/make-versatile-veggie-powders-out-of-freeze-dried-veget-1847378571)
+> 原文：<https://lifehacker.com/make-versatile-veggie-powders-out-of-freeze-dried-veget-1847378571>
 
 最近，我非常喜欢在乔氏超市购买的各种冻干蔬菜。从质地上来说，它们很有趣，尤其是当你处于的变化状态时，它会让你比平时更能欣赏各种质地。
 
 Watch
 
-我特别喜欢香脆的洋葱片——一整瓣轻飘飘的、松脆的洋葱，尝起来就像一个Funyun长大后想要成为的样子。我把它们浸在酸奶油里，在上面撒上一些炸蒜末(和一点味精)，哇——多棒的小吃。这些薯片是酸奶油和洋葱作为一种类型的范式转变，我认为这种类型已经被充分挖掘出来了。
+我特别喜欢香脆的洋葱片——一整瓣轻飘飘的、松脆的洋葱，尝起来就像一个 Funyun 长大后想要成为的样子。我把它们浸在酸奶油里，在上面撒上一些炸蒜末(和一点味精)，哇——多棒的小吃。这些薯片是酸奶油和洋葱作为一种类型的范式转变，我认为这种类型已经被充分挖掘出来了。
 
-但是除了小吃，你可以在TJ's(和其他健康食品或健康食品附近的商店)买到的所有干菜都可以用来制作美味的蔬菜粉。我们以前谈论过果粉，以及它们给[饮料](https://lifehacker.com/make-fancier-drinks-with-freeze-dried-fruit-1846574848) 和 [蛋糕糖霜](https://lifehacker.com/use-freeze-dried-fruit-to-color-your-frosting-1829365246) 带来鲜艳的颜色和果味的能力，蔬菜粉的作用类似，如果不是完全相同的话。
+但是除了小吃，你可以在 TJ's(和其他健康食品或健康食品附近的商店)买到的所有干菜都可以用来制作美味的蔬菜粉。我们以前谈论过果粉，以及它们给[饮料](https://lifehacker.com/make-fancier-drinks-with-freeze-dried-fruit-1846574848) 和 [蛋糕糖霜](https://lifehacker.com/use-freeze-dried-fruit-to-color-your-frosting-1829365246) 带来鲜艳的颜色和果味的能力，蔬菜粉的作用类似，如果不是完全相同的话。
 
 例如，我不会把你在上面看到的蘑菇粉加到奶油里，但是我会(而且已经！)加到土豆泥里，很光荣。我也可以想象自己把它加入肉卷和肉丸中。昨晚，我在黄瓜和番茄沙拉上撒了三种粉末的混合物——洋葱、蘑菇和青豌豆，我还会再撒一次！
 
 每种粉末都有自己独特的味道。蘑菇是土的，洋葱是强烈的洋葱味，而青豌豆是明亮的，有花园的味道。所有的东西在蘸酱的时候都能很好的工作，但是洋葱会更好；青豆可以做一个有趣的血腥玛丽玻璃镶边，特别是当混合了大量的盐。
 
-制造这些粉末的过程非常简单。买一些冷冻干燥的蔬菜(从Trader Joe's或其他地方)，在食品加工机里扔一把，然后把它们捣成粉末。将粉末混合成蘸料，撒在沙拉上(就像你会面包屑一样)，或者捣成土豆泥。蘑菇和洋葱的组合会成为一种很好的意大利面配料，特别是如果那种意大利面恰好是 [这种](https://lifehacker.com/you-can-make-a-shockingly-delicious-pasta-sauce-with-cu-1847369903) 。
+制造这些粉末的过程非常简单。买一些冷冻干燥的蔬菜(从 Trader Joe's 或其他地方)，在食品加工机里扔一把，然后把它们捣成粉末。将粉末混合成蘸料，撒在沙拉上(就像你会面包屑一样)，或者捣成土豆泥。蘑菇和洋葱的组合会成为一种很好的意大利面配料，特别是如果那种意大利面恰好是 [这种](https://lifehacker.com/you-can-make-a-shockingly-delicious-pasta-sauce-with-cu-1847369903) 。

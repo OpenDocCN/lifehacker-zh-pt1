@@ -1,22 +1,22 @@
 # 每个人都应该知道的避免网络钓鱼诈骗的最常见的电子邮件关键词
 
-> 原文:[https://life hacker . com/the-most-common-email-keywords-the-every one-should-kno-1847658343](https://lifehacker.com/the-most-common-email-keywords-that-everyone-should-kno-1847658343)
+> 原文：<https://lifehacker.com/the-most-common-email-keywords-that-everyone-should-kno-1847658343>
 
-电子邮件钓鱼欺诈并不新鲜，但随着人们在正在进行的新冠肺炎疫情期间在线生活的时间越来越长，这种情况发生的机会也越来越多。事实上，与2019年相比，2020年的钓鱼网站数量增加了25%。
+电子邮件钓鱼欺诈并不新鲜，但随着人们在正在进行的新冠肺炎疫情期间在线生活的时间越来越长，这种情况发生的机会也越来越多。事实上，与 2019 年相比，2020 年的钓鱼网站数量增加了 25%。
 
 Watch
 
-人们减少被骗几率的方法之一是密切关注他们收到的电子邮件(或者至少是他们正在考虑打开的邮件)。为了帮助确定要查找的内容，exclude分析了10，000封恶意电子邮件， [发布了一份关于钓鱼电子邮件主题行中最常见关键字的](https://expel.io/blog/top-phishing-keywords/) [报告](https://expel.io/blog/top-phishing-keywords/) 。以下是需要了解的内容。
+人们减少被骗几率的方法之一是密切关注他们收到的电子邮件(或者至少是他们正在考虑打开的邮件)。为了帮助确定要查找的内容，exclude 分析了 10，000 封恶意电子邮件， [发布了一份关于钓鱼电子邮件主题行中最常见关键字的](https://expel.io/blog/top-phishing-keywords/) [报告](https://expel.io/blog/top-phishing-keywords/) 。以下是需要了解的内容。
 
 ## 了解骗子的伎俩
 
-exclude的报告发现 [骗子使用三种策略组合](https://expel.io/blog/top-phishing-keywords/) 让人们与他们的电子邮件互动:
+exclude 的报告发现 [骗子使用三种策略组合](https://expel.io/blog/top-phishing-keywords/) 让人们与他们的电子邮件互动:
 
 1.  模仿合法的商业活动
 2.  制造一种紧迫感
 3.  提示接收者采取行动
 
-“攻击者试图诱骗人们向他们提供凭据。最好的办法是让电子邮件看起来合法，提示一个明确的行动，并加入情感——紧迫感或害怕失去是最常见的，”驱逐 [的SOC运营总监本·布里吉达告诉TechRepublic](https://www.techrepublic.com/article/the-top-keywords-used-in-phishing-email-subject-lines/) 。“这些操作就像‘转到这个站点’或‘打开这个文件’一样简单，但是攻击者希望你动作太快而不能停下来询问它是否合法。”
+“攻击者试图诱骗人们向他们提供凭据。最好的办法是让电子邮件看起来合法，提示一个明确的行动，并加入情感——紧迫感或害怕失去是最常见的，”驱逐 [的 SOC 运营总监本·布里吉达告诉 TechRepublic](https://www.techrepublic.com/article/the-top-keywords-used-in-phishing-email-subject-lines/) 。“这些操作就像‘转到这个站点’或‘打开这个文件’一样简单，但是攻击者希望你动作太快而不能停下来询问它是否合法。”
 
 ## 网络钓鱼电子邮件主题行中最常用的关键字
 
@@ -53,7 +53,7 @@ exclude的报告发现 [骗子使用三种策略组合](https://expel.io/blog/to
 1.  需要验证！
 2.  所需操作:在[业务电子邮件地址]上发送到期通知
 3.  [需要操作]密码过期
-4.  需要注意。支持ID: ###
+4.  需要注意。支持 ID: ###
 
 #### [空白主题]
 
@@ -63,7 +63,7 @@ exclude的报告发现 [骗子使用三种策略组合](https://expel.io/blog/to
 
 真实主题行的示例:
 
-1.  您共享了一个Google Drive文件
+1.  您共享了一个 Google Drive 文件
 2.  [Name]向您发送了一些文件
 3.  文件- ####
 4.  [业务名称]销售项目文件和报价请求
@@ -73,7 +73,7 @@ exclude的报告发现 [骗子使用三种策略组合](https://expel.io/blog/to
 真实主题行的示例:
 
 1.  [业务名称]销售项目文件和报价请求
-2.  [企业名称]–W-9表格申请
+2.  [企业名称]–W-9 表格申请
 3.  您的服务请求###
 4.  请求通知:###
 
@@ -105,12 +105,12 @@ exclude的报告发现 [骗子使用三种策略组合](https://expel.io/blog/to
 真实主题行的示例:
 
 1.  eFax from ID: ####
-2.  来自“[电话号码]”的eFax消息–2页，来电显示:+[电话号码]
+2.  来自“[电话号码]”的 eFax 消息–2 页，来电显示:+[电话号码]
 
 #### 伏特计
 
 真实主题行的示例:
 
-1.  从[电话号码]到分机。# # # 2021年5月4日星期二
-2.  收到****####的虚拟机–2021年7月26日
-3.  " " " 1收到VMAIL的时间是2021年6月21日星期一下午3:02:55 " "
+1.  从[电话号码]到分机。# # # 2021 年 5 月 4 日星期二
+2.  收到****####的虚拟机–2021 年 7 月 26 日
+3.  " " " 1 收到 VMAIL 的时间是 2021 年 6 月 21 日星期一下午 3:02:55 " "

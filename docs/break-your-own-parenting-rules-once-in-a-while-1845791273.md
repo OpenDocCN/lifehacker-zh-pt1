@@ -1,6 +1,6 @@
 # 偶尔打破你自己的育儿规则
 
-> 原文:[https://life hacker . com/break-your-own-parenting-rules-once-in-a-a-once-a-while-1845791273](https://lifehacker.com/break-your-own-parenting-rules-once-in-a-while-1845791273)
+> 原文：<https://lifehacker.com/break-your-own-parenting-rules-once-in-a-while-1845791273>
 
 设定合理的规则和界限，然后坚持执行，这是好父母的基石。另一方面，现在的生活很乏味。一切都是黑暗、沉闷和遥远的，我们可以利用一点乐趣。这就是为什么是时候放宽你自己的规则了。
 

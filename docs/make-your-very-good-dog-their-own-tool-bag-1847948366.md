@@ -1,6 +1,6 @@
 # 让你的好狗狗成为他们自己的工具袋
 
-> 原文:[https://life hacker . com/make-your-very-good-dog-own-tool-bag-1847948366](https://lifehacker.com/make-your-very-good-dog-their-own-tool-bag-1847948366)
+> 原文：<https://lifehacker.com/make-your-very-good-dog-their-own-tool-bag-1847948366>
 
 当我们在院子里或车库里闲逛时，狗狗们经常渴望有一种目标感。如果你有一只乐于助人的猎犬，它喜欢一直待在你的几步之内，你可以给你最好的伙伴一份有帮助的(也是可爱的)工作——让它们成为自己的工具袋。
 

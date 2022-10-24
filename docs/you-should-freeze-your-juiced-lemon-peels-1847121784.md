@@ -1,12 +1,12 @@
 # 你应该冷冻榨汁后的柠檬皮
 
-> 原文:[https://life hacker . com/you-should-freeze-your-juice-lemon-peels-1847121784](https://lifehacker.com/you-should-freeze-your-juiced-lemon-peels-1847121784)
+> 原文：<https://lifehacker.com/you-should-freeze-your-juiced-lemon-peels-1847121784>
 
 柠檬是少数——或者可能是两种——果皮和果肉价值相当的水果之一。柠檬皮是给你的菜肴添加阳光精华的最快方法之一，但有时你不需要同时添加果汁*和*柠檬皮，这些不同步的时刻会给你留下一大堆你还没准备好用完的柠檬皮。幸运的是，它们冻得很好。
 
 Watch
 
-我不知道为什么我从来没有想到这一点——我喜欢冷冻的东西( [像生姜](https://lifehacker.com/freeze-your-ginger-for-easier-grating-1846547281) ，例如)——但我很高兴有人想到了*。* Reddit用户ehp29最近将 [这个提示](https://www.reddit.com/r/EatCheapAndHealthy/comments/o18vmf/tip_freeze_your_lemon_peels/) 放到了r/eatscheapandhealth，这是一个致力于——你可能已经猜到了——吃得便宜又健康的子编辑:
+我不知道为什么我从来没有想到这一点——我喜欢冷冻的东西( [像生姜](https://lifehacker.com/freeze-your-ginger-for-easier-grating-1846547281) ，例如)——但我很高兴有人想到了*。* Reddit 用户 ehp29 最近将 [这个提示](https://www.reddit.com/r/EatCheapAndHealthy/comments/o18vmf/tip_freeze_your_lemon_peels/) 放到了 r/eatscheapandhealth，这是一个致力于——你可能已经猜到了——吃得便宜又健康的子编辑:
 
 > 我有时发现我做一道菜所需要的只是一点点柠檬皮，我不想去商店买一整只我只打算用一点点的柠檬。
 > 

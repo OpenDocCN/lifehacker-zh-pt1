@@ -1,6 +1,6 @@
 # 如何在为别人做饭时保持理智
 
-> 原文:[https://life hacker . com/how-to-stay-sane-which to-cooking to-other-people-1846773796](https://lifehacker.com/how-to-stay-sane-while-cooking-for-other-people-1846773796)
+> 原文：<https://lifehacker.com/how-to-stay-sane-while-cooking-for-other-people-1846773796>
 
 现在，我的大多数幼芽都在接受全面疫苗接种的路上，我开始对喂养它们感到谨慎的兴奋。和虽然在开玩笑和随意交谈方面可能会有一个轻微的重新学习曲线，但我很高兴地说，我已经完善了我的菜单规划策略，当我再次去为别人做饭。
 
@@ -16,6 +16,6 @@ Watch
 
 想要第四样东西吗？买下来，或者当别人问“我可以带什么东西来”的时候告诉他们带过来。
 
-这个框架的好处是几乎任何组件都可以归入任何类别，所以你可以真正喜欢上你喜欢的*，这将让你相对平静，但不会让你厌烦。最终的供应品可能看起来像一餐烤鸡腿(类别3) 和 [胡萝卜沙拉](https://skillet.lifehacker.com/this-simple-carrot-salad-is-the-perfect-summer-side-dis-1846763820) (类别1)和一些烤土豆(类别2)；或者它可以看起来像 [这种即食罐猪肩肉](https://skillet.lifehacker.com/this-kimchi-pork-roast-will-warm-you-to-your-bones-1829755972) (类别2)，有一些自制卷(类别1)，和嫩煎芦笋(类别3)。我几乎总是外包甜点，但是如果你更喜欢烤甜的东西而不是美味的东西，你可以买面包卷和烤馅饼。然而，如果你想要一种属于第一类的甜点，提前切一些新鲜水果，然后用 [和一罐冷奶油](https://skillet.lifehacker.com/pour-heavy-cream-on-fruit-instead-of-whipped-cream-1834751267) 一起端上。*
+这个框架的好处是几乎任何组件都可以归入任何类别，所以你可以真正喜欢上你喜欢的*，这将让你相对平静，但不会让你厌烦。最终的供应品可能看起来像一餐烤鸡腿(类别 3) 和 [胡萝卜沙拉](https://skillet.lifehacker.com/this-simple-carrot-salad-is-the-perfect-summer-side-dis-1846763820) (类别 1)和一些烤土豆(类别 2)；或者它可以看起来像 [这种即食罐猪肩肉](https://skillet.lifehacker.com/this-kimchi-pork-roast-will-warm-you-to-your-bones-1829755972) (类别 2)，有一些自制卷(类别 1)，和嫩煎芦笋(类别 3)。我几乎总是外包甜点，但是如果你更喜欢烤甜的东西而不是美味的东西，你可以买面包卷和烤馅饼。然而，如果你想要一种属于第一类的甜点，提前切一些新鲜水果，然后用 [和一罐冷奶油](https://skillet.lifehacker.com/pour-heavy-cream-on-fruit-instead-of-whipped-cream-1834751267) 一起端上。*
 
-*如果你不想把三种成分都煮了，那也没关系！我一直主张少做多做， [按需外包](https://skillet.lifehacker.com/its-okay-to-buy-prepared-foods-1834422853) 以保持理智，尤其是如果你是烹饪新手或为他人烹饪新手。为四个人做饭需要与为一个人做饭不同的技能组合，并且用一份过于珍贵的菜单让你不知所措，只有T11会吸取做T12前T13的乐趣。*
+*如果你不想把三种成分都煮了，那也没关系！我一直主张少做多做， [按需外包](https://skillet.lifehacker.com/its-okay-to-buy-prepared-foods-1834422853) 以保持理智，尤其是如果你是烹饪新手或为他人烹饪新手。为四个人做饭需要与为一个人做饭不同的技能组合，并且用一份过于珍贵的菜单让你不知所措，只有 T11 会吸取做 T12 前 T13 的乐趣。*

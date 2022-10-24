@@ -1,6 +1,6 @@
 # 可以把房贷转让给别人吗？
 
-> 原文:[https://life hacker . com/can-you-transfer-your mortgage-to-someone-1845493737](https://lifehacker.com/can-you-transfer-your-mortgage-to-someone-else-1845493737)
+> 原文：<https://lifehacker.com/can-you-transfer-your-mortgage-to-someone-else-1845493737>
 
 你能把你的住房贷款转让给另一个人吗？这样做肯定会很方便:如果你要出售你的房子，买家可以把你的抵押贷款作为交易的一部分，避免了新贷款申请的麻烦，更不用说额外的交易成本了。听起来很好，抵押贷款转让通常是不可能的——但是有一些例外情况值得了解。
 
@@ -8,7 +8,7 @@ Watch
 
 ### **为什么你通常不能转贷**
 
-在抵押贷款转让的情况下，对你有利的并不是对贷方有利的。接受抵押贷款的最有吸引力的原因之一是利用锁定的低利率，特别是如果它明显低于市场上目前提供的利率(根据Bankrate.com的说法，现在不太可能是这种情况， [利率处于历史低位](https://www.bankrate.com/mortgages/mortgage-rate-forecast) )。
+在抵押贷款转让的情况下，对你有利的并不是对贷方有利的。接受抵押贷款的最有吸引力的原因之一是利用锁定的低利率，特别是如果它明显低于市场上目前提供的利率(根据 Bankrate.com 的说法，现在不太可能是这种情况， [利率处于历史低位](https://www.bankrate.com/mortgages/mortgage-rate-forecast) )。
 
 为了防止这种情况，大多数抵押贷款合同都包含所谓的“到期出售”条款，确保在房屋出售时贷款必须全部偿还；买方必须获得新的抵押贷款。
 
@@ -16,7 +16,7 @@ Watch
 
 但是，如果最初的文件表明贷款是可以偿还的，那么你可以将贷款的财务责任转移给新的所有者——无论是否免除原借款人的责任。新的所有者接管剩余付款，并保持现有的贷款利率、还款期限和剩余本金余额。(如果贷款合同没有明确说明你的贷款是否可以偿还，那么在大多数州，贷款都被认为是可以偿还的)。
 
-大多数贷款显然是不可偿还的。然而，根据贷款树，像退伍军人事务部、FHA和美国农业部贷款 [这样的政府担保贷款是一个例外](https://www.lendingtree.com/home/mortgage/what-is-an-assumable-mortgage/#Whichloansareeligibleformortgageassumption)——尽管它们可能仍然需要贷款人根据你的信誉进行批准。
+大多数贷款显然是不可偿还的。然而，根据贷款树，像退伍军人事务部、FHA 和美国农业部贷款 [这样的政府担保贷款是一个例外](https://www.lendingtree.com/home/mortgage/what-is-an-assumable-mortgage/#Whichloansareeligibleformortgageassumption)——尽管它们可能仍然需要贷款人根据你的信誉进行批准。
 
 如果你不确定你的抵押贷款是否可以偿还，直接联系你的贷款人了解情况(并询问抵押贷款转让是否涉及任何费用)。
 

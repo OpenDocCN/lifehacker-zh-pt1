@@ -1,14 +1,14 @@
 # 你可以制作自己的织物墙纸
 
-> 原文:[https://life hacker . com/you-can-make-you-your-own-fabric-wallpaper-1849614365](https://lifehacker.com/you-can-make-your-own-fabric-wallpaper-1849614365)
+> 原文：<https://lifehacker.com/you-can-make-your-own-fabric-wallpaper-1849614365>
 
-所有的纸可能会是一个混乱的麻烦事，很难清除，如果你住在公寓里，你可能连T5都不允许清除。布艺壁纸正在成为一种流行的替代品，它有一些优点。你可以自己制作，而且是可拆卸和可重复使用的。
+所有的纸可能会是一个混乱的麻烦事，很难清除，如果你住在公寓里，你可能连 T5 都不允许清除。布艺壁纸正在成为一种流行的替代品，它有一些优点。你可以自己制作，而且是可拆卸和可重复使用的。
 
 Watch
 
 ## 安装织物墙纸需要什么
 
-Y 你需要一个 [落布](https://www.homedepot.com/p/HDX-9-ft-x-12-ft-0-7-mil-Plastic-Drop-Cloth-DCHD-07/204711645?g_store=4013&source=shoppingads&locale=en-US) ，一些图钉，布料，一个 [喷雾瓶](https://www.dollargeneral.com/products/product-page.trueliving-k0083-sprybttl-ast-0011642-1-1.html) ，一个 [刀片](https://www.michaels.com/x-acto-number-1-precision-knife-with-number-11-blades/10219590.html?r=g) 或 [旋转切割工具](https://tapestrymaker.com/catalog/product/view/id/4218/s/rotary-cutter-45mm/) ，以及一些 [液体s tarch](https://www.roundeyesupply.com/p/de472469-sta-flo-liquid-starch-64-fl.-oz) 。为了计算出你需要多少布料，卷尺也会派上用场。
+Y 你需要一个 [落布](https://www.homedepot.com/p/HDX-9-ft-x-12-ft-0-7-mil-Plastic-Drop-Cloth-DCHD-07/204711645?g_store=4013&source=shoppingads&locale=en-US) ，一些图钉，布料，一个 [喷雾瓶](https://www.dollargeneral.com/products/product-page.trueliving-k0083-sprybttl-ast-0011642-1-1.html) ，一个 [刀片](https://www.michaels.com/x-acto-number-1-precision-knife-with-number-11-blades/10219590.html?r=g) 或 [旋转切割工具](https://tapestrymaker.com/catalog/product/view/id/4218/s/rotary-cutter-45mm/) ，以及一些 [液体 s tarch](https://www.roundeyesupply.com/p/de472469-sta-flo-liquid-starch-64-fl.-oz) 。为了计算出你需要多少布料，卷尺也会派上用场。
 
 你应该远离会沾上水渍的材料，比如丝绸和缎子。此外，较厚的面料不是一个很好的选择，因为它们更难吸收淀粉，而且它们更重，更难悬挂。有弹性的面料可能也是一个挑战，因为它们比更结实的面料收缩和拉伸更少。然而，设计和印刷只受你想象力的限制。
 

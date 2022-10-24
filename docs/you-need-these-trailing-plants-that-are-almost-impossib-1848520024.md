@@ -1,8 +1,8 @@
 # 你需要这些几乎不可能被杀死的蔓生植物
 
-> 原文:[https://life hacker . com/you-need-these-trailing-plants-that ' s ability sib-1848520024](https://lifehacker.com/you-need-these-trailing-plants-that-are-almost-impossib-1848520024)
+> 原文：<https://lifehacker.com/you-need-these-trailing-plants-that-are-almost-impossib-1848520024>
 
-如果你曾经浏览过一个专注于植物的Instagram账户，并想知道这个人的家怎么可能看起来如此绿色和茂盛，可能有几种不同的解释。愤世嫉俗的人有财力在他们的空间里种上无数的植物——可能还会付钱给其他人来照顾它们——或者树叶实际上是假的。
+如果你曾经浏览过一个专注于植物的 Instagram 账户，并想知道这个人的家怎么可能看起来如此绿色和茂盛，可能有几种不同的解释。愤世嫉俗的人有财力在他们的空间里种上无数的植物——可能还会付钱给其他人来照顾它们——或者树叶实际上是假的。
 
 Watch
 

@@ -1,6 +1,6 @@
 # 如何去除白色餐具上的顽固污渍
 
-> 原文:[https://life hacker . com/how-to-get-tough-stains-off-your-white-disks-1848947227](https://lifehacker.com/how-to-get-tough-stains-off-your-white-dishes-1848947227)
+> 原文：<https://lifehacker.com/how-to-get-tough-stains-off-your-white-dishes-1848947227>
 
 除了为你的用餐提供一块空白的画布，白色餐具也因其干净的外观而长期受到喜爱。因此，当它们出现顽固污渍时——由于老化、磨损或某些食物——它们可能会失去一些吸引力。这里有几种方法可以让它们恢复到原来的颜色(或者至少接近原来的颜色)。
 

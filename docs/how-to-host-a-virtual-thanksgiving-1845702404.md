@@ -1,6 +1,6 @@
 # 如何举办虚拟感恩节
 
-> 原文:[https://life hacker . com/how-to-host-a-virtual-thanksgivity-1845702404](https://lifehacker.com/how-to-host-a-virtual-thanksgiving-1845702404)
+> 原文：<https://lifehacker.com/how-to-host-a-virtual-thanksgiving-1845702404>
 
 对我们许多人来说，今年的感恩节将会非常不同。虽然你可能仍在与亲戚讨论你的价值观，但你也可能通过一个尴尬的虚拟空间来管理这些晚餐对话，其中包括“你被静音了”和“我如何打开摄像机？”幸运的是，你可以提前做一些事情来帮助你度过一个基于视频聊天的假期。以下是一些让虚拟感恩节变得更简单的方法。
 
@@ -10,7 +10,7 @@ Watch
 
 我们都有朋友或家庭成员已经准备好了行程和活动计划。活动策划网站 [Eventbrite](https://www.eventbrite.com/blog/the-top-10-qualities-of-successful-event-managers-ds00/) 称，这个人可能会身兼数职，是一个很好的倾听者，知道每个人的喜好和需求，喜欢列表。如果这个人还没有伸出手并开始制定计划，就和他们谈谈举办你的虚拟聚会。
 
-您的指定主持人应了解使用 的 [视频聊天平台的来龙去脉，并拥有强大的互联网连接。Zoom建议，如果可能的话，用硬件连接你的互联网，而不是依靠wifi:“这将帮助你避免不稳定的wifi连接带来的任何问题，这些问题会影响你的音频质量和整体与会者体验。”](https://zapier.com/blog/best-video-conferencing-apps/)
+您的指定主持人应了解使用 的 [视频聊天平台的来龙去脉，并拥有强大的互联网连接。Zoom 建议，如果可能的话，用硬件连接你的互联网，而不是依靠 wifi:“这将帮助你避免不稳定的 wifi 连接带来的任何问题，这些问题会影响你的音频质量和整体与会者体验。”](https://zapier.com/blog/best-video-conferencing-apps/)
 
 ### 提前发视频平台的教程
 
@@ -30,7 +30,7 @@ Watch
 
 ### 计划远程玩游戏
 
-[在线派对游戏](https://lifehacker.com/you-can-play-these-games-online-with-friends-1842347093) 像Jackbox或者反人类的纸牌都是很好的朋友礼物，但是你也可以更简单，更经典的破冰游戏像 [你会选择](https://conversationstartersworld.com/would-you-rather-questions/) 还是 [两个真相和一个谎言](https://blog.prepscholar.com/two-truths-and-a-lie-good-lies#:~:text=To%20play%2C%20everyone%20sits%20or,which%20statement%20is%20the%20lie.) 。这些是跨代游戏，很容易玩，不需要比简单的视频聊天更多的东西。
+[在线派对游戏](https://lifehacker.com/you-can-play-these-games-online-with-friends-1842347093) 像 Jackbox 或者反人类的纸牌都是很好的朋友礼物，但是你也可以更简单，更经典的破冰游戏像 [你会选择](https://conversationstartersworld.com/would-you-rather-questions/) 还是 [两个真相和一个谎言](https://blog.prepscholar.com/two-truths-and-a-lie-good-lies#:~:text=To%20play%2C%20everyone%20sits%20or,which%20statement%20is%20the%20lie.) 。这些是跨代游戏，很容易玩，不需要比简单的视频聊天更多的东西。
 
 ### 联系聊天之外的人
 

@@ -1,6 +1,6 @@
 # 如何教你的孩子开车
 
-> 原文:[https://life hacker . com/how-to-teach-your-teen-to-drive-1846347223](https://lifehacker.com/how-to-teach-your-teenager-to-drive-1846347223)
+> 原文：<https://lifehacker.com/how-to-teach-your-teenager-to-drive-1846347223>
 
 教青少年开车从来都不容易。虽然这可能是(或者你*希望*是)一个有趣而令人兴奋的成年礼，但也可能会给你们双方带来压力和恐慌。但是，即使在疫情，道路是开放的，青少年在上面。所以，如果是你帮助他们学习驾驶的时候了，深呼吸，集中注意力(并系好安全带)，然后遵循这些建议，尽可能平稳地驾驶。
 
@@ -26,7 +26,7 @@ Watch
 
 好了:该交钥匙了。选择一个天气好的日子——也是每个人心情都很平静的一天。开阔的空间，比如空旷的大停车场，最适合新手练习起步、停车、转弯和倒车。继续逐步增加你给他们的挑战中所需要的技能，例如在车道尽头转弯或驶入停车位。
 
-一旦他们对汽车的基本操作感到舒适，你就会想去安静的小巷和低速道路(坚持每小时35英里或更慢的速度开始)。 [国营农场建议改变路线](https://www.statefarm.com/simple-insights/auto-and-vehicles/teen-driving-101-a-stepbystep-test-of-essential-skills) ，不过，为了练习这些基本的初学者技能，要经过几个阶段:
+一旦他们对汽车的基本操作感到舒适，你就会想去安静的小巷和低速道路(坚持每小时 35 英里或更慢的速度开始)。 [国营农场建议改变路线](https://www.statefarm.com/simple-insights/auto-and-vehicles/teen-driving-101-a-stepbystep-test-of-essential-skills) ，不过，为了练习这些基本的初学者技能，要经过几个阶段:
 
 > *   Turning: speed and signal usage
 > *   Smooth braking: gradually slow down to a stop.
@@ -45,7 +45,7 @@ Watch
 
 你也要慢慢地向他们介绍在不同的天气条件下，在一天的不同时间，在繁忙的交通模式下驾驶。但是 [很好家庭](https://www.verywellfamily.com/teaching-your-teen-to-drive-1270091) 说父母应该优先考虑练习的*次数*而不是每次练习的*时间*，至少在开始的时候:
 
-> 你和孩子一起开车的次数比每次开车的时间更重要。开始时，将你的练习时间限制在每次15到20分钟。随着孩子自信心的增强，你可以延长练习时间。
+> 你和孩子一起开车的次数比每次开车的时间更重要。开始时，将你的练习时间限制在每次 15 到 20 分钟。随着孩子自信心的增强，你可以延长练习时间。
 
 为了帮助青少年培养安全驾驶车辆所需的对周围环境的充分意识，你可以尝试另一种策略，称为“ [解说驾驶](https://www.edrivermanuals.com/massachusetts/vehicle-control-for-supervisors/) ”根据 [父母的监督驾驶程序](https://www.edrivermanuals.com/massachusetts/) 的说法，解说驾驶是一种语言化工具，可以帮助新司机更加警惕道路上的风险以及如何最好地避免它们。与体育评论员类似，你的新司机可以在驾驶时大声讲述他们的观察、行动和潜在风险。
 

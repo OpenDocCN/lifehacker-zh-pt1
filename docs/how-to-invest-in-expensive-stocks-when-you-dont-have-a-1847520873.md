@@ -1,6 +1,6 @@
 # 当你没有很多钱的时候，如何投资昂贵的股票
 
-> 原文:[https://life hacker . com/how-to-invest-in-you-dont-a-1847520873](https://lifehacker.com/how-to-invest-in-expensive-stocks-when-you-dont-have-a-1847520873)
+> 原文：<https://lifehacker.com/how-to-invest-in-expensive-stocks-when-you-dont-have-a-1847520873>
 
 假设你没有很多钱可以投资——也许只有几百美元——你想从亚马逊或谷歌这样的大公司购买股票。不幸的是，在这些公司的单个股份就要花费 *数千*美元。这就是零股发挥作用的地方:它们允许你以远低于全价的价格只购买一小部分公司股票。
 
@@ -8,7 +8,7 @@ Watch
 
 ## 零股是如何运作的？
 
-零股非常简单:任何少于上市公司或T2 ETF和T4 ETF的股份都被认为是零股。你将需要通过一个经纪人来购买它们，并且你可能会被收取额外的服务费 (Bankrate有一个推荐经纪人的好列表 [在这里](https://www.bankrate.com/investing/best-brokers-fractional-share-investing/) )。如果真的喜欢一家公司的基本面，但买不起股票，零股是一个很好的选择。沃伦·巴菲特的伯克希尔·哈撒韦公司就是一个很好的例子——大多数人连一股都买不起，目前市值43万美元。
+零股非常简单:任何少于上市公司或 T2 ETF 和 T4 ETF 的股份都被认为是零股。你将需要通过一个经纪人来购买它们，并且你可能会被收取额外的服务费 (Bankrate 有一个推荐经纪人的好列表 [在这里](https://www.bankrate.com/investing/best-brokers-fractional-share-investing/) )。如果真的喜欢一家公司的基本面，但买不起股票，零股是一个很好的选择。沃伦·巴菲特的伯克希尔·哈撒韦公司就是一个很好的例子——大多数人连一股都买不起，目前市值 43 万美元。
 
 ## **投资零股的优势**
 

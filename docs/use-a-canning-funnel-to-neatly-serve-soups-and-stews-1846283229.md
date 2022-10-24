@@ -1,6 +1,6 @@
 # 使用罐装漏斗整齐地供应汤和炖菜
 
-> 原文:[https://life hacker . com/use-a-canning-funnel-to-clely-serve-soups-and-stews-1846283229](https://lifehacker.com/use-a-canning-funnel-to-neatly-serve-soups-and-stews-1846283229)
+> 原文：<https://lifehacker.com/use-a-canning-funnel-to-neatly-serve-soups-and-stews-1846283229>
 
 我并不是一个过分关注盘子或展示的人，但我绝对讨厌汤碗边上的飞溅物，至少在我开始喝汤之前是这样。当然，你可以“把它们擦掉”，但这会留下一道汤、炖肉或辣椒的痕迹，这几乎更糟。
 

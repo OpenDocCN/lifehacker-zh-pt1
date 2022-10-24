@@ -1,6 +1,6 @@
 # 一旦你开始了一个项目，如何真正完成它
 
-> 原文:[https://life hacker . com/how-to-really-finish-a project-once you-started-it-1845974156](https://lifehacker.com/how-to-actually-finish-a-project-once-youve-started-it-1845974156)
+> 原文：<https://lifehacker.com/how-to-actually-finish-a-project-once-youve-started-it-1845974156>
 
 人们开始项目却从未完成的原因数不胜数，而且，与普遍的看法相反，许多原因与懒惰、缺乏奉献精神或没有能力坚持到底无关。
 
@@ -14,18 +14,18 @@ Watch
 
 第二，虽然从动机的角度来看这是有道理的，但实际上并不是这样。(尽管如果我们说“开始是最难的部分，直到中间，这实际上要困难得多，并且可能是你要么放弃，要么认真考虑的时候”，那么鼓励某人做出改变将是一件非常困难的事情。)
 
-这里的 [如何乔恩Acuff，](https://nextbigideaclub.com/magazine/conversation-how-to-finish-everything-you-start/17207/) 六本书的畅销书作者，包括 [*毕:给自己做过的礼物*](https://www.amazon.com/Finish-Give-Yourself-Gift-Done/dp/1591847621?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-actually-finish-a-project-once-youve-started-it-1845974156&asc_source=&tag=kinjalifehackerlink-20) 解释说:
+这里的 [如何乔恩 Acuff，](https://nextbigideaclub.com/magazine/conversation-how-to-finish-everything-you-start/17207/) 六本书的畅销书作者，包括 [*毕:给自己做过的礼物*](https://www.amazon.com/Finish-Give-Yourself-Gift-Done/dp/1591847621?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-actually-finish-a-project-once-youve-started-it-1845974156&asc_source=&tag=kinjalifehackerlink-20) 解释说:
 
 > 我们的文化美化了开始，忽略了结束。我们有一些流行的说法，比如，“良好的开端是成功的一半”，或者“任何旅程中最困难的部分是第一步”，但是这一点都不正确。第一部分从来都不是最难的部分——中间部分比开始部分难多了。
 
-因此，Acuff建议我们不要把我们“无法”完成项目视为一种性格缺陷，不要每次看到靠墙放着的那把我们只用过一次的吉他就感到内疚，而是应该在开始做新的事情之前重新考虑我们的目标。
+因此，Acuff 建议我们不要把我们“无法”完成项目视为一种性格缺陷，不要每次看到靠墙放着的那把我们只用过一次的吉他就感到内疚，而是应该在开始做新的事情之前重新考虑我们的目标。
 
 ### 不要认为目标是全有或全无
 
-在接受《学习领袖秀》 的主持人Ryan Hawk的采访时，Acuff根据我们个人需要或想要做的事情来设定目标，而不是根据社会对某项任务的看法来设定目标:
+在接受《学习领袖秀》 的主持人 Ryan Hawk 的采访时，Acuff 根据我们个人需要或想要做的事情来设定目标，而不是根据社会对某项任务的看法来设定目标:
 
-> 很多人设定的目标都太大了。我写这本书的部分目标是围绕目标来剖析我们的城市传说，其中包括“做大或回家”或“瞄准月亮，即使你失败了，你也会在星星中着陆”的想法我只是不认为那是真的。我的理论是，如果你的目标是减掉10磅，而你已经减掉了8磅，那你就差2磅了，你就会放弃。大多数人认为他们的目标是一个要么全有要么全无的过程。我知道，如果我让你把目标减少到五个，而你失去了同样的八个，你会以三个优势获胜，并继续努力。
+> 很多人设定的目标都太大了。我写这本书的部分目标是围绕目标来剖析我们的城市传说，其中包括“做大或回家”或“瞄准月亮，即使你失败了，你也会在星星中着陆”的想法我只是不认为那是真的。我的理论是，如果你的目标是减掉 10 磅，而你已经减掉了 8 磅，那你就差 2 磅了，你就会放弃。大多数人认为他们的目标是一个要么全有要么全无的过程。我知道，如果我让你把目标减少到五个，而你失去了同样的八个，你会以三个优势获胜，并继续努力。
 
-如果你正纠结于瞄准比月球更近的目标，Acuff有两条建议。首先是简单地将你的目标减半。这是一个战略 [他在自己的研究](https://nextbigideaclub.com/magazine/conversation-how-to-finish-everything-you-start/17207/) 中进行了测试，发现在将目标减半的参与者中，63%的人最终在总体上更加成功。
+如果你正纠结于瞄准比月球更近的目标，Acuff 有两条建议。首先是简单地将你的目标减半。这是一个战略 [他在自己的研究](https://nextbigideaclub.com/magazine/conversation-how-to-finish-everything-you-start/17207/) 中进行了测试，发现在将目标减半的参与者中，63%的人最终在总体上更加成功。
 
 第二是从设定一个你力所能及的现实目标开始。如果/当你实现了那个目标，没有什么能阻止你进入下一个阶段——此外，你会因为完成某件事而信心大增。

@@ -1,6 +1,6 @@
-# 你应该用玉米做的11件美味的事情
+# 你应该用玉米做的 11 件美味的事情
 
-> 原文:[https://life hacker . com/11-好吃的东西-你应该用玉米做什么-1847388269](https://lifehacker.com/11-tasty-things-you-should-be-doing-with-corn-1847388269)
+> 原文：<https://lifehacker.com/11-tasty-things-you-should-be-doing-with-corn-1847388269>
 
 说我喜欢吃玉米是对事实的严重贬低。我喜欢玉米，夏天的时候我会吃很多。我会生吃它。我会腌着吃。我会蒸着吃，烤着吃，炒着吃。
 
@@ -30,7 +30,7 @@
 
 它看起来(和感觉)也是坏屁股，这是一个奖励。
 
-玉米粉——一种顶级食物——是由玉米面制成的，玉米面是由玉米制成的，具体来说是浸泡在碱性溶液中以使其不被消化的玉米。Nixtamalized corn (又名hominy)更易消化，更有营养，而且——在我看来——更美味。你可以把它作为配菜吃，放在pozole里，或者从头开始做你的 [非常自己的grits](https://lifehacker.com/how-to-make-grits-from-fresh-hominy-1845408529)。
+玉米粉——一种顶级食物——是由玉米面制成的，玉米面是由玉米制成的，具体来说是浸泡在碱性溶液中以使其不被消化的玉米。Nixtamalized corn (又名 hominy)更易消化，更有营养，而且——在我看来——更美味。你可以把它作为配菜吃，放在 pozole 里，或者从头开始做你的 [非常自己的 grits](https://lifehacker.com/how-to-make-grits-from-fresh-hominy-1845408529)。
 
 这种玉米三明治不分季节，因为它使用罐装奶油玉米和罐装甜炼乳。你将两者混合在一起并过滤掉固体，你就有了一种甜而滑腻的(不要与后面几张幻灯片中的玉米棒奶混淆)。玉米牛奶在冰镇咖啡中绝对称雄，但它在 [玉米牛奶潘趣](https://lifehacker.com/were-drinking-corn-milk-punch-now-1844804596) 中闪耀最亮。
 

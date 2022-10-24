@@ -1,6 +1,6 @@
 # 撕开老茧后如何提升
 
-> 原文:[https://life hacker . com/how-to-lift-after-you-rip-a-collas-1846912904](https://lifehacker.com/how-to-lift-after-you-rip-a-callus-1846912904)
+> 原文：<https://lifehacker.com/how-to-lift-after-you-rip-a-callus-1846912904>
 
 如果你做了大量的硬拉或其他消耗握力的运动，如引体向上，你的手上可能已经长了老茧。如果你不照顾这些老茧，迟早有一个会撕裂。幸运的是，在等待伤口愈合的过程中，你不必停止举重。
 
@@ -16,7 +16,7 @@ Watch
 
 首先，清洁该区域并仔细修剪掉任何死皮。如果你认为绷带会留在手上的部位，你可以用绷带或胶带包扎，但通常这是不可能的。
 
-有趣的是，体操运动员和攀岩者经常用一种能保持皮肤湿润的药膏来保护他们受伤的手。有各种各样的品牌，像 [约书亚树治疗药膏](https://www.jtreelife.com/products/healing-salve) 或 [Ript快速修复](https://riptskinsystems.com/products/quick-fix-mega-tin) 。凡士林之类的东西可能也一样有效。
+有趣的是，体操运动员和攀岩者经常用一种能保持皮肤湿润的药膏来保护他们受伤的手。有各种各样的品牌，像 [约书亚树治疗药膏](https://www.jtreelife.com/products/healing-salve) 或 [Ript 快速修复](https://riptskinsystems.com/products/quick-fix-mega-tin) 。凡士林之类的东西可能也一样有效。
 
 但那只是护肤而已。当你出现在健身房，你的手掌顶部有一个老茧，你不能贴胶带，甚至拿起杠铃都会痛，你会怎么办？这时候就该用胶带抓牢了。
 

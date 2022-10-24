@@ -1,6 +1,6 @@
 # 用这个戒烟技巧戒掉你打电话的习惯
 
-> 原文:[https://life hacker . com/kick-your phone-habit-with this-smoking-stopping-techn-1845664628](https://lifehacker.com/kick-your-phone-habit-with-this-smoking-cessation-techn-1845664628)
+> 原文：<https://lifehacker.com/kick-your-phone-habit-with-this-smoking-cessation-techn-1845664628>
 
 在这一点上，你可能已经读到过有害的影响[滚动的习惯会对我们的心理健康](https://lifehacker.com/how-to-quit-your-doomscrolling-habit-1844351904)(如果你还没有从这样做让你感觉很糟糕的事实中分辨出来的话)。也许你已经甚至 [削减了一点](https://lifehacker.com/now-more-than-ever-you-need-to-put-down-your-phone-1845324789) 。但是上周发生了。即使你现在更倾向于“谨慎-乐观-滚动”的领域，新闻周期的最新转折可能已经让我们的手机重新回到我们的手中。
 
@@ -16,17 +16,17 @@ Watch
 > 
 > 我试着从手机上删除导致问题的应用程序——社交媒体、新闻、信息。我最终只能在浏览器中访问它们。
 
-> 我试着用像Stay Focused这样的应用程序来阻止我的访问。我会让它们失灵。
+> 我试着用像 Stay Focused 这样的应用程序来阻止我的访问。我会让它们失灵。
 > 
 > 我试着不检查我的电话，这种冷火鸡法不太好。它所做的只是给我的坏习惯和酸溜溜的心情增加了一层罪恶感。
 > 
 > 我想:我必须变得更聪明。谁知道上瘾？几十年来，为了建立最佳实践方法，对什么成瘾进行了深入的研究，使用了绝对大量的实验对象？香烟！
 
-瓦伦丁随后尝试了几种有研究支持的戒烟技术，最终找到了一种比其他方法更有效的方法:，这是他在2011年出版的同名书中找到的。
+瓦伦丁随后尝试了几种有研究支持的戒烟技术，最终找到了一种比其他方法更有效的方法:，这是他在 2011 年出版的同名书中找到的。
 
 ### 艾伦·凯尔方法
 
-不仅瓦伦丁的兄弟成功地用艾伦·凯尔的简单方法(ACE)戒烟，方法也经受住了研究中的审查——包括2020年发表在《上瘾 杂志上的一个 [，它发现它和传统的戒烟技术一样有效。这些是步骤:](https://onlinelibrary.wiley.com/doi/10.1111/add.14897)
+不仅瓦伦丁的兄弟成功地用艾伦·凯尔的简单方法(ACE)戒烟，方法也经受住了研究中的审查——包括 2020 年发表在《上瘾 杂志上的一个 [，它发现它和传统的戒烟技术一样有效。这些是步骤:](https://onlinelibrary.wiley.com/doi/10.1111/add.14897)
 
 #### 提醒自己吸烟/使用电话对你的影响
 
@@ -36,7 +36,7 @@ Watch
 
 > 卡尔建议努力真正注意到并内化这种脱节。他告诉吸烟者注意他们的下一支烟。这就像正念，只是为了注意到不愉快。味道怎么样？不是“当你渴望它的时候，你想象它会是什么味道”，而是它*实际上*是什么味道？它闻起来好吗？你的*手*好闻吗？你感觉如何——你真的感觉更放松了，还是感觉更糟了？
 
-然后，她在Twitter上花了几分钟时间尝试了这种正念策略，并注意到她之后肯定感觉更糟了。“我越是关注自己‘喜欢’查看手机的现实，就越容易抑制住这种冲动。很明显，她写的是[。](https://medium.com/better-humans/quit-your-phone-addiction-using-methods-that-work-for-smokers-cdb44ce840)
+然后，她在 Twitter 上花了几分钟时间尝试了这种正念策略，并注意到她之后肯定感觉更糟了。“我越是关注自己‘喜欢’查看手机的现实，就越容易抑制住这种冲动。很明显，她写的是[。](https://medium.com/better-humans/quit-your-phone-addiction-using-methods-that-work-for-smokers-cdb44ce840)
 
 #### 确定日期
 
@@ -48,7 +48,7 @@ Watch
 
 ### 结果呢
 
-在她尝试的所有戒烟技巧中(你可以在她的文章 中读到那些 [)，瓦伦丁在卡尔的](https://medium.com/better-humans/quit-your-phone-addiction-using-methods-that-work-for-smokers-cdb44ce840) [中最成功，她说](https://medium.com/better-humans/quit-your-phone-addiction-using-methods-that-work-for-smokers-cdb44ce840) 不仅帮助她*抵制了*查看手机的urge——还去除了它们:
+在她尝试的所有戒烟技巧中(你可以在她的文章 中读到那些 [)，瓦伦丁在卡尔的](https://medium.com/better-humans/quit-your-phone-addiction-using-methods-that-work-for-smokers-cdb44ce840) [中最成功，她说](https://medium.com/better-humans/quit-your-phone-addiction-using-methods-that-work-for-smokers-cdb44ce840) 不仅帮助她*抵制了*查看手机的 urge——还去除了它们:
 
 > 最后，这不太像是选择了明显更好的选择——我的意思是，多年来我一直知道，有比每次“休息”时紧张和紧张更好的选择这更像是在一个比我通常的语言思维大脑更深的层次上为我做出的决定。它就这样定下来，变成了现实。
 

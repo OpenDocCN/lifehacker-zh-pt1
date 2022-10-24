@@ -1,6 +1,6 @@
 # 什么东西不能用醋清洗
 
-> 原文:[https://life hacker . com/things-you-should-not-clean-with醋因为itll-mak-1846422852](https://lifehacker.com/things-you-shouldnt-clean-with-vinegar-because-itll-mak-1846422852)
+> 原文：<https://lifehacker.com/things-you-shouldnt-clean-with-vinegar-because-itll-mak-1846422852>
 
 众所周知，我们喜欢白色醋，因为它能清洁、光亮、除臭，并在各种家居用品中发挥作用。但是，尽管酸性物质如此强大，它也不能做*所有的事情。*而且，在某些情况下，试图用醋清洗东西只能让事情变得更糟。以下是《每日快报》乔治娜·劳德的一篇文章 。
 

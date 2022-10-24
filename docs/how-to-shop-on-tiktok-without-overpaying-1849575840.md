@@ -1,12 +1,12 @@
 # 如何在抖音购物而不多付钱
 
-> 原文:[https://life hacker . com/how-to-shopping-on-tiktok-1849575840](https://lifehacker.com/how-to-shop-on-tiktok-without-overpaying-1849575840)
+> 原文：<https://lifehacker.com/how-to-shop-on-tiktok-without-overpaying-1849575840>
 
-当谈到在网上出售二手物品时，并不缺少选择。从 [Facebook Marketplace和Nextdoor](https://lifehacker.com/is-it-better-to-use-nextdoor-or-facebook-marketplace-1848799896) ，到经典的 [Craigslist](https://lifehacker.com/five-sites-to-score-free-stuff-other-than-facebook-mar-1849053961) 和 [易贝](https://lifehacker.com/7-of-the-best-sites-to-sell-basically-anything-1847902097) ，如果你想买(或卖)什么东西，有很多方法可以找到。
+当谈到在网上出售二手物品时，并不缺少选择。从 [Facebook Marketplace 和 Nextdoor](https://lifehacker.com/is-it-better-to-use-nextdoor-or-facebook-marketplace-1848799896) ，到经典的 [Craigslist](https://lifehacker.com/five-sites-to-score-free-stuff-other-than-facebook-mar-1849053961) 和 [易贝](https://lifehacker.com/7-of-the-best-sites-to-sell-basically-anything-1847902097) ，如果你想买(或卖)什么东西，有很多方法可以找到。
 
 Watch
 
-最近，在Instagram 上出售商品的旧货和其他二手交易商(以及普通人) [越来越多，所以这种情况也发生在抖音是有道理的。](https://www.darlingdownsouth.com/how-i-used-instagram-to-start-a-vintage-resale-shop-and-earn-over-25000-in-10-months/)
+最近，在 Instagram 上出售商品的旧货和其他二手交易商(以及普通人) [越来越多，所以这种情况也发生在抖音是有道理的。](https://www.darlingdownsouth.com/how-i-used-instagram-to-start-a-vintage-resale-shop-and-earn-over-25000-in-10-months/)
 
 但是，随着曾经属于某人祖母的人造珠宝，以及不再与你的装饰搭配的茶几，这两个应用程序也充满了影响者。这并没有什么不对，但是如果他们碰巧在卖东西，你可能会发现自己被影响，为一件东西支付了比它的价值更高的价格。以下是如何避免在抖音购物时这样做。
 
@@ -36,11 +36,11 @@ Watch
 
 #### 付款
 
-在古董怪胎播客 的最新一集 [中，主持人肯尼斯·亨利和迪·莱格讨论了如何以最安全的方式从Craigslist购买古董和古董物品(尽管这里也有提示)，并谈到了物品的实际交易。](https://antiquesfreaks.podbean.com/e/244-craigslist/)
+在古董怪胎播客 的最新一集 [中，主持人肯尼斯·亨利和迪·莱格讨论了如何以最安全的方式从 Craigslist 购买古董和古董物品(尽管这里也有提示)，并谈到了物品的实际交易。](https://antiquesfreaks.podbean.com/e/244-craigslist/)
 
-Leger建议使用Venmo或CashApp购买任何超过20美元的商品，并在卖家交付商品(你可以亲眼看到)之前，在卖家面前(通过应用程序)进行实际的资金转移。
+Leger 建议使用 Venmo 或 CashApp 购买任何超过 20 美元的商品，并在卖家交付商品(你可以亲眼看到)之前，在卖家面前(通过应用程序)进行实际的资金转移。
 
-与此同时， [柯林顿·撒普](https://www.tiktok.com/@clintonaverytharp)——修复和出售古董家具，并在抖音上发布教学视频——采取了不同的方法。他建议在见卖家和T5之前，通过Venmo或PayPal *为物品付款。*
+与此同时， [柯林顿·撒普](https://www.tiktok.com/@clintonaverytharp)——修复和出售古董家具，并在抖音上发布教学视频——采取了不同的方法。他建议在见卖家和 T5 之前，通过 Venmo 或 PayPal *为物品付款。*
 
 在[2021](https://www.estatesales.net/blog/2021/06/04/Six-Tips-For-Buying-And-Selling-Secondhand-From-Clinton-Avery-Tharp)的采访中，他说，为看都没看过的商品付款(除了清单上的图片)让他在竞争激烈的市场中击败了其他急切的购物者，以低价买到了他想要的商品。
 

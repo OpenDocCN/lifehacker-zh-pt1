@@ -1,12 +1,12 @@
 # 如何在节日期间与家人保持清醒
 
-> 原文:[https://life hacker . com/how-to-maintain-your-discle-around-your-family-during 1848151966](https://lifehacker.com/how-to-maintain-your-sobriety-around-your-family-during-1848151966)
+> 原文：<https://lifehacker.com/how-to-maintain-your-sobriety-around-your-family-during-1848151966>
 
 有很多理由可以让你在这个假期及以后保持清醒。尽管如此，没有什么能像你所爱的人那样考验你的决心，比如一场政治演说，或者询问你的人生决定，或者以只有家人才能做到的方式触动你的按钮。对我们许多人来说，家庭时间就像饮酒:最好小心适度。
 
 Watch
 
-你的家人考验你的耐心或者造成压力，不代表你不爱他们；仅仅因为他们喝酒或者质疑你戒酒的理由，并不意味着他们不支持你。不管怎样，制定一个策略来度过一个和家人在一起的清醒的假期是有帮助的。根据[Deni Carise博士，美国康复中心的chief sscientific oof America](https://recoverycentersofamerica.com/blogs/protect-your-recovery-4-tips-on-staying-sober-over-the-holidays/)的说法，重要的是“承认【饮酒诱因】在你的生活中，识别它们是什么或者是谁，并据此制定计划。”
+你的家人考验你的耐心或者造成压力，不代表你不爱他们；仅仅因为他们喝酒或者质疑你戒酒的理由，并不意味着他们不支持你。不管怎样，制定一个策略来度过一个和家人在一起的清醒的假期是有帮助的。根据[Deni Carise 博士，美国康复中心的 chief sscientific oof America](https://recoverycentersofamerica.com/blogs/protect-your-recovery-4-tips-on-staying-sober-over-the-holidays/)的说法，重要的是“承认【饮酒诱因】在你的生活中，识别它们是什么或者是谁，并据此制定计划。”
 
 这里有一些具体的建议，让你在不伸手拿酒瓶的情况下度过家庭欢乐时光。
 
@@ -32,9 +32,9 @@ Watch
 
 ## 有一个退出策略
 
-提前想好如何以及何时离开庆典。也许你一收拾完盘子就离开了，或者你安排了一个朋友在晚上9点假装有紧急情况。没有人需要知道你提前离开的真正原因。正如 [进入行动康复中心](https://www.intoactionrecovery.com/ten-tips-to-stay-sober-during-the-holidays/) 所说，“说你感觉不舒服不是谎言。把恢复放在第一位没关系，保持一点模糊，照顾好自己。”
+提前想好如何以及何时离开庆典。也许你一收拾完盘子就离开了，或者你安排了一个朋友在晚上 9 点假装有紧急情况。没有人需要知道你提前离开的真正原因。正如 [进入行动康复中心](https://www.intoactionrecovery.com/ten-tips-to-stay-sober-during-the-holidays/) 所说，“说你感觉不舒服不是谎言。把恢复放在第一位没关系，保持一点模糊，照顾好自己。”
 
-[卡里斯也祭出了BYOC绝招](https://recoverycentersofamerica.com/blogs/protect-your-recovery-4-tips-on-staying-sober-over-the-holidays/) :“带上你自己的车。你不希望不得不依靠别人来运输。当你想(或者需要)离开的时候，你得有自己开车的自由。”
+[卡里斯也祭出了 BYOC 绝招](https://recoverycentersofamerica.com/blogs/protect-your-recovery-4-tips-on-staying-sober-over-the-holidays/) :“带上你自己的车。你不希望不得不依靠别人来运输。当你想(或者需要)离开的时候，你得有自己开车的自由。”
 
 ## **准备好支持系统**
 

@@ -1,6 +1,6 @@
 # 如何摆脱“隐藏厨房”的趋势
 
-> 原文:[https://life hacker . com/how-to-pull-off-the hidden-kitchen-trend-1849628983](https://lifehacker.com/how-to-pull-off-the-hidden-kitchen-trend-1849628983)
+> 原文：<https://lifehacker.com/how-to-pull-off-the-hidden-kitchen-trend-1849628983>
 
 室内设计的趋势反映了我们生活的时代，近三年来，疫情让在餐馆吃饭变得相当危险，难怪厨房装修在许多人的愿望清单上名列前茅。特别是，所谓的“隐藏”或“隐形”厨房在过去几年里变得非常流行。
 

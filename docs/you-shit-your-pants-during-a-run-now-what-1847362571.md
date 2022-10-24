@@ -1,6 +1,6 @@
 # 你跑步的时候尿裤子了，现在怎么办？
 
-> 原文:[https://life hacker . com/you-shit-you-pants-in-a-run-now-what-1847362571](https://lifehacker.com/you-shit-your-pants-during-a-run-now-what-1847362571)
+> 原文：<https://lifehacker.com/you-shit-your-pants-during-a-run-now-what-1847362571>
 
 如果你已经跑了一段时间，那么很有可能在长距离跑的时候，你不得不在某个地方紧急停车拉屎。如果你幸运的话，附近有一个浴室。如果你不是...好吧，我们不要再提那件事了。
 
@@ -10,7 +10,7 @@
 
 ## **“跑步者的小跑”是一种常见情况**
 
-在一项对长跑运动员 的 [研究中，62%的人报告说在跑步过程中需要停下来大便(在实际比赛中为12%】，几乎一半的人报告说在比赛前患有神经性腹泻。请记住，这是自我报告的数据，这意味着一些应答者 nts 可能患有跑步者高度诱发的健忘症，而其他人可能不好意思透露。](https://pubmed.ncbi.nlm.nih.gov/1556421/)
+在一项对长跑运动员 的 [研究中，62%的人报告说在跑步过程中需要停下来大便(在实际比赛中为 12%】，几乎一半的人报告说在比赛前患有神经性腹泻。请记住，这是自我报告的数据，这意味着一些应答者 nts 可能患有跑步者高度诱发的健忘症，而其他人可能不好意思透露。](https://pubmed.ncbi.nlm.nih.gov/1556421/)
 
 一次跑步者的小跑是一次明显不舒服的经历，它结合了长跑的身体压力，消化系统紊乱的痛苦，以及对如果你不能及时去厕所会发生什么的恐惧。
 
@@ -18,7 +18,7 @@
 
 ## **跑步者小跑的原因是什么？**
 
-在一份2014年 [关于运动](https://link.springer.com/article/10.1007/s40279-014-0153-2?utm_medium=affiliate&utm_source=commission_junction&utm_campaign=3_nsn6445_brand_PID6161396&utm_content=de_textlink) 期间胃肠不适的综述中，作者确定了这种不幸疾病的三个主要原因——生理的、机械的、和营养的。
+在一份 2014 年 [关于运动](https://link.springer.com/article/10.1007/s40279-014-0153-2?utm_medium=affiliate&utm_source=commission_junction&utm_campaign=3_nsn6445_brand_PID6161396&utm_content=de_textlink) 期间胃肠不适的综述中，作者确定了这种不幸疾病的三个主要原因——生理的、机械的、和营养的。
 
 ### **生理**
 
@@ -34,7 +34,7 @@
 
 ## **营养**
 
-我们吃的东西对跑步过程中是否会发胖有很大影响。根据 [2014年关于运动期间肠胃不适的回顾](https://link.springer.com/article/10.1007/s40279-014-0153-2?utm_medium=affiliate&utm_source=commission_junction&utm_campaign=3_nsn6445_brand_PID6161396&utm_content=de_textlink) ，引起最多问题的食物是那些富含纤维、脂肪、蛋白质和果糖的食物，所有这些都与肠胃不适的高风险有关。脱水也是一大罪魁祸首，同时有一些证据表明高糖饮料也可能导致问题。
+我们吃的东西对跑步过程中是否会发胖有很大影响。根据 [2014 年关于运动期间肠胃不适的回顾](https://link.springer.com/article/10.1007/s40279-014-0153-2?utm_medium=affiliate&utm_source=commission_junction&utm_campaign=3_nsn6445_brand_PID6161396&utm_content=de_textlink) ，引起最多问题的食物是那些富含纤维、脂肪、蛋白质和果糖的食物，所有这些都与肠胃不适的高风险有关。脱水也是一大罪魁祸首，同时有一些证据表明高糖饮料也可能导致问题。
 
 对于一些人来说， [咖啡因会导致问题](https://www.self.com/story/runners-diarrhea) ，而糖醇，如大量加工食品中发现的人工甜味剂，也会在跑步过程中导致问题。如果你对咖啡因特别敏感，试着在跑步前限制你的摄入量，同时养成习惯检查任何加工食品的配料表，如蛋白质棒或奶昔中是否存在代替糖的糖醇，这可能会导致特殊的问题。
 

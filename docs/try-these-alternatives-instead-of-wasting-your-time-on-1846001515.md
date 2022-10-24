@@ -1,12 +1,12 @@
 # 尝试这些替代品，而不是在排毒上浪费时间
 
-> 原文:[https://life hacker . com/try-these-alternatives-而不是浪费你的时间-1846001515](https://lifehacker.com/try-these-alternatives-instead-of-wasting-your-time-on-1846001515)
+> 原文：<https://lifehacker.com/try-these-alternatives-instead-of-wasting-your-time-on-1846001515>
 
 现在我们都知道新年的“排毒”和“重置”不会排毒或重置任何东西。根据你的选择，它们要么是或 [纯粹的伪科学](https://lifehacker.com/what-happens-in-your-body-during-a-cleanse-or-detox-1669540259)——通常两者兼而有之。然而，他们仍然有吸引力。
 
 Watch
 
-2021年的“排毒”可能是一周的冰沙和果汁，通常由一位大师指导，他承诺在你花一周时间喝完从他们那里购买的东西后，你会感觉多么神奇。或者，从你的饮食中去除某些食物可能是一个挑战——例如，不含糖。不管是什么机制，这些都是被打上自我保健标签的限制性饮食。
+2021 年的“排毒”可能是一周的冰沙和果汁，通常由一位大师指导，他承诺在你花一周时间喝完从他们那里购买的东西后，你会感觉多么神奇。或者，从你的饮食中去除某些食物可能是一个挑战——例如，不含糖。不管是什么机制，这些都是被打上自我保健标签的限制性饮食。
 
 因此，让我们来看看为什么人们不断回到饮食重启和冰沙清洗的原因。他们的营销(即使看起来不像营销)肯定符合我们生活中想要的一些东西:例如，控制感，或假日疲惫的解毒剂。但是有办法在不饿着自己的情况下实现这些目标。
 
@@ -22,7 +22,7 @@ Watch
 
 ### 如果你对最近吃的东西感到恶心或内疚
 
-12月的所有庆祝活动通常会让我们进入1月，准备清理我们的饮食和习惯。如果你已经喝了很多，少喝一点听起来很有吸引力；如果你已经吃了很多节日美食，极简饮食可能也有同样的吸引力。
+12 月的所有庆祝活动通常会让我们进入 1 月，准备清理我们的饮食和习惯。如果你已经喝了很多，少喝一点听起来很有吸引力；如果你已经吃了很多节日美食，极简饮食可能也有同样的吸引力。
 
 但事实是，从长远来看，几顿饭的放纵并不是什么大事。你不需要通过切断整个食物群来把钟摆摆向另一个方向。相反，请尝试以下方法之一:
 
@@ -45,7 +45,7 @@ Watch
 但是你也可以用真正的食物来做这个。
 
 *   **学会计划和准备你的膳食**。是的，一周中有一天会有更多的工作，但是你可以整个星期都从冰箱里拿出食物，而不用去想它们。如果你和伴侣或室友住在一起，你甚至可以每周交换家务。
-*   **订餐服务**。[Trifecta](https://www.trifectanutrition.com/organic-057?disc=slowforty&gclid=CjwKCAiAouD_BRBIEiwALhJH6LrboZ_WEn8tlBisdvmE7RmKph9tihYYjm13VB72ltXSB2aSyQ-EFRoC4voQAvD_BwE&utm_term=prepared%20meals%20delivered&utm_campaign=9750487113&g_adgroupid=100121998217&g_adid=439454910713&utm_source=google-ads&utm_medium=ppc&gclid=CjwKCAiAouD_BRBIEiwALhJH6LrboZ_WEn8tlBisdvmE7RmKph9tihYYjm13VB72ltXSB2aSyQ-EFRoC4voQAvD_BwE)和[fresh](http://freshly.com)仅举几个例子，就能给你送去一周的实际食物，比许多froufrou排毒的花费还要少。
+*   **订餐服务**。[Trifecta](https://www.trifectanutrition.com/organic-057?disc=slowforty&gclid=CjwKCAiAouD_BRBIEiwALhJH6LrboZ_WEn8tlBisdvmE7RmKph9tihYYjm13VB72ltXSB2aSyQ-EFRoC4voQAvD_BwE&utm_term=prepared%20meals%20delivered&utm_campaign=9750487113&g_adgroupid=100121998217&g_adid=439454910713&utm_source=google-ads&utm_medium=ppc&gclid=CjwKCAiAouD_BRBIEiwALhJH6LrboZ_WEn8tlBisdvmE7RmKph9tihYYjm13VB72ltXSB2aSyQ-EFRoC4voQAvD_BwE)和[fresh](http://freshly.com)仅举几个例子，就能给你送去一周的实际食物，比许多 froufrou 排毒的花费还要少。
 
 ### 如果你非常想变得苗条
 
@@ -60,7 +60,7 @@ Watch
 
 ### 如果你只是想要一种仪式来给你一种控制感
 
-通常，排毒最值得在Instagram上分享的部分是在一个宁静的早晨，在窗户边喝一杯果汁、冰沙或柠檬水。难道你没有看到这一点，并想在那里，在那一刻，享受一点自我照顾的仪式吗？
+通常，排毒最值得在 Instagram 上分享的部分是在一个宁静的早晨，在窗户边喝一杯果汁、冰沙或柠檬水。难道你没有看到这一点，并想在那里，在那一刻，享受一点自我照顾的仪式吗？
 
 嗯，就像水合作用一样，这是你可以在不剥夺食物的情况下做的事情。
 

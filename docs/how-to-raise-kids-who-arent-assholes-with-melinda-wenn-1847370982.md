@@ -1,6 +1,6 @@
 # 如何抚养不是混蛋的孩子，梅林达·温纳·莫耶
 
-> 原文:[https://life hacker . com/how-to-raise-kids-non-targets-with Melinda-wenn-1847370982](https://lifehacker.com/how-to-raise-kids-who-arent-assholes-with-melinda-wenn-1847370982)
+> 原文：<https://lifehacker.com/how-to-raise-kids-who-arent-assholes-with-melinda-wenn-1847370982>
 
 你如何抚养没有种族歧视或性别歧视的孩子？如果你发现你的孩子欺负了一个同学，你会怎么做？你应该从什么时候开始担心孩子自私过头了？
 

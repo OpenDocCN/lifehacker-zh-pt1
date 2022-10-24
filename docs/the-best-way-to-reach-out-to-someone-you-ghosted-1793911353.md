@@ -1,6 +1,6 @@
 # 联系被你捉鬼的人的最好方法
 
-> 原文:[https://life hacker . com/the-best-way to-reach-someone-you-ghosted-1793911353](https://lifehacker.com/the-best-way-to-reach-out-to-someone-you-ghosted-1793911353)
+> 原文：<https://lifehacker.com/the-best-way-to-reach-out-to-someone-you-ghosted-1793911353>
 
 所以你 [毫无征兆地从某人的生活中消失](https://lifehacker.com/why-i-stopped-ghosting-1789214550) ，现在你想重新联系。也许你很忙，或者没有准备好一段感情，或者你只是害怕。不管是什么，你都已经过去了，想要伸出手去给予友谊——或者更多— 另一次机会。以下是你可以尝试的。
 
@@ -18,4 +18,4 @@ Watch
 
 当然，不能保证这一定有效。被捉鬼的人通常会感到受伤、困惑和有点生气。此外，他们可能已经离开很久了，所以很有可能你会得到和他们一样的冷淡。尽管如此，如果你总是不知道“如果”会怎样，这是你能做的最好的事情承认时间的流逝，理解和尊重，不抱任何期望地走进去。你永远不知道；他们可能会给你第二次机会。
 
-*本文最初发表于2017年，更新于2021年3月10日，以符合Lifehacker风格指南。*
+*本文最初发表于 2017 年，更新于 2021 年 3 月 10 日，以符合 Lifehacker 风格指南。*

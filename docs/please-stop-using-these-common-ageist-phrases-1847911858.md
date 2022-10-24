@@ -1,8 +1,8 @@
 # 请停止使用这些常见的歧视老年人的短语
 
-> 原文:[https://life hacker . com/please-stop-use-these-common-ageist-phrases-1847911858](https://lifehacker.com/please-stop-using-these-common-ageist-phrases-1847911858)
+> 原文：<https://lifehacker.com/please-stop-using-these-common-ageist-phrases-1847911858>
 
-年龄歧视是“最后可接受的偏见”，至少根据美国退休人员协会 的说法 [。虽然基于年龄的偏见更多地是针对年长的员工，但它确实是双向的“年长和年轻的成年人在工作场所都经常处于不利地位，随着年龄的增长，获得专业培训和教育的机会明显减少，”世界卫生组织表示。特别是在工作场所，](https://www.aarp.org/work/working-at-50-plus/info-2019/age-discrimination-in-america.html)[2019年的一项研究](https://www.hiscox.com/documents/2019-Hiscox-Ageism-Workplace-Study.pdf) 显示，每五名40岁及以上的美国工人中就有一人表示他们面临年龄歧视。
+年龄歧视是“最后可接受的偏见”，至少根据美国退休人员协会 的说法 [。虽然基于年龄的偏见更多地是针对年长的员工，但它确实是双向的“年长和年轻的成年人在工作场所都经常处于不利地位，随着年龄的增长，获得专业培训和教育的机会明显减少，”世界卫生组织表示。特别是在工作场所，](https://www.aarp.org/work/working-at-50-plus/info-2019/age-discrimination-in-america.html)[2019 年的一项研究](https://www.hiscox.com/documents/2019-Hiscox-Ageism-Workplace-Study.pdf) 显示，每五名 40 岁及以上的美国工人中就有一人表示他们面临年龄歧视。
 
 Watch
 
@@ -10,7 +10,7 @@ Watch
 
 ## **“你不要看[此处插入年龄]！”**
 
-荣誉奖: *50是新的25！*尽管你可能想把这当成一种赞美，但在大多数情况下，这意味着不管他们实际上是什么年龄，出于某种原因都是“不好的”。在这种情况下，你可能要重新考虑你是否需要评论这个人的年龄。
+荣誉奖: *50 是新的 25！*尽管你可能想把这当成一种赞美，但在大多数情况下，这意味着不管他们实际上是什么年龄，出于某种原因都是“不好的”。在这种情况下，你可能要重新考虑你是否需要评论这个人的年龄。
 
 ## “他们内心很年轻。”
 

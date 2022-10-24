@@ -1,8 +1,8 @@
 # 你能根据一个画面猜出一部电影吗？
 
-> 原文:[https://life hacker . com/can-you-guess-a-movie-based-on-a-single-frame-1849118203](https://lifehacker.com/can-you-guess-a-movie-based-on-a-single-frame-1849118203)
+> 原文：<https://lifehacker.com/can-you-guess-a-movie-based-on-a-single-frame-1849118203>
 
-我曾经是这样一个人，每天早上从 Wordle、 [及其所有衍生产品](https://lifehacker.com/the-10-best-wordle-alternatives-ranked-by-difficulty-1848859009) 开始。我掌握了如何玩 [四个](https://lifehacker.com/you-should-try-quordle-if-youre-too-good-at-wordle-1848540319) ，甚至 [*八个*单词](https://kotaku.com/wordle-dordle-quordle-octordle-word-game-browser-puzzle-1848593721) 、b ut几周前我去约我早上的例行公事——跑步、喝咖啡、工作——和单纯的觉得没必要。甚至没有 [同性恋字眼](https://lifehacker.com/6-wordle-esque-games-that-are-just-as-good-or-better-1848426197/slides/5) 。(幸福的骄傲。)
+我曾经是这样一个人，每天早上从 Wordle、 [及其所有衍生产品](https://lifehacker.com/the-10-best-wordle-alternatives-ranked-by-difficulty-1848859009) 开始。我掌握了如何玩 [四个](https://lifehacker.com/you-should-try-quordle-if-youre-too-good-at-wordle-1848540319) ，甚至 [*八个*单词](https://kotaku.com/wordle-dordle-quordle-octordle-word-game-browser-puzzle-1848593721) 、b ut 几周前我去约我早上的例行公事——跑步、喝咖啡、工作——和单纯的觉得没必要。甚至没有 [同性恋字眼](https://lifehacker.com/6-wordle-esque-games-that-are-just-as-good-or-better-1848426197/slides/5) 。(幸福的骄傲。)
 
 Watch
 
@@ -10,9 +10,9 @@ Watch
 
 ## 如何玩装裱
 
-如果你不知道Wordle的游戏是如何工作的，但你仍然点击了这篇文章，那么我对你与互联网的关系感到困惑。尽管如此，要点如下:
+如果你不知道 Wordle 的游戏是如何工作的，但你仍然点击了这篇文章，那么我对你与互联网的关系感到困惑。尽管如此，要点如下:
 
-框架从一个电影框架开始。你试着根据这张剧照来猜测这部电影。如果你猜错了，你会得到另一张图片，这些新图片会显示更多的信息，直到你总共猜错了六次。例如，你的第一帧可能是一个光线昏暗的风景镜头，但第五帧可能会包括一两个字符，以帮助你找出正确的答案。像Wordle及其所有变体一样——包括主题相似的 [票房游戏](https://boxofficega.me/)——这款基于浏览器的游戏每天都带来新的谜题。
+框架从一个电影框架开始。你试着根据这张剧照来猜测这部电影。如果你猜错了，你会得到另一张图片，这些新图片会显示更多的信息，直到你总共猜错了六次。例如，你的第一帧可能是一个光线昏暗的风景镜头，但第五帧可能会包括一两个字符，以帮助你找出正确的答案。像 Wordle 及其所有变体一样——包括主题相似的 [票房游戏](https://boxofficega.me/)——这款基于浏览器的游戏每天都带来新的谜题。
 
 与它的前辈不同，吸引我的是它似乎相当容易理解——你不需要成为一个电影极客来破解这个案子。过去一周的一些答案包括*巨蟒和圣杯*、*黑暗骑士*和*布达佩斯大饭店。*
 

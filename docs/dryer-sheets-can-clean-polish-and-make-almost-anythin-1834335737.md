@@ -1,6 +1,6 @@
 # 干衣机床单可以清洁、抛光，让几乎任何东西闻起来都很清新
 
-> 原文:[https://life hacker . com/dryer-sheets-can-clean-polish-and-make-almost-any thin-1834335737](https://lifehacker.com/dryer-sheets-can-clean-polish-and-make-almost-anythin-1834335737)
+> 原文：<https://lifehacker.com/dryer-sheets-can-clean-polish-and-make-almost-anythin-1834335737>
 
 不起眼的干衣机床单可能看起来像洗衣房的唯一任务，但实际上，它可以在许多方面改善你的生活。
 
@@ -8,4 +8,4 @@
 
 或者，如果你碰巧有额外的干燥床单(没有足够的衣物要洗)，你可以利用它们的抗静电能力来驯服你飘散的头发，清新有气味的鞋子和运动包，或者把它们藏在你的汽车周围以获得清新的气味。
 
-*最初发布于2019年4月，更新于2021年3月15日，以反映当前的风格指南。*
+*最初发布于 2019 年 4 月，更新于 2021 年 3 月 15 日，以反映当前的风格指南。*

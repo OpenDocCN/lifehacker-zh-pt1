@@ -1,6 +1,6 @@
-# 你应该在房子周围使用蜂蜡的6种聪明方法
+# 你应该在房子周围使用蜂蜡的 6 种聪明方法
 
-> 原文:[https://life hacker . com/6-clever-ways-you-be-use-wax-around-the-ho-1847873553](https://lifehacker.com/6-clever-ways-you-should-be-using-beeswax-around-the-ho-1847873553)
+> 原文：<https://lifehacker.com/6-clever-ways-you-should-be-using-beeswax-around-the-ho-1847873553>
 
 对于工具和家具的维修和保养，蜂蜡是一种多用途、 天然、和低废物的选择，可用作润滑剂、保护涂层和密封剂。它可以调理你的砧板*和*有助于防止你的工具生锈。
 

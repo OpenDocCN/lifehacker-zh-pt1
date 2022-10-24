@@ -1,6 +1,6 @@
 # 加入酱油，完美的麦当劳糖醋
 
-> 原文:[https://life hacker . com/perfect-McDonalds-sweet-n-sour-by-add-soy-sauce-1846724913](https://lifehacker.com/perfect-mcdonalds-sweet-n-sour-by-adding-soy-sauce-1846724913)
+> 原文：<https://lifehacker.com/perfect-mcdonalds-sweet-n-sour-by-adding-soy-sauce-1846724913>
 
 搬家总是需要一定程度的裁员，可悲的是，我的文件袋抽屉 是我在最后一次搬家时扔掉的东西之一。这可能是一个错误，因为我没有意识到在烹饪紧急情况下我有多依赖这些小酱汁。
 
@@ -12,4 +12,4 @@ Watch
 
 结果非常好。酱油的强烈、深沉的咸味使的酸甜更加令人作呕，将味道锚定在透露真相的美味和调和中，有点工业化的麦当劳唐。我说的是，把这两样东西混合起来是个好主意。
 
-你真的不需要测量。只需将一包(或大约一茶匙)T2酱油加入一整桶酸甜口味的酱油中，如果你喜欢的话，可以加入更多的酱油你的蘸酱颜色更深、更咸。如果你想变得奇特，加入一两茶匙姜汁(商店买的或自制的)或寿司姜汁。这远不是正宗的饺子酱，但它尝起来比它应有的味道要完整得多。搭配鸡块、油炸蘑菇或者 [美味的烤胡萝卜](https://skillet.lifehacker.com/youre-a-fool-if-you-dont-grill-carrots-1835812940) 、t o说出几个刚刚突然出现在我脑海里的事物也很不错。
+你真的不需要测量。只需将一包(或大约一茶匙)T2 酱油加入一整桶酸甜口味的酱油中，如果你喜欢的话，可以加入更多的酱油你的蘸酱颜色更深、更咸。如果你想变得奇特，加入一两茶匙姜汁(商店买的或自制的)或寿司姜汁。这远不是正宗的饺子酱，但它尝起来比它应有的味道要完整得多。搭配鸡块、油炸蘑菇或者 [美味的烤胡萝卜](https://skillet.lifehacker.com/youre-a-fool-if-you-dont-grill-carrots-1835812940) 、t o 说出几个刚刚突然出现在我脑海里的事物也很不错。

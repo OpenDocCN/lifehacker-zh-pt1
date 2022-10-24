@@ -1,6 +1,6 @@
 # 如何正确(几乎)每次使用复合词
 
-> 原文:[https://life hacker . com/how-to-use-compound-words-correctly-every-time-1846738469](https://lifehacker.com/how-to-use-compound-words-correctly-almost-every-time-1846738469)
+> 原文：<https://lifehacker.com/how-to-use-compound-words-correctly-almost-every-time-1846738469>
 
 英语中到处都是复合词——小词的无限组合形成新的更大的词。然而，它们在书面语中是如何组合在一起的会有所不同，你可能会停下来想知道:这是一个长期的问题吗？这是因为有三种不同类型的复合词，一个复合词应该写成一个词、两个词还是用连字符连接并不总是显而易见的。
 

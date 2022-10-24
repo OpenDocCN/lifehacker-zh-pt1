@@ -1,6 +1,6 @@
 # 在产前和产后健身教练中寻找什么
 
-> 原文:[https://life hacker . com/what-to-look-in-a-a-a-产前产后健康-t-1847479250](https://lifehacker.com/what-to-look-for-in-a-prenatal-and-postpartum-fitness-t-1847479250)
+> 原文：<https://lifehacker.com/what-to-look-for-in-a-prenatal-and-postpartum-fitness-t-1847479250>
 
 怀孕期间和之后保持健康是整个“分娩”过程中的一个重要部分。怀孕期间的定期锻炼有助于降低妊娠糖尿病的风险以及你需要剖腹产的可能性，同时也减轻了成长为一个小人儿的一些更不舒服的方面，如背痛和便秘。
 
@@ -22,7 +22,7 @@ Watch
 
 许多产前和产后健身计划都是基于让你的身体准备好应对怀孕、分娩和早期为人父母的压力的概念。
 
-其中一个名为 [BirthFit](https://birthfit.com/what-is-birthfit) 的项目，运作的理念是对怀孕客户进行“预适应”,目的是增强他们更好地应对分娩的能力。Bi 与此同时，rthFit的产后健身计划则侧重于帮助你处理好生完孩子后为人父母的身体问题。
+其中一个名为 [BirthFit](https://birthfit.com/what-is-birthfit) 的项目，运作的理念是对怀孕客户进行“预适应”,目的是增强他们更好地应对分娩的能力。Bi 与此同时，rthFit 的产后健身计划则侧重于帮助你处理好生完孩子后为人父母的身体问题。
 
 另一个名为的项目，采用了他们所谓的 [劳动强度间歇训练](https://pronatalfitness.com/2021/03/23/liit-labor-intensity-interval-training/) ，旨在模拟积极劳动的周期，先进行短暂的紧张工作，然后是短暂的积极休息，包括呼吸练习。
 

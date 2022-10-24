@@ -1,6 +1,6 @@
 # 是时候买一个坐浴盆了
 
-> 原文:[https://lifehacker.com/its-time-to-buy-a-bidet-1845358083](https://lifehacker.com/its-time-to-buy-a-bidet-1845358083)
+> 原文：<https://lifehacker.com/its-time-to-buy-a-bidet-1845358083>
 
 净身器在全球许多地方都很受欢迎，但出于某种原因，我们美国人的流行速度非常慢。用水洗屁眼而不是 [用卫生纸](https://lifehacker.com/stop-wiping-your-butt-so-hard-1827109289) 擦屁眼在大多数情况下，是更好的生活方式。
 
@@ -24,7 +24,7 @@ Watch
 
 看看你的马桶后面，你会注意到有一条水管向它供水。一个坐浴盆套装会挂在那条线上，为你提供一个单独的小喷嘴，你可以对准你的屁眼。想象一个喷泉的柔和弧线，但是是从位于马桶座圈背面正下方的喷嘴喷出来的。
 
-我有一个像 [这种](https://www.amazon.com/TUSHY-Classic-Bidet-Toilet-Attachment/dp/B07H5TBZJT?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/its-time-to-buy-a-bidet-1845358083&asc_source=&tag=kinjalifehackerlink-20) 的屁股模型。这很简单，而且能完成任务。你只要把它挂在 水管上，然后用固定马桶座圈的相同螺栓把它固定在马桶上。(我担心我的型号提供的水太冷，因为没有加热，但这不是问题。即使在冬天，也只是凉爽，从不寒冷。)任何家装店都可能会有几个同样工作方式的模型，而且甚至更便宜；这只小狗不到30美元。
+我有一个像 [这种](https://www.amazon.com/TUSHY-Classic-Bidet-Toilet-Attachment/dp/B07H5TBZJT?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/its-time-to-buy-a-bidet-1845358083&asc_source=&tag=kinjalifehackerlink-20) 的屁股模型。这很简单，而且能完成任务。你只要把它挂在 水管上，然后用固定马桶座圈的相同螺栓把它固定在马桶上。(我担心我的型号提供的水太冷，因为没有加热，但这不是问题。即使在冬天，也只是凉爽，从不寒冷。)任何家装店都可能会有几个同样工作方式的模型，而且甚至更便宜；这只小狗不到 30 美元。
 
 或者你可以走高端路线:如果你喜欢 [日本的高科技厕所](https://lifehacker.com/you-need-the-kind-of-electronic-toilet-thats-popular-in-1834220226) 的想法，有像 [这种](https://www.amazon.com/Ultimate-Elongated-Installation-Adjustable-Posterior/dp/B007HIKQCK/ref=sr_1_1?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/its-time-to-buy-a-bidet-1845358083&asc_source=&dchild=1&keywords=computerized bidet&qid=1602603883&refinements=p_36:1253532011&rnid=1243644011&s=hi&sr=1-1&tag=kinjalifehackerlink-20) 的坐浴盆，提供多种按钮和设置，还有包括加热座和洗完屁股后风干的功能。
 
@@ -34,4 +34,4 @@ Watch
 
 ### 我真的会少用卫生纸吗？
 
-少点，是的。但可能不是没有。通常情况下，你会用智能便座冲洗，然后用手拿着TP拍干。(除非你有一个带高效风干功能的坐浴盆。)为#1和那些可能不想用你奇怪而奇妙的装置的客人准备卫生纸也很方便。但总的来说，你会节省卫生纸，是的。如果最终 [再次短缺](https://twocents.lifehacker.com/when-will-grocery-stores-get-back-to-normal-1842625636) ，这将是一个有利因素。
+少点，是的。但可能不是没有。通常情况下，你会用智能便座冲洗，然后用手拿着 TP 拍干。(除非你有一个带高效风干功能的坐浴盆。)为#1 和那些可能不想用你奇怪而奇妙的装置的客人准备卫生纸也很方便。但总的来说，你会节省卫生纸，是的。如果最终 [再次短缺](https://twocents.lifehacker.com/when-will-grocery-stores-get-back-to-normal-1842625636) ，这将是一个有利因素。

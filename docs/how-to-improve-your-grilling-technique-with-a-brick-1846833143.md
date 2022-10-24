@@ -1,6 +1,6 @@
 # 用烤架砖获得更好的烤焦效果
 
-> 原文:[https://life hacker . com/how-to-improve-your-grinding-technique-with a-brick-1846833143](https://lifehacker.com/how-to-improve-your-grilling-technique-with-a-brick-1846833143)
+> 原文：<https://lifehacker.com/how-to-improve-your-grilling-technique-with-a-brick-1846833143>
 
 我不知道如何用它们来建造任何东西，但我会留一些砖头在身边，以备烹饪之用。 [箔纸包砖](https://skillet.lifehacker.com/you-need-a-kitchen-brick-1844691298) 在厨房里超级有用，尤其是当你需要把东西*放平*和*保持静止的时候。砖块在我的 [新户外厨房](https://skillet.lifehacker.com/follow-my-journey-from-good-cook-to-grill-boss-1846741793) (由一个韦伯水壶组成)中也非常有用，只是现在我用它们来*提升*东西——嗯，有一件事——*上升*。*
 
@@ -10,7 +10,7 @@ Watch
 
 如果你还想通过巧妙使用砖块，在下一份牛排上创造出完美的金色外壳，请遵循以下简单的指导:
 
-首先，在木炭烤架的底部堆砌4-5块砖，确保它们能让大量的空气流通。
+首先，在木炭烤架的底部堆砌 4-5 块砖，确保它们能让大量的空气流通。
 
 接下来，把木炭炉放在砖块上。
 
@@ -18,4 +18,4 @@ Watch
 
 昨天是我第一次尝试以这种方式使用不起眼的砖块——我在[【AmazingRibs.com】](https://amazingribs.com/)上见过几次提到这种方法，我必须说*提供了迄今为止我从木炭烤架上获得的最好的烤焦效果。的确，我还没有在木炭上烤过很多东西——还没有——但是我从这个砖块升降机上看到的结果给了我信心，我的未来会有更多漂亮的烤肉。这种感觉很好。*
 
-*美国东部时间05/06/2021上午11:45更新，阐明您应该使用的砖块类型。*
+*美国东部时间 05/06/2021 上午 11:45 更新，阐明您应该使用的砖块类型。*

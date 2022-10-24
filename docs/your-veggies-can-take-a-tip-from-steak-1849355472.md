@@ -1,6 +1,6 @@
 # 你的蔬菜可以从牛排中学到一点
 
-> 原文:[https://life hacker . com/your-veggies-can-take-a-tip-from-steak-1849355472](https://lifehacker.com/your-veggies-can-take-a-tip-from-steak-1849355472)
+> 原文：<https://lifehacker.com/your-veggies-can-take-a-tip-from-steak-1849355472>
 
 如果一个产品的名字告诉你它应该如何使用，你通常可以从表面上接受它。狗带约束狗。大蒜管理员拿着大蒜。我们都知道洗车场倾向于洗什么。但说到我的调料柜，我会把那些调料放在我喜欢的任何地方。是时候将牛排调料从其限制性标签中解放出来了。牛排调料也属于你的蔬菜。
 

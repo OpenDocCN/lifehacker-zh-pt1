@@ -1,6 +1,6 @@
 # 你的孩子可能真的有数学学习障碍
 
-> 原文:[https://life hacker . com/your-child-may-actually-have-a-a-math-learning-disorder-1849627701](https://lifehacker.com/your-child-might-actually-have-a-math-learning-disorder-1849627701)
+> 原文：<https://lifehacker.com/your-child-might-actually-have-a-math-learning-disorder-1849627701>
 
 也许你的孩子讨厌数学。也许你小时候也是这样，或者说 [你对数学考试](https://lifehacker.com/you-have-math-anxiety-heres-how-to-not-pass-it-down-to-1819181913) 如此焦虑以至于恐慌症发作。虽然数学对一些孩子来说很难，但有些孩子确实在数学上有学习障碍，称为 [计算障碍](https://ldaamerica.org/disabilities/dyscalculia/) 。我们将讨论计算障碍的症状，如何诊断，以及如果您的孩子患有计算障碍该怎么办。
 
@@ -32,9 +32,9 @@ Watch
 
 ## 学校支持
 
-您的孩子可能符合也可能不符合计算障碍诊断的特殊教育服务资格。塞尔曼说，“如果他们的成绩和考试分数没有受到影响，一些有处理障碍但非常聪明的孩子可能没有资格享受基于学校的服务。”如果他们在学校有困难，他们可能有资格参加 [504计划](https://kidshealth.org/en/parents/504-teachers.html) 或 [个性化教育计划(IEP)](https://lifehacker.com/how-to-prepare-for-your-childs-iep-meeting-1841067357) 。
+您的孩子可能符合也可能不符合计算障碍诊断的特殊教育服务资格。塞尔曼说，“如果他们的成绩和考试分数没有受到影响，一些有处理障碍但非常聪明的孩子可能没有资格享受基于学校的服务。”如果他们在学校有困难，他们可能有资格参加 [504 计划](https://kidshealth.org/en/parents/504-teachers.html) 或 [个性化教育计划(IEP)](https://lifehacker.com/how-to-prepare-for-your-childs-iep-meeting-1841067357) 。
 
-[计算障碍在DSM-5](https://www.dyscalculia.org/diagnostic-evaluation/dsm-v-codes) 中，这份文件列出了精神健康状况，通常是接受特殊教育服务的诊断资格的决定因素。如果你不确定你的孩子是否需要或者是否有资格获得资助，可以和学校谈谈或者在你的社区里寻找一个支持者，因为特殊教育的法律因州而异。
+[计算障碍在 DSM-5](https://www.dyscalculia.org/diagnostic-evaluation/dsm-v-codes) 中，这份文件列出了精神健康状况，通常是接受特殊教育服务的诊断资格的决定因素。如果你不确定你的孩子是否需要或者是否有资格获得资助，可以和学校谈谈或者在你的社区里寻找一个支持者，因为特殊教育的法律因州而异。
 
 ## 在家帮忙的方法
 

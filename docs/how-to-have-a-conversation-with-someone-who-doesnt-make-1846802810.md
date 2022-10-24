@@ -1,6 +1,6 @@
 # 如何与没有眼神交流的人交谈
 
-> 原文:[https://life hacker . com/how-to-have-a-conversation-with someone-who-not-make-1846802810](https://lifehacker.com/how-to-have-a-conversation-with-someone-who-doesnt-make-1846802810)
+> 原文：<https://lifehacker.com/how-to-have-a-conversation-with-someone-who-doesnt-make-1846802810>
 
 说到公开演讲，有几条建议我们反复听到:了解你的听众。有备而来。进行眼神交流。
 
@@ -14,7 +14,7 @@ Watch
 
 在进入细节之前，让我们花点时间来承认，当谈到眼神交流时，并非所有的文化都有相同的规则和标准。
 
-“我们非常重视眼神交流，尤其是在美国文化中，”心理治疗师安妮特·努内斯告诉T4赫芬顿邮报。因为在和一个人交谈之前，并不总是能够研究他和他的背景，当你有疑问的时候，跟着他们走。
+“我们非常重视眼神交流，尤其是在美国文化中，”心理治疗师安妮特·努内斯告诉 T4 赫芬顿邮报。因为在和一个人交谈之前，并不总是能够研究他和他的背景，当你有疑问的时候，跟着他们走。
 
 在博洛尼亚的文章 中，与不进行眼神交流的人交谈的其他技巧 [圆盘 ussed 包括:](https://www.huffpost.com/entry/how-to-talk-someone-no-eye-contact_l_6089ab41e4b0b9042d8dc253)
 

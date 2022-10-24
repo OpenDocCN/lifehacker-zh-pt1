@@ -1,8 +1,8 @@
 # 如果你在投票站受到威胁，该怎么办
 
-> 原文:[https://life hacker . com/what-do-if-you-to-do-what-if-you-three-at-you-polling-site-1845548431](https://lifehacker.com/what-to-do-if-youre-intimidated-at-your-polling-site-1845548431)
+> 原文：<https://lifehacker.com/what-to-do-if-youre-intimidated-at-your-polling-site-1845548431>
 
-尽管数百万人已经投票，但预计明天会有更多的人在当地投票站排队。诚然， [共和党人在2016年依靠选民压制战术](https://www.motherjones.com/politics/2017/10/voter-suppression-wisconsin-election-2016) ，但这一次，总统向他的支持者发出了多次行动呼吁，要求他们明天担任“投票站观察员”。虽然 [观察投票是选举过程中合法合理的](https://lifehacker.com/what-do-poll-watchers-do-1845230065) (阅读 [了解更多关于此处](https://lifehacker.com/what-do-poll-watchers-do-1845230065) )，但唐纳德·特朗普所建议的——他的追随者只是在投票站出现“观察】(从而恐吓)选民——并不是这样。
+尽管数百万人已经投票，但预计明天会有更多的人在当地投票站排队。诚然， [共和党人在 2016 年依靠选民压制战术](https://www.motherjones.com/politics/2017/10/voter-suppression-wisconsin-election-2016) ，但这一次，总统向他的支持者发出了多次行动呼吁，要求他们明天担任“投票站观察员”。虽然 [观察投票是选举过程中合法合理的](https://lifehacker.com/what-do-poll-watchers-do-1845230065) (阅读 [了解更多关于此处](https://lifehacker.com/what-do-poll-watchers-do-1845230065) )，但唐纳德·特朗普所建议的——他的追随者只是在投票站出现“观察】(从而恐吓)选民——并不是这样。
 
 Watch
 
@@ -29,7 +29,7 @@ Watch
 
 #### 民主党
 
-上周末，美国总统巴拉克奥巴马(Barack Obama)在Instagram上发布了一张方便的图片，提供了全国选民保护热线，以及各州的热线:
+上周末，美国总统巴拉克奥巴马(Barack Obama)在 Instagram 上发布了一张方便的图片，提供了全国选民保护热线，以及各州的热线:
 
  [https://lifehacker.com/embed/inset/iframe?id=instagram-CG-biGqgOl3&autosize=1](https://lifehacker.com/embed/inset/iframe?id=instagram-CG-biGqgOl3&autosize=1) 
 
@@ -39,6 +39,6 @@ Watch
 
 #### 共和党
 
-[共和党全国委员会](https://www.gop.com/) 没有相当于民主党全国委员会的选民保护热线，一般也不提供太多联系方式。RNC公开列出的电话号码是 **202-863-8500** ，尽管这看起来更像是一个办公室号码而不是热线。
+[共和党全国委员会](https://www.gop.com/) 没有相当于民主党全国委员会的选民保护热线，一般也不提供太多联系方式。RNC 公开列出的电话号码是 **202-863-8500** ，尽管这看起来更像是一个办公室号码而不是热线。
 
 你可能会更幸运地直接联系到你所在州的共和党总部；他们应该能给你指出正确的方向。例如，阿肯色州的 [共和党](https://katv.com/news/local/voters-calling-for-help-reporting-issues-to-voter-protection-hotline) 报告称，到目前为止，他们已经收到了“小问题，但没有超出预期的情况。”似乎没有每个州的共和党名单，但只要谷歌一下“[你所在的州] +共和党”，你应该就能找到。

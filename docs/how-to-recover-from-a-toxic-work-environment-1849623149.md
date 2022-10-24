@@ -1,6 +1,6 @@
 # 如何从有毒的工作环境中恢复
 
-> 原文:[https://life hacker . com/how-to-recover-from-a-toxic-work-environment-1849623149](https://lifehacker.com/how-to-recover-from-a-toxic-work-environment-1849623149)
+> 原文：<https://lifehacker.com/how-to-recover-from-a-toxic-work-environment-1849623149>
 
 有毒的工作环境会侵蚀你的自信，甚至在你设法逃脱之后，这种影响还会一直持续到下一份工作。无论是过于挑剔的老板还是让你一直担心失业的公司文化，从有毒的工作环境中恢复都不是一件容易的事。
 

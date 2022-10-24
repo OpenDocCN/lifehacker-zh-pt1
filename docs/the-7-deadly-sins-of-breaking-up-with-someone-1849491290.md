@@ -1,8 +1,8 @@
 # 与人分手的七宗罪
 
-> 原文:[https://life hacker . com/the-7-与某人分手的死罪-1849491290](https://lifehacker.com/the-7-deadly-sins-of-breaking-up-with-someone-1849491290)
+> 原文：<https://lifehacker.com/the-7-deadly-sins-of-breaking-up-with-someone-1849491290>
 
-无论是变得贫困的夏季恋情，还是失去所有光彩的长期合作关系，秋天可能会像T2一样是结束你们关系并开始新生活的最佳时机。但是当你拿起你的情感剪刀，割掉你曾经的灵魂伴侣的心时，至少试着尽可能优雅和成熟地去做。一段关系的最后一幕可能从轻微的毁灭性到完全的狗屎- 表演；然而，如果你避免了分手的七宗罪，分手还是会很糟糕，但你或许可以避开最糟糕的部分。
+无论是变得贫困的夏季恋情，还是失去所有光彩的长期合作关系，秋天可能会像 T2 一样是结束你们关系并开始新生活的最佳时机。但是当你拿起你的情感剪刀，割掉你曾经的灵魂伴侣的心时，至少试着尽可能优雅和成熟地去做。一段关系的最后一幕可能从轻微的毁灭性到完全的狗屎- 表演；然而，如果你避免了分手的七宗罪，分手还是会很糟糕，但你或许可以避开最糟糕的部分。
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-2EwViQxSJJQ&start=1](https://lifehacker.com/embed/inset/iframe?id=youtube-video-2EwViQxSJJQ&start=1)
 
@@ -20,7 +20,7 @@
 
 <figcaption class="sc-1ptbguh-0 hxeMec caption">Joy Division - Love Will Tear Us Apart [OFFICIAL MUSIC VIDEO]</figcaption> 
 
-我们都知道那种分手又多次复合的夫妻。“分手”并不真正意味着一段关系的结束，通常是在这段关系中争吵或操纵的方式。这真的很糟糕。我知道每一段爱情、FWB和婚姻都是复杂而独特的，但是“捏造”是一种不诚实和幼稚的处理个人生活的方式。
+我们都知道那种分手又多次复合的夫妻。“分手”并不真正意味着一段关系的结束，通常是在这段关系中争吵或操纵的方式。这真的很糟糕。我知道每一段爱情、FWB 和婚姻都是复杂而独特的，但是“捏造”是一种不诚实和幼稚的处理个人生活的方式。
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-DucqENP8wXw&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-DucqENP8wXw&start=0)
 

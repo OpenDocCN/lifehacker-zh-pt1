@@ -1,6 +1,6 @@
 # 雷雨时不要淋浴，以及其他事实上正确的“神话”
 
-> 原文:[https://life hacker . com/don-t-shower-due-in-a-雷暴和其他-神话-t-1847804733](https://lifehacker.com/don-t-shower-during-a-thunderstorm-and-other-myths-t-1847804733)
+> 原文：<https://lifehacker.com/don-t-shower-during-a-thunderstorm-and-other-myths-t-1847804733>
 
 自从我发现吞下的口香糖 [实际上不会在你的肠道里呆七八年](https://lifehacker.com/the-real-reason-you-shouldnt-swallow-your-gum-1844883836) 之后，我就有了信任问题。但是，你有没有把一些事情当作老妇人的故事而不予理会，却发现它实际上是真实的——科学、数学和理性实际上是站在老妇人一边的(去女权主义)？以下是一些实际上有用的常见建议，以及它们背后的科学原理。
 
@@ -22,7 +22,7 @@ Watch
 
 ## **点一份大披萨，两份中号披萨**
 
-你有没有因为给你的rager点多少披萨而陷入激烈的争论？嗯，数学就是:比萨饼越大，你的钱就越值钱。计算一下数字，你会发现一个18英寸的比萨饼比两个12英寸的比萨饼更多。如果你想节省你的脑力，我们在这里查了一下出的数学 [。](https://lifehacker.com/an-engineer-explains-why-you-should-always-order-the-la-1532897984)
+你有没有因为给你的 rager 点多少披萨而陷入激烈的争论？嗯，数学就是:比萨饼越大，你的钱就越值钱。计算一下数字，你会发现一个 18 英寸的比萨饼比两个 12 英寸的比萨饼更多。如果你想节省你的脑力，我们在这里查了一下出的数学 [。](https://lifehacker.com/an-engineer-explains-why-you-should-always-order-the-la-1532897984)
 
 ## **五秒规则是*技术上*不真实……**
 

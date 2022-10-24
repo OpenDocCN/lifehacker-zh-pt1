@@ -1,6 +1,6 @@
 # 如何防止通货膨胀破坏你的家居装修计划
 
-> 原文:[https://life hacker . com/how-to-keep-inflation-from-minusing-your home-improvemen-1848319022](https://lifehacker.com/how-to-keep-inflation-from-ruining-your-home-improvemen-1848319022)
+> 原文：<https://lifehacker.com/how-to-keep-inflation-from-ruining-your-home-improvemen-1848319022>
 
 家装项目变得越来越受欢迎，但推动其需求增长的同样因素也导致了价格上涨。现在不仅材料成本更高，电器和劳动力成本也更高。不过，如果你遵循这些建议，你或许仍能在厨房升级或家庭办公室改造中取得成功。
 

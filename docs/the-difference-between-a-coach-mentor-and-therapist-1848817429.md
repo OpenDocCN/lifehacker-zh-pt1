@@ -1,6 +1,6 @@
 # 蔻驰、导师和治疗师之间的区别(当你需要他们的时候)
 
-> 原文:[https://life hacker . com/the-difference-a-coach-mentor-and-therapist-1848817429](https://lifehacker.com/the-difference-between-a-coach-mentor-and-therapist-1848817429)
+> 原文：<https://lifehacker.com/the-difference-between-a-coach-mentor-and-therapist-1848817429>
 
 也许你已经陷入了职业生涯的困境，或者你需要一对一的指导来克服个人斗争——无论是什么，自助书籍都不能解决它。寻求帮助可能是成功的关键。但是你应该向谁求助呢？如果你已经开始寻找指导，你可能已经看到三个不同的头衔出现:生活教练、导师和治疗师。虽然这些角色都有一些重叠，但它们在满足您的需求方面也有关键的不同。
 
@@ -14,7 +14,7 @@ Watch
 
 辅导通常是短期的、结构良好的，旨在实现具体的、切实的结果。与导师和治疗师相比，教练是个人关系最少的选择。这意味着有更少的附加条件，你不需要为长达数年的投资寻找“完美的契合”。
 
-**费用** : [教练的费用和时间长短可以相差很大](https://www.choosingtherapy.com/life-coaching/#:~:text=Cost%20of%20Life%20Coaching,-Most%20life%20coaches&text=The%20typical%20range%20for%20personal,for%20eight%2090%20minute%20sessions.) ，平均每小时从75美元到200美元不等 [职业](https://www.businessnewsdaily.com/10919-hire-career-coach.html) 和 [终身](https://www.thumbtack.com/p/life-coach-cost) 教练。
+**费用** : [教练的费用和时间长短可以相差很大](https://www.choosingtherapy.com/life-coaching/#:~:text=Cost%20of%20Life%20Coaching,-Most%20life%20coaches&text=The%20typical%20range%20for%20personal,for%20eight%2090%20minute%20sessions.) ，平均每小时从 75 美元到 200 美元不等 [职业](https://www.businessnewsdaily.com/10919-hire-career-coach.html) 和 [终身](https://www.thumbtack.com/p/life-coach-cost) 教练。
 
 ## 导师:为了长期成长
 
@@ -22,7 +22,7 @@ Watch
 
 理想情况下，导师是有机产生的。有一天你会遇到一个你想成为的人，他们同样有兴趣帮助你追随他们的脚步(或者开拓你自己的道路)。教练可能会承诺给你实现特定技能和检查点的工具，而导师是一种更私人的关系，旨在帮助你实现长期发展。
 
-不幸的是，我们不可能都在野外遇到我们的梦想导师。如果你选择付费参加一个导师项目，报道称，许多项目的起价是每小时50美元，尽管许多导师每小时收费超过100美元。
+不幸的是，我们不可能都在野外遇到我们的梦想导师。如果你选择付费参加一个导师项目，报道称，许多项目的起价是每小时 50 美元，尽管许多导师每小时收费超过 100 美元。
 
 ## 治疗师:为了治愈你的过去
 
@@ -30,7 +30,7 @@ Watch
 
 教练和导师关注的是你未来的目标，不一定有资格深入你过去的创伤。治疗师是医疗保健专业人士，他们可以诊断出可能是你感到阻碍你前进的根源的疾病。有许多不同种类的疗法可供你选择。下面是我们为你选择合适治疗师的指南 。
 
-费用:治疗费用很大程度上取决于你的保险范围。在这个国家的大部分地区， [一个人每届可以期望支付100-200美元的](https://www.goodtherapy.org/blog/faq/how-much-does-therapy-cost) 。
+费用:治疗费用很大程度上取决于你的保险范围。在这个国家的大部分地区， [一个人每届可以期望支付 100-200 美元的](https://www.goodtherapy.org/blog/faq/how-much-does-therapy-cost) 。
 
 ## 外卖
 

@@ -1,6 +1,6 @@
 # 开始一个室内药草园来应对园艺退出
 
-> 原文:[https://life hacker . com/cope-with-gardening-return-by-starting-an-indoor-he-1845766856](https://lifehacker.com/cope-with-gardening-withdrawal-by-starting-an-indoor-he-1845766856)
+> 原文：<https://lifehacker.com/cope-with-gardening-withdrawal-by-starting-an-indoor-he-1845766856>
 
 尽管本周美国许多地方的天气异常温暖，但我们知道这不会持续太久。如果你是疫情期间真正热爱园艺的人之一(或者多年来一直是一个狂热的园丁)，当谈到你最喜欢的减压爱好时，你可能会发现自己正在经历冬季退缩。
 

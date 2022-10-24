@@ -1,6 +1,6 @@
 # 教孩子如何拿剪刀的最简单的方法
 
-> 原文:[https://life hacker . com/the-easy-way-to-teach-kids-how-to-hold剪刀-1846573779](https://lifehacker.com/the-easiest-way-to-teach-kids-how-to-hold-scissors-1846573779)
+> 原文：<https://lifehacker.com/the-easiest-way-to-teach-kids-how-to-hold-scissors-1846573779>
 
 当孩子们磨练他们精细的运动技能时，有很多基本的任务是他们通常很难学会的。例如[系鞋带](https://offspring.lifehacker.com/teach-kids-to-tie-their-shoes-with-the-big-loops-trick-1828838854)[穿上自己的夹克](https://offspring.lifehacker.com/teach-your-preschooler-how-to-put-on-a-jacket-with-the-1828497274) ，这些都是我们通过练习和耐心帮助他们掌握的技能。然而，当谈到使用剪刀时，我们可能更喜欢尽可能熟练、尽可能快地掌握它们。
 

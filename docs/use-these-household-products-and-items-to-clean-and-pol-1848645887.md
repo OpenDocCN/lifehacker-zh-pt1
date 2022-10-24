@@ -1,6 +1,6 @@
 # 使用这些家用产品和物品来清洁和抛光黄铜(因为它们不是一回事)
 
-> 原文:[https://life hacker . com/use-these-home-products-and-items-to-clean-and-pol-1848645887](https://lifehacker.com/use-these-household-products-and-items-to-clean-and-pol-1848645887)
+> 原文：<https://lifehacker.com/use-these-household-products-and-items-to-clean-and-pol-1848645887>
 
 由于其耐用性和丰富的颜色，黄铜——一种铜和锌的合金——几个世纪以来一直被用于制造从厨房用具和五金器具到家居用品和装饰品的各种物品。但是黄铜也有不好的一面:它很容易失去光泽。和其他东西一样，随着时间的推移，黄铜会积累污垢和灰尘，需要好好清洗一下。
 
@@ -10,7 +10,7 @@ Watch
 
 ## 如何辨别一件物品是实心黄铜还是镀黄铜
 
-镀黄铜的物品通常由钢或锌制成，然后涂上一层薄薄的固体黄铜，并上漆。据巴尔的摩brass works公司的专家称，黄铜镀层“非常薄”，会随着时间的推移而变质，但可以更换。
+镀黄铜的物品通常由钢或锌制成，然后涂上一层薄薄的固体黄铜，并上漆。据巴尔的摩 brass works 公司的专家称，黄铜镀层“非常薄”，会随着时间的推移而变质，但可以更换。
 
 确定一个物体是实心黄铜还是镀黄铜的最简单的方法是看是否 有磁性——你可以用冰箱磁铁来做这件事。虽然实心黄铜没有磁性，但镀黄铜的物品(或者更确切地说，制造它们的金属)有磁性。
 
@@ -38,7 +38,7 @@ T4 brass works Co[公司的专家称，尽管清洗镀黄铜和涂漆的黄铜�
 
 ## **如何抛光实心黄铜**
 
-如果你已经决定抛光你的黄铜，有一些非常有效的，广泛可用的专用产品，如[Brasso](https://diversey.com/en/product-catalogue/brasso-multipurpose-metal-polish-cb893344-nam)[莱特黄铜抛光](https://jawright.com/brass)[Twinkle黄铜和铜清洁套件](https://consumerproducts.malcopro.com/Twinkle__Brass_and_Copper_Polish__5251__Sold_by_case-details.aspx) 、 [Flitz黄铜&铜去锈剂](https://www.flitz.com/brass-copper-tarnish-remover/) 和 [蓝色魔法金属抛光](https://www.bluemagicusa.com/500-06-metal-polish-jar/)——其中一些已经存在很久了
+如果你已经决定抛光你的黄铜，有一些非常有效的，广泛可用的专用产品，如[Brasso](https://diversey.com/en/product-catalogue/brasso-multipurpose-metal-polish-cb893344-nam)[莱特黄铜抛光](https://jawright.com/brass)[Twinkle 黄铜和铜清洁套件](https://consumerproducts.malcopro.com/Twinkle__Brass_and_Copper_Polish__5251__Sold_by_case-details.aspx) 、 [Flitz 黄铜&铜去锈剂](https://www.flitz.com/brass-copper-tarnish-remover/) 和 [蓝色魔法金属抛光](https://www.bluemagicusa.com/500-06-metal-polish-jar/)——其中一些已经存在很久了
 
 但如果这是你第一次抛光黄铜，你可能没有一些坐在水槽下或车库里。这里有一些方法可以用你家里已经有的东西来抛光黄铜:
 
@@ -48,11 +48,11 @@ T4 brass works Co[公司的专家称，尽管清洗镀黄铜和涂漆的黄铜�
 
 ### 醋、盐和面粉
 
-这是最受欢迎的DIY黄铜抛光剂之一，所有的推荐都是实至名归的:这东西很管用。将 [做成](https://newengland.com/today/living/cleaning/clean-brass/) ，将等份的盐和面粉混合，然后加入刚好足够的白醋做成浓稠的糊状。用湿布和一些油脂把它擦上。然后用温水冲洗物体，并用干净柔软的布擦干。
+这是最受欢迎的 DIY 黄铜抛光剂之一，所有的推荐都是实至名归的:这东西很管用。将 [做成](https://newengland.com/today/living/cleaning/clean-brass/) ，将等份的盐和面粉混合，然后加入刚好足够的白醋做成浓稠的糊状。用湿布和一些油脂把它擦上。然后用温水冲洗物体，并用干净柔软的布擦干。
 
 ### 柠檬汁和小苏打
 
-向半个柠檬的果汁中加入一茶匙小苏打，制成糊状。用软布涂抹并摩擦 [DIY抛光剂](https://www.architecturaldigest.com/story/how-to-clean-brass#:~:text=Combine%20the%20juice%20of%20half,with%20warm%20water%20and%20dry.) 。如果你很快就能得到想要的结果，完成抛光后，用温水冲洗，然后用干净的软布擦干。但是，如果这件作品的变色特别严重，在使用上述程序冲洗和干燥之前，让自制的抛光剂保持30分钟。
+向半个柠檬的果汁中加入一茶匙小苏打，制成糊状。用软布涂抹并摩擦 [DIY 抛光剂](https://www.architecturaldigest.com/story/how-to-clean-brass#:~:text=Combine%20the%20juice%20of%20half,with%20warm%20water%20and%20dry.) 。如果你很快就能得到想要的结果，完成抛光后，用温水冲洗，然后用干净的软布擦干。但是，如果这件作品的变色特别严重，在使用上述程序冲洗和干燥之前，让自制的抛光剂保持 30 分钟。
 
 ### 牙膏
 

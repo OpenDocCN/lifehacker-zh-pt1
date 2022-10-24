@@ -1,6 +1,6 @@
 # 如何决定是带上还是带上你的宠物去度假旅行
 
-> 原文:[https://life hacker . com/how-to-decision-board-on-a-h-1848117313](https://lifehacker.com/how-to-decide-whether-to-board-or-bring-your-pet-on-a-h-1848117313)
+> 原文：<https://lifehacker.com/how-to-decide-whether-to-board-or-bring-your-pet-on-a-h-1848117313>
 
 许多人认为他们毛茸茸的四条腿的朋友是他们家庭的一部分，所以很难在假期离开他们。但是随着假日旅行本身已经够忙的了，是否要把你的杂种狗加入其中并不总是很清楚。
 
@@ -25,7 +25,7 @@ Watch
 
 华盛顿州立大学兽医教学医院的社区实践兽医杰西卡·贝尔博士说，尽管你很想在假日公路旅行中带上你的宠物，但有时这是不可行的。
 
-“如果你的宠物不喜欢旅行或容易紧张，你应该考虑寄宿或宠物保姆，”贝尔告诉RokytaT3。“你还需要考虑你的目的地。如果这不是一个对动物友好的环境，或者你和没有空间给你的动物的人呆在一起，那么最好让他们寄宿。”
+“如果你的宠物不喜欢旅行或容易紧张，你应该考虑寄宿或宠物保姆，”贝尔告诉 RokytaT3。“你还需要考虑你的目的地。如果这不是一个对动物友好的环境，或者你和没有空间给你的动物的人呆在一起，那么最好让他们寄宿。”
 
 今年需要记住的另一件事是，兽医和宠物护理人员 仍然短缺，所以你通常的寄宿点可能会关闭或减少容量。另外， [节假日期间登机需求总是会上升](https://www.wksu.org/economy/2021-11-16/dont-put-off-sparkys-boarding-when-making-holiday-travel-plans-kennel-space-is-in-demand) ，所以你也会面临这种情况。
 

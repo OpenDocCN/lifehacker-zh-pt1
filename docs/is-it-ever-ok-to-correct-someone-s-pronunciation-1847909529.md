@@ -1,6 +1,6 @@
 # 纠正某人的发音可以吗？
 
-> 原文:[https://life hacker . com/is-it-ever-ok-to-correct-someone-s-promination-1847909529](https://lifehacker.com/is-it-ever-ok-to-correct-someone-s-pronunciation-1847909529)
+> 原文：<https://lifehacker.com/is-it-ever-ok-to-correct-someone-s-pronunciation-1847909529>
 
 如果你把上面的话念成[*duh-**trai**-tus*](https://www.google.com/search?q=detritus+pronunciaiton&ei=dYpxYcidJI67ggfM37GYBw&ved=0ahUKEwiIrOP369vzAhWOneAKHcxvDHMQ4dUDCA4&uact=5&oq=detritus+pronunciaiton&gs_lcp=Cgdnd3Mtd2l6EAMyBAgAEA0yBAgAEA0yBAgAEA0yCAgAEA0QBRAeMggIABAIEA0QHjIICAAQCBANEB4yCAgAEA0QChAeMgUIABCGAzIFCAAQhgM6BQgAEJECOggILhCxAxCDAToLCC4QgAQQsQMQgwE6DgguEIAEELEDEMcBEKMCOgUIABCABDoOCC4QgAQQsQMQxwEQ0QM6CAgAEIAEELEDOggILhCABBCxAzoFCC4QkQI6CwguELEDEMcBEK8BOgsIABCABBCxAxCDAToHCC4QgAQQCjoGCAAQFhAeOggIABAWEAoQHkoECEEYAFDa3QVYxPEFYJPzBWgAcAJ4AYABvgGIAeQPkgEEMTcuNZgBAKABAcABAQ&sclient=gws-wiz)，[***ti**-nuh-tuhs*](https://www.google.com/search?q=tinnitus+pronunciation&ei=HotxYbqDG66c_Qa5lLHgBw&oq=tinnitus+pronunciation&gs_lcp=Cgdnd3Mtd2l6EAMYADIICAAQgAQQsQMyBQgAEIAEMgUIABCABDIFCAAQgAQyBQgAEIAEMgUIABCABDIFCAAQgAQyBQgAEIAEMgUIABCABDIFCAAQgAQ6CQgAEEMQRhD5AToECC4QQzoECAAQQzoOCC4QgAQQsQMQxwEQowI6BwgAELEDEEM6EQguEIAEELEDEIMBEMcBENEDOgsILhCABBDHARCjAjoKCAAQkQIQRhD5AToFCAAQkQI6DgguEIAEELEDEMcBENEDOgsILhCABBCxAxCDAToKCAAQsQMQgwEQQzoFCAAQsQNKBAhBGABQ_CdYgjdglENoAHACeACAAbYBiAGrCZIBAzguNJgBAKABAcABAQ&sclient=gws-wiz)，[***chaach**-kee*](https://www.google.com/search?q=tchotchke+pronunciation&ei=J4txYc7nLqW4ggfU8rHgAw&ved=0ahUKEwiOl97M7NvzAhUlnOAKHVR5DDwQ4dUDCA4&uact=5&oq=tchotchke+pronunciation&gs_lcp=Cgdnd3Mtd2l6EAMyBQgAEIAEMgYIABAHEB4yBQgAEIAEMgUIABCGAzoECAAQQzoHCAAQsQMQQzoECAAQDToICAAQDRAKEB5KBAhBGABQ8oMGWMWRBmD2kgZoAHACeACAAZoBiAHkBpIBAzkuMZgBAKABAcABAQ&sclient=gws-wiz)，做得好。你做到了。如果没有，你并不孤单。Preply 最近进行的一项 [研究发现，44%的人发错音或误用一个短语超过一年后才发现。同一项研究发现，80%的人“在听到错误使用的单词或短语时会感到恼火。”是你吗？因为是我。](https://preply.com/en/blog/misused-words-and-phrases-in-america-survey/#scroll-to-heading-2)
 
@@ -8,7 +8,7 @@ Watch
 
 然而，我要去纠正发音错误吗？除非是我的丈夫或孩子，不。我选择生活。总的来说，做一个有礼貌、不迂腐的人。
 
-但在Preply的调查中，66%的受访者表示纠正某人是可以的(即使他们没有被要求这么做)，87%的人纠正过某人的发音，五分之一的人纠正过陌生人的发音。几代人之间存在一些差异，69%的千禧一代认为纠正某人是可以接受的，而只有56%的婴儿潮一代有同样的想法。(这就引出了一个问题:X世代呢？但是我们跑题了。)
+但在 Preply 的调查中，66%的受访者表示纠正某人是可以的(即使他们没有被要求这么做)，87%的人纠正过某人的发音，五分之一的人纠正过陌生人的发音。几代人之间存在一些差异，69%的千禧一代认为纠正某人是可以接受的，而只有 56%的婴儿潮一代有同样的想法。(这就引出了一个问题:X 世代呢？但是我们跑题了。)
 
 ## 为什么你不应该纠正别人的英语
 

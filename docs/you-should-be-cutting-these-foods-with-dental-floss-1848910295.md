@@ -1,6 +1,6 @@
 # 你应该用牙线来切这些食物
 
-> 原文:[https://life hacker . com/you-should-be-cut-things-foods with-floss-1848910295](https://lifehacker.com/you-should-be-cutting-these-foods-with-dental-floss-1848910295)
+> 原文：<https://lifehacker.com/you-should-be-cutting-these-foods-with-dental-floss-1848910295>
 
 正如我们之前提到的， [牙线除了清除牙缝里的污垢之外，还有许多实际用途](https://lifehacker.com/15-surprisingly-practical-ways-to-use-dental-floss-arou-1848745159) 。你可以用它做线，代替挂画线，支撑花园里的“攀爬者”。这种适当的口腔卫生的支柱也可以干净有效地切片某些软食物——减去刀可能导致的所有破碎和凹陷。这里有一些方法可以让你在厨房里很好地使用(不含蜡、不含香料的)牙线。
 
@@ -16,6 +16,6 @@ Watch
 
 马苏里拉奶酪:很难做出不带筋的马苏里拉奶酪来搭配那些番茄片和罗勒。在家里使用 [烹饪法](https://www.cuisineathome.com/tips/flossing-mozzarella/) :“要切像马苏里拉奶酪这样的软奶酪，试着用未打蜡、未调味的牙线。将牙线滑到奶酪下面，在顶部交叉两端，然后拉紧牙线，切开奶酪。”
 
-肉桂面包面团:在切割肉桂卷面团时，牙线比刀子或糕点刀具更有效。因为，根据Lifehacker的senior food editor Claire Lower所说，刀和其他刀片“smoosh”面团，“而不是压在糕点上，肉松从外面向中心切片，从各个方向施加近乎均匀的压力，使你的面包卷均匀，*圆*形状。”按照她在这里概述的 [技巧](https://lifehacker.com/cut-cinnamon-rolls-with-dental-floss-1842267255) 来做完美的包子。
+肉桂面包面团:在切割肉桂卷面团时，牙线比刀子或糕点刀具更有效。因为，根据 Lifehacker 的 senior food editor Claire Lower 所说，刀和其他刀片“smoosh”面团，“而不是压在糕点上，肉松从外面向中心切片，从各个方向施加近乎均匀的压力，使你的面包卷均匀，*圆*形状。”按照她在这里概述的 [技巧](https://lifehacker.com/cut-cinnamon-rolls-with-dental-floss-1842267255) 来做完美的包子。
 
 **:据芝加哥的 [伊士曼蛋品公司](https://eastmanegg.com/how-to-cleanly-slice-hard-boiled-eggs/) 、介绍，肉松技术在切煮鸡蛋上效果很好。“将鸡蛋放在木板上，拉紧牙线，然后慢慢将牙线压在鸡蛋上。结果是一个干净的切片，不需要太多的努力就可以实现。”**

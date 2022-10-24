@@ -1,6 +1,6 @@
 # 保养摊铺机的最佳方式
 
-> 原文:[https://life hacker . com/the-best-ways-to-maintain-your-pavers-1849417153](https://lifehacker.com/the-best-ways-to-maintain-your-pavers-1849417153)
+> 原文：<https://lifehacker.com/the-best-ways-to-maintain-your-pavers-1849417153>
 
 为你的后院露台、车道或人行道安装铺路机是个好主意。铺路材料不仅能提升您的户外生活空间，增强路边的吸引力，而且经久耐用，维护成本低。
 

@@ -1,6 +1,6 @@
 # 做这三件事来延长你的南瓜灯的寿命
 
-> 原文:[https://life hacker . com/do-this-this-three-things-to-extend-your-jack-o-lanterns-l-1849667151](https://lifehacker.com/do-these-three-things-to-prolong-your-jack-o-lanterns-l-1849667151)
+> 原文：<https://lifehacker.com/do-these-three-things-to-prolong-your-jack-o-lanterns-l-1849667151>
 
 雕刻南瓜是典型的万圣节活动——但是任何尝试过的人都知道，一旦南瓜被雕刻，它的寿命就会很快加速。松鼠会追着它们跑，虽然有办法防止它们跑，但是如果你操之过急，你的鬼火会在大日子到来之前烂掉。很明显，用南瓜装饰的关键是准备，所以你需要一个策略。从 [什么时候收获你的南瓜](https://lifehacker.com/how-and-when-to-harvest-pumpkins-1849599364) 到 [如何保存它们](https://lifehacker.com/this-is-how-to-safely-preserve-pumpkins-with-bleach-1849616721) ，这都需要计算。
 

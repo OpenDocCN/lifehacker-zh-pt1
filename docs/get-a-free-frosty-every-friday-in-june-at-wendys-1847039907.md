@@ -1,6 +1,6 @@
 # 六月的每个星期五都可以在温蒂餐厅得到一份免费的冰淇淋
 
-> 原文:[https://life hacker . com/get-a-free-frosty-at-wendys-1847039907](https://lifehacker.com/get-a-free-frosty-every-friday-in-june-at-wendys-1847039907)
+> 原文：<https://lifehacker.com/get-a-free-frosty-every-friday-in-june-at-wendys-1847039907>
 
 虽然肯定不一定要在夏天才能吃到冰冻的乳制品甜点，但气温的上升让它们在一年中的这个时候变得特别令人愉快。即使你不是经常光顾快餐店的人，你也可能有一个最喜欢的便宜又令人愉快的冷冻菜单——或者至少有一点怀旧的味道。
 
@@ -16,4 +16,4 @@ Watch
 
 对于移动订单，至少添加一个项目，然后在应用程序中声称你 r free Frosty。你也可以在餐厅兑换优惠，方法是下载应用内优惠券，在点餐时使用。该优惠适用于免下车、堂食和外卖订单，但不适用于外卖订单。
 
-你可以选择免费的小杯Frosty，或者小杯Frosty-ccino(这是一种巧克力或香草Frosty，混合了冷酿造)。该优惠活动的有效期至2021年6月25日，但您每周只能兑换一次，每位顾客每次访问仅限一份免费Frosty。
+你可以选择免费的小杯 Frosty，或者小杯 Frosty-ccino(这是一种巧克力或香草 Frosty，混合了冷酿造)。该优惠活动的有效期至 2021 年 6 月 25 日，但您每周只能兑换一次，每位顾客每次访问仅限一份免费 Frosty。

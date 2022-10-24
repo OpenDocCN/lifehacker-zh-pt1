@@ -1,6 +1,6 @@
 # 烹饪后，新奇的意大利面会变成你喜欢的形状
 
-> 原文:[https://gizmodo . com/new-lab-made-low-waste-pasta-morphs-into-your-favorite-1846823643](https://gizmodo.com/new-lab-made-low-waste-pasta-morphs-into-your-favorite-1846823643)
+> 原文：<https://gizmodo.com/new-lab-made-low-waste-pasta-morphs-into-your-favorite-1846823643>
 
 面食盒受到其内容的约束；意大利面条的硬茎需要不同的包装，而不是好的意大利面条的宽卷。现在，一组研究人员已经开发出了扁平的意大利面，烹饪后可以变成人们熟悉的形状，目的是减少包装浪费。
 
@@ -18,7 +18,7 @@ Watch
 
 姚的实验室正在探索各种材料(食物和其他)如何改变形状，而实验室里的意大利面只是最新的实验材料。根据国际面食组织 [的数字](https://internationalpasta.org/news/pasta-world-consumption-boom-since-the-lockdown-started-1-consumer-out-of-4-ate-more-25-export-increase-in-6-months/) ，该团队建议，包装只有在烹饪时才会变成更大体积形状的扁平面食将减少运输每年消费的数百万吨面食所需的包装数量。
 
-根据他们对不同面食盒体积的计算，该团队估计这种食品设计可以将面食盒所需的包装数量减少59%至86%。海运和运输成本也可以降低。一点一滴都有帮助，尽管减少来自意大利面盒子的污染比控制大石油 要小得多。
+根据他们对不同面食盒体积的计算，该团队估计这种食品设计可以将面食盒所需的包装数量减少 59%至 86%。海运和运输成本也可以降低。一点一滴都有帮助，尽管减少来自意大利面盒子的污染比控制大石油 要小得多。
 
 尽管如此，这些变形的意大利面还是很值得一看的。它们在热水中扭动，而不是变成普通形态的松软版本，似乎像阳光下的花蕾一样绽放。
 

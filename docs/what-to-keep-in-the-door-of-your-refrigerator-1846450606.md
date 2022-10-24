@@ -1,6 +1,6 @@
 # 冰箱门上应该放些什么
 
-> 原文:[https://life hacker . com/1846450606](https://lifehacker.com/what-to-keep-in-the-door-of-your-refrigerator-1846450606)
+> 原文：<https://lifehacker.com/what-to-keep-in-the-door-of-your-refrigerator-1846450606>
 
 活着很复杂，没有一件事像看起来那么简单。例如，想想洗碗机。你知道吗 [他们自己也得洗](https://lifehacker.com/how-to-properly-clean-your-dishwasher-1844633991) ，即使他们不停地用热水和肥皂水给自己洗澡？看似多余，却是真的。(谁来洗洗碗机？你会的。)同样，冰箱也比最初看起来更加复杂。它们不仅仅是大而均匀的冷箱——哦，不，那太简单了*，热力学将无法忍受。相反，它们在不同的地方温度不同，门是最热的区域。*
 

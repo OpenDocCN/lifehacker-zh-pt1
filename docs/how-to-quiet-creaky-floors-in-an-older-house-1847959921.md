@@ -1,6 +1,6 @@
 # 如何让老房子里吱吱作响的地板安静下来
 
-> 原文:[https://life hacker . com/how-to-quiet-griky-floors-in-a-older-house-1847959921](https://lifehacker.com/how-to-quiet-creaky-floors-in-an-older-house-1847959921)
+> 原文：<https://lifehacker.com/how-to-quiet-creaky-floors-in-an-older-house-1847959921>
 
 出于许多原因，住在老房子里是一种体验。从你再也看不到的建筑细节，到层层的油漆和壁纸，再到定制的内置，到处都隐藏着功能。
 
@@ -14,7 +14,7 @@ Watch
 
 ## 如何阻止木地板发出噪音
 
-那么为什么旧地板会吱吱作响呢？丽莎·卡普兰·戈登在为Realtor.com撰写的文章 [中写道:“当房子安顿下来，木地板变干然后膨胀时，就会发出吱吱声。”。这会导致地板相互摩擦，或与底层地板摩擦，或与钉壳摩擦](https://www.realtor.com/advice/home-improvement/how-to-fix-squeaky-floors/)
+那么为什么旧地板会吱吱作响呢？丽莎·卡普兰·戈登在为 Realtor.com 撰写的文章 [中写道:“当房子安顿下来，木地板变干然后膨胀时，就会发出吱吱声。”。这会导致地板相互摩擦，或与底层地板摩擦，或与钉壳摩擦](https://www.realtor.com/advice/home-improvement/how-to-fix-squeaky-floors/)
 
 幸运的是，她也有一些关于如何停止吱吱声的想法。但首先，你必须找到它的来源——她说这是两个人的工作。
 
@@ -35,6 +35,6 @@ Watch
 
 *   在嘈杂的裂缝中撒上滑石粉，用毛巾或布盖住该区域，小心翼翼地走过它，这样一切都解决了。“这种粉末可以起到润滑剂的作用，阻止摩擦产生噪音，”她解释道。
 *   “将环柄地板钉(覆盖有小环，防止钉子随着时间的推移而退出)或水泥覆盖的地板钉打入摩擦部分之间的接缝，”戈登说。
-*   如果吱吱声是由于地板与底层地板分离引起的，您可以将两个钉子以45度角分别钉进托梁(可以用螺柱探测器定位)，然后在孔上使用木质填料。
+*   如果吱吱声是由于地板与底层地板分离引起的，您可以将两个钉子以 45 度角分别钉进托梁(可以用螺柱探测器定位)，然后在孔上使用木质填料。
 
 如果这些听起来都不可行，戈登在她的文章 中提供了其他几种选择 [。](https://www.realtor.com/advice/home-improvement/how-to-fix-squeaky-floors/)

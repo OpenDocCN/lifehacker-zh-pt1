@@ -1,12 +1,12 @@
 # 如何在圣诞节给你的孩子一个惊喜，而不成为一个混蛋
 
-> 原文:[https://life hacker . com/how-to-surprise-your-kid-on-been-an-1848133414](https://lifehacker.com/how-to-surprise-your-kid-on-christmas-without-being-an-1848133414)
+> 原文：<https://lifehacker.com/how-to-surprise-your-kid-on-christmas-without-being-an-1848133414>
 
-我们最近问Lifehacker的读者“ [你收到过的最糟糕的圣诞礼物是什么](https://lifehacker.com/what-is-the-worst-christmas-gift-youve-ever-received-1848085069) ？”这些评论是...令人沮丧。我的意思是，有些很有趣(一个马桶座圈，一个家庭成员的大头照，一张打开的*自由自在* ) 的DVD，但许多都让人感到刺痛。关于父母表面上试图给他们的孩子“惊喜”的故事比比皆是——通过成为皇室成员，一路上诱导治疗的混蛋。
+我们最近问 Lifehacker 的读者“ [你收到过的最糟糕的圣诞礼物是什么](https://lifehacker.com/what-is-the-worst-christmas-gift-youve-ever-received-1848085069) ？”这些评论是...令人沮丧。我的意思是，有些很有趣(一个马桶座圈，一个家庭成员的大头照，一张打开的*自由自在* ) 的 DVD，但许多都让人感到刺痛。关于父母表面上试图给他们的孩子“惊喜”的故事比比皆是——通过成为皇室成员，一路上诱导治疗的混蛋。
 
 Watch
 
-你想要辆世嘉创世纪？好吧，但是你必须先在全家人面前打开几盒*石头*，被问你是否乖，然后哭——6岁的！觉得自己得到了一台Xbox 360？这是让你兴奋的盒子，但它只是装满了袜子。你是不是8岁，第一次买圣诞礼物，想通过给刚再婚的爸爸和新同父异母的兄弟姐妹送礼物来显得格外贴心？好吧，准备好一周后从他们那里收到一个包裹，里面装着你寄出的所有礼物，为了你的惊喜而重新包装。
+你想要辆世嘉创世纪？好吧，但是你必须先在全家人面前打开几盒*石头*，被问你是否乖，然后哭——6 岁的！觉得自己得到了一台 Xbox 360？这是让你兴奋的盒子，但它只是装满了袜子。你是不是 8 岁，第一次买圣诞礼物，想通过给刚再婚的爸爸和新同父异母的兄弟姐妹送礼物来显得格外贴心？好吧，准备好一周后从他们那里收到一个包裹，里面装着你寄出的所有礼物，为了你的惊喜而重新包装。
 
 家长们，不要这样。把“大礼物”藏在壁橱里，在所有小礼物之后被发现，和残忍地让你的孩子尴尬并欺骗他认为他们得到的只是鹅卵石，这是有区别的。让一个孩子在圣诞节的早晨(或者任何一个早晨，但尤其是在一个对他们年轻的生命有如此重要意义的早晨)流泪并感觉自己像坨屎是不酷的。考虑到这一点，这里有一些甜蜜的方式可以让你的孩子在节日里感到惊喜，而不是受到伤害。
 
@@ -34,6 +34,6 @@ Watch
 
 ## 给他们一件传家宝饰品
 
-虽然这可能不会让9岁的孩子眼花缭乱，但每年送给他们一件个性化的装饰品将会给他们带来一个充满童年回忆的美丽收藏。它可以是他们当年感兴趣的东西(一个足球，或尤达雕像)，一个无价的时刻(一幅镶框的他们白色漂流的照片)，或者是一件简单、 [优雅的银饰](https://www.waterford.com/en-us/christmas/christmas-gifts/personalized-christmas-gifts#aq=@categories%20==%20(%22personalized_christmas_gifts%22)&numberOfResults=20) 刻着他们的名字和年份。我们在这里 整理了 [更多的创意。](https://lifehacker.com/why-you-should-start-this-ornament-tradition-with-your-1848131382)
+虽然这可能不会让 9 岁的孩子眼花缭乱，但每年送给他们一件个性化的装饰品将会给他们带来一个充满童年回忆的美丽收藏。它可以是他们当年感兴趣的东西(一个足球，或尤达雕像)，一个无价的时刻(一幅镶框的他们白色漂流的照片)，或者是一件简单、 [优雅的银饰](https://www.waterford.com/en-us/christmas/christmas-gifts/personalized-christmas-gifts#aq=@categories%20==%20(%22personalized_christmas_gifts%22)&numberOfResults=20) 刻着他们的名字和年份。我们在这里 整理了 [更多的创意。](https://lifehacker.com/why-you-should-start-this-ornament-tradition-with-your-1848131382)
 
 勇往直前，让孩子们心中充满敬畏和惊奇！(不是给他们未来治疗师的故事。)

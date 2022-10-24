@@ -1,6 +1,6 @@
 # 切火鸡的时候，你千万不要做的一件事
 
-> 原文:[https://life hacker . com/the-one-thing-you-shake-your-tur-1848062524](https://lifehacker.com/the-one-thing-you-should-never-do-when-carving-your-tur-1848062524)
+> 原文：<https://lifehacker.com/the-one-thing-you-should-never-do-when-carving-your-tur-1848062524>
 
 我经常做一个奇怪的噩梦，在这个噩梦中，我切了一块牛排，拍了一张切片的照片，并把照片发布在博客上，却发现我把肉和纹理一起切了。然后每个人——无论是在评论中还是在推特上——都嘲笑我违反了这个基本的肉食规则，我再也不会在这个镇上工作了。
 

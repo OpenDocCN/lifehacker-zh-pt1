@@ -1,8 +1,8 @@
-# 改进(或替换)Windows 11开始菜单的8种简单方法
+# 改进(或替换)Windows 11 开始菜单的 8 种简单方法
 
-> 原文:[https://life hacker . com/8-easy-ways-to-improve-or-replace-windows-11s-start-m-1848684451](https://lifehacker.com/8-easy-ways-to-improve-or-replace-windows-11s-start-m-1848684451)
+> 原文：<https://lifehacker.com/8-easy-ways-to-improve-or-replace-windows-11s-start-m-1848684451>
 
-自Windows 8以来的每一次重大更新都伴随着开始菜单的重大重新设计，Win Windows 11也不例外。然而，这一次微软走得相当激进:任务栏居中，开始菜单没有动态磁贴，这里只有两个部分——内置应用和推荐。
+自 Windows 8 以来的每一次重大更新都伴随着开始菜单的重大重新设计，Win Windows 11 也不例外。然而，这一次微软走得相当激进:任务栏居中，开始菜单没有动态磁贴，这里只有两个部分——内置应用和推荐。
 
 如果你发现自己对它的新外观和感觉不满意，你可以做些改变来改善它或者完全去掉它。
 
@@ -26,14 +26,14 @@
 
 有一个秘密的开始菜单，可以说比默认的开始菜单有用得多。右键单击开始按钮，，你会得到一个选项列表。从这里，您可以快速打开设置、任务管理器、终端、桌面等等。
 
-甚至在做出这些改变之后，你可能会觉得这还不够。如果你就是不能让Windows 11开始菜单为你工作，是时候回去了。安装 [Start11](https://www.stardock.com/products/start11/) app(免费使用30天，之后收费5.99美元)。这个应用程序会让你回到熟悉的 Windows 10- 风格的开始菜单。你会得到一个相似的双窗格界面，可定制的菜单，底部的搜索栏，等等。
+甚至在做出这些改变之后，你可能会觉得这还不够。如果你就是不能让 Windows 11 开始菜单为你工作，是时候回去了。安装 [Start11](https://www.stardock.com/products/start11/) app(免费使用 30 天，之后收费 5.99 美元)。这个应用程序会让你回到熟悉的 Windows 10- 风格的开始菜单。你会得到一个相似的双窗格界面，可定制的菜单，底部的搜索栏，等等。
 
-另外，您可以根据自己的需要进行定制。你甚至可以回到Windows 8风格，全屏开始菜单，如果你想要。
+另外，您可以根据自己的需要进行定制。你甚至可以回到 Windows 8 风格，全屏开始菜单，如果你想要。
 
-[【startall back】](https://www.startallback.com/)是另一个全功能的开始菜单替换，重点是更多的调整。如果你愿意，你可以有一个Windows 7主题，但这个应用程序的优势在于你可以对Windows 11开始菜单进行大量的改变。
+[【startall back】](https://www.startallback.com/)是另一个全功能的开始菜单替换，重点是更多的调整。如果你愿意，你可以有一个 Windows 7 主题，但这个应用程序的优势在于你可以对 Windows 11 开始菜单进行大量的改变。
 
-你可以改变任务栏图标，带回应用标签，居中你的应用图标， 保持开始菜单停靠在左边。Windows 7和Windows 10都有主题- 风格的开始菜单。
+你可以改变任务栏图标，带回应用标签，居中你的应用图标， 保持开始菜单停靠在左边。Windows 7 和 Windows 10 都有主题- 风格的开始菜单。
 
-这里有一个激进的想法:完全停止使用开始菜单。问问自己，到底有多大用处？没有办法真正禁用开始菜单，但你可以忽略它，用更好的东西来代替。为此，我们推荐[PowerToys键盘发射器](https://docs.microsoft.com/en-us/windows/powertoys/install) 。它类似于Mac上的Spotlight，让你从键盘启动应用程序、操作和任务。
+这里有一个激进的想法:完全停止使用开始菜单。问问自己，到底有多大用处？没有办法真正禁用开始菜单，但你可以忽略它，用更好的东西来代替。为此，我们推荐[PowerToys 键盘发射器](https://docs.microsoft.com/en-us/windows/powertoys/install) 。它类似于 Mac 上的 Spotlight，让你从键盘启动应用程序、操作和任务。
 
-按 **Alt** + **空格键**调出，键入打开一个app，一个网站，或者做一些数学。 [下面是了解](https://lifehacker.com/the-best-microsoft-powertoys-shortcuts-you-ll-want-to-u-1848634350) 的最佳捷径。
+按 **Alt** + **空格键**调出，键入打开一个 app，一个网站，或者做一些数学。 [下面是了解](https://lifehacker.com/the-best-microsoft-powertoys-shortcuts-you-ll-want-to-u-1848634350) 的最佳捷径。

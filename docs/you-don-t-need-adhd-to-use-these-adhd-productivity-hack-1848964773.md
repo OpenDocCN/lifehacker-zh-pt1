@@ -1,8 +1,8 @@
 # 你不需要多动症就可以使用这些多动症生产力技巧
 
-> 原文:[https://life hacker . com/you-don-t-need-ADHD-to-use-these-ADHD-productivity-hack-1848964773](https://lifehacker.com/you-don-t-need-adhd-to-use-these-adhd-productivity-hack-1848964773)
+> 原文：<https://lifehacker.com/you-don-t-need-adhd-to-use-these-adhd-productivity-hack-1848964773>
 
-花一点时间在社交媒体上，你肯定会看到一个试图诊断你患有注意力缺陷/多动症(ADHD)的帖子。正如我们之前讨论过的 一样，将每一个小行为病态化的趋势是危险的，不言而喻，多动症是*而不是*仅仅是心不在焉，忘记给人回电话，或者有一辆永远脏乱的车。尽管如此，我知道我是许多Instagram和抖音用户中的一员，他们不顾一切地让我相信我患有未确诊的成人多动症。
+花一点时间在社交媒体上，你肯定会看到一个试图诊断你患有注意力缺陷/多动症(ADHD)的帖子。正如我们之前讨论过的 一样，将每一个小行为病态化的趋势是危险的，不言而喻，多动症是*而不是*仅仅是心不在焉，忘记给人回电话，或者有一辆永远脏乱的车。尽管如此，我知道我是许多 Instagram 和抖音用户中的一员，他们不顾一切地让我相信我患有未确诊的成人多动症。
 
 Watch
 
@@ -12,13 +12,13 @@ Watch
 
 [根据帮助指南](https://www.helpguide.org/articles/add-adhd/managing-adult-adhd-attention-deficit-disorder.htm) 的说法，患有多动症的成年人经常与冲动控制作斗争，发现自己在任务之间跳跃，或者意外地专注于错误的任务。这里有一些方法来管理甚至克服你坚持工作的困难。
 
-决定先处理什么。为了专注于你需要完成的事情，第一步是给不同的任务分配优先级。问问自己，然后写下哪些待办事项是最重要或最紧迫的。为了帮助ypu实现这一点，考虑一下 [使用“决策矩阵”来帮助你区分不同任务的优先级](https://lifehacker.com/you-should-use-a-decision-matrix-to-prioritize-your-to-1848021445) 。
+决定先处理什么。为了专注于你需要完成的事情，第一步是给不同的任务分配优先级。问问自己，然后写下哪些待办事项是最重要或最紧迫的。为了帮助 ypu 实现这一点，考虑一下 [使用“决策矩阵”来帮助你区分不同任务的优先级](https://lifehacker.com/you-should-use-a-decision-matrix-to-prioritize-your-to-1848021445) 。
 
 分解更大的任务。[美国家庭医师学会](https://www.aafp.org/dam/AAFP/documents/patient_care/adhd_toolkit/adhd19-patient-handout.pdf) 解释了组织不仅仅是关于你的物理空间；它是关于将大项目组织成更小的、可管理的任务。不要把一个项目看成是一项令人生畏的任务，而是把它看成是一系列的步骤。不要害怕根据你的需要把任务做得越小越好。例如，“发送电子邮件”可以分解为“登录你的帐户，打开草稿，写一个主题行……”直到你完成任务。
 
 使用列表。这可能意味着在每日计划中写下事情，组织你选择的 [笔记应用](https://lifehacker.com/which-note-taking-app-should-i-use-for-apple-devices-1844166294) ，或者对便利贴进行颜色编码——只要你找到适合你的系统。这个建议的一部分是关于解决健忘的；可能不太明显的是，写下事情将如何帮助你完成抽象的任务，并使它们看起来更具体和可行。
 
-循序渐进地工作。迈出开始一项任务的第一步可能是战斗中最艰难的部分。这里有一个很棒的 [免费应用](https://lifehacker.com/use-this-free-pomodoro-app-to-stay-focused-on-your-work-1844163822) 来帮你实现著名的番茄时间管理技巧。你也可以尝试 [这种(10+2)*5方法](https://lifehacker.com/the-10-2-5-method-will-help-you-get-more-done-in-a-da-1848347801) 将休息作为一种激励手段。
+循序渐进地工作。迈出开始一项任务的第一步可能是战斗中最艰难的部分。这里有一个很棒的 [免费应用](https://lifehacker.com/use-this-free-pomodoro-app-to-stay-focused-on-your-work-1844163822) 来帮你实现著名的番茄时间管理技巧。你也可以尝试 [这种(10+2)*5 方法](https://lifehacker.com/the-10-2-5-method-will-help-you-get-more-done-in-a-da-1848347801) 将休息作为一种激励手段。
 
 加入锻炼休息时间。任何患有多动症的人可能都被告知锻炼有助于提高注意力和注意力。休息一下活动一下身体也可以帮助你减少多余的能量，这可能是你努力专注于眼前任务的原因之一。
 
@@ -30,4 +30,4 @@ Watch
 
 如果你认为自己正在与未确诊的多动症 作斗争，尽早寻求评估是很重要的。专业人士将帮助您确定是否可以从更严重的治疗中获益。
 
-在那之前，你不需要等待多动症的诊断来尝试不同的管理策略，并找出如何与你过度活跃的大脑合作，而不是与T2对抗。
+在那之前，你不需要等待多动症的诊断来尝试不同的管理策略，并找出如何与你过度活跃的大脑合作，而不是与 T2 对抗。

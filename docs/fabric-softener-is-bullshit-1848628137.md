@@ -1,6 +1,6 @@
 # 衣物柔顺剂是扯淡
 
-> 原文:[https://life hacker . com/fabric-柔顺剂-is-bullsh-1848628137](https://lifehacker.com/fabric-softener-is-bullshit-1848628137)
+> 原文：<https://lifehacker.com/fabric-softener-is-bullshit-1848628137>
 
 我们已经解释了为什么你应该 [停止使用干燥床单](https://lifehacker.com/dryer-sheets-suck-use-these-alternatives-instead-1847777116)——现在是时候战胜你洗衣程序中下一个不必要的步骤:衣物柔顺剂。我知道，你喜欢它给你的衣服带来的感觉！(还有气味。)如果你是一个长期用户，你会认为没有衣物柔顺剂，当你从烘干机中取出衣服时，你所有的衣服都会感觉僵硬和粗糙。但那不是真的。请允许我们分享一下反对这种常用洗衣原料的案例——以及一些替代品。
 
@@ -16,7 +16,7 @@ Watch
 
 ## 衣物柔顺剂的替代品有哪些？
 
-**创造你自己的**:想要有效的DIY衣物柔顺剂，只需看看你的储藏室。在漂洗过程中，将四分之一杯**小苏打**或半杯**蒸馏白醋**直接加入洗衣机的滚筒中，不仅能使衣物变得柔软，还能使衣物变得更亮。(据 [云杉](https://www.thespruce.com/top-uses-for-vinegar-in-laundry-2147286#:~:text=Brighten%20and%20Whiten%20Clothes&text=The%20acetic%20acid%20in%20distilled,result%20in%20brighter%2C%20clearer%20colors.) ，“蒸馏过的白醋中的醋酸很温和，不会伤害可洗的织物；但它的强度足以溶解肥皂和洗涤剂成分中的残余物(碱)，从而产生“更明亮、更清晰的颜色”同样，小苏打可以让白色更白，颜色更亮。)
+**创造你自己的**:想要有效的 DIY 衣物柔顺剂，只需看看你的储藏室。在漂洗过程中，将四分之一杯**小苏打**或半杯**蒸馏白醋**直接加入洗衣机的滚筒中，不仅能使衣物变得柔软，还能使衣物变得更亮。(据 [云杉](https://www.thespruce.com/top-uses-for-vinegar-in-laundry-2147286#:~:text=Brighten%20and%20Whiten%20Clothes&text=The%20acetic%20acid%20in%20distilled,result%20in%20brighter%2C%20clearer%20colors.) ，“蒸馏过的白醋中的醋酸很温和，不会伤害可洗的织物；但它的强度足以溶解肥皂和洗涤剂成分中的残余物(碱)，从而产生“更明亮、更清晰的颜色”同样，小苏打可以让白色更白，颜色更亮。)
 
 **铝箔球:**虽然锡纸不会软化你的衣服，但它会执行衣物柔顺剂的第二个功能——减少静电附着。当衣物在烘干机中相互碰撞时，它们交换电子，留下一些带正电荷，另一些带负电荷。(烘干机一停，带相反电荷的就粘在一起。)根据的说法，锡箔球“既能释放衣物可能积累的任何静电，又有助于保持衣物分离，从而加快干燥过程。”
 

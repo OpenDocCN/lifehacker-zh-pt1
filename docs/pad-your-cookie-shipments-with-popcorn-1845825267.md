@@ -1,6 +1,6 @@
 # 用爆米花装满你的饼干
 
-> 原文:[https://life hacker . com/pad-your-cookie-shipments-with-popcorn-1845825267](https://lifehacker.com/pad-your-cookie-shipments-with-popcorn-1845825267)
+> 原文：<https://lifehacker.com/pad-your-cookie-shipments-with-popcorn-1845825267>
 
 圣诞饼干总是很重要，但今年爱的遥远表示和节日的欢乐也至关重要——运送给朋友和家人的饼干必须完好无损地到达最终目的地。
 

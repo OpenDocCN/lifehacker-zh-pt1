@@ -1,6 +1,6 @@
 # 你可以制作自己的加重毛毯
 
-> 原文:[https://life hacker . com/you-can-make-you-your-own-weighted-blanket-1849680312](https://lifehacker.com/you-can-make-your-own-weighted-blanket-1849680312)
+> 原文：<https://lifehacker.com/you-can-make-your-own-weighted-blanket-1849680312>
 
 如果你睡眠有问题，一条加重的毯子可以起到安抚作用，而且有些人发现当他们使用一条毯子时，他们睡得更好。对于这样一种特殊的产品来说，找到一条尺寸、重量、和设计都适合你的毯子可能是一个挑战——而且它们可能相当昂贵。但是你可以缝制你自己的加重毛毯，它和商店里买的各种一样放松和有效。
 
@@ -16,11 +16,11 @@ Watch
 *   T1】PinsT4】
 *   [S 屎线](https://www.joann.com/gutermann-extra-strong-thread-110yd/16284176.html?gclid=CjwKCAjwwL6aBhBlEiwADycBINOJi2FZjuP3AzsLxeNWZHpSpfTrwwc6_HY59zHcfJfshuCk7cXAQRoCmJUQAvD_BwE)
 *   [P 弹性填充珠](https://www.joann.com/plastic-stuffng-bead/1758416.html?gclid=CjwKCAjwwL6aBhBlEiwADycBIIdgZZmTQKZe63PUVtpzjIrotmXyTtZJXhY5bveIxCiTc19Ihnq1qRoCD1AQAvD_BwE)
-*   T wo多层 [重型面料](https://www.joann.com/flannel-back-satin/7918550.html?utm_source=google&utm_medium=cpc&gclid=CjwKCAjwwL6aBhBlEiwADycBICugc1azf1NJzd3A1Ekf7J8RV71liplX3G1jtAPDYLu-ybt4aBUJpRoChMMQAvD_BwE) ( 大号足以遮住你的身体)。
+*   T wo 多层 [重型面料](https://www.joann.com/flannel-back-satin/7918550.html?utm_source=google&utm_medium=cpc&gclid=CjwKCAjwwL6aBhBlEiwADycBICugc1azf1NJzd3A1Ekf7J8RV71liplX3G1jtAPDYLu-ybt4aBUJpRoChMMQAvD_BwE) ( 大号足以遮住你的身体)。
 
-一边走一边用熨斗熨衣服也是有帮助的，但不是100%必要的。
+一边走一边用熨斗熨衣服也是有帮助的，但不是 100%必要的。
 
-为了确定你需要多少布料，你可以测量你的身高，然后做一条你的身高乘以你的身高，减去大约8英寸的毯子。大多数布料将按码出售，两码可能就够了。选择一种既有重量又柔软的布料。 [摇粒绒](https://www.fabricwholesaledirect.com/products/polar-fleece-fabric?variant=39460367302771&gclid=CjwKCAjwwL6aBhBlEiwADycBIJd2VNbAxcmjmaJXquhXi_nqrkAFV6XS0JucyPKH4c2HdjNUFyaFnRoCgXkQAvD_BwE) ， [较重的法兰绒](https://www.hancocks-paducah.com/SHOP-BY-BRAND/Robert-Kaufman-Fabrics) ，各种类型的 [毛毯专用面料](https://fabricwarehouse.com/tonal-light-pink-minky-faux-fur-fabric-costumes-blankets-pillows-60-wide-by-the-yard?sku=JULIET-253-02) 都会很好用。请记住，你可能会在某个时候想要清洗你的毯子，所以请确保你选择的材料易于清洗。你应该选择与你的面料相配的线，或者如果你想看到缝线，选择一种有对比的线。对于初学者来说，如果你使用一种可以融合的线颜色，就更容易隐藏错误。
+为了确定你需要多少布料，你可以测量你的身高，然后做一条你的身高乘以你的身高，减去大约 8 英寸的毯子。大多数布料将按码出售，两码可能就够了。选择一种既有重量又柔软的布料。 [摇粒绒](https://www.fabricwholesaledirect.com/products/polar-fleece-fabric?variant=39460367302771&gclid=CjwKCAjwwL6aBhBlEiwADycBIJd2VNbAxcmjmaJXquhXi_nqrkAFV6XS0JucyPKH4c2HdjNUFyaFnRoCgXkQAvD_BwE) ， [较重的法兰绒](https://www.hancocks-paducah.com/SHOP-BY-BRAND/Robert-Kaufman-Fabrics) ，各种类型的 [毛毯专用面料](https://fabricwarehouse.com/tonal-light-pink-minky-faux-fur-fabric-costumes-blankets-pillows-60-wide-by-the-yard?sku=JULIET-253-02) 都会很好用。请记住，你可能会在某个时候想要清洗你的毯子，所以请确保你选择的材料易于清洗。你应该选择与你的面料相配的线，或者如果你想看到缝线，选择一种有对比的线。对于初学者来说，如果你使用一种可以融合的线颜色，就更容易隐藏错误。
 
 ## 如何缝合加重毛毯的面料
 

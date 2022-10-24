@@ -1,6 +1,6 @@
 # 你的肉酱需要浓郁的果酱
 
-> 原文:[https://life hacker . com/your-meat-spreads-need-a-tangy-jam-1849452540](https://lifehacker.com/your-meat-spreads-need-a-tangy-jam-1849452540)
+> 原文：<https://lifehacker.com/your-meat-spreads-need-a-tangy-jam-1849452540>
 
 可涂抹的肉是一种奇怪的概念，但这种奇怪是值得和平共处的。一旦你做到了这一点，并开始享受馅饼和肝慕斯的奢华生活，你就可以变得真正怪异，并在这种情况下引入浓郁的水果果酱。
 

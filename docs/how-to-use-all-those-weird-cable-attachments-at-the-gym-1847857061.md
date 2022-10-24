@@ -1,8 +1,8 @@
 # 如何在健身房使用这些奇怪的电缆附件
 
-> 原文:[https://life hacker . com/how-to-use-all-that-sovereign-cable-attachments-at-the-gym-1847857061](https://lifehacker.com/how-to-use-all-those-weird-cable-attachments-at-the-gym-1847857061)
+> 原文：<https://lifehacker.com/how-to-use-all-those-weird-cable-attachments-at-the-gym-1847857061>
 
-任何健身房都有很多奇怪的设备，从 [多种类型的杠铃](https://lifehacker.com/all-the-different-bars-at-the-gym-explained-1839810094) 到像ab轮和二头肌冲击波这样的单一任务项目。但是，，“搞什么鬼？”吊桶或机架是否靠近电缆机。有各种各样的把手和附件。它们是干什么用的？
+任何健身房都有很多奇怪的设备，从 [多种类型的杠铃](https://lifehacker.com/all-the-different-bars-at-the-gym-explained-1839810094) 到像 ab 轮和二头肌冲击波这样的单一任务项目。但是，，“搞什么鬼？”吊桶或机架是否靠近电缆机。有各种各样的把手和附件。它们是干什么用的？
 
 Watch
 
@@ -14,9 +14,9 @@ Watch
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-8CbJK7mmisE&start=66](https://lifehacker.com/embed/inset/iframe?id=youtube-video-8CbJK7mmisE&start=66) 
 
-## **小v形条**
+## **小 v 形条**
 
-**它叫什么** : V型下推手柄，三头肌下推手柄
+**它叫什么** : V 型下推手柄，三头肌下推手柄
 
 **常用于**:三头肌下推，与绳柄思路相同。
 
@@ -46,7 +46,7 @@ Watch
 
 **它叫什么** : L 在下拉酒吧
 
-**常用于** : Lat下拉，将膝盖固定在垫子下，将杠铃拉至胸部。通常你握杆的角端，但也有中性握杆，杆的两端都有把手，让你可以将手掌转向对方。 [下面演示一下](https://www.youtube.com/watch?v=lueEJGjTuPQ) :
+**常用于** : Lat 下拉，将膝盖固定在垫子下，将杠铃拉至胸部。通常你握杆的角端，但也有中性握杆，杆的两端都有把手，让你可以将手掌转向对方。 [下面演示一下](https://www.youtube.com/watch?v=lueEJGjTuPQ) :
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-lueEJGjTuPQ&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-lueEJGjTuPQ&start=0) 
 
@@ -58,7 +58,7 @@ Watch
 
 ## 袖口
 
-**它叫什么**:一个 nkle袖口，脚踝带
+**它叫什么**:一个 nkle 袖口，脚踝带
 
 **常用于**:将拉线固定在脚踝上，克服阻力进行挥杆或蹬腿动作。 [下面是演示](https://www.youtube.com/watch?v=-IYnoZIrDo0) :
 
@@ -74,6 +74,6 @@ Watch
 
 ## 摇摆的酒吧
 
-**它叫什么** : EZ卷曲杆
+**它叫什么** : EZ 卷曲杆
 
 **通常用于**:二头肌弯曲，将杠铃系在腰部以下的绳索上。摆动允许比直杆更舒适的手腕位置。

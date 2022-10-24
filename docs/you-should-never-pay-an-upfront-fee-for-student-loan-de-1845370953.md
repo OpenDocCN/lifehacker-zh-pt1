@@ -1,8 +1,8 @@
 # 你永远不应该支付学生贷款债务减免的前期费用
 
-> 原文:[https://life hacker . com/you-should-never-pay-a-front-fee for student-loan-de-1845370953](https://lifehacker.com/you-should-never-pay-an-upfront-fee-for-student-loan-de-1845370953)
+> 原文：<https://lifehacker.com/you-should-never-pay-an-upfront-fee-for-student-loan-de-1845370953>
 
-美国人欠下1.67万亿美元的学生贷款，贪婪的私人公司或T2骗子猖獗，用免除债务或减少还款来引诱借款人。如果你被要求在看到学生债务减免之前直接支付预付费用，请保持清醒。这是个骗局。
+美国人欠下 1.67 万亿美元的学生贷款，贪婪的私人公司或 T2 骗子猖獗，用免除债务或减少还款来引诱借款人。如果你被要求在看到学生债务减免之前直接支付预付费用，请保持清醒。这是个骗局。
 
 Watch
 
@@ -20,6 +20,6 @@ Watch
 
 学生贷款公司不能承诺立即免除或取消学生贷款。有合法的贷款豁免政府计划，如 [公共服务贷款豁免](https://www.nerdwallet.com/blog/loans/student-loans/public-service-loan-forgiveness) ，但它们要求多年的合格付款或合格就业才能获得贷款豁免。留意任何声称与教育部有特殊关系的公司(他们没有)。
 
-### **切勿分享您的FSA ID密码或其他个人信息**
+### **切勿分享您的 FSA ID 密码或其他个人信息**
 
-不要与任何人分享你的FSA ID，因为它与书面签名具有相同的法律地位。你也不应该给出你的社会安全号码，这是不必要的。这些数据使企业能够登录您的帐户，并代表您做出决策。如果你认为你发现了一个骗局，向[CFPB](https://www.consumerfinance.gov/complaint)和你的 [州检察长办公室](http://www.naag.org/naag/attorneys-general/whos-my-ag.php) 举报。
+不要与任何人分享你的 FSA ID，因为它与书面签名具有相同的法律地位。你也不应该给出你的社会安全号码，这是不必要的。这些数据使企业能够登录您的帐户，并代表您做出决策。如果你认为你发现了一个骗局，向[CFPB](https://www.consumerfinance.gov/complaint)和你的 [州检察长办公室](http://www.naag.org/naag/attorneys-general/whos-my-ag.php) 举报。

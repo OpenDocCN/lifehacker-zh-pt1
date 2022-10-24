@@ -1,6 +1,6 @@
 # 把看兽医当成一次机械之旅
 
-> 原文:[https://life hacker . com/treat-a-vet-visit-like-a-trip-to-the-mechanical-1847607049](https://lifehacker.com/treat-a-vet-visit-like-a-trip-to-the-mechanic-1847607049)
+> 原文：<https://lifehacker.com/treat-a-vet-visit-like-a-trip-to-the-mechanic-1847607049>
 
 兽医和汽车修理工有很多共同点。他们都为那些经常不知道发生了什么，也不乐意收到大额账单的人解决了紧急问题。
 

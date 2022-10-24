@@ -1,12 +1,12 @@
 # 这些视频游戏广告中到底发生了什么，救命
 
-> 原文:[https://kotaku . com/what-even-occuring-in-these-video-game-ads-help-1847477175](https://kotaku.com/what-is-even-happening-in-these-video-game-ads-help-1847477175)
+> 原文：<https://kotaku.com/what-is-even-happening-in-these-video-game-ads-help-1847477175>
 
 我们都有过，等着在一个手游里免费收点东西，换取看另一个手游的广告。这通常是一个伸展身体或喝一杯饮料的机会，但有些广告实在是太疯狂了，以至于每当它们在轮换中出现时，你都会忍不住去看它们。
 
 Watch
 
-去年，一款名为*百合花园* [的手机游戏凭借与游戏本身无关的无意义、基于故事的广告吸引了全世界](https://nymag.com/intelligencer/2019/09/what-is-the-story-behind-the-lilys-garden-ads.html) 。虽然对*百合花园*的关注已经平息，但一款新游戏已经准备好取而代之:*来自芬兰工作室Metacore Games的Merge Mansion* 。
+去年，一款名为*百合花园* [的手机游戏凭借与游戏本身无关的无意义、基于故事的广告吸引了全世界](https://nymag.com/intelligencer/2019/09/what-is-the-story-behind-the-lilys-garden-ads.html) 。虽然对*百合花园*的关注已经平息，但一款新游戏已经准备好取而代之:*来自芬兰工作室 Metacore Games 的 Merge Mansion* 。
 
 *合并宅邸*，和之前的*百合花园*一样，是一款简单的手游，这次是关于打扫一个巨宅的。它还有一些你会在手机上看到的最奇怪的广告，都是关于一个女人和她的奶奶。大卫·哈蒙昨天在推特上提供了最完整的图片。
 
@@ -58,9 +58,9 @@ Watch
 
 <figcaption class="sc-1ptbguh-0 hxeMec caption">Metacore Games ([YouTube](https://www.youtube.com/channel/UCXlMipSh3dkuRD3H7J1DArA))</figcaption> 
 
-下面是Google Play商店上官方*合并大厦*列表对游戏的描述:
+下面是 Google Play 商店上官方*合并大厦*列表对游戏的描述:
 
-> 曼迪的祖母有话要说。这座大厦充满了闻所未闻的故事！帮助Maddie发现她的奶奶不得不透露关于家庭的冒险过去。
+> 曼迪的祖母有话要说。这座大厦充满了闻所未闻的故事！帮助 Maddie 发现她的奶奶不得不透露关于家庭的冒险过去。
 > 
 > 擦掉灰尘并找到新的物品，将它们合并成有用的工具并获得令人惊讶的宝藏。你永远不知道在大厦的下一个角落后面等待着你的是什么。
 > 

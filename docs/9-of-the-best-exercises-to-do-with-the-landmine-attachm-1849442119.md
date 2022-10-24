@@ -1,10 +1,10 @@
-# 与地雷附件相关的9个最佳练习
+# 与地雷附件相关的 9 个最佳练习
 
-> 原文:[https://life hacker . com/9-of-the-best-exercise-to-do-with-the-mine-attach m-1849442119](https://lifehacker.com/9-of-the-best-exercises-to-do-with-the-landmine-attachm-1849442119)
+> 原文：<https://lifehacker.com/9-of-the-best-exercises-to-do-with-the-landmine-attachm-1849442119>
 
 “地雷”或有角度的杠铃附件是许多健身房隐藏的瑰宝。找一根铰链上的短管，靠近地板的某个地方(通常在蹲式货架的底部)。将杠铃插入管子，现在你可以抬起杠铃的自由端，而另一端在附件中转动。
 
-如果你没有专门的地雷附件，你仍然可以将杆楔入一个角落——蹲架的内侧角落，保护良好的墙壁的角落，甚至某些类型的长凳的角落。(一个著名的DIY技巧是切开一个网球，用它来缓冲杠铃的末端。)这里有一些你可以用这个设置做的练习。
+如果你没有专门的地雷附件，你仍然可以将杆楔入一个角落——蹲架的内侧角落，保护良好的墙壁的角落，甚至某些类型的长凳的角落。(一个著名的 DIY 技巧是切开一个网球，用它来缓冲杠铃的末端。)这里有一些你可以用这个设置做的练习。
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-39lH32_Ukos&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-39lH32_Ukos&start=0)
 
@@ -18,13 +18,13 @@
 
 <figcaption class="sc-1ptbguh-0 hxeMec caption">How to Perform Meadows Rows | Tiger Fitness</figcaption> 
 
-草地划船(以John Meadows的名字命名，他在上面的视频中演示了它们)是一种拉伸运动，与杠铃和哑铃划船属于同一家族。地雷设置很方便，同样，许多人发现它比非地雷表兄弟放在肩膀上更舒服。握住杠铃的肥端也给你一些额外的前臂和握力训练，但如果你的手容易疲劳，你仍然可以使用背带。
+草地划船(以 John Meadows 的名字命名，他在上面的视频中演示了它们)是一种拉伸运动，与杠铃和哑铃划船属于同一家族。地雷设置很方便，同样，许多人发现它比非地雷表兄弟放在肩膀上更舒服。握住杠铃的肥端也给你一些额外的前臂和握力训练，但如果你的手容易疲劳，你仍然可以使用背带。
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-9hSQVBHLOX0&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-9hSQVBHLOX0&start=0)
 
 <figcaption class="sc-1ptbguh-0 hxeMec caption">How to do a Landmine Row</figcaption> 
 
-传统的方法是用T型杆机器来划T型杆，这种机器有垂直于杆的把手，就像字母T(因此得名)。但是如果你没有T型杆机器，你可以用地雷做同样的事情。使用 [电缆连接吊桶](https://lifehacker.com/how-to-use-all-those-weird-cable-attachments-at-the-gym-1847857061) 中的一个V形把手给自己一个方便的抓手。
+传统的方法是用 T 型杆机器来划 T 型杆，这种机器有垂直于杆的把手，就像字母 T(因此得名)。但是如果你没有 T 型杆机器，你可以用地雷做同样的事情。使用 [电缆连接吊桶](https://lifehacker.com/how-to-use-all-those-weird-cable-attachments-at-the-gym-1847857061) 中的一个 V 形把手给自己一个方便的抓手。
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-MswsBPLGhE8&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-MswsBPLGhE8&start=0)
 
@@ -42,7 +42,7 @@
 
 <figcaption class="sc-1ptbguh-0 hxeMec caption">A Great Variation Of Single Leg RDLs - Hip/Glute/Hamstring - TechniqueWOD - Ep 127</figcaption> 
 
-罗马尼亚硬拉，或RDL，是一个很好的杠铃练习。单腿版本(通常用一个或两个哑铃完成)需要更多的稳定肌肉，但很难平衡。地雷让你负重前行，而不用担心摔倒。
+罗马尼亚硬拉，或 RDL，是一个很好的杠铃练习。单腿版本(通常用一个或两个哑铃完成)需要更多的稳定肌肉，但很难平衡。地雷让你负重前行，而不用担心摔倒。
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-JrtJYtUqGHE&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-JrtJYtUqGHE&start=0)
 

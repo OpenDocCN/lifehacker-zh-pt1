@@ -1,6 +1,6 @@
 # 如何在餐馆点好酒而不显得像个白痴
 
-> 原文:[https://life hacker . com/how-to-order-good-wine-at-a-restaurant-1848371875](https://lifehacker.com/how-to-order-good-wine-at-a-restaurant-without-sounding-1848371875)
+> 原文：<https://lifehacker.com/how-to-order-good-wine-at-a-restaurant-without-sounding-1848371875>
 
 我们都有过这样的经历:你和一些朋友去一家不错的餐馆，坐在椅子上期待着...然后酒单掉在你面前，突然你活在梦里，你一丝不挂地去参加代数考试，每个人都嘲笑你。
 
@@ -18,7 +18,7 @@ Watch
 
 对我们来说，“好”酒是你喜欢的任何酒，所以去掉你的自负或任何自命不凡的倾向。 你得到你喜欢的葡萄酒的唯一方法是问一些问题，如果你担心看起来聪明或世故，这只会让变得一团糟。
 
-所以承认吧:你对葡萄酒的唯一了解就是你喜欢什么。如果你喜欢的东西在杂货店卖6美元，这并不可耻。
+所以承认吧:你对葡萄酒的唯一了解就是你喜欢什么。如果你喜欢的东西在杂货店卖 6 美元，这并不可耻。
 
 ## 关注酒体和单宁，而不是味道
 

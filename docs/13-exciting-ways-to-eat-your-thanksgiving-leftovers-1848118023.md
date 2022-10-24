@@ -1,12 +1,12 @@
-# 吃感恩节剩菜的13种令人兴奋的方法
+# 吃感恩节剩菜的 13 种令人兴奋的方法
 
-> 原文:[https://life hacker . com/13-exciting-ways-to-eating-your-thanksgiving-remains-1848118023](https://lifehacker.com/13-exciting-ways-to-eat-your-thanksgiving-leftovers-1848118023)
+> 原文：<https://lifehacker.com/13-exciting-ways-to-eat-your-thanksgiving-leftovers-1848118023>
 
-感恩节剩菜比真正的感恩节大餐更有趣。剩菜是你可以获得创造力、灵感和精神错乱的地方。三明治、汤、炒饭和馅饼都很好吃，但它们几乎和火鸡及调料一样传统。如果你正在寻找新的和不寻常的方法来改变土豆泥的用途，我们有13种方法，包括鸡尾酒，脆饼，秋葵和汤团。
+感恩节剩菜比真正的感恩节大餐更有趣。剩菜是你可以获得创造力、灵感和精神错乱的地方。三明治、汤、炒饭和馅饼都很好吃，但它们几乎和火鸡及调料一样传统。如果你正在寻找新的和不寻常的方法来改变土豆泥的用途，我们有 13 种方法，包括鸡尾酒，脆饼，秋葵和汤团。
 
 正如我之前 [提到的](https://lifehacker.com/turn-leftover-stuffing-into-crispy-cheesy-waffles-1839968945) ，“夹心华夫饼只需要一些剩余的填料和一个华夫饼机，但是*我的*夹心华夫饼也需要培根(你可以用小块)和奶酪。(切达干酪在华夫饼的边缘变脆，这非常令人愉快。)在上面浇上一层美味的鲜奶油，这种鲜奶油已经注入了你身边的任何香草，你几乎认不出昨天的湿面包了。”
 
-如果你更喜欢早餐吃土豆，你应该 [把你的土豆泥](https://lifehacker.com/make-these-parm-crusted-waffles-with-leftover-mashed-po-1840055015) 做成华夫饼，你应该用帕尔马干酪做成华夫饼。parm在松软的土豆周围形成一层外壳，帮助华夫饼保持形状。味道也特别好。搭配蔓越莓酱一起食用，形成些许酸甜对比。
+如果你更喜欢早餐吃土豆，你应该 [把你的土豆泥](https://lifehacker.com/make-these-parm-crusted-waffles-with-leftover-mashed-po-1840055015) 做成华夫饼，你应该用帕尔马干酪做成华夫饼。parm 在松软的土豆周围形成一层外壳，帮助华夫饼保持形状。味道也特别好。搭配蔓越莓酱一起食用，形成些许酸甜对比。
 
 做 [这些美味的小饺子](https://lifehacker.com/make-quick-and-easy-gnocchi-with-leftover-mashed-potato-1845741158) 很简单，牛顿可以带你了解整个过程:
 
@@ -18,9 +18,9 @@
 
 这是给那些希望在感恩节过上奢华生活的人留下的建议——如果你愿意的话，可以称之为“超级嘎吱嘎吱”。正如我几年前提到的，这个食谱可以根据你的需要进行调整:
 
-> 就像塔可钟的菜单一样，你可以随意修改你认为合适的感恩节超级脆饼。(来点青豆？把它们扔进去！想用红薯代替土豆泥？当然可以，同志。)我的是以土豆泥为基础，再加上adobo火鸡、nacho风格的Velveeta和蔓越莓墨西哥胡椒酸奶油。还有生菜。
+> 就像塔可钟的菜单一样，你可以随意修改你认为合适的感恩节超级脆饼。(来点青豆？把它们扔进去！想用红薯代替土豆泥？当然可以，同志。)我的是以土豆泥为基础，再加上 adobo 火鸡、nacho 风格的 Velveeta 和蔓越莓墨西哥胡椒酸奶油。还有生菜。
 
-如果脆饼看起来有点太复杂，太精致，太有结构性，你可以把它扔在一堆薯片上，做成玉米片。正如A.A .牛顿 [所指出的](https://lifehacker.com/pile-your-thanksgiving-leftovers-on-nachos-1840150689) ，这不仅仅是懒惰，这是懒惰*和*的聪明:
+如果脆饼看起来有点太复杂，太精致，太有结构性，你可以把它扔在一堆薯片上，做成玉米片。正如 A.A .牛顿 [所指出的](https://lifehacker.com/pile-your-thanksgiving-leftovers-on-nachos-1840150689) ，这不仅仅是懒惰，这是懒惰*和*的聪明:
 
 > 感恩节玉米片解决了各种各样的后期剩菜问题。你从松脆的薯片中获得的质地对比突然让那些柔软、黏糊糊的食物看起来更令人兴奋——特别是如果你已经连续吃了几天的话。由于玉米片与适量的配料搭配效果最佳，你终于可以处理从周五开始做的其他剩菜混合物中留下的随机残渣了。但最重要的是，它们是一道美味佳肴；在漫长的周末后的第一个工作日幸存下来的完美安慰奖。
 
@@ -30,7 +30,7 @@
 
 [https://life hacker . com/gumbo-is-the-ultimate-vehicle-for-that-turkey-carcass-1820688831](https://lifehacker.com/gumbo-is-the-ultimate-vehicle-for-that-turkey-carcass-1820688831)
 
-[熏制火鸡](https://lifehacker.com/smoke-your-turkey-the-wrong-way-on-a-charcoal-grill-1848048358) 翅膀和火腿骨头属于豆类。它们肉多、有烟熏味、咸咸的，可以给一锅 [利马](https://lifehacker.com/how-to-cook-thanksgiving-lima-beans-youll-actually-love-1848041512) 、黑豆、白豆、pintos或任何你喜欢的豆类带来主要的特色。只需将 [放在](https://lifehacker.com/use-leftover-smoked-meat-to-flavor-beans-and-rice-dishe-1785709997) 那里，照常做饭。
+[熏制火鸡](https://lifehacker.com/smoke-your-turkey-the-wrong-way-on-a-charcoal-grill-1848048358) 翅膀和火腿骨头属于豆类。它们肉多、有烟熏味、咸咸的，可以给一锅 [利马](https://lifehacker.com/how-to-cook-thanksgiving-lima-beans-youll-actually-love-1848041512) 、黑豆、白豆、pintos 或任何你喜欢的豆类带来主要的特色。只需将 [放在](https://lifehacker.com/use-leftover-smoked-meat-to-flavor-beans-and-rice-dishe-1785709997) 那里，照常做饭。
 
 很有可能你在购买欧芹、鼠尾草、迷迭香和百里香时做得太多了，但是没关系。与其让它们在你的冰箱里枯萎死亡，你可以将它们迅速倒入蛋黄酱 中，做成感恩节风味的酱，然后涂在剩下的火鸡三明治上。
 
@@ -38,9 +38,9 @@
 
 蔓越莓酱基本上就是果酱，果酱可以做非常好的鸡尾酒。要将酸甜酱变成饮料，你需要:
 
-*   2盎司你选择的烈酒
-*   3汤匙蔓越莓酱(或任何果酱或水果蜜饯)
-*   1/2-1盎司新鲜柠檬汁(取决于你的调味汁有多甜)
+*   2 盎司你选择的烈酒
+*   3 汤匙蔓越莓酱(或任何果酱或水果蜜饯)
+*   1/2-1 盎司新鲜柠檬汁(取决于你的调味汁有多甜)
 
 在一个装满冰的摇壶里混合所有的东西，摇至非常冷。用细网筛双重过滤，享受你香甜扑鼻的蔓越莓翅。重复，直到你没有蔓越莓酱。
 

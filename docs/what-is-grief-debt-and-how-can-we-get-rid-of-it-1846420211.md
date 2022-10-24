@@ -1,6 +1,6 @@
 # 什么是‘悲伤债务’，我们怎样才能摆脱它？
 
-> 原文:[https://life hacker . com/what-is-breath-debt-and-how-we-can-get-out-it-1846420211](https://lifehacker.com/what-is-grief-debt-and-how-can-we-get-rid-of-it-1846420211)
+> 原文：<https://lifehacker.com/what-is-grief-debt-and-how-can-we-get-rid-of-it-1846420211>
 
 正如我们在过去的一年中所熟知的那样，悲伤不仅限于失去所爱的人(尽管那是一种特别痛苦的悲伤)。无论是失去工作，长时间见不到家人和朋友，还是仅仅哀悼我们在疫情之前的生活，我们仍然不知道这种集体悲伤和创伤在未来的岁月里会对我们产生多大的影响。
 

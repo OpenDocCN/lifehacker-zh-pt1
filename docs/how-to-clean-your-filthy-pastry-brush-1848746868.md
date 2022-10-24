@@ -1,6 +1,6 @@
 # 如何清洁你肮脏的糕点刷
 
-> 原文:[https://life hacker . com/how-to-clean-your dirty-pastry-brush-1848746868](https://lifehacker.com/how-to-clean-your-filthy-pastry-brush-1848746868)
+> 原文：<https://lifehacker.com/how-to-clean-your-filthy-pastry-brush-1848746868>
 
 糕点刷是必不可少的厨房工具，即使你不是一个面包师。除了将鸡蛋(或 [)蛋黄酱](https://lifehacker.com/mayonnaise-makes-an-excellent-egg-wash-1847761824) )涂在面包和糕点上，你还可以用它们在羊腿上涂上一层光滑的芥末(有助于调味)，涂在烤肉上，或 [用蛋黄酱](https://lifehacker.com/brush-your-chicken-with-mayo-before-roasting-it-1843608730) 涂在整只鸡上。然而，它们确实会变得很粘。
 

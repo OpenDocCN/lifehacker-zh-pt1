@@ -1,6 +1,6 @@
 # 对于一块太空岩石毁灭地球，你应该有多担心？
 
-> 原文:[https://life hacker . com/how-concerned-you-should-about-a-space-rock-destroying-1849190978](https://lifehacker.com/how-worried-should-you-be-about-a-space-rock-destroying-1849190978)
+> 原文：<https://lifehacker.com/how-worried-should-you-be-about-a-space-rock-destroying-1849190978>
 
 这是灾难电影和耸人听闻的头条新闻:一颗小行星、流星或彗星正朝着地球飞来。我们完了吗？这不就是干掉恐龙的原因吗？我们会有足够的时间将我们的分歧放在一边，作为一个物种走到一起，在我们被彻底毁灭之前，建立某种技术防御和/或努力来保护我们的生活方式，还是我们会在最后的时刻为无意义的事情争吵 ？
 
@@ -18,9 +18,9 @@ Watch
 
 历史上著名的和普通的陨石撞击都有记载。人们甚至被与这些岩石坠落相关的玻璃和碎片所伤，但是根据美国宇航局的比尔·库克 的说法，在有记录的历史中，只有四次主要的陨石造成了任何类型的重大损害。
 
-戈登·l·迪洛 [在2019年出版了一本关于这个话题的书](https://www.amazon.com/Fire-Sky-Cosmic-Collisions-Asteroids/dp/1501187740?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-worried-should-you-be-about-a-space-rock-destroying-1849190978&asc_source=&tag=kinjalifehackerlink-20) 。当时，他 [告诉*史密森尼杂志*](https://www.smithsonianmag.com/air-space-magazine/how-dangerous-are-asteroids-180973155/) “地球一直受到小行星的轰击，这些小行星在大气层中燃烧或爆炸，不会造成伤害。”从行星的角度来说，这很正常，很少给任何人带来问题。此外，“在我们的有生之年，甚至是我们的子孙后代的有生之年，与大型小行星或彗星——比如6英里宽的小行星，显然在6500万年前毁灭了恐龙——发生文明毁灭的可能性非常小。”
+戈登·l·迪洛 [在 2019 年出版了一本关于这个话题的书](https://www.amazon.com/Fire-Sky-Cosmic-Collisions-Asteroids/dp/1501187740?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-worried-should-you-be-about-a-space-rock-destroying-1849190978&asc_source=&tag=kinjalifehackerlink-20) 。当时，他 [告诉*史密森尼杂志*](https://www.smithsonianmag.com/air-space-magazine/how-dangerous-are-asteroids-180973155/) “地球一直受到小行星的轰击，这些小行星在大气层中燃烧或爆炸，不会造成伤害。”从行星的角度来说，这很正常，很少给任何人带来问题。此外，“在我们的有生之年，甚至是我们的子孙后代的有生之年，与大型小行星或彗星——比如 6 英里宽的小行星，显然在 6500 万年前毁灭了恐龙——发生文明毁灭的可能性非常小。”
 
-有多小？ [根据Fo rbes](https://www.forbes.com/sites/ericmack/2022/03/29/astronomers-just-updated-the-odds-a-massive-asteroid-will-hit-earth-in-the-future/?sh=6d20ffa93a9c) 的一份报告，欧洲航天局近地天体协调中心 [保存着一份超过1300个有可能撞击我们星球](https://neo.ssa.esa.int/risk-list) 的“近地”天体名单。大多数最有可能撞击我们的天体相对较小(直径不到10米)，不太可能扰乱地球上的生命。雷达上最大的一颗行星——1.1公里长的小行星1950 DA——有8000分之一的几率登陆...八百年后。
+有多小？ [根据 Fo rbes](https://www.forbes.com/sites/ericmack/2022/03/29/astronomers-just-updated-the-odds-a-massive-asteroid-will-hit-earth-in-the-future/?sh=6d20ffa93a9c) 的一份报告，欧洲航天局近地天体协调中心 [保存着一份超过 1300 个有可能撞击我们星球](https://neo.ssa.esa.int/risk-list) 的“近地”天体名单。大多数最有可能撞击我们的天体相对较小(直径不到 10 米)，不太可能扰乱地球上的生命。雷达上最大的一颗行星——1.1 公里长的小行星 1950 DA——有 8000 分之一的几率登陆...八百年后。
 
 迪洛承认，“除非我们能找到阻止它的方法”，地球*将在未来的某个时候被一颗足够大的小行星撞击，导致某种程度的局部或区域毁灭——或全球气候灾难。幸运的是，也有好消息。*
 
@@ -28,8 +28,8 @@ Watch
 
 如果你看过任何一部关于太空物体撞击地球会发生什么的电影，你就会知道科学家们确实在监控这种事情。记得库克吗？他是美国宇航局流星体环境办公室的一员，还有许多其他科学家和决策者团体也在观察天空中任何潜在的敌对岩石，包括国际小行星预警网络和太空任务规划咨询小组，更不用说世界各地的政府了。
 
-至少在理论上，这些团体做的不仅仅是观看。例如，如果在与地球相撞的轨道上发现一个大于50米的流星体，美国将试图通过官方政策使其偏离轨道。迪洛指出，我们的科学家已经考虑了很多方法来偏转小行星，从向它投掷白色彩弹来改变它的反射率，到使用核武器来“稍微偏离轨道”(虽然有国际条约禁止在太空使用核武器，但在我们的末日来临之际，负责人可能会做出一个关键的决策，无视这些条约。)
+至少在理论上，这些团体做的不仅仅是观看。例如，如果在与地球相撞的轨道上发现一个大于 50 米的流星体，美国将试图通过官方政策使其偏离轨道。迪洛指出，我们的科学家已经考虑了很多方法来偏转小行星，从向它投掷白色彩弹来改变它的反射率，到使用核武器来“稍微偏离轨道”(虽然有国际条约禁止在太空使用核武器，但在我们的末日来临之际，负责人可能会做出一个关键的决策，无视这些条约。)
 
-最有可能的反太空岩石场景是使用“动力冲击器”来转移即将到来的恐怖袭击。在这种情况下，无人飞船将装满金属，以每小时数千英里的速度撞击小行星，以减缓其速度。美国宇航局目前正在通过 [双小行星重定向测试(DART)任务](https://www.nasa.gov/specials/pdco/index.html#dart) 测试这种方法，这是第一次通过动能撞击改变小行星在太空中的运动的真实尝试。DART飞船会故意撞上一颗对地球不构成威胁的小行星，就是想看看它怎么走。
+最有可能的反太空岩石场景是使用“动力冲击器”来转移即将到来的恐怖袭击。在这种情况下，无人飞船将装满金属，以每小时数千英里的速度撞击小行星，以减缓其速度。美国宇航局目前正在通过 [双小行星重定向测试(DART)任务](https://www.nasa.gov/specials/pdco/index.html#dart) 测试这种方法，这是第一次通过动能撞击改变小行星在太空中的运动的真实尝试。DART 飞船会故意撞上一颗对地球不构成威胁的小行星，就是想看看它怎么走。
 
 如果你想感觉自己正在做一些关于小行星威胁的事情，你可以学习如何自己去 [发现并报告它们](https://lifehacker.com/how-to-find-and-report-asteroids-because-your-life-is-b-1848708695) 。除了对灾难性的天启的恐惧之外，它可能会给你一些东西来占据你的大脑空间。或者给你更多的时间去思考下一个全球疫情。无论哪个。

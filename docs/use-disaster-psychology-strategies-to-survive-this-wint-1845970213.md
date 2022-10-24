@@ -1,8 +1,8 @@
 # 运用灾难心理学策略度过这个冬天
 
-> 原文:[https://life hacker . com/use-disaster-psychology-strategies-to-survive-this-wint-1845970213](https://lifehacker.com/use-disaster-psychology-strategies-to-survive-this-wint-1845970213)
+> 原文：<https://lifehacker.com/use-disaster-psychology-strategies-to-survive-this-wint-1845970213>
 
-近一年来，我们经历了一场旷日持久的灾难。这不同于那些涉及极端天气的事件，如飓风，或像9/11这样的单日悲剧，这些事件可能需要数年来清理和处理，但实际事件通常只限于一两天。新冠肺炎·疫情一直困扰着我们(大多数人)。尽管拥有多种有效疫苗是一个好迹象，但这一切仍然没有真正结束的迹象。
+近一年来，我们经历了一场旷日持久的灾难。这不同于那些涉及极端天气的事件，如飓风，或像 9/11 这样的单日悲剧，这些事件可能需要数年来清理和处理，但实际事件通常只限于一两天。新冠肺炎·疫情一直困扰着我们(大多数人)。尽管拥有多种有效疫苗是一个好迹象，但这一切仍然没有真正结束的迹象。
 
 Watch
 
@@ -10,7 +10,7 @@ Watch
 
 ### 疫情期间如何应用灾难心理学
 
-考虑人们在“典型”灾难中的角色，无论是幸存者还是悲剧事件的反应者。但是，正如纽约州立大学新帕尔茨分校灾难心理健康研究所主任艾米·尼察博士最近指出的那样，COVID如此普遍，以至于许多人发现自己同时扮演着两种角色。她 [在接受*【科学美国人*](https://www.scientificamerican.com/article/you-can-get-through-this-dark-pandemic-winter-using-tips-from-disaster-psychology1/) *采访时说:“我们在训练每个人如何照顾自己，如何支持身边的人。”。*
+考虑人们在“典型”灾难中的角色，无论是幸存者还是悲剧事件的反应者。但是，正如纽约州立大学新帕尔茨分校灾难心理健康研究所主任艾米·尼察博士最近指出的那样，COVID 如此普遍，以至于许多人发现自己同时扮演着两种角色。她 [在接受*【科学美国人*](https://www.scientificamerican.com/article/you-can-get-through-this-dark-pandemic-winter-using-tips-from-disaster-psychology1/) *采访时说:“我们在训练每个人如何照顾自己，如何支持身边的人。”。*
 
 *科学美国人*特约编辑 [梅林达·温纳·莫耶的整篇文章](https://www.scientificamerican.com/article/you-can-get-through-this-dark-pandemic-winter-using-tips-from-disaster-psychology1/) 非常值得一读——并且包含了具体的策略——但是这一行让你领略了在疫情灾难期间使用灾难心理学可能会是什么样子:
 

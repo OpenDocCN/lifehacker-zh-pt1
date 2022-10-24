@@ -1,6 +1,6 @@
 # 社交媒体对微波炉的看法是错误的
 
-> 原文:[https://life hacker . com/social-media-is-错在微波-1849648107](https://lifehacker.com/social-media-is-wrong-about-microwaves-1849648107)
+> 原文：<https://lifehacker.com/social-media-is-wrong-about-microwaves-1849648107>
 
 微波炉很方便。也许太方便了。如此方便以至于我们中的一些人对它们产生了怀疑。当这些普通的电器出现在厨房场景中时，有人反对它们加热食物的所谓不自然的方式——还记得城市传说关于一个女孩在试图吹干头发时煮她的大脑，因为微波炉“从里到外烹饪”吗？
 
@@ -20,15 +20,15 @@ Watch
 
 在这个过程中营养成分发生了什么变化？嗯，不同的烹饪方式会对营养成分产生不同的影响，这是事实。煮沸食物 [会导致一些营养物质浸出到水中](https://www.healthline.com/nutrition/cooking-nutrient-content) ，但这在这里不是问题，因为加热的水是食物本身的一部分。一些维生素确实在高温下长时间后开始分解，但很难完全破坏它们。事实上，由于微波烹饪发生得如此之快，它被认为是保存食物营养的最佳方法之一 [。](https://www.health.harvard.edu/staying-healthy/ask-the-doctor-microwaves-impact-on-food)
 
-有一些证据表明，微波可以使食物中的维生素C含量减少20%至30%， [据健康热线](https://www.healthline.com/nutrition/cooking-nutrient-content#roasting-and-baking) 报道，但同一篇文章还指出，煮沸可以使维生素C减少50%，翻炒可以“显著减少”蔬菜中的维生素C含量。每种烹饪方法都有其利弊，但微波并不比其他方法差。
+有一些证据表明，微波可以使食物中的维生素 C 含量减少 20%至 30%， [据健康热线](https://www.healthline.com/nutrition/cooking-nutrient-content#roasting-and-baking) 报道，但同一篇文章还指出，煮沸可以使维生素 C 减少 50%，翻炒可以“显著减少”蔬菜中的维生素 C 含量。每种烹饪方法都有其利弊，但微波并不比其他方法差。
 
 ## 微波炉会让我们暴露在辐射下吗？
 
 技术上是，但不是你想的那样。
 
-当我们担心辐射时，我们会想到电离辐射，那种来自X射线和核弹的辐射。暴露在电离辐射下的人和物体(在某些情况下)本身也会变得具有放射性，这是这种辐射如此危险的一大原因。
+当我们担心辐射时，我们会想到电离辐射，那种来自 X 射线和核弹的辐射。暴露在电离辐射下的人和物体(在某些情况下)本身也会变得具有放射性，这是这种辐射如此危险的一大原因。
 
-但是微波是一种非电离辐射。 [其他种类的非电离辐射](https://www.cdc.gov/nceh/radiation/nonionizing_radiation.html) 包括可见光、紫外线和热灯发出的红外线波。它们还包括各种形式的无线电波。举几个例子:来自无线电塔并被汽车收音机接收的电波，由一组对讲机中的一个对讲机发送并被另一个对讲机接收的电波，以及来自wi-fi热点并被手机或电脑接收的电波。(顺便说一下，微波炉的工作频率与wi-fi非常相似；这就是屏蔽受损的微波炉 [会导致你的wi-fi连接](https://www.esinationwide.com/why-does-my-wi-fi-stop-working-when-i-use-my-microwave.php) 打嗝的原因。)
+但是微波是一种非电离辐射。 [其他种类的非电离辐射](https://www.cdc.gov/nceh/radiation/nonionizing_radiation.html) 包括可见光、紫外线和热灯发出的红外线波。它们还包括各种形式的无线电波。举几个例子:来自无线电塔并被汽车收音机接收的电波，由一组对讲机中的一个对讲机发送并被另一个对讲机接收的电波，以及来自 wi-fi 热点并被手机或电脑接收的电波。(顺便说一下，微波炉的工作频率与 wi-fi 非常相似；这就是屏蔽受损的微波炉 [会导致你的 wi-fi 连接](https://www.esinationwide.com/why-does-my-wi-fi-stop-working-when-i-use-my-microwave.php) 打嗝的原因。)
 
 所以，不，微波不会产生可怕的(电离)意义上的“辐射”，也不会让你的食物有放射性。这里没有健康危害。
 

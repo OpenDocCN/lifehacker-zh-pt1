@@ -1,6 +1,6 @@
 # 尼日利亚发生了什么？
 
-> 原文:[https://life hacker . com/whats-happening-in-Nigeria-1845482741](https://lifehacker.com/whats-happening-in-nigeria-1845482741)
+> 原文：<https://lifehacker.com/whats-happening-in-nigeria-1845482741>
 
 在一个持续抗议警察暴力——包括乔治·弗洛伊德和布里奥纳·泰勒被谋杀——的夏天之后，越来越多的美国人开始理解系统性种族主义的这个方面。当然，这不仅仅是美国的问题，在过去的两周里，尼日利亚对警察暴行的抗议已经在该国军方手中演变成暴力。以下是你需要知道的关于示威游行的事情，以及你可以做些什么来支持抗议者。
 
@@ -8,29 +8,29 @@ Watch
 
 ### 尼日利亚为什么会有抗议活动？
 
-据《华尔街日报》报道，尼日利亚最近一轮抗议活动始于10月初，要求取缔反抢劫特别小组(SARS)，这是一个长期与暴力骚扰有关联的警察单位。SARS是1992年成立的，任务是对付尼日利亚的暴力犯罪，如谋杀、绑架、袭击和武装抢劫。现实中，该单位在这些问题 上只增加了 [，已经面临](https://www.amnesty.org/download/Documents/AFR4495052020ENGLISH.PDF) [针对平民的暴力](https://www.wsj.com/articles/nigeria-protests-whats-happening-and-why-are-people-demonstrating-11603277989) 指控，包括强奸和谋杀。
+据《华尔街日报》报道，尼日利亚最近一轮抗议活动始于 10 月初，要求取缔反抢劫特别小组(SARS)，这是一个长期与暴力骚扰有关联的警察单位。SARS 是 1992 年成立的，任务是对付尼日利亚的暴力犯罪，如谋杀、绑架、袭击和武装抢劫。现实中，该单位在这些问题 上只增加了 [，已经面临](https://www.amnesty.org/download/Documents/AFR4495052020ENGLISH.PDF) [针对平民的暴力](https://www.wsj.com/articles/nigeria-protests-whats-happening-and-why-are-people-demonstrating-11603277989) 指控，包括强奸和谋杀。
 
-#endSARS战役 [始于2017年](https://time.com/5902112/nigeria-endsars-protest-shootings) ，虽然尼日利亚政府已经宣布将在2018年和2019年对该部队进行改革，但这还没有发生。然后，在2020年10月4日， [一位推特用户发布了一段视频](https://guardian.ng/news/fatal-police-shooting-video-of-nigerian-man-reignites-call-to-endsars) ，他们声称这段视频展示了一名非典官员开枪打死一名年轻人，引发了本月的抗议活动。
+#endSARS 战役 [始于 2017 年](https://time.com/5902112/nigeria-endsars-protest-shootings) ，虽然尼日利亚政府已经宣布将在 2018 年和 2019 年对该部队进行改革，但这还没有发生。然后，在 2020 年 10 月 4 日， [一位推特用户发布了一段视频](https://guardian.ng/news/fatal-police-shooting-video-of-nigerian-man-reignites-call-to-endsars) ，他们声称这段视频展示了一名非典官员开枪打死一名年轻人，引发了本月的抗议活动。
 
-10月11日，尼日利亚警察总监宣布解散SARS，但还是没有采取任何行动。 [据美国有线电视新闻网](https://www.cnn.com/2020/10/21/africa/nigeria-sars-protests-police-explainer-intl/index.html) 报道，一些抗议者已经明确表示，他们将继续示威，直到整个警察队伍得到改革，包括对警官进行独立监督和心理评估。
+10 月 11 日，尼日利亚警察总监宣布解散 SARS，但还是没有采取任何行动。 [据美国有线电视新闻网](https://www.cnn.com/2020/10/21/africa/nigeria-sars-protests-police-explainer-intl/index.html) 报道，一些抗议者已经明确表示，他们将继续示威，直到整个警察队伍得到改革，包括对警官进行独立监督和心理评估。
 
 ### 抗议活动是怎么回事？
 
-过去几周的许多示威游行——尤其是在尼日利亚最大城市拉格斯的示威游行——导致了暴力事件，包括几名抗议者被军队成员枪杀， [目击者告诉CNN](https://www.cnn.com/2020/10/21/africa/nigeria-sars-protests-police-explainer-intl/index.html) 。根据大赦国际的一份报告，自抗议开始以来，全国至少有56人死亡。
+过去几周的许多示威游行——尤其是在尼日利亚最大城市拉格斯的示威游行——导致了暴力事件，包括几名抗议者被军队成员枪杀， [目击者告诉 CNN](https://www.cnn.com/2020/10/21/africa/nigeria-sars-protests-police-explainer-intl/index.html) 。根据大赦国际的一份报告，自抗议开始以来，全国至少有 56 人死亡。
 
-据大赦国际 报道，仅在10月20日一天，就有大约38名抗议者被杀，数百人受重伤，“尼日利亚军方向数千名和平呼吁善治和结束警察暴行的人开火”。CNN报道称，尼日利亚军方否认了针对抗议者的暴力报道——包括他们被枪杀的事件——称之为“假新闻”，并拒绝进一步评论。
+据大赦国际 报道，仅在 10 月 20 日一天，就有大约 38 名抗议者被杀，数百人受重伤，“尼日利亚军方向数千名和平呼吁善治和结束警察暴行的人开火”。CNN 报道称，尼日利亚军方否认了针对抗议者的暴力报道——包括他们被枪杀的事件——称之为“假新闻”，并拒绝进一步评论。
 
 抗议者计划继续示威，直到政府真正实施其承诺的警察改革，军事暴力似乎是尼日利亚政府处理示威活动的方式，这些冲突没有明显的结束迹象。
 
 ### 如何帮助尼日利亚的抗议者
 
-考虑到大多数人——甚至是全球疫情之外的人——都无法飞到尼日利亚亲自参加示威活动，你可能会想，你如何能从远处支持这项事业。在《全球公民》 的一篇文章中，Akindare Okunola提供了一些建议:
+考虑到大多数人——甚至是全球疫情之外的人——都无法飞到尼日利亚亲自参加示威活动，你可能会想，你如何能从远处支持这项事业。在《全球公民》 的一篇文章中，Akindare Okunola 提供了一些建议:
 
 #### 专心
 
 尽管我们在美国并不缺少自己的问题，奥库诺拉说 关注正在发生的事情，从可靠的来源获取信息是很重要的:
 
-> 与许多在线运动一样，围绕#EndSARS运动有许多错误信息和对事实的歪曲，因此获得准确信息非常重要。由于#EndSARS运动是从网上开始的，标签是一个很好的起点。
+> 与许多在线运动一样，围绕#EndSARS 运动有许多错误信息和对事实的歪曲，因此获得准确信息非常重要。由于#EndSARS 运动是从网上开始的，标签是一个很好的起点。
 
 读这个是一个好的开始。还有 [讲解视频](https://twitter.com/funmioyatogun/status/1315688741453860865) 可以帮忙。
 
@@ -44,4 +44,4 @@ Watch
 
 广泛的抗议并不便宜，所以如果你有可用的资金，你可能会考虑向一个筹款机构捐款，通过提供食物，健康和法律服务，安全和其他援助来支持那些示威游行的人。
 
-据Okunola称，最值得注意的主要筹款人是由 [女权联盟](https://feministcoalition2020.com) 领导的，该联盟已经筹集了超过7000万奈拉 (约18万美元)的各种货币，包括比特币。一如既往，在捐款前做好你的功课。例如，女权联盟正在提供关于资金收支的详细公开报告。
+据 Okunola 称，最值得注意的主要筹款人是由 [女权联盟](https://feministcoalition2020.com) 领导的，该联盟已经筹集了超过 7000 万奈拉 (约 18 万美元)的各种货币，包括比特币。一如既往，在捐款前做好你的功课。例如，女权联盟正在提供关于资金收支的详细公开报告。

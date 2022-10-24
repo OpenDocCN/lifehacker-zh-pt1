@@ -1,12 +1,12 @@
 # 用太多的油做你的爆米花
 
-> 原文:[https://life hacker . com/make-your-popcorn-with-too-oil-1845292853](https://lifehacker.com/make-your-popcorn-with-too-much-oil-1845292853)
+> 原文：<https://lifehacker.com/make-your-popcorn-with-too-much-oil-1845292853>
 
-除了我每周的 [烘焙](https://skillet.lifehacker.com/listen-to-your-cake-before-you-take-it-out-of-the-oven-1845233424) 观看之外，我不会花我的空闲时间看太多的食物内容，而且我通常避免任何类型的名人烹饪视频。拥有大量的金钱是终极黑客，所以——除非他们是赤脚伯爵夫人或其他富有的美食名人——他们很少有理由想出更便宜、更快或更简单的烹饪和饮食方式。也就是说，卡梅隆·迪亚兹非常擅长做爆米花，如果Lifehacker的视频制作人乔尔·卡恩没有给我发这个令人愉快的小片段，我永远也不会知道这一点。
+除了我每周的 [烘焙](https://skillet.lifehacker.com/listen-to-your-cake-before-you-take-it-out-of-the-oven-1845233424) 观看之外，我不会花我的空闲时间看太多的食物内容，而且我通常避免任何类型的名人烹饪视频。拥有大量的金钱是终极黑客，所以——除非他们是赤脚伯爵夫人或其他富有的美食名人——他们很少有理由想出更便宜、更快或更简单的烹饪和饮食方式。也就是说，卡梅隆·迪亚兹非常擅长做爆米花，如果 Lifehacker 的视频制作人乔尔·卡恩没有给我发这个令人愉快的小片段，我永远也不会知道这一点。
 
 Watch [https://lifehacker.com/embed/inset/iframe?id=instagram-CFI4d2iB-x9&autosize=1](https://lifehacker.com/embed/inset/iframe?id=instagram-CFI4d2iB-x9&autosize=1) 
 
-迪亚兹的运动衫让我做好了最坏的打算，但当我看到她往她的爆米花锅里加了一吨油时，我的恐惧很快就烟消云散了，我就是这么做的。如果你从来没有在社会告诉你的“太多油”中爆过玉米，我建议你在下一批中尝试一下。我通常用 [杰西卡·科斯洛](https://sqirlla.com) 的比例 [1/2杯油换1/3杯未爆玉米粒](https://skillet.lifehacker.com/youre-not-using-enough-oil-to-pop-your-popcorn-1827137012) ，但卡梅隆的眼球转动法也同样有效。她将油倒入锅中，直到油“绕过锅的曲线”(看起来相当于大约一杯)，然后加入足够的爆米花，直到油刚好盖住玉米粒。她把盖子放在锅上，打开火(我推荐中火)，让它在不晃动的情况下弹出*。*
+迪亚兹的运动衫让我做好了最坏的打算，但当我看到她往她的爆米花锅里加了一吨油时，我的恐惧很快就烟消云散了，我就是这么做的。如果你从来没有在社会告诉你的“太多油”中爆过玉米，我建议你在下一批中尝试一下。我通常用 [杰西卡·科斯洛](https://sqirlla.com) 的比例 [1/2 杯油换 1/3 杯未爆玉米粒](https://skillet.lifehacker.com/youre-not-using-enough-oil-to-pop-your-popcorn-1827137012) ，但卡梅隆的眼球转动法也同样有效。她将油倒入锅中，直到油“绕过锅的曲线”(看起来相当于大约一杯)，然后加入足够的爆米花，直到油刚好盖住玉米粒。她把盖子放在锅上，打开火(我推荐中火)，让它在不晃动的情况下弹出*。*
 
 然后，事情变得有点令人兴奋，爆米花弹出得如此好，如此有力，以至于它将盖子推离了锅，但卡梅伦用蛮力将它保持在一起。她能不能用一个大点的罐子？是的，但是它看起来不酷。
 

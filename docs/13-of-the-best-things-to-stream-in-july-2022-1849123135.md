@@ -1,16 +1,16 @@
-# 2022年7月的13个最佳流媒体内容
+# 2022 年 7 月的 13 个最佳流媒体内容
 
-> 原文:[https://life hacker . com/13-of-the-best-things-to-stream-in-July-2022-1849123135](https://lifehacker.com/13-of-the-best-things-to-stream-in-july-2022-1849123135)
+> 原文：<https://lifehacker.com/13-of-the-best-things-to-stream-in-july-2022-1849123135>
 
-我们是要度过一个昏昏欲睡的夏天，还是一个沉睡者的夏天？如果你是《开心汉堡店》(7月12日)和《T2》(7月13日)等无聊剧集的忠实粉丝，那么你可以在Hulu上尽情享受。如果你在寻找现代、健康的电影，那么你应该转向亚马逊Prime Video的*别逼我去*(7月15日)和*一切皆有可能*(7月22日)。任何想要一鸣惊人的人都会期待网飞发布的间谍惊悚片《灰人》(7月22日)。下个月，每个平台看起来都会有适合每个人的小东西。
+我们是要度过一个昏昏欲睡的夏天，还是一个沉睡者的夏天？如果你是《开心汉堡店》(7 月 12 日)和《T2》(7 月 13 日)等无聊剧集的忠实粉丝，那么你可以在 Hulu 上尽情享受。如果你在寻找现代、健康的电影，那么你应该转向亚马逊 Prime Video 的*别逼我去*(7 月 15 日)和*一切皆有可能*(7 月 22 日)。任何想要一鸣惊人的人都会期待网飞发布的间谍惊悚片《灰人》(7 月 22 日)。下个月，每个平台看起来都会有适合每个人的小东西。
 
-以下是所有将于7月开始播放的最佳电影、系列首播或新一季《回归最爱》。按首映日期时间顺序排列的标题。
+以下是所有将于 7 月开始播放的最佳电影、系列首播或新一季《回归最爱》。按首映日期时间顺序排列的标题。
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-sBEvEcpnG7k&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-sBEvEcpnG7k&start=0)
 
 <figcaption class="sc-1ptbguh-0 hxeMec caption">Stranger Things 4 | Volume 2 Trailer | Netflix</figcaption> 
 
-第二卷*更奇怪的事情4* 看起来它将继续朝着一个越来越黑暗，高风险的方向前进。达福兄弟甚至调侃过 [一个更加“黑暗”的大结局](https://www.ign.com/articles/the-duffer-brothers-expect-a-dark-stranger-things-season-4-finale) :
+第二卷*更奇怪的事情 4* 看起来它将继续朝着一个越来越黑暗，高风险的方向前进。达福兄弟甚至调侃过 [一个更加“黑暗”的大结局](https://www.ign.com/articles/the-duffer-brothers-expect-a-dark-stranger-things-season-4-finale) :
 
 “我真的不想说，但我肯定会担心第二卷中的人物，”罗斯·达菲说。“我希望这是一种感觉，因为这是一个黑暗的季节，孩子们不再是孩子了。有一种不祥的感觉，事情可能不会顺利。现在，不管他们做不做，你都得看着。”
 
@@ -26,7 +26,7 @@
 
 <figcaption class="sc-1ptbguh-0 hxeMec caption">Official Trailer | The Bob’s Burgers Movie | 20th Century Studios</figcaption> 
 
-多好玩啊。如果可以的话，我强烈推荐在大银幕上为贝尔彻夫妇表演。但是如果你错过了在电影院上映的开心汉堡店电影，Hulu会在7月12日为你报道。
+多好玩啊。如果可以的话，我强烈推荐在大银幕上为贝尔彻夫妇表演。但是如果你错过了在电影院上映的开心汉堡店电影，Hulu 会在 7 月 12 日为你报道。
 
 虽然这部电影应该主要吸引开心汉堡店电视节目的忠实粉丝，但对于外行人来说，它仍然是一部令人愉快的电影。以下是对所发生的事情的概述:
 
@@ -50,9 +50,9 @@
 
 这部根据热门的世界末日恐怖系列改编的新剧集已经引起了争议。《生化危机》现有的粉丝在该剧首映前意见不一，大多数批评都围绕该剧决定将故事引入新的方向(而不是复述故事和探索人们已经知道并喜欢的游戏角色)。
 
-《生化危机》的官方描述是:“2036年——一种致命病毒引发全球末日的14年后，杰德·韦斯克在一个被嗜血的受感染和疯狂的生物蹂躏的世界里为生存而战。在这场绝对的大屠杀中，杰德(埃拉·巴林斯卡；塔玛拉·斯玛特在年轻时扮演这个角色)被她在新浣熊市的过去，她父亲(兰斯·里迪克饰)与保护伞公司令人不寒而栗的联系所困扰，但主要是她的妹妹比莉(阿狄丽娜·鲁道夫和锡耶纳·阿古东饰)的遭遇。)”
+《生化危机》的官方描述是:“2036 年——一种致命病毒引发全球末日的 14 年后，杰德·韦斯克在一个被嗜血的受感染和疯狂的生物蹂躏的世界里为生存而战。在这场绝对的大屠杀中，杰德(埃拉·巴林斯卡；塔玛拉·斯玛特在年轻时扮演这个角色)被她在新浣熊市的过去，她父亲(兰斯·里迪克饰)与保护伞公司令人不寒而栗的联系所困扰，但主要是她的妹妹比莉(阿狄丽娜·鲁道夫和锡耶纳·阿古东饰)的遭遇。)”
 
-尽管很多人已经拿定了主意，但我相信游戏的粉丝们会通过Reddit 让我们知道网飞秀的结果。
+尽管很多人已经拿定了主意，但我相信游戏的粉丝们会通过 Reddit 让我们知道网飞秀的结果。
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-NYxOe7kOl7I&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-NYxOe7kOl7I&start=0)
 
@@ -68,15 +68,15 @@
 
 <figcaption class="sc-1ptbguh-0 hxeMec caption">The Rehearsal (HBO) - Teaser Trailer</figcaption> 
 
-我发现内森·菲尔德是一个策划者。《内森为你而生》的主演和《T2如何与约翰·威尔森》的执行制片人几乎没有透露任何关于这部新剧集的信息。我所知道的是，预告片看到菲尔德观察一个女人试图哄一个小孩睡觉的镜头，节目的描述回避了这个问题:“*当一个小小的失误就能摧毁你的整个世界时，为什么要让生活听天由命呢？*
+我发现内森·菲尔德是一个策划者。《内森为你而生》的主演和《T2 如何与约翰·威尔森》的执行制片人几乎没有透露任何关于这部新剧集的信息。我所知道的是，预告片看到菲尔德观察一个女人试图哄一个小孩睡觉的镜头，节目的描述回避了这个问题:“*当一个小小的失误就能摧毁你的整个世界时，为什么要让生活听天由命呢？*
 
-最起码，*彩排*标志着菲尔德重返荧屏，继 [之后*内森为你*的2017年结论](https://pitchfork.com/news/nathan-for-you-coming-to-an-end/) 。
+最起码，*彩排*标志着菲尔德重返荧屏，继 [之后*内森为你*的 2017 年结论](https://pitchfork.com/news/nathan-for-you-coming-to-an-end/) 。
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-xxp0Krp0pEg&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-xxp0Krp0pEg&start=0)
 
 <figcaption class="sc-1ptbguh-0 hxeMec caption">Rap Sh!t | Official Teaser | HBO Max</figcaption> 
 
-我把生命托付给伊萨·雷。这部由缺乏安全感的创作者创作的新喜剧讲述了两个高中时疏远的朋友重聚成为迈阿密说唱歌手的故事。Rae在接受 [时尚芭莎](https://www.harpersbazaar.com/culture/film-tv/a39818691/first-look-hbo-rap-shit-cast-issa-rae-interview/) 采访时证实*说唱SH！T* 诞生于她最初的*缺乏安全感*剧本:
+我把生命托付给伊萨·雷。这部由缺乏安全感的创作者创作的新喜剧讲述了两个高中时疏远的朋友重聚成为迈阿密说唱歌手的故事。Rae 在接受 [时尚芭莎](https://www.harpersbazaar.com/culture/film-tv/a39818691/first-look-hbo-rap-shit-cast-issa-rae-interview/) 采访时证实*说唱 SH！T* 诞生于她最初的*缺乏安全感*剧本:
 
 “我认为这是嘻哈音乐中一个独特的时代，尤其是对于女性说唱歌手来说，因为有这么多的人，而且感觉他们并不是在相互竞争。”我没有让两个坚强的女人互相争斗，而是很兴奋地跟随两个有抱负的明星在音乐行业取得成功。
 
@@ -100,7 +100,7 @@
 
 《歌舞青春》明星科宾·布鲁在《T2》第三季中首次亮相。预告片透露，今年夏天，我们的剧组将上演《T4》冰封版。它发生在营地。看起来像是要*成为*阵营了。
 
-我不打算在这个节目上推销新人。对于现有的粉丝:新的剧集将从7月27日开始每周一集。
+我不打算在这个节目上推销新人。对于现有的粉丝:新的剧集将从 7 月 27 日开始每周一集。
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-aTTeK_f-arY&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-aTTeK_f-arY&start=0)
 
@@ -112,6 +112,6 @@
 
 <figcaption class="sc-1ptbguh-0 hxeMec caption">Paper Girls First Look Amazon Teaser Promo</figcaption> 
 
-现在，随着*纸女孩系列的首播，*我们以一种暧昧和期待的基调结束。按照传统，我现在求助于《生活骇客》的副主编乔尔·库尼(Joel Cunni)伊汉姆(ngham)来描述一部他比我处理得好得多的电视剧；乔尔写道，“很容易看出它的吸引力——故事发生在20世纪80年代，讲述了四个十几岁的小女孩陷入一个时间扭曲的科幻迷中，它散发出一种*奇怪的东西*的氛围，并从获奖的原始材料中汲取灵感。”
+现在，随着*纸女孩系列的首播，*我们以一种暧昧和期待的基调结束。按照传统，我现在求助于《生活骇客》的副主编乔尔·库尼(Joel Cunni)伊汉姆(ngham)来描述一部他比我处理得好得多的电视剧；乔尔写道，“很容易看出它的吸引力——故事发生在 20 世纪 80 年代，讲述了四个十几岁的小女孩陷入一个时间扭曲的科幻迷中，它散发出一种*奇怪的东西*的氛围，并从获奖的原始材料中汲取灵感。”
 
 在*陌生的事情*在月初结束后，你可以休息一下，然后在七月即将结束时用*纸女孩*来填补空缺。*

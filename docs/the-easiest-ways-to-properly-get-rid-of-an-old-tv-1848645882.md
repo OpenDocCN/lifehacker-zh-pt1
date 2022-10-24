@@ -1,6 +1,6 @@
 # (正确)处理旧电视的最简单方法
 
-> 原文:[https://life hacker . com/the-easy-ways-to-the-easy-the-easy-ways-to-the-妥善摆脱旧电视-1848645882](https://lifehacker.com/the-easiest-ways-to-properly-get-rid-of-an-old-tv-1848645882)
+> 原文：<https://lifehacker.com/the-easiest-ways-to-properly-get-rid-of-an-old-tv-1848645882>
 
 在过去的几十年里，我们作为消费者的习惯发生了相当大的变化，尤其是在电子产品方面。鉴于技术进步的速度如此之快，一些人希望不断升级他们的电子设备和电视等物品就不足为奇了——即使这意味着放弃功能完善的老款[。](https://lifehacker.com/how-to-sell-or-recycle-your-old-electronics-1834456060)
 
@@ -8,7 +8,7 @@ Watch
 
 但是处理一台不想要的电视比简单地把它和你每周的垃圾一起扔在路边要复杂得多。首先，许多垃圾清理公司不会收集废弃的电视，一些城镇、县、市和/或州也有相关规定。
 
-即使有可能将电视与常规垃圾一起扔掉，你也可能要考虑这种便利是否值得垃圾填埋场积累的电子废物(又名“电子废物”)对环境的影响。根据联合国环境规划署 的一份 [2019报告，全球每年产生约5000万公吨电子垃圾，其中只有约20%被正式回收。](https://www.unep.org/news-and-stories/press-release/un-report-time-seize-opportunity-tackle-challenge-e-waste)
+即使有可能将电视与常规垃圾一起扔掉，你也可能要考虑这种便利是否值得垃圾填埋场积累的电子废物(又名“电子废物”)对环境的影响。根据联合国环境规划署 的一份 [2019 报告，全球每年产生约 5000 万公吨电子垃圾，其中只有约 20%被正式回收。](https://www.unep.org/news-and-stories/press-release/un-report-time-seize-opportunity-tackle-challenge-e-waste)
 
 抛开地区要求和个人动机不谈，这里有几个正确处理电视的最简单方法。
 
@@ -26,7 +26,7 @@ Watch
 
 但是无论你在哪里购买新电视(或者你是否购买了新电视)，你都可以利用百思买的 [电子产品回收计划](https://www.bestbuy.com/site/services/recycling/pcmcat149900050025.c?id=pcmcat149900050025) 。据该公司称， [该连锁店在美国和波多黎各的任何零售点](https://www.bestbuy.com/site/recycling/recycle-faqs/pcmcat174700050009.c?id=pcmcat174700050009) 都将接受旧的、未使用的或不想要的消费电子产品进行回收，无论它们是在哪里购买的——每户每天最多三件。
 
-虽然在大多数情况下，百思买的回收服务是免费的，但他们回收一些物品是收费的。如果你从百思买买了一台新电视，并且送货上门，他们会以29.99美元的价格 [拖走你的旧电视](https://corporate.bestbuy.com/heres-how-best-buy-is-making-it-easy-to-recycle-your-old-tech/) 。
+虽然在大多数情况下，百思买的回收服务是免费的，但他们回收一些物品是收费的。如果你从百思买买了一台新电视，并且送货上门，他们会以 29.99 美元的价格 [拖走你的旧电视](https://corporate.bestbuy.com/heres-how-best-buy-is-making-it-easy-to-recycle-your-old-tech/) 。
 
 ## 让制造商回收它
 

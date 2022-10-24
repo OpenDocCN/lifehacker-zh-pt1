@@ -1,6 +1,6 @@
 # 你实际上可以做一些关于脚趾骨折的事情
 
-> 原文:[https://life hacker . com/you-can-actually-does-1849366052](https://lifehacker.com/you-can-actually-do-something-about-broken-toes-1849366052)
+> 原文：<https://lifehacker.com/you-can-actually-do-something-about-broken-toes-1849366052>
 
 传统观点认为，对于脚趾骨折，你真的无能为力。好吧，传统智慧是愚蠢的。事实证明，当你的脚趾骨折时，可以也应该采取一些干预措施。
 

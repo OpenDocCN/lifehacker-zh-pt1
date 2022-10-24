@@ -1,8 +1,8 @@
 # 我恳求你在这个万圣节减少你扔掉的垃圾
 
-> 原文:[https://life hacker . com/im-bedding-you-reduce-the-waste-you-hand-away-this-1847855977](https://lifehacker.com/im-begging-you-to-reduce-the-waste-you-throw-away-this-1847855977)
+> 原文：<https://lifehacker.com/im-begging-you-to-reduce-the-waste-you-throw-away-this-1847855977>
 
-幽灵季节已经到来，我们在这里为它。但是每年万圣节，实际上是每个节日，我都会想到一件事，那就是它产生的垃圾量。 [英国一项研究显示，仅服装一项每年就产生2000多吨废物](https://inhabitat.com/halloween-generates-frightening-amounts-of-plastic-waste-each-year/) 。我们怎样才能享受所有的乐趣、所有的热情和款待而不造成过多的浪费呢？考虑到这一点，我们总结了这些想法来过一个更可持续的万圣节，并减少你必须扔掉的东西的数量。
+幽灵季节已经到来，我们在这里为它。但是每年万圣节，实际上是每个节日，我都会想到一件事，那就是它产生的垃圾量。 [英国一项研究显示，仅服装一项每年就产生 2000 多吨废物](https://inhabitat.com/halloween-generates-frightening-amounts-of-plastic-waste-each-year/) 。我们怎样才能享受所有的乐趣、所有的热情和款待而不造成过多的浪费呢？考虑到这一点，我们总结了这些想法来过一个更可持续的万圣节，并减少你必须扔掉的东西的数量。
 
 Watch
 
@@ -12,9 +12,9 @@ Watch
 
 ## 自己制作服装(或者买二手的)
 
-不要在亚马逊上购买大量生产的东西，而是重新利用你已经拥有的东西来制作服装。一张老白床单造就一个完美的鬼(或木乃伊)，你可以把一把黑伞变成 [杀手蝙蝠翅膀](https://www.evilmadscientist.com/2007/umbrella-bat-costume-update-now-more-anatomically-correct/) ，还有，嗯，你有没有考虑过 [当乔](https://www.seventeen.com/fashion/g1574/best-do-it-yourself-halloween-costumes/) ？(比听起来可爱。)如果你喜欢*乌贼游戏*，看看这些 [DIY服装创意](https://lifehacker.com/how-to-make-a-squid-game-costume-and-win-at-halloween-1847847255) 。或者去一趟你当地的寄售店或慈善机构，看看有什么宝藏可能被埋藏。
+不要在亚马逊上购买大量生产的东西，而是重新利用你已经拥有的东西来制作服装。一张老白床单造就一个完美的鬼(或木乃伊)，你可以把一把黑伞变成 [杀手蝙蝠翅膀](https://www.evilmadscientist.com/2007/umbrella-bat-costume-update-now-more-anatomically-correct/) ，还有，嗯，你有没有考虑过 [当乔](https://www.seventeen.com/fashion/g1574/best-do-it-yourself-halloween-costumes/) ？(比听起来可爱。)如果你喜欢*乌贼游戏*，看看这些 [DIY 服装创意](https://lifehacker.com/how-to-make-a-squid-game-costume-and-win-at-halloween-1847847255) 。或者去一趟你当地的寄售店或慈善机构，看看有什么宝藏可能被埋藏。
 
-旧货店、脸书商场、Craigslist和你自己的朋友圈都是回收服装的好来源。如果你真的需要买你的服装，那就把它做成你能再穿的衣服。
+旧货店、脸书商场、Craigslist 和你自己的朋友圈都是回收服装的好来源。如果你真的需要买你的服装，那就把它做成你能再穿的衣服。
 
 ## 用你的回收品做装饰
 
@@ -22,7 +22,7 @@ Watch
 
 ## 使用环保的不招待就使坏的袋子
 
-想听真正恐怖的事吗？据估计，美国人每年使用1000亿个塑料袋 。不要用一次性塑料万圣节包来增加这种浪费，装饰一个纸袋、手提袋、抽绳袋、一个你已经拥有的塑料桶，或者用老式的枕头套(反正它能装更多的糖果)。
+想听真正恐怖的事吗？据估计，美国人每年使用 1000 亿个塑料袋 。不要用一次性塑料万圣节包来增加这种浪费，装饰一个纸袋、手提袋、抽绳袋、一个你已经拥有的塑料桶，或者用老式的枕头套(反正它能装更多的糖果)。
 
 ## 管理你的糖果
 
@@ -36,4 +36,4 @@ Watch
 
 通过捐赠 、出售或者组织一次家庭服装交换来减少万圣节后的浪费。将任何有机材料，如南瓜或树叶，放入堆肥箱。保存假蜘蛛网材料，填充一个变软的抱枕(也许是未来的稻草人),制作独特的艺术品和珠宝... [糖纸](https://craftingagreenworld.com/articles/20-candy-wrapper-crafts/) ？虽然有些对于非手工制作的人来说可能太复杂了，但我们当中有谁不会把包装纸粘在硬纸板上，做成一个 [超级有趣的杯垫](https://www.bobvila.com/articles/reusing-candy-wrappers/) ？
 
-如果你实在无法忍受你的孩子吃那么多糖果，那就征募 [开关女巫](https://www.switch-witch.com/) ，运送If到 [操作感恩](https://www.operationgratitude.com/) ，或者留着给他们的袜子，甚至是复活节。( [糖果比你想象的要持久](https://lifehacker.com/how-long-does-halloween-candy-last-1847840199) )。只要确保那些包装纸上没有蝙蝠，否则你的封面就会被揭穿。
+如果你实在无法忍受你的孩子吃那么多糖果，那就征募 [开关女巫](https://www.switch-witch.com/) ，运送 If 到 [操作感恩](https://www.operationgratitude.com/) ，或者留着给他们的袜子，甚至是复活节。( [糖果比你想象的要持久](https://lifehacker.com/how-long-does-halloween-candy-last-1847840199) )。只要确保那些包装纸上没有蝙蝠，否则你的封面就会被揭穿。

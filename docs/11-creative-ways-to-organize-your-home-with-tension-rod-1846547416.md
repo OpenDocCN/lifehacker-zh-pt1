@@ -1,10 +1,10 @@
-# 用拉杆整理房间的11种创意方法
+# 用拉杆整理房间的 11 种创意方法
 
-> 原文:[https://life hacker . com/11-creative-ways-organize-your-home-with-tension-rod-1846547416](https://lifehacker.com/11-creative-ways-to-organize-your-home-with-tension-rod-1846547416)
+> 原文：<https://lifehacker.com/11-creative-ways-to-organize-your-home-with-tension-rod-1846547416>
 
 拉杆是悬挂窗帘的一种便捷方式，无需在墙壁上打洞，但弹簧拉杆的作用远不止于此。如果你必须足智多谋，一个拉杆可能就是我们说话的时候支撑你浴帘的东西。
 
-他们有一个简单而巧妙的设计，可调节的长度和弹簧圈，使杆几乎可以楔入任何地方，只需一点创意，他们就可以成为你最喜欢的家庭组织工具之一。Lifehacker收集了一些我们最喜欢的用法，供您在自己家里尝试。
+他们有一个简单而巧妙的设计，可调节的长度和弹簧圈，使杆几乎可以楔入任何地方，只需一点创意，他们就可以成为你最喜欢的家庭组织工具之一。Lifehacker 收集了一些我们最喜欢的用法，供您在自己家里尝试。
 
 孩子的衣服在衣柜里不占太多空间，但是从来没有足够的挂杆来真正存放小衬衫和裤子。使用拉杆添加额外的架子，最大限度地利用孩子的衣柜空间。你也可以在衣柜里增加一根较低的挂杆来挂裤子和牛仔裤。
 
@@ -14,7 +14,7 @@
 
 除了整理锅和锅盖，你还可以使用拉杆来整理你的特百惠抽屉。只需将横杆水平或垂直放置在抽屉中，即可分隔出放置盖子和容器的区域。将它们平放、水平或横向存放。
 
-将纸巾固定在墙上或放在支架上，更容易拿取。你可以用一根细拉杆在上层或下层橱柜中打造一个简单的 [DIY支架](https://lifehacker.com/use-a-tension-rod-for-hidden-paper-towel-storage-1615598320)——只需将纸巾卷放在拉杆上，然后在橱柜中展开即可。
+将纸巾固定在墙上或放在支架上，更容易拿取。你可以用一根细拉杆在上层或下层橱柜中打造一个简单的 [DIY 支架](https://lifehacker.com/use-a-tension-rod-for-hidden-paper-towel-storage-1615598320)——只需将纸巾卷放在拉杆上，然后在橱柜中展开即可。
 
 用一根拉杆将橱柜水平横放，放在水槽下面。 [将喷雾瓶](https://lifehacker.com/organize-cleaning-bottles-under-the-sink-with-a-tension-5816766) 挂在杆上，为其他用品和垃圾箱留出空间。你也可以把纸巾卷放在喷雾瓶旁边的挂杆上。
 

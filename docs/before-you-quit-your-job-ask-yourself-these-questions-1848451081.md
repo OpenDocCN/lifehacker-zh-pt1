@@ -1,6 +1,6 @@
 # 在你辞职之前，问自己这些问题
 
-> 原文:[https://life hacker . com/before-you-quit-you-you-quit-you-job-ask-you-these-questions-1848451081](https://lifehacker.com/before-you-quit-your-job-ask-yourself-these-questions-1848451081)
+> 原文：<https://lifehacker.com/before-you-quit-your-job-ask-yourself-these-questions-1848451081>
 
 出于多种原因，在全球疫情生活了近两年后，许多人开始反思自己的人生选择，包括目前的工作。这些人不一定都在寻找职业改变，或者追随他们认为是自己“真正的使命”。“这也包括那些现在意识到他们有额外的(现实的)工作选择，并且做出改变可以提高他们的生活质量的人。在投出你的通知之前，问自己这些问题来帮助评估你目前的工作情况。
 

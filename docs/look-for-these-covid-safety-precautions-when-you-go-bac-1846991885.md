@@ -1,6 +1,6 @@
-# 当你回到健身房时，寻找这些COVID安全预防措施
+# 当你回到健身房时，寻找这些 COVID 安全预防措施
 
-> 原文:[https://life hacker . com/look-for-these-covid-safety-preventions-when-you-go-BAC-1846991885](https://lifehacker.com/look-for-these-covid-safety-precautions-when-you-go-bac-1846991885)
+> 原文：<https://lifehacker.com/look-for-these-covid-safety-precautions-when-you-go-bac-1846991885>
 
 如果你在疫情期间不怎么去健身房，接种疫苗(或者看到你所在地区的疫苗接种率上升)可能足以让你回来。但是你的健身房真的有多安全？以下是一些寻找的迹象，以确保你暴露于新冠肺炎的风险最小化。
 
@@ -14,9 +14,9 @@ Watch
 
 因此，寻找空气进出房间的迹象。如果门和窗在房间的两边都开着，那就太好了。如果在室外上课，或者体育馆有室外部分，那就更好了。
 
-你也可以询问健身房的管理人员，他们对通风系统进行了哪些升级。如果他们使用高级过滤器，每隔10分钟左右彻底换气一次，或者知道他们的二氧化碳读数，这些都是他们认真对待通风的迹象。
+你也可以询问健身房的管理人员，他们对通风系统进行了哪些升级。如果他们使用高级过滤器，每隔 10 分钟左右彻底换气一次，或者知道他们的二氧化碳读数，这些都是他们认真对待通风的迹象。
 
-病毒传播专家Linsey Marr [告诉《纽约时报》](https://www.nytimes.com/2021/03/22/well/move/exercise-classes-gym-coronavirus-covid.html) 说，其他好的迹象是高高的天花板、便携式空气净化器，以及人们相隔至少10英尺。如果你能闻到其他人的气味，这是一个信号，表明空气在*而不是*流通良好。
+病毒传播专家 Linsey Marr [告诉《纽约时报》](https://www.nytimes.com/2021/03/22/well/move/exercise-classes-gym-coronavirus-covid.html) 说，其他好的迹象是高高的天花板、便携式空气净化器，以及人们相隔至少 10 英尺。如果你能闻到其他人的气味，这是一个信号，表明空气在*而不是*流通良好。
 
 ## 当你在室内时，包括在健身房，口罩仍然有帮助
 
@@ -26,8 +26,8 @@ Watch
 
 你也可以戴口罩来保护自己，即使你已经接种了疫苗，也可以起到额外的保护作用。在疫情早期，我们认为面具只能帮助保护他人，但有充分的证据表明 [和](https://lifehacker.com/masks-protect-the-wearer-too-1845698166) 都能保护佩戴者。
 
-## 清洁协议对COVID健身房的安全并不重要
+## 清洁协议对 COVID 健身房的安全并不重要
 
 新冠肺炎主要通过空气和与他人的密切接触(如面对面)传播，很少通过表面接触传播。
 
-然而，这并不意味着清洁和消毒是无用的。健身房仍应定期清洁表面，并为会员提供抹布，在他们使用完设备后清洗干净。这不仅仅是因为COVID，还因为其他感染可以通过表面传播——比如被称为 [MRSA](https://www.cdc.gov/mrsa/community/environment/athletic-facilities.html) 的皮肤感染。
+然而，这并不意味着清洁和消毒是无用的。健身房仍应定期清洁表面，并为会员提供抹布，在他们使用完设备后清洗干净。这不仅仅是因为 COVID，还因为其他感染可以通过表面传播——比如被称为 [MRSA](https://www.cdc.gov/mrsa/community/environment/athletic-facilities.html) 的皮肤感染。

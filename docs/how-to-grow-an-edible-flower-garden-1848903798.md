@@ -1,6 +1,6 @@
 # 如何种植一个可食用的花园
 
-> 原文:[https://life hacker . com/how-to-grow-a-可食花园-1848903798](https://lifehacker.com/how-to-grow-an-edible-flower-garden-1848903798)
+> 原文：<https://lifehacker.com/how-to-grow-an-edible-flower-garden-1848903798>
 
 规划你的花园在权衡形式和功能时可能是一个挑战，但你不必在花园和食用花园之间做出选择。你可以通过种植可食用的花园来获得两全其美，这是为你的盘子和你的院子增添色彩的绝佳选择。
 

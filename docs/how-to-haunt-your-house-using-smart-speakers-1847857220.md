@@ -1,8 +1,8 @@
 # 如何使用智能音箱“出没”你的房子
 
-> 原文:[https://life hacker . com/how-to-hund-your-house-using-smart-speakers-1847857220](https://lifehacker.com/how-to-haunt-your-house-using-smart-speakers-1847857220)
+> 原文：<https://lifehacker.com/how-to-haunt-your-house-using-smart-speakers-1847857220>
 
-无论你有谷歌Home、亚马逊Echo还是苹果的HomePod，你的智能音箱都不应该在这个万圣节被忽视。就像你可以要求Alexa在你做饭时设置定时器，或者用谷歌查询天气一样，你也可以要求你的智能扬声器拥抱幽灵季节——如果你知道要问什么的话。
+无论你有谷歌 Home、亚马逊 Echo 还是苹果的 HomePod，你的智能音箱都不应该在这个万圣节被忽视。就像你可以要求 Alexa 在你做饭时设置定时器，或者用谷歌查询天气一样，你也可以要求你的智能扬声器拥抱幽灵季节——如果你知道要问什么的话。
 
 Watch
 
@@ -10,7 +10,7 @@ Watch
 
 ## 通过你的扬声器说话
 
-如果你想要一个智能音箱，你还不如用它来吓吓远方的客人(T2)。智能音箱都有这样的功能；亚马逊有 [滴滴有](https://www.amazon.com/alexa-drop-in-calling-intercom/b?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-haunt-your-house-using-smart-speakers-1847857220&asc_source=&node=21393410011&tag=kinjalifehackerlink-20) ，Google Home有 [广播选项](https://support.google.com/googlenest/answer/7531913?hl=en&co=GENIE.Platform=Android#zippy=%2Cwhat-you-need%2Cwhere-will-the-broadcast-play) ，HomePod有 [对讲](https://support.apple.com/en-us/HT206149) 。对所有人的影响应该是一样的；设置一条怪异的信息，这条信息就会被发送到你巧妙放置的智能扬声器上。
+如果你想要一个智能音箱，你还不如用它来吓吓远方的客人(T2)。智能音箱都有这样的功能；亚马逊有 [滴滴有](https://www.amazon.com/alexa-drop-in-calling-intercom/b?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-haunt-your-house-using-smart-speakers-1847857220&asc_source=&node=21393410011&tag=kinjalifehackerlink-20) ，Google Home 有 [广播选项](https://support.google.com/googlenest/answer/7531913?hl=en&co=GENIE.Platform=Android#zippy=%2Cwhat-you-need%2Cwhere-will-the-broadcast-play) ，HomePod 有 [对讲](https://support.apple.com/en-us/HT206149) 。对所有人的影响应该是一样的；设置一条怪异的信息，这条信息就会被发送到你巧妙放置的智能扬声器上。
 
 也许你把参加聚会的客人留在一个昏暗的房间里，只有一盏闪烁的灯...只是在他们想知道到底发生了什么的时候，通过藏在头骨或其他道具后面的智能扬声器尖叫。或者你可能把扬声器藏在你家的前门廊上，看着并等待不知情的(年长的)捣蛋鬼靠近。
 
@@ -18,7 +18,7 @@ Watch
 
 没有什么比一些经典的，令人毛骨悚然的果酱更能代表“万圣节”了。怪物土豆泥在这里显然是受欢迎的，但万圣节的主旋律也是如此。一个好的万圣节播放列表将确保你和你的客人真正进入幽灵的精神。
 
-您可以亲自挑选这些播放列表( [或使用我们的建议](https://lifehacker.com/here-are-two-halloween-playlists-one-to-get-your-party-1847739772) )，然后通过您的智能扬声器播放。或者，为了让事情对你来说更容易，选择一个你的智能扬声器可以自动播放的万圣节播放列表。有智能扬声器专用的选项，以及他们可以从Spotify、YouTube、亚马逊音乐和苹果音乐等流媒体服务中获取的播放列表。
+您可以亲自挑选这些播放列表( [或使用我们的建议](https://lifehacker.com/here-are-two-halloween-playlists-one-to-get-your-party-1847739772) )，然后通过您的智能扬声器播放。或者，为了让事情对你来说更容易，选择一个你的智能扬声器可以自动播放的万圣节播放列表。有智能扬声器专用的选项，以及他们可以从 Spotify、YouTube、亚马逊音乐和苹果音乐等流媒体服务中获取的播放列表。
 
 ## 让你的智能助手换灯
 
@@ -28,15 +28,15 @@ Watch
 
 ## 请说话者给你讲一个恐怖故事
 
-一个有趣的万圣节复活节彩蛋是向你的智能音箱要一个恐怖故事。有些可能让你跑3到10分钟；然而，我发现，如果你只是简单地让Google Home告诉你“一些可怕的事情”，你最终会得到一个半开玩笑半可怕的故事。“你听说过关于电力电缆的都市传说吗...太短了？”
+一个有趣的万圣节复活节彩蛋是向你的智能音箱要一个恐怖故事。有些可能让你跑 3 到 10 分钟；然而，我发现，如果你只是简单地让 Google Home 告诉你“一些可怕的事情”，你最终会得到一个半开玩笑半可怕的故事。“你听说过关于电力电缆的都市传说吗...太短了？”
 
 ## 你的智能音箱练习站起来
 
-说到笑话，如果你不介意的话，你的智能音箱正在测试其最新的五分钟设置(最少两杯)。虽然智能扬声器已经准备好全年发布笑话，但请谷歌或Alexa告诉你一个万圣节笑话，与节日更相关。(遗憾的是，虽然Siri可以给你讲笑话，但它的节目单里没有任何万圣节特有的笑话，只会回答:“我不确定我能听懂。”)
+说到笑话，如果你不介意的话，你的智能音箱正在测试其最新的五分钟设置(最少两杯)。虽然智能扬声器已经准备好全年发布笑话，但请谷歌或 Alexa 告诉你一个万圣节笑话，与节日更相关。(遗憾的是，虽然 Siri 可以给你讲笑话，但它的节目单里没有任何万圣节特有的笑话，只会回答:“我不确定我能听懂。”)
 
 ## 恐怖的声音，恐怖的尖叫
 
-万圣节音乐真的可以为你的派对营造气氛，但一个充满气氛的声音播放列表也可以。把你的客厅变成一个吱吱作响、令人毛骨悚然的声音景观，充满尖叫声——只要让你的谷歌主页或亚马逊回声变得怪异，智能扬声器就会照着做。事实上，你可以在未来的某个时刻要求你的亚马逊Echo尖叫。(会不会像梅丽尔·斯特里普的《大谎言》 里的 [一样恐怖？)](https://youtu.be/G450Xcsx1l8?t=41)
+万圣节音乐真的可以为你的派对营造气氛，但一个充满气氛的声音播放列表也可以。把你的客厅变成一个吱吱作响、令人毛骨悚然的声音景观，充满尖叫声——只要让你的谷歌主页或亚马逊回声变得怪异，智能扬声器就会照着做。事实上，你可以在未来的某个时刻要求你的亚马逊 Echo 尖叫。(会不会像梅丽尔·斯特里普的《大谎言》 里的 [一样恐怖？)](https://youtu.be/G450Xcsx1l8?t=41)
 
 ## 吓唬和你说话的人“不给糖就捣蛋”
 

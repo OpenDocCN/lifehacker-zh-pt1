@@ -1,6 +1,6 @@
 # 不要给你的猫喂寿司，以及其他可能杀死它们的令人惊讶的东西
 
-> 原文:[https://life hacker . com/grapes-nuts-and-other-foods-your-cat-should-eat-1848030777](https://lifehacker.com/grapes-nuts-and-other-foods-your-cat-shouldnt-eat-1848030777)
+> 原文：<https://lifehacker.com/grapes-nuts-and-other-foods-your-cat-shouldnt-eat-1848030777>
 
 这是一个很容易养成的习惯:当你做饭的时候偷偷给你的猫一点食物，或者让它们吃你盘子里的剩菜而不是它们的晚餐。但是，虽然你的猫(或狗)可能喜欢并乞求人类的食物，但许多食物从缺乏营养到对宠物完全有毒的。你甚至不应该给你的猫吃那块掉在地板上的寿司，因为 [生鱼对它们来说可能是坏消息](https://pets.webmd.com/cats/ss/slideshow-foods-your-cat-should-never-eat) (更证明 [漫画里充斥着谎言](https://www.youtube.com/watch?v=q0fS9yjZzaA) )。
 

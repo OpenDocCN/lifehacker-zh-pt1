@@ -1,8 +1,8 @@
 # 在当地哪里捐赠来帮助人们堕胎
 
-> 原文:[https://life hacker . com/where-to-donate-locally-to-help-people-access-流产-1848873651](https://lifehacker.com/where-to-donate-locally-to-help-people-access-abortions-1848873651)
+> 原文：<https://lifehacker.com/where-to-donate-locally-to-help-people-access-abortions-1848873651>
 
-*Roe诉Wade* 案正处于被推翻的边缘，根据一份 [泄露的草案，一份即将到来的最高法院意见](https://www.politico.com/news/2022/05/02/supreme-court-abortion-draft-opinion-00029473) 。之后堕胎权的变化取决于你生活在哪个州。正如 [我们先前解释过的](https://lifehacker.com/what-happens-in-your-state-if-roe-v-wade-is-overturned-1827297706) ( 早在阿米科尼·巴雷特被确诊的时候，还记得吗？)，一些州有“触发法”，这意味着一旦Roe下降，堕胎就自动被宣布为非法。其他州仍然保留着前罗伊案的堕胎法，这些法律随后会重新生效。
+*Roe 诉 Wade* 案正处于被推翻的边缘，根据一份 [泄露的草案，一份即将到来的最高法院意见](https://www.politico.com/news/2022/05/02/supreme-court-abortion-draft-opinion-00029473) 。之后堕胎权的变化取决于你生活在哪个州。正如 [我们先前解释过的](https://lifehacker.com/what-happens-in-your-state-if-roe-v-wade-is-overturned-1827297706) ( 早在阿米科尼·巴雷特被确诊的时候，还记得吗？)，一些州有“触发法”，这意味着一旦 Roe 下降，堕胎就自动被宣布为非法。其他州仍然保留着前罗伊案的堕胎法，这些法律随后会重新生效。
 
 Watch
 
@@ -21,4 +21,4 @@ Watch
 *   [妇女生殖权利援助项目](https://wrrap.org/) 在全国范围内为堕胎和紧急避孕提供资金。
 *   黄锤基金会(yellow hammer Fund)，为阿拉巴马州、密西西比州和周边地区的人们提供堕胎基金、免费紧急避孕和其他帮助。
 
-如果你不能决定，全国堕胎基金网络会在80个成员组织之间分配捐款。你也可以在他们的网站上找到一份 [各州的地方基金清单](https://abortionfunds.org/need-abortion/) 。
+如果你不能决定，全国堕胎基金网络会在 80 个成员组织之间分配捐款。你也可以在他们的网站上找到一份 [各州的地方基金清单](https://abortionfunds.org/need-abortion/) 。

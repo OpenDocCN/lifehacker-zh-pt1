@@ -1,6 +1,6 @@
 # 这种病毒式的抖音黑客是剥大蒜的最好方法吗？
 
-> 原文:[https://life hacker . com/is-this-viral-tiktok-hack-the-best-way-to-peel-大蒜-1846145855](https://lifehacker.com/is-this-viral-tiktok-hack-the-best-way-to-peel-garlic-1846145855)
+> 原文：<https://lifehacker.com/is-this-viral-tiktok-hack-the-best-way-to-peel-garlic-1846145855>
 
 似乎每次你打开电脑，都会有一个新的尝试剥一瓣大蒜的方法。我没意识到剥大蒜这么麻烦，不过话说回来，我不太会做饭。(我的大蒜是粉末或冻干的，所以我需要做的就是加水。)但抖音的这种新方法很吸引人，我总是喜欢挑战，谁知道呢——也许一种更简单的剥大蒜的方法会吸引我用新鲜的调料做菜。
 

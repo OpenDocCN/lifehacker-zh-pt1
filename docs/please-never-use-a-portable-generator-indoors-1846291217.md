@@ -1,6 +1,6 @@
 # 请不要在室内使用便携式发电机
 
-> 原文:[https://life hacker . com/please-never-use-a-portable-generator-indoor-1846291217](https://lifehacker.com/please-never-use-a-portable-generator-indoors-1846291217)
+> 原文：<https://lifehacker.com/please-never-use-a-portable-generator-indoors-1846291217>
 
 历史上的降雪和寒冷的气温使数百万德州人断电，当你被迫使用自己的设备为家里供暖时，使用发电机是代替当地电网的常见选择。但是，尽管当电网离线时，燃气便携式发电机是一种可行的替代能源，但它们必须正确使用，因为可能会出现一系列问题——其中许多是危险和致命的。
 
@@ -12,7 +12,7 @@ Watch
 
 便携式发电机基本上是一种移动的燃气发动机，可以在电网不工作时为各种电器供电提供辅助选择。钻机的大小和体积各不相同，并提供不同的功率和总功率选项。
 
-制造商 [Briggs和Stratton在细节上更详细地阐述了](https://www.briggsandstratton.com/na/en_us/buying-guides/portable-generators/why-buy.html) :
+制造商 [Briggs 和 Stratton 在细节上更详细地阐述了](https://www.briggsandstratton.com/na/en_us/buying-guides/portable-generators/why-buy.html) :
 
 > 便携式发电机通过运行燃气发动机来提供电力，该发动机转动车载交流发电机来发电。设备上的电源插座允许您将延长线、电动工具和电器插入其中。一般来说，发电机功率越大，可用的插座组合就越多。
 
@@ -26,9 +26,9 @@ Watch
 
 首先从燃油和机油说起。正如[BobVilla.com](https://www.bobvila.com/articles/how-to-use-a-generator/)解释的那样，确保你按照你的用户手册的指导给油箱加了适量的油。应该有一个计量器来帮助你添加正确的量。不过，你应该在平地上加满油，这样你就能准确地读出油尺的读数。说到油，通常在钻机上的某个地方有一个油尺，你可以拉起来，就像你检查汽车里的油一样。如果你把油擦干净后，油落在油棒上规定的上限和下限内，再把它蘸回去，再把它拔出来，你就得到适量的油了。
 
-确保你的发电机放置在离你家附近任何开着的窗户至少15英尺远的地方，作为一般的最佳实践，让它离你家和邻居家15英尺远。 [能源部建议](https://www.energy.gov/ceser/activities/energy-security/emergency-preparedness/using-portableemergency-generators-safely) 只在干燥的表面上使用，并且“在开放的、类似天篷的结构下，并且在接触发电机之前确保你的手是干的。不要在下雨或潮湿的条件下使用发电机。”
+确保你的发电机放置在离你家附近任何开着的窗户至少 15 英尺远的地方，作为一般的最佳实践，让它离你家和邻居家 15 英尺远。 [能源部建议](https://www.energy.gov/ceser/activities/energy-security/emergency-preparedness/using-portableemergency-generators-safely) 只在干燥的表面上使用，并且“在开放的、类似天篷的结构下，并且在接触发电机之前确保你的手是干的。不要在下雨或潮湿的条件下使用发电机。”
 
-无论你做什么——这是至关重要的——确保你把它放在外面。在室内使用便携式发电机非常危险，因为一氧化碳会从设备中渗出。根据CDC的规定，有毒气体无嗅无味，会导致“头痛、头晕、虚弱、胃部不适、呕吐、胸痛和意识模糊”等症状。 千万不要把发电机插在你家的墙上插座上，因为这会压垮你家的电路，引起火灾。
+无论你做什么——这是至关重要的——确保你把它放在外面。在室内使用便携式发电机非常危险，因为一氧化碳会从设备中渗出。根据 CDC 的规定，有毒气体无嗅无味，会导致“头痛、头晕、虚弱、胃部不适、呕吐、胸痛和意识模糊”等症状。 千万不要把发电机插在你家的墙上插座上，因为这会压垮你家的电路，引起火灾。
 
 如果您在使用便携式发电机时开始感到头晕或不适，请立即关闭设备并获取新鲜空气——远离发电机。
 

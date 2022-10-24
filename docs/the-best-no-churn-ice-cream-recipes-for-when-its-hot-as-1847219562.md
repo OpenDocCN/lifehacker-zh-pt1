@@ -1,6 +1,6 @@
 # 当天气热得像球一样时，最好的免搅拌冰淇淋食谱
 
-> 原文:[https://life hacker . com/the-best-no-churn-ice cream-recipes-for-when-its-hot-as-1847219562](https://lifehacker.com/the-best-no-churn-ice-cream-recipes-for-when-its-hot-as-1847219562)
+> 原文：<https://lifehacker.com/the-best-no-churn-ice-cream-recipes-for-when-its-hot-as-1847219562>
 
 毫无疑问，冰淇淋是最好的甜点。它浓郁、滑腻、冰凉，有你能想象到的多种口味，从标准的巧克力和香草到实验品，如 [鬼椒或](https://www.mentalfloss.com/article/51703/12-strange-real-ice-cream-flavors) 玉米棒。有时候，从最近的杂货店开一品脱就够了，但是自己动手制作会让你感到满足，这是商店买不到的。
 
@@ -24,14 +24,14 @@ Watch
 
 这种柠檬水软冰淇淋 的配方需要柠檬水浓缩物、糖粉和重奶油，感觉像是回到了我的童年，当时我无法在我们用罐头做的粉红色柠檬水和软冰淇淋之间做出选择。这个食谱将两者结合起来，制作出了一种既柔软*又扑鼻的冷冻食品。*
 
-食谱需要一个。一杯浓奶油，六盎司解冻的浓缩柠檬水，一杯糖粉。在我那里，我只能找到12盎司罐装的冷冻浓缩柠檬水，所以我把配方翻了一倍。制作时，你要在一个冷冻的碗里搅拌奶油，直到形成软峰。然后，你搅拌柠檬水浓缩物和糖粉，之后你把混合物放入一个冷冻安全的容器中，盖上盖子，冷冻至固体。
+食谱需要一个。一杯浓奶油，六盎司解冻的浓缩柠檬水，一杯糖粉。在我那里，我只能找到 12 盎司罐装的冷冻浓缩柠檬水，所以我把配方翻了一倍。制作时，你要在一个冷冻的碗里搅拌奶油，直到形成软峰。然后，你搅拌柠檬水浓缩物和糖粉，之后你把混合物放入一个冷冻安全的容器中，盖上盖子，冷冻至固体。
 
 每次我做这个，我的孩子都会吸入，然后要求更多。我想他终究不会在粉色柠檬水和软冰淇淋之间做出选择。相反，他两者兼得。
 
 ## **周日和玛雅医生一起**
 
-对于其他想法，我建议查看Instagram直播节目， [*冰淇淋星期天，由玛雅*](https://www.instagram.com/maya.warren/?hl=en) ， 博士主持 [玛雅·沃伦](https://www.mayawarren.com/) 博士，他是一位拥有food sscience博士学位的冰淇淋科学家。(没错，那是一个实际的职业！要是我年轻时知道这是可能的就好了！)
+对于其他想法，我建议查看 Instagram 直播节目， [*冰淇淋星期天，由玛雅*](https://www.instagram.com/maya.warren/?hl=en) ， 博士主持 [玛雅·沃伦](https://www.mayawarren.com/) 博士，他是一位拥有 food sscience 博士学位的冰淇淋科学家。(没错，那是一个实际的职业！要是我年轻时知道这是可能的就好了！)
 
-玛雅医生去年在隔离期间开始了她的节目。每周在周日晚上12点播出的节目中，她都会展示一种新的免搅拌冰淇淋配方。她的免搅拌食谱包括各种口味，如[幸运护身符](https://www.mayawarren.com/new-page-4)[波旁香草海盐焦糖](https://www.mayawarren.com/new-page-65)[草莓芝士蛋糕](https://www.mayawarren.com/no-churn-strawberry-cheesecake-ice-cream)[蛋奶酒](https://www.mayawarren.com/no-chun-eggnog-ice-cream) 冰淇淋。
+玛雅医生去年在隔离期间开始了她的节目。每周在周日晚上 12 点播出的节目中，她都会展示一种新的免搅拌冰淇淋配方。她的免搅拌食谱包括各种口味，如[幸运护身符](https://www.mayawarren.com/new-page-4)[波旁香草海盐焦糖](https://www.mayawarren.com/new-page-65)[草莓芝士蛋糕](https://www.mayawarren.com/no-churn-strawberry-cheesecake-ice-cream)[蛋奶酒](https://www.mayawarren.com/no-chun-eggnog-ice-cream) 冰淇淋。
 
 有了这样的选择，你可能永远也想不出冰淇淋的新点子。

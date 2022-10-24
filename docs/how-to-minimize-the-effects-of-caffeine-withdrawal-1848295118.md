@@ -1,6 +1,6 @@
 # 如何最小化咖啡因戒断的影响
 
-> 原文:[https://life hacker . com/how-to-minimize-the-effects of-咖啡因戒断-1848295118](https://lifehacker.com/how-to-minimize-the-effects-of-caffeine-withdrawal-1848295118)
+> 原文：<https://lifehacker.com/how-to-minimize-the-effects-of-caffeine-withdrawal-1848295118>
 
 有各种各样的原因可以解释为什么有人会决定减少咖啡因的摄入量——或者完全戒掉——这些都与决心无关。但是这是一个试图改变我们生活的季节，我们可能会在几周内放弃。
 
@@ -26,7 +26,7 @@ Watch
 *   过敏性
 *   便秘
 
-根据一个人通常的咖啡因摄入量(包括他们一天中摄入咖啡因的时间)，戒断症状 [通常在他们最后一次摄入咖啡因后12到24小时](https://my.clevelandclinic.org/health/articles/15496-caffeine-how-to-hack-it-and-how-to-quit-it) 开始，并且往往持续两到九天。
+根据一个人通常的咖啡因摄入量(包括他们一天中摄入咖啡因的时间)，戒断症状 [通常在他们最后一次摄入咖啡因后 12 到 24 小时](https://my.clevelandclinic.org/health/articles/15496-caffeine-how-to-hack-it-and-how-to-quit-it) 开始，并且往往持续两到九天。
 
 ## 如何管理咖啡因戒断症状
 

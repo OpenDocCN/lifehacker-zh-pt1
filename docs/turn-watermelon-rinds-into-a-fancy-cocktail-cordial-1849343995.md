@@ -1,6 +1,6 @@
 # 将西瓜皮变成别致的鸡尾酒补酒
 
-> 原文:[https://life hacker . com/turn-western-rinds-into-a-fancy-cocktail-cordial-1849343995](https://lifehacker.com/turn-watermelon-rinds-into-a-fancy-cocktail-cordial-1849343995)
+> 原文：<https://lifehacker.com/turn-watermelon-rinds-into-a-fancy-cocktail-cordial-1849343995>
 
 “我该怎么处理这些西瓜皮？”很久以前就被回答了，你可能已经知道答案了，尤其是如果你来自南方。西瓜皮变成了 [西瓜泡菜](https://lifehacker.com/quick-pickle-pretty-much-anything-with-one-simple-ratio-1721695458) ，这种脆而无味的废料变得柔软、扑鼻，而且(通常)有点辣。但是泡菜不是这个夏天你唯一应该做的西瓜皮项目，尤其是如果你喜欢多汁鸡尾酒的话。
 
@@ -10,7 +10,7 @@ Watch
 
 > “粉红色的果肉不适合放在饮料中，”关注可持续发展的 [垃圾收集](https://www.thetrashcollective.com/) 的凯尔西·拉梅奇说，描述了西瓜的“粉红色浮渣”倾向于漂浮在饮料上的方式。此外，榨汁或加入果肉会留下果皮作为废物。
 
-制作 [甜瓜补酒](https://punchdrink.com/recipes/watermelon-rind-cordial/) 很容易。将 **2份糖和1份皮**混合，确保在混合前将皮洗净并切成2-4英寸的方块。密封在一个大容器中，静置过夜，然后在一个高功率搅拌机中混合皮和糖浆，并通过细网筛过滤。
+制作 [甜瓜补酒](https://punchdrink.com/recipes/watermelon-rind-cordial/) 很容易。将 **2 份糖和 1 份皮**混合，确保在混合前将皮洗净并切成 2-4 英寸的方块。密封在一个大容器中，静置过夜，然后在一个高功率搅拌机中混合皮和糖浆，并通过细网筛过滤。
 
 你的甜酒的味道取决于你的甜瓜的味道，以及瓜皮上残留的果肉量:
 

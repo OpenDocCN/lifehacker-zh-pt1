@@ -1,6 +1,6 @@
 # 如何让你的孩子在医生办公室里忙个不停，而不用递给他们一个屏幕
 
-> 原文:[https://life hacker . com/how-to-keep-your-kid-at-doctors-office-wit-1847165849](https://lifehacker.com/how-to-keep-your-kid-occupied-at-the-doctors-office-wit-1847165849)
+> 原文：<https://lifehacker.com/how-to-keep-your-kid-occupied-at-the-doctors-office-wit-1847165849>
 
 当你为人父母的时候，一件不好玩的事情就是带你的小孩去儿科医生的办公室。有个无尽的原因让医生的办公室不有趣——这意味着你的孩子受伤了，生病了，或者有一些奇怪的皮疹；这是一年一度的体检，这可能意味着他们的未来；你的孩子会找到恶心的东西去舔；医生的办公室将会被占用，所以你的孩子将不得不等待。
 
@@ -10,7 +10,7 @@ Watch
 
 ## 如何让你的孩子在儿科医生办公室忙起来
 
-这个创意来自于忙着学步的[](https://www.instagram.com/p/CQOii8ql5Ky/)[其Instagram feed充满光彩](https://www.instagram.com/busytoddler/) )的苏西·艾莉森(Susie Allison)。艾莉森说:
+这个创意来自于忙着学步的[](https://www.instagram.com/p/CQOii8ql5Ky/)[其 Instagram feed 充满光彩](https://www.instagram.com/busytoddler/) )的苏西·艾莉森(Susie Allison)。艾莉森说:
 
 > 在无数次我的孩子在体检中测试《蝇王》的合法性之后……几年前我想到了这个方法，现在我仍然每次都这么做。
 > 

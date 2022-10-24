@@ -1,6 +1,6 @@
 # 如何安全地修剪狗狗的指甲
 
-> 原文:[https://life hacker . com/how-to-safely-trim-your-dogs-nails-1846654351](https://lifehacker.com/how-to-safely-trim-your-dogs-nails-1846654351)
+> 原文：<https://lifehacker.com/how-to-safely-trim-your-dogs-nails-1846654351>
 
 剪狗狗的指甲是梳理过程中最棘手的部分之一。它们的甲床有所谓的“”——生长在指甲内并连接神经和血管的组织——如果你切掉太多指甲，你可能会切到痛处，伤害你的小狗。此外，并不是所有的狗都喜欢处理它们的爪子，这会使这个过程加倍困难——但这是必要的，所以我们收集了一些专家的建议，在不去兽医诊所的情况下修剪你的狗的指甲。
 

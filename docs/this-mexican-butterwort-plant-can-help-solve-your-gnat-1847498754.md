@@ -1,6 +1,6 @@
 # 这种墨西哥金雀花植物可以帮助解决你的蚊蚋问题
 
-> 原文:[https://life hacker . com/this-Mexican-butterwort-plant-can-help-solve-your-gnat-1847498754](https://lifehacker.com/this-mexican-butterwort-plant-can-help-solve-your-gnat-1847498754)
+> 原文：<https://lifehacker.com/this-mexican-butterwort-plant-can-help-solve-your-gnat-1847498754>
 
 蚊蚋和其他小苍蝇很讨厌除掉。数量少就够糟了，但是一场虫害意味着更多的努力。在 之前，我们已经介绍过几种补救方法，比如苹果醋陷阱，但是有一种植物也可以帮助解决你的蚊虫问题。
 
@@ -10,13 +10,13 @@ Watch
 
 墨西哥金雀花是肉质科的一种食肉植物。厚厚的花状叶子产生一种粘性物质，吸引真菌、昆虫和果蝇等小苍蝇，它们被捕获在粘性陷阱中，在那里它们的相互作用触发了植物的消化酶。
 
-墨西哥金凤花，也被称为pinguicula，有 [46个命名物种](https://www.carnivorousplants.org/grow/guides/MexicanPinguicula) ，有各种形状和颜色。由于一些物种的直径可以小到一至两英寸，所以它们非常适合作为小型室内植物。TikTokerT5】tanner theplanterT7】给出了一个关于食虫植物的简短教程。
+墨西哥金凤花，也被称为 pinguicula，有 [46 个命名物种](https://www.carnivorousplants.org/grow/guides/MexicanPinguicula) ，有各种形状和颜色。由于一些物种的直径可以小到一至两英寸，所以它们非常适合作为小型室内植物。TikTokerT5】tanner theplanterT7】给出了一个关于食虫植物的简短教程。
 
  [https://lifehacker.com/embed/inset/iframe?id=tiktok-6985697275599244549&autosize=1](https://lifehacker.com/embed/inset/iframe?id=tiktok-6985697275599244549&autosize=1) 
 
 ## 一年中购买墨西哥金雀花的最佳时间
 
-你想在春末和夏季购买墨西哥金雀花。在秋天和冬天，这种以苍蝇为食的植物进入一种休眠状态，不再诱捕那么多苍蝇。如果你在10月至3月间购买一棵，你将在它的“冬季肉质期”收到这种植物，正如加州食肉动物 所描述的。
+你想在春末和夏季购买墨西哥金雀花。在秋天和冬天，这种以苍蝇为食的植物进入一种休眠状态，不再诱捕那么多苍蝇。如果你在 10 月至 3 月间购买一棵，你将在它的“冬季肉质期”收到这种植物，正如加州食肉动物 所描述的。
 
 ## 如何照顾墨西哥金凤花室内植物
 

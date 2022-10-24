@@ -1,6 +1,6 @@
 # 如果一只负鼠进了你的房子该怎么办
 
-> 原文:[https://life hacker . com/what-do-if-a-possum-get-in-your-house-1848559122](https://lifehacker.com/what-to-do-if-a-possum-gets-in-your-house-1848559122)
+> 原文：<https://lifehacker.com/what-to-do-if-a-possum-gets-in-your-house-1848559122>
 
 几年前，一只负鼠卡在我浴室的墙上。那时，我住在休斯顿市中心的一栋旧平房里，房子的地基是桥墩和横梁。不知何故，这只负鼠设法钻到了房子下面，然后爬上了墙壁之间的空间，在那里它被卡住了，随后花了一整天试图再次出来。
 

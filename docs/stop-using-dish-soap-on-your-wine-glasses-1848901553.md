@@ -1,6 +1,6 @@
 # 不要在你的酒杯上使用洗碗皂
 
-> 原文:[https://life hacker . com/stop-use-dish-soap-on-your-wine-glasses-1848901553](https://lifehacker.com/stop-using-dish-soap-on-your-wine-glasses-1848901553)
+> 原文：<https://lifehacker.com/stop-using-dish-soap-on-your-wine-glasses-1848901553>
 
 葡萄酒世界是出了名的神秘。*腿？单宁？为什么每个人都在啧啧有声？*所以说到保养你的酒杯，很多人有很多不同的看法是有道理的。事实上，当你查找清洗酒杯的最佳方法时，你可能会发现问题多于答案。 [不同](https://www.nytimes.com/wirecutter/guides/how-to-clean-wine-glasses-dishwasher/) 来源说 [不同](https://www.cookinglight.com/cooking-101/techniques/how-to-clean-wine-glasses-decanter) [事情](https://food52.com/blog/23585-best-way-to-clean-wine-glasses-according-to-wine-pros) 关于手洗、风干，以及酒杯放入洗碗机中是否。不过，一个反复出现的常见主题是:用肥皂清洗酒杯可能弊大于利。
 
@@ -12,7 +12,7 @@ Watch
 
 如果你喝了一小口，发现你的葡萄酒味道“不好”，不要马上指责这瓶酒是坏的一批。真正的罪魁祸首可能是你的杯子，以及留下的肥皂残渣。肥皂残留物带有一种气味，任何与之竞争的气味都会对你的葡萄酒体验产生巨大的影响。
 
-另外， [正如Wirecutter](https://www.nytimes.com/wirecutter/guides/how-to-clean-wine-glasses-dishwasher/) 指出的，反复使用清洁剂会腐蚀你的玻璃器皿，让它变得越来越浑浊。随着时间的推移，这可能会改变你从那些浑浊的杯子里喝的任何酒的味道。
+另外， [正如 Wirecutter](https://www.nytimes.com/wirecutter/guides/how-to-clean-wine-glasses-dishwasher/) 指出的，反复使用清洁剂会腐蚀你的玻璃器皿，让它变得越来越浑浊。随着时间的推移，这可能会改变你从那些浑浊的杯子里喝的任何酒的味道。
 
 ## **清洁酒杯的更多方法**
 

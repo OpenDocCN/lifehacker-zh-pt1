@@ -1,8 +1,8 @@
 # 好莱坞歌手蔻驰·丹尼斯·伍兹为您讲述如何找到自己的声音
 
-> 原文:[https://life hacker . com/how-to-find-your-voice-with-Hollywood-vocal-coach-deni-1846280709](https://lifehacker.com/how-to-find-your-voice-with-hollywood-vocal-coach-deni-1846280709)
+> 原文：<https://lifehacker.com/how-to-find-your-voice-with-hollywood-vocal-coach-deni-1846280709>
 
-本周，在好莱坞声乐教练丹尼斯·伍兹的帮助下，我们对乐器进行了微调。丹尼斯是一名超过20年的专业声乐和方言教练，曾与威尔·史密斯、哈莉·贝瑞、蕾切尔·薇姿、杰西卡·查斯坦和马赫沙拉·阿里等明星合作。听听丹尼斯给出的建议，告诉你如何改掉“嗯”、“啊”和“喜欢”的坏习惯，找出你独特的“声纹”，并学会在说话时控制呼吸的力量。
+本周，在好莱坞声乐教练丹尼斯·伍兹的帮助下，我们对乐器进行了微调。丹尼斯是一名超过 20 年的专业声乐和方言教练，曾与威尔·史密斯、哈莉·贝瑞、蕾切尔·薇姿、杰西卡·查斯坦和马赫沙拉·阿里等明星合作。听听丹尼斯给出的建议，告诉你如何改掉“嗯”、“啊”和“喜欢”的坏习惯，找出你独特的“声纹”，并学会在说话时控制呼吸的力量。
 
 Watch
 
@@ -12,7 +12,7 @@ Watch
 
 T2】
 
-听听上面的升级或者在所有通常提供播客的地方找到我们，包括[Google Play](https://play.google.com/music/listen?u=0#/ps/Illldmn6f4jkwb32lslhae3laru)[Spotify](https://open.spotify.com/show/43qzAEOZ861D4aXaBXaRKj)[iHeartRadio](https://www.iheart.com/podcast/8-The-Upgrade-by-Lifehacker-28037794)和NPR一号。
+听听上面的升级或者在所有通常提供播客的地方找到我们，包括[Google Play](https://play.google.com/music/listen?u=0#/ps/Illldmn6f4jkwb32lslhae3laru)[Spotify](https://open.spotify.com/show/43qzAEOZ861D4aXaBXaRKj)[iHeartRadio](https://www.iheart.com/podcast/8-The-Upgrade-by-Lifehacker-28037794)和 NPR 一号。
 
 ## **本周集锦**
 
@@ -32,7 +32,7 @@ T2】
 
 要听丹尼斯关于如何改善嗓音的所有建议，我们建议听完整集。
 
-对未来的剧集有什么反馈或想法吗？想上节目吗？请拨打347-687-8109给我们留言，或者给upgrade@lifehacker.com发送语音备忘录。
+对未来的剧集有什么反馈或想法吗？想上节目吗？请拨打 347-687-8109 给我们留言，或者给 upgrade@lifehacker.com 发送语音备忘录。
 
 ### **一集文字记录**
 

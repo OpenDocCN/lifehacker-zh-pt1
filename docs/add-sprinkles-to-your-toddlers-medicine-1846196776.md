@@ -1,12 +1,12 @@
 # 在你孩子的药物中加入粉末
 
-> 原文:[https://life hacker . com/add-sprinkles-to-your-dolls-medicine-1846196776](https://lifehacker.com/add-sprinkles-to-your-toddlers-medicine-1846196776)
+> 原文：<https://lifehacker.com/add-sprinkles-to-your-toddlers-medicine-1846196776>
 
 当小孩生病时，他们经常需要吃药——但是当小孩生病时，他们也经常强烈地感觉到他们真的宁愿不吃药。尤其是初学走路的孩子，还没有做好逻辑推理的准备，比如，“你感觉很糟糕！这会让你觉得自己不蹩脚！”他们不在乎；他们不想要。你只是想在不使整个情况变得更糟的情况下让药物进入他们体内。这就是糖粉的用途。
 
 Watch
 
-这个想法来自于Nikki，([@ TinyHeartsEducation](https://www.instagram.com/p/CKbR0D9hDu3/)在Instagram上，通过 [PopSugar](https://www.popsugar.com/family/mom-sprinkle-hack-to-get-kids-to-take-medicine-48130015) 发给我们)。你只需量出适当的剂量，将它喷入勺子中，并在上面撒上一些粉末。像这样:
+这个想法来自于 Nikki，([@ TinyHeartsEducation](https://www.instagram.com/p/CKbR0D9hDu3/)在 Instagram 上，通过 [PopSugar](https://www.popsugar.com/family/mom-sprinkle-hack-to-get-kids-to-take-medicine-48130015) 发给我们)。你只需量出适当的剂量，将它喷入勺子中，并在上面撒上一些粉末。像这样:
 
  [https://lifehacker.com/embed/inset/iframe?id=instagram-CKbR0D9hDu3&autosize=1](https://lifehacker.com/embed/inset/iframe?id=instagram-CKbR0D9hDu3&autosize=1) 
 

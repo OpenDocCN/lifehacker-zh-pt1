@@ -1,6 +1,6 @@
-# 6种方法知道你是否是关系中的毒害者(以及如何处理)
+# 6 种方法知道你是否是关系中的毒害者(以及如何处理)
 
-> 原文:[https://life hacker . com/6-ways-to-know-way-to-know-if-you-the-toxic-one-in-a-a-relationship-1849507129](https://lifehacker.com/6-ways-to-know-if-youre-the-toxic-one-in-a-relationship-1849507129)
+> 原文：<https://lifehacker.com/6-ways-to-know-if-youre-the-toxic-one-in-a-relationship-1849507129>
 
 当你查找“有毒关系”时，所有的顶级结果都集中在识别其他人身上不健康或有害的迹象——而不是你。毕竟，指责和诊断其他人的有毒行为很容易。更难的是，当你是一段关系中造成问题的一方时，要好好照照镜子，承认这一点。你怎么知道自己是有毒的，你能做些什么来改变它？
 

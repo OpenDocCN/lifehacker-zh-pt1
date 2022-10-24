@@ -1,6 +1,6 @@
 # 根据这些睡眠习惯，知道你合适的枕头类型
 
-> 原文:[https://life hacker . com/know-your-right-pillow-type-based-on-these-sleep-habits-1846604641](https://lifehacker.com/know-your-right-pillow-type-based-on-these-sleep-habits-1846604641)
+> 原文：<https://lifehacker.com/know-your-right-pillow-type-based-on-these-sleep-habits-1846604641>
 
 睡眠让你的身体 [充电，恢复，并抵御疾病](https://www.sleepfoundation.org/how-sleep-works/why-do-we-need-sleep) 如心脏病和糖尿病。想要睡个好觉可能很难(无论是疫情之前还是现在)，对我们许多人来说，最大的困难之一就是找到合适的枕头。我花了无数的钱在枕头上，以为我找到了最完美的一个，也许你也试过了，从记忆泡沫和冷却凝胶，到硬枕头，软枕头，侧睡枕头，等等。
 
@@ -10,7 +10,7 @@ Watch
 
 ### 评估你的健康状况
 
-我们的睡眠方式影响着我们许多人面临的无数情况， [从鼻窦问题到眩晕再到胃灼热](https://www.health.harvard.edu/pain/is-your-pillow-hurting-your-health) 。如果你患有睡眠呼吸暂停并使用CPAP机器，你使用的枕头也会影响你的面罩并阻止气流输送——特别是侧睡者，他们经常需要 [特制CPAP枕头](https://www.cpap.com/productpage/SleePAP-cpap-pillow-with-pillowcase) 。了解你的健康状况是找到最适合你的枕头的第一步。
+我们的睡眠方式影响着我们许多人面临的无数情况， [从鼻窦问题到眩晕再到胃灼热](https://www.health.harvard.edu/pain/is-your-pillow-hurting-your-health) 。如果你患有睡眠呼吸暂停并使用 CPAP 机器，你使用的枕头也会影响你的面罩并阻止气流输送——特别是侧睡者，他们经常需要 [特制 CPAP 枕头](https://www.cpap.com/productpage/SleePAP-cpap-pillow-with-pillowcase) 。了解你的健康状况是找到最适合你的枕头的第一步。
 
 ### 考虑你的睡眠习惯
 

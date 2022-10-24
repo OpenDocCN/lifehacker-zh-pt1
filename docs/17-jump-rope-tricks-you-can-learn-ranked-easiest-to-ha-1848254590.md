@@ -1,6 +1,6 @@
-# 你可以学习的17种跳绳技巧，从最容易到最难排列
+# 你可以学习的 17 种跳绳技巧，从最容易到最难排列
 
-> 原文:[https://life hacker . com/17-跳绳技巧-你能学会-排名-最容易-哈-1848254590](https://lifehacker.com/17-jump-rope-tricks-you-can-learn-ranked-easiest-to-ha-1848254590)
+> 原文：<https://lifehacker.com/17-jump-rope-tricks-you-can-learn-ranked-easiest-to-ha-1848254590>
 
 跳绳是一种简单、便携的工具，可以让你在狭小的空间里做有氧运动。但是如果你觉得简单的跳跃很无聊，考虑把跳绳当成一种技能，就像跳舞一样。我们整理了一份你可以学习的跳绳动作列表，每一个都有一个视频教程。
 
@@ -40,7 +40,7 @@
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-4tsT6hDB6Aw&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-4tsT6hDB6Aw&start=0) 
 
-双下就是在一次单跳中把绳子放在脚下两次。它需要强有力的跳跃，因此它是CrossFit训练中很受欢迎的一部分。这是一个很难掌握的技巧，但秘诀是不要惊慌，做任何事情都要和正常的单跳完全一样。专家提示:一根非常细的绳子有助于T2。
+双下就是在一次单跳中把绳子放在脚下两次。它需要强有力的跳跃，因此它是 CrossFit 训练中很受欢迎的一部分。这是一个很难掌握的技巧，但秘诀是不要惊慌，做任何事情都要和正常的单跳完全一样。专家提示:一根非常细的绳子有助于 T2。
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-LYyYeav6dN0&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-LYyYeav6dN0&start=0) 
 
@@ -56,7 +56,7 @@
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-I0dzlQmCnDs&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-I0dzlQmCnDs&start=0) 
 
-shuffle是boxer skip的一个稍微花哨的版本，所以这是另一个主要挑战是协调的地方。练习简化版本，就像在本教程中一样，然后将完整的动作组合在一起。
+shuffle 是 boxer skip 的一个稍微花哨的版本，所以这是另一个主要挑战是协调的地方。练习简化版本，就像在本教程中一样，然后将完整的动作组合在一起。
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-_Owgfm13pD4&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-_Owgfm13pD4&start=0) 
 
@@ -72,4 +72,4 @@ shuffle是boxer skip的一个稍微花哨的版本，所以这是另一个主要
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-UDqp3O0eQlc&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-UDqp3O0eQlc&start=0) 
 
-对于我们的最后一个技巧——也许不是世界上最难的，但绝对是列表中最有趣的——你将学会在旋转360度的同时将绳子甩出体外。这是另一个协调性测试，专业的跳跃运动员让它看起来很容易。现在出去给你的朋友们留下深刻印象吧！
+对于我们的最后一个技巧——也许不是世界上最难的，但绝对是列表中最有趣的——你将学会在旋转 360 度的同时将绳子甩出体外。这是另一个协调性测试，专业的跳跃运动员让它看起来很容易。现在出去给你的朋友们留下深刻印象吧！

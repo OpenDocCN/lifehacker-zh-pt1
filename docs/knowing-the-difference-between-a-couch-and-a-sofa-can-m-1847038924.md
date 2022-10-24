@@ -1,8 +1,8 @@
 # 了解长沙发和沙发的区别可以让家具购物更容易
 
-> 原文:[https://life hacker . com/known-the-difference-a couch-a-sofa-can-m-1847038924](https://lifehacker.com/knowing-the-difference-between-a-couch-and-a-sofa-can-m-1847038924)
+> 原文：<https://lifehacker.com/knowing-the-difference-between-a-couch-and-a-sofa-can-m-1847038924>
 
-你客厅里的那件大型软垫家具，可以同时容纳多人，它的位置大概是根据T V:它是长沙发还是沙发？这听起来可能像是那些地区性语言问题中的一个(就像“苏打水”对“汽水”对“可乐”)，但在这种情况下，沙发和沙发实际上是两件不同的家具。下面是你需要知道的关于这两种座位的区别。
+你客厅里的那件大型软垫家具，可以同时容纳多人，它的位置大概是根据 T V:它是长沙发还是沙发？这听起来可能像是那些地区性语言问题中的一个(就像“苏打水”对“汽水”对“可乐”)，但在这种情况下，沙发和沙发实际上是两件不同的家具。下面是你需要知道的关于这两种座位的区别。
 
 Watch
 

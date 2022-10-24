@@ -1,6 +1,6 @@
 # 确保你的孩子知道你的离婚不是秘密
 
-> 原文:[https://life hacker . com/确保你的孩子知道你离婚不是秘密-1846876059](https://lifehacker.com/make-sure-your-kids-know-your-divorce-isnt-a-secret-1846876059)
+> 原文：<https://lifehacker.com/make-sure-your-kids-know-your-divorce-isnt-a-secret-1846876059>
 
 当你不得不告诉你的孩子你要离婚时，有很多事情要考虑( [我们这里有一个关于它的完整指南](https://offspring.lifehacker.com/an-age-by-age-guide-to-talking-to-kids-about-divorce-1846861909) )。你要表现出尽可能多的尊重和团结；你要确保他们知道他们仍然会得到父母的爱和支持，而且这不是因为他们做了什么*。但是有一件事你可能不想说，但也是他们需要听到的:这不是秘密。*
 

@@ -1,6 +1,6 @@
 # 如何在不损坏背包、帆布包和手提包的情况下清洁它们
 
-> 原文:[https://life hacker . com/how-to-clean-your-gross-backups-canvas-bags-and-tot-1849379778](https://lifehacker.com/how-to-clean-your-gross-backpacks-canvas-bags-and-tot-1849379778)
+> 原文：<https://lifehacker.com/how-to-clean-your-gross-backpacks-canvas-bags-and-tot-1849379778>
 
 想想当你外出时，你(或你的家庭成员)放背包和其他袋子的所有地方。在一天中，它们可能会接触到浴室、公共汽车或汽车的地板，以及购物车、柜台和其他人。换句话说，它们会变得很恶心。
 
@@ -10,7 +10,7 @@ Watch
 
 ## 如何洗背包
 
-在清洗背包或任何其他包之前，检查标签上制造商的说明。一般来说，大多数聚酯和尼龙袋可以机洗(尽管户外零售商 [REI建议不要机洗](https://www.rei.com/learn/expert-advice/backpack-how-to-clean.html#:~:text=Never%20wash%20a%20pack%20in,light%20can%20degrade%20the%20fabric).) )。虽然洗手可能是最安全的，但不是每个人都有时间洗手。
+在清洗背包或任何其他包之前，检查标签上制造商的说明。一般来说，大多数聚酯和尼龙袋可以机洗(尽管户外零售商 [REI 建议不要机洗](https://www.rei.com/learn/expert-advice/backpack-how-to-clean.html#:~:text=Never%20wash%20a%20pack%20in,light%20can%20degrade%20the%20fabric).) )。虽然洗手可能是最安全的，但不是每个人都有时间洗手。
 
 幸运的是，你可以采取一些措施来机洗你的背包，而不会弄坏它。这些 [包括](https://www.cnn.com/cnn-underscored/home/how-to-wash-a-backpack) :
 

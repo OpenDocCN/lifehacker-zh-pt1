@@ -1,12 +1,12 @@
 # 像个该死的成年人一样整理你的冰箱
 
-> 原文:[https://life hacker . com/organize-your-冰箱-就像你是一个该死的成年人-1846951710](https://lifehacker.com/organize-your-fridge-like-youre-a-goddamned-adult-1846951710)
+> 原文：<https://lifehacker.com/organize-your-fridge-like-youre-a-goddamned-adult-1846951710>
 
 我们整理储物区域，如我们的壁橱、抽屉和车库、，但冰箱往往被忽视。在所有保持井井有条的空间中，冰箱是唯一一个对时间敏感的空间。
 
 Watch
 
-[浪费360](https://www.waste360.com/food-waste/study-shows-how-much-food-americans-waste-every-year) 报道称，美国家庭平均每年扔掉大约103磅食物，四分之三的美国人将他们的食物浪费归因于混乱——比如，“他们忘记了是冰箱里的[食物],或者它在混乱中丢失了。 " 要降低我们丢弃食物的速度，需要将我们的冰箱布置得超出平均储藏标准，因此，以下是如何最大限度地优化你的冰箱布局，以提高功能并防止过多的食物浪费。
+[浪费 360](https://www.waste360.com/food-waste/study-shows-how-much-food-americans-waste-every-year) 报道称，美国家庭平均每年扔掉大约 103 磅食物，四分之三的美国人将他们的食物浪费归因于混乱——比如，“他们忘记了是冰箱里的[食物],或者它在混乱中丢失了。 " 要降低我们丢弃食物的速度，需要将我们的冰箱布置得超出平均储藏标准，因此，以下是如何最大限度地优化你的冰箱布局，以提高功能并防止过多的食物浪费。
 
 ## 知道如何把某些食物放在这里以延长保质期吗
 
@@ -32,4 +32,4 @@ Watch
 
 如果你是组织的新手，不知道从哪里开始，给自己弄一个 [初学者工具包](https://www.containerstore.com/s/kitchen/refrigerator-freezer/idesign-linus-fridge-starter-kit/12d?productId=11006558) 。容器套件是在家中建立有序食物储存系统的路线图。这些套件配有可叠放的容器，用于存放熟食肉类和鸡蛋，篮子用于存放面包，较小的容器用于存放冰箱抽屉内的水果，等等。
 
-工具包可能相当昂贵，从 [、163美元到243美元](https://www.containerstore.com/s/kitchen/refrigerator-freezer/12?cid=ppc%7cperformance%7cKitchen_Fridge+Freezer%7cGoogle%7c%7cTCSP_NTM_US_EN_Kitchen_Exact_RLSA%7cfridge+organization%7c&gclid=Cj0KCQjw7pKFBhDUARIsAFUoMDZ8bvQRQUlZdc1STi22hJRI7E9UB3Potm0Q3YG0n52pV3pcSvzVpa8aAr3XEALw_wcB&gclsrc=aw.ds) 不等，但节省价值103美元的变质农产品是值得的。如果你预算紧张，廉价店或一元店的 [廉价容器](https://www.dollartree.com/storage-organization/storage-bins-boxes-containers?gclid=CjwKCAjwtdeFBhBAEiwAKOIy51vKCaj33u7L0BaP45_m7dk-3ygC83YUTcCiX0t1hO6_2xUr8wkNaxoC8p0QAvD_BwE) 可以帮你搞定，可能只是需要一些创意。最终，你会享受你的食物，而不是发现藏在牛奶后面的腐烂食品。
+工具包可能相当昂贵，从 [、163 美元到 243 美元](https://www.containerstore.com/s/kitchen/refrigerator-freezer/12?cid=ppc%7cperformance%7cKitchen_Fridge+Freezer%7cGoogle%7c%7cTCSP_NTM_US_EN_Kitchen_Exact_RLSA%7cfridge+organization%7c&gclid=Cj0KCQjw7pKFBhDUARIsAFUoMDZ8bvQRQUlZdc1STi22hJRI7E9UB3Potm0Q3YG0n52pV3pcSvzVpa8aAr3XEALw_wcB&gclsrc=aw.ds) 不等，但节省价值 103 美元的变质农产品是值得的。如果你预算紧张，廉价店或一元店的 [廉价容器](https://www.dollartree.com/storage-organization/storage-bins-boxes-containers?gclid=CjwKCAjwtdeFBhBAEiwAKOIy51vKCaj33u7L0BaP45_m7dk-3ygC83YUTcCiX0t1hO6_2xUr8wkNaxoC8p0QAvD_BwE) 可以帮你搞定，可能只是需要一些创意。最终，你会享受你的食物，而不是发现藏在牛奶后面的腐烂食品。

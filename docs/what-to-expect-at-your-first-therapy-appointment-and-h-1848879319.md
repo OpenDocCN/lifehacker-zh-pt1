@@ -1,6 +1,6 @@
 # 在你的第一次治疗预约中会有什么期待(以及如何准备)
 
-> 原文:[https://life hacker . com/what-to-expect-at-your ' s first-therapy-appointment-and-h-1848879319](https://lifehacker.com/what-to-expect-at-your-first-therapy-appointment-and-h-1848879319)
+> 原文：<https://lifehacker.com/what-to-expect-at-your-first-therapy-appointment-and-h-1848879319>
 
 你已经迈出了第一步，安排了与治疗师的第一次会面。也许这是你第一次和任何人进行治疗，或者你的最后一次治疗是在几年前，或者你对换一个新的治疗师感到紧张。无论你的具体情况如何，你都有一个日历上的约会，当他们——大概——要求你谈论你所有最深的感受时，你实际上(或虚拟地)坐在一个陌生人的沙发上。
 
@@ -12,7 +12,7 @@ Watch
 
 ## 处理所有的文书工作
 
-无论您是在候诊室的剪贴板上涂鸦，还是打开一个单独的标签来填写pdf，您的第一次治疗预约都带有一些必要的文书工作。准备好填写以下内容:
+无论您是在候诊室的剪贴板上涂鸦，还是打开一个单独的标签来填写 pdf，您的第一次治疗预约都带有一些必要的文书工作。准备好填写以下内容:
 
 *   HIPA 一张表格
 *   保险信息

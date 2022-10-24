@@ -1,12 +1,12 @@
 # 如何处理发霉的浴帘
 
-> 原文:[https://life hacker . com/how-to-deal-a-molded-浴帘-1847134631](https://lifehacker.com/how-to-deal-with-a-moldy-shower-curtain-1847134631)
+> 原文：<https://lifehacker.com/how-to-deal-with-a-moldy-shower-curtain-1847134631>
 
 不管你多久清洁一次瓷砖、固定装置和浴缸/淋浴，你可能仍然会发现自己在处理一个恼人的、反复出现的问题:浴帘上的霉菌。有一天你放入一个新的衬垫，似乎仅仅几天后霉菌就会重新出现。
 
 Watch
 
-那么为什么会发生这种情况，你能做些什么呢？霉菌修复专家迈克尔·鲁比诺在为mindbodygreen 撰写的一篇文章中对其进行了分解 [。以下是需要了解的内容。](https://www.mindbodygreen.com/articles/shower-curtain-mold-prevention-and-treatment)
+那么为什么会发生这种情况，你能做些什么呢？霉菌修复专家迈克尔·鲁比诺在为 mindbodygreen 撰写的一篇文章中对其进行了分解 [。以下是需要了解的内容。](https://www.mindbodygreen.com/articles/shower-curtain-mold-prevention-and-treatment)
 
 ### 是什么导致霉菌在浴帘上生长
 
@@ -46,4 +46,4 @@ Watch
 
 如果你的浴帘相对便宜，但发霉了，你可能最好扔掉它，然后换一个新的，并使用上面的提示从一开始就防止霉菌生长。但是如果你确实想尝试清洁它，鲁比诺推荐使用 [这种产品](https://microbalancehealthproducts.com/products/ec3-laundry-additive.html) 。
 
-另一种选择来自网站的女佣。他们建议用两份过氧化氢和一份水的溶液喷洒发霉的浴帘，静置5到10分钟，然后用等份小苏打和水的溶液擦洗。因为你要处理的是霉菌，理想情况下，这是你应该在室外做的事情，但是如果那不实际或者不可能，你也可以在浴缸里清洗。
+另一种选择来自网站的女佣。他们建议用两份过氧化氢和一份水的溶液喷洒发霉的浴帘，静置 5 到 10 分钟，然后用等份小苏打和水的溶液擦洗。因为你要处理的是霉菌，理想情况下，这是你应该在室外做的事情，但是如果那不实际或者不可能，你也可以在浴缸里清洗。

@@ -1,6 +1,6 @@
-# 狂看9部旅游电影，获得1000美元报酬
+# 狂看 9 部旅游电影，获得 1000 美元报酬
 
-> 原文:[https://life hacker . com/how-to-get-payed-1000-binge-watch-9-travel-movies-1845676862](https://lifehacker.com/how-to-get-paid-1-000-to-binge-watch-9-travel-movies-1845676862)
+> 原文：<https://lifehacker.com/how-to-get-paid-1-000-to-binge-watch-9-travel-movies-1845676862>
 
 当疫情第一次开始时，我们取消了春天的旅行计划，期待夏天的到来。今年夏天，旅游限制并没有放松多少，现在假期旅游已经取消了( [或者至少应该取消](https://lifehacker.com/its-time-to-cancel-your-thanksgiving-travel-plans-1845659175) )。
 
@@ -8,7 +8,7 @@ Watch
 
 谁知道我们什么时候才能回到那里，舒服地坐飞机或在餐馆吃饭，但在那之前，至少我们有旅行电影。你知道这种类型的电影:让你深深沉浸在场景中，以至于看完之后你会有时差反应。
 
-现在， [升级点](https://t.yesware.com/tt/2077070a137908d1523b52af119db597d1c92dd9/9ad3ccb43490931a9748efc82e78f56e/f792322165195b30163af6d1e804d88d/upgradedpoints.com/get-paid-to-watch-wanderlust-movies/) 的团队正在寻找一个人来帮助一个激发旅游癖的电影项目——一个报酬为1000美元的演出。下面是申请的方法。
+现在， [升级点](https://t.yesware.com/tt/2077070a137908d1523b52af119db597d1c92dd9/9ad3ccb43490931a9748efc82e78f56e/f792322165195b30163af6d1e804d88d/upgradedpoints.com/get-paid-to-watch-wanderlust-movies/) 的团队正在寻找一个人来帮助一个激发旅游癖的电影项目——一个报酬为 1000 美元的演出。下面是申请的方法。
 
 ### 这项工作需要什么
 
@@ -24,16 +24,16 @@ Watch
 8.  意大利的工作(2003)
 9.  《东方快车谋杀案》(2017)
 
-成功的申请人将获得1000美元的付款，以及一张亚马逊礼品卡，可以租赁列表上的所有电影。这些任务必须在2021年1月15日前完成。
+成功的申请人将获得 1000 美元的付款，以及一张亚马逊礼品卡，可以租赁列表上的所有电影。这些任务必须在 2021 年 1 月 15 日前完成。
 
 ### 如何申请
 
-为了申请，你必须年满18岁，并且是美国公民或永久居民。根据 [升级后的积分](https://upgradedpoints.com/get-paid-to-watch-wanderlust-movies/) ，理想的申请人将具备:
+为了申请，你必须年满 18 岁，并且是美国公民或永久居民。根据 [升级后的积分](https://upgradedpoints.com/get-paid-to-watch-wanderlust-movies/) ，理想的申请人将具备:
 
 *   对旅行和探险的热爱
 *   对电影的热爱
 *   注意细节，这样你就能确定电影的最佳拍摄地点
-*   在短时间内狂看9部电影的能力和可用性
+*   在短时间内狂看 9 部电影的能力和可用性
 *   脸书和推特上活跃的社交媒体账户
 
-要申请，请填写这张表格 ，并解释为什么你是这份工作的最佳人选。不要退缩，根据 [升级点](https://upgradedpoints.com/get-paid-to-watch-wanderlust-movies/) :“你对旅行的热情程度将是一个重要的考虑因素，所以提供你需要的东西来证明你如何以及为什么喜欢旅行。”投稿截止时间为2020年12月4日。获胜者将于2020年12月10日收到通知。
+要申请，请填写这张表格 ，并解释为什么你是这份工作的最佳人选。不要退缩，根据 [升级点](https://upgradedpoints.com/get-paid-to-watch-wanderlust-movies/) :“你对旅行的热情程度将是一个重要的考虑因素，所以提供你需要的东西来证明你如何以及为什么喜欢旅行。”投稿截止时间为 2020 年 12 月 4 日。获胜者将于 2020 年 12 月 10 日收到通知。

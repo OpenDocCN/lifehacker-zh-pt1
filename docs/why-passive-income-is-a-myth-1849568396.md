@@ -1,6 +1,6 @@
 # 为什么“被动收入”是一个神话
 
-> 原文:[https://life hacker . com/why-passive-income-is-a-myth-1849568396](https://lifehacker.com/why-passive-income-is-a-myth-1849568396)
+> 原文：<https://lifehacker.com/why-passive-income-is-a-myth-1849568396>
 
 通常情况下，被认为是被动收入的事情比金融专家让你相信的用词不当。事实上，许多被描述为被动的努力——如房地产、图书版税或在线销售——需要比“被动”一词所暗示的更多的工作和持续的努力。以下是你需要知道的关于被动收入是如何运作的，以及为什么睡觉时赚钱的想法更多的是虚构而不是事实。
 

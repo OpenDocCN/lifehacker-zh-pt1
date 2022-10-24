@@ -1,10 +1,10 @@
-# 每个人都应该完成的11项秋季家居保养任务
+# 每个人都应该完成的 11 项秋季家居保养任务
 
-> 原文:[https://life hacker . com/11-essential-fall-home-maintenance-tasks-every one-shoul-1849480075](https://lifehacker.com/11-essential-fall-home-maintenance-tasks-everyone-shoul-1849480075)
+> 原文：<https://lifehacker.com/11-essential-fall-home-maintenance-tasks-everyone-shoul-1849480075>
 
-冬天的天气会对你的房子造成影响，如果你没有完成你的维护计划，你可能会在12月份遇到一些不愉快的惊喜。外面可能仍然觉得太热，不需要担心这些工作，但是夏天和初秋是做一些预防性维护的最佳时间。
+冬天的天气会对你的房子造成影响，如果你没有完成你的维护计划，你可能会在 12 月份遇到一些不愉快的惊喜。外面可能仍然觉得太热，不需要担心这些工作，但是夏天和初秋是做一些预防性维护的最佳时间。
 
-这里有11项任务，你应该在寒冷的天气到来之前开始着手处理。
+这里有 11 项任务，你应该在寒冷的天气到来之前开始着手处理。
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-HrdVa12EHas&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-HrdVa12EHas&start=0)
 
@@ -25,7 +25,7 @@
 
 <figcaption class="sc-1ptbguh-0 hxeMec caption">How Clogged Gutters Are Deep Cleaned | Deep Cleaned</figcaption> 
 
-没有人喜欢清理排水沟。不幸的是，这是一个没有商量余地的任务——尤其是当树叶、松果、松针和橡子开始掉落的时候。这是一项不言而喻的任务，但正如排水沟维护专家Broden Hill在《知情人 的视频 [中解释的那样，有一条重要的规则要记住:总是用手清理湿垃圾。使用吹叶机对完全干燥的水槽碎片来说是好的，但是如果它是完全潮湿的，就要使用肘部油脂了。](https://youtu.be/VzcQ2S5axEE)
+没有人喜欢清理排水沟。不幸的是，这是一个没有商量余地的任务——尤其是当树叶、松果、松针和橡子开始掉落的时候。这是一项不言而喻的任务，但正如排水沟维护专家 Broden Hill 在《知情人 的视频 [中解释的那样，有一条重要的规则要记住:总是用手清理湿垃圾。使用吹叶机对完全干燥的水槽碎片来说是好的，但是如果它是完全潮湿的，就要使用肘部油脂了。](https://youtu.be/VzcQ2S5axEE)
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-ZrFwr90awSI&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-ZrFwr90awSI&start=0)
 

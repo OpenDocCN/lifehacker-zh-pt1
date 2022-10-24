@@ -1,6 +1,6 @@
 # 我们都在错误的时间使用了除臭剂
 
-> 原文:[https://life hacker . com/we ve-all-been-put-on-discord-time-1848058339](https://lifehacker.com/weve-all-been-putting-on-deodorant-at-the-wrong-time-1848058339)
+> 原文：<https://lifehacker.com/weve-all-been-putting-on-deodorant-at-the-wrong-time-1848058339>
 
 像大多数人一样(除非你为除臭剂制造商工作或学习皮肤病学)，你可能在整个青春期后的生活中都在早上使用除臭剂，在你淋浴、洗脸、梳头、穿衣服的例行公事中。作为一个一生都在这么做的人，我很痛心地得知我们都做错了:事实证明，有大量证据表明，使用除臭剂的最佳时间是晚上，就在睡觉前。
 
@@ -8,15 +8,15 @@ Watch
 
 ## 除臭剂和止汗剂的区别
 
-澄清一下，这个夜间使用的规则只适用于含有止汗剂的除臭剂。(没有止汗剂的除臭剂*的作用是杀死或掩盖产生气味的细菌，而不是——正如任何使用过缅因州Tom's的人可以告诉你的那样——实际上减少你的出汗量。)另一方面，止汗剂旨在 [暂时堵塞你的汗孔](https://www.bandeodorant.com/en-us/blog/sweat-101/how-does-antiperspirant-work/) 并减少排汗量，保持腋窝干燥(从而抑制致臭细菌的生长)。*
+澄清一下，这个夜间使用的规则只适用于含有止汗剂的除臭剂。(没有止汗剂的除臭剂*的作用是杀死或掩盖产生气味的细菌，而不是——正如任何使用过缅因州 Tom's 的人可以告诉你的那样——实际上减少你的出汗量。)另一方面，止汗剂旨在 [暂时堵塞你的汗孔](https://www.bandeodorant.com/en-us/blog/sweat-101/how-does-antiperspirant-work/) 并减少排汗量，保持腋窝干燥(从而抑制致臭细菌的生长)。*
 
 ## 为什么夜间应用更好？
 
-那么，为什么晚上涂止汗除臭剂更有效呢？当你不太活跃(睡觉)时，你的体温下降，导致你出汗减少。这种水分的缺乏使你的身体更容易吸收大多数止汗剂中的活性成分——铝— 正如美国皮肤病学会、 [主席David Pariser博士向《消费者报告》](https://www.consumerreports.org/cro/2012/05/apply-antiperspirant-at-night-and-sleep-tight/index.htm) 解释的那样。(当铝不需要费力穿过它所对抗的东西时，它更容易穿透皮肤。)一夜之间，你的皮肤将有更多的时间来吸收止汗剂，这比你在匆忙为一天做准备之前立即涂抹止汗剂更有效。
+那么，为什么晚上涂止汗除臭剂更有效呢？当你不太活跃(睡觉)时，你的体温下降，导致你出汗减少。这种水分的缺乏使你的身体更容易吸收大多数止汗剂中的活性成分——铝— 正如美国皮肤病学会、 [主席 David Pariser 博士向《消费者报告》](https://www.consumerreports.org/cro/2012/05/apply-antiperspirant-at-night-and-sleep-tight/index.htm) 解释的那样。(当铝不需要费力穿过它所对抗的东西时，它更容易穿透皮肤。)一夜之间，你的皮肤将有更多的时间来吸收止汗剂，这比你在匆忙为一天做准备之前立即涂抹止汗剂更有效。
 
 ## 好消息:淋浴不会洗掉它
 
-那么，如果早上洗澡对你来说是不可协商的，你还能遵守这个规则吗？是啊！因为你让止汗剂有足够的时间渗透并堵塞你的毛孔，所以它不会停留在皮肤表面，容易被洗掉。还有呢？大多数止汗剂可以持续24-48小时，所以根据你流汗的多少， [你甚至不需要每天使用](https://www.thehealthy.com/beauty/face-body-care/deodorant-mistakes/) 。
+那么，如果早上洗澡对你来说是不可协商的，你还能遵守这个规则吗？是啊！因为你让止汗剂有足够的时间渗透并堵塞你的毛孔，所以它不会停留在皮肤表面，容易被洗掉。还有呢？大多数止汗剂可以持续 24-48 小时，所以根据你流汗的多少， [你甚至不需要每天使用](https://www.thehealthy.com/beauty/face-body-care/deodorant-mistakes/) 。
 
 ## 你应该担心除臭剂中的铝吗？
 

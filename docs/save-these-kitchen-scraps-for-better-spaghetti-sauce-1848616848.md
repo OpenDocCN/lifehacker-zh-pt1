@@ -1,6 +1,6 @@
 # 把这些厨余留着做更好的意大利面酱
 
-> 原文:[https://life hacker . com/save-these-kitchen-scrap-for-better-spaghetti-sauce-1848616848](https://lifehacker.com/save-these-kitchen-scraps-for-better-spaghetti-sauce-1848616848)
+> 原文：<https://lifehacker.com/save-these-kitchen-scraps-for-better-spaghetti-sauce-1848616848>
 
 很多人谈论把蔬菜残渣 [存起来](https://lifehacker.com/how-to-make-seafood-stock-out-of-scraps-1823958899) (就像他们应该做的那样)，但是太多的人睡在 *酱*残渣袋里。功能上，过程是相似的:收集你的蔬菜皮、烟蒂、和其他各种各样的蜉蝣，把它们放在一个冷冻袋里；把袋子放进冰箱里；下次你做高汤的时候把它取出来，然后用这些残渣给一锅煨汤调味。启动酱料废料袋的过程与相似，但的区别在于焦点。
 

@@ -1,6 +1,6 @@
 # 展示你的孩子今年制作的所有艺术品的巧妙方法
 
-> 原文:[https://life hacker . com/clever-ways-to-display-all-the-art-your-kid-make-this-1849530453](https://lifehacker.com/clever-ways-to-display-all-the-art-your-kid-makes-this-1849530453)
+> 原文：<https://lifehacker.com/clever-ways-to-display-all-the-art-your-kid-makes-this-1849530453>
 
 女儿在幼儿园的第一天就发现了自己对绘画的热爱。她带着几幅杰作回家。她用非油漆安全胶带把它们安装在卧室的墙上，并宣称这个展览是“艺术杰作！”我们非常自豪(搬家后不得不重新粉刷整个房间)。她的爱没有减弱；她仍然是一位多产的艺术家。
 
@@ -10,7 +10,7 @@ Watch
 
 ## 留出一整面艺术墙
 
-对于平面艺术，有很多选择来展示绘画和素描。选择 [你房子里一面被忽略的墙](https://lifehacker.com/display-your-kids-art-on-an-ignored-wall-1833094096) 并把它作为指定的艺术点。为3D作品选择一个架子，也许只在那个架子上展示。
+对于平面艺术，有很多选择来展示绘画和素描。选择 [你房子里一面被忽略的墙](https://lifehacker.com/display-your-kids-art-on-an-ignored-wall-1833094096) 并把它作为指定的艺术点。为 3D 作品选择一个架子，也许只在那个架子上展示。
 
 许多父母把精选的艺术品放在冰箱上，但把其他所有的儿童艺术品都放在儿童房里。我的房子有非常丑陋的乙烯基橱柜，乞求被五颜六色的创作所覆盖，所以这就是我所做的。有点个人风格的选择。
 
@@ -32,4 +32,4 @@ Watch
 
 有些人担心的存储空间，并选择将他们孩子的艺术作品“保存在云中”对此有很多选择。拍摄照片(或使用扫描仪)并把它们放在你喜欢的任何驱动器、云或其他永久性个人存储设备上。
 
-你也可以给艺术品拍照，然后 [制作一个私人Instagram账户](https://lifehacker.com/create-a-private-instagram-account-for-your-kids-artwor-1827829792) 让它与家人分享，如果元宇宙允许的话，也许有一天，你的孩子也可以分享——但你也可以为自己保留，当你的孩子想看他们的作品时，你可以和他们一起回顾。如果你必须有一本实体的拷贝，你可以打印一本以某一年的艺术为特色的相册。这样，它就可以放在一个同样大小的小包装里，很容易放在你的书中。
+你也可以给艺术品拍照，然后 [制作一个私人 Instagram 账户](https://lifehacker.com/create-a-private-instagram-account-for-your-kids-artwor-1827829792) 让它与家人分享，如果元宇宙允许的话，也许有一天，你的孩子也可以分享——但你也可以为自己保留，当你的孩子想看他们的作品时，你可以和他们一起回顾。如果你必须有一本实体的拷贝，你可以打印一本以某一年的艺术为特色的相册。这样，它就可以放在一个同样大小的小包装里，很容易放在你的书中。

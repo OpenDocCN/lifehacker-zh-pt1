@@ -1,18 +1,18 @@
 # 如何赢得'清醒的十月'(即使你喝了一点)
 
-> 原文:[https://life hacker . com/how-to-win-sober-December-even-if-you-drink-a little-1849610657](https://lifehacker.com/how-to-win-sober-october-even-if-you-drink-a-little-1849610657)
+> 原文：<https://lifehacker.com/how-to-win-sober-october-even-if-you-drink-a-little-1849610657>
 
-正如你可能从名字中猜到的，戒酒十月是一项旨在让人们停止饮酒一个月的努力。它始于2014年，为英国 的 [麦克米伦癌症支持筹款，并已发展成为一种全球趋势，或许是由于伴随COVID 而来的](https://www.macmillan.org.uk/healthcare-professionals/for-your-patients/support?&infinity=ict2~net~gaw~ar~560267547252~kw~cancer%20support%20worker~mt~b~cmp~g_ps_hcp_uk_gen_cancer+healthcare+pro_b~ag~cancer+support+worker&gclid=cj0kcqjwkoqzbhdnarisaacsbflpi8zcfhtiqqufyidtq_0dibvgmouzbh7etirpqcspzo80s17cu90aasuvealw_wcb&gclsrc=aw.ds) [酒精消费量的增加。](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC7763183/) 
+正如你可能从名字中猜到的，戒酒十月是一项旨在让人们停止饮酒一个月的努力。它始于 2014 年，为英国 的 [麦克米伦癌症支持筹款，并已发展成为一种全球趋势，或许是由于伴随 COVID 而来的](https://www.macmillan.org.uk/healthcare-professionals/for-your-patients/support?&infinity=ict2~net~gaw~ar~560267547252~kw~cancer%20support%20worker~mt~b~cmp~g_ps_hcp_uk_gen_cancer+healthcare+pro_b~ag~cancer+support+worker&gclid=cj0kcqjwkoqzbhdnarisaacsbflpi8zcfhtiqqufyidtq_0dibvgmouzbh7etirpqcspzo80s17cu90aasuvealw_wcb&gclsrc=aw.ds) [酒精消费量的增加。](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC7763183/) 
 
 Watch
 
-还有其他流行的“干燥”月活动——干燥的七月，干燥的一月——但我认为十月是一年中30天旅行的最佳时间。就在感恩节和圣诞节之前，你可能会喝一些额外的酒，冬天的来临会鼓励严肃、清醒和自我评估。另外，“清醒的十月”押韵。
+还有其他流行的“干燥”月活动——干燥的七月，干燥的一月——但我认为十月是一年中 30 天旅行的最佳时间。就在感恩节和圣诞节之前，你可能会喝一些额外的酒，冬天的来临会鼓励严肃、清醒和自我评估。另外，“清醒的十月”押韵。
 
-## **10月份戒酒的好处**
+## **10 月份戒酒的好处**
 
 不仅仅是一个测试你意志力的机会，一个月不喝酒(或少喝酒)有真正的好处。你的口袋里会有更多的钱，你会对设定一个目标并实现它感觉良好，短期的禁欲对健康的益处是巨大的。
 
-伦敦皇家自由医院的凯文·摩尔教授进行的一项2015年研究发现，戒酒30天的中度至重度饮酒者表现出改善的胰岛素抵抗，平均减轻了3公斤体重，降低了胆固醇，并报告称精力、睡眠和情绪都有所改善。还有:对你的肝脏有好处。戒酒可以减少导致肝硬化和其他肝病的脂肪变化。
+伦敦皇家自由医院的凯文·摩尔教授进行的一项 2015 年研究发现，戒酒 30 天的中度至重度饮酒者表现出改善的胰岛素抵抗，平均减轻了 3 公斤体重，降低了胆固醇，并报告称精力、睡眠和情绪都有所改善。还有:对你的肝脏有好处。戒酒可以减少导致肝硬化和其他肝病的脂肪变化。
 
 《清醒的十月》的另一个好处是:没有什么比暂时戒酒更能凸显酒精的问题了。
 
@@ -26,7 +26,7 @@ Watch
 *   练习如何拒绝一杯饮料。为你将要说的话做好心理准备可以减轻一些经常围绕酒精的社会压力。
 *   **计划不涉及酒精的活动**。也许你可以去酒吧一饮而尽，但为什么要测试呢？相反，把十月作为一个机会，去做你一直想做的所有有趣的、不含酒精的事情。参观天文台。去上舞蹈课。学打泡菜球。志愿者。走玉米迷宫。有*吨*的选择。
 *   **多运动。**一个有趣的小锻炼可以提升你的情绪，这可能是你喝酒时想要的。
-*   过一天算一天。这就是著名的AA建议。一个月不要想着辞职；想想今天不喝酒。将时间分成可管理的小块会让它看起来不那么令人生畏。
+*   过一天算一天。这就是著名的 AA 建议。一个月不要想着辞职；想想今天不喝酒。将时间分成可管理的小块会让它看起来不那么令人生畏。
 *   用其他方式放纵自己。如果你是那种饭后喝一杯酒作为款待的人，那就换成别的吧。制作精致的仿制品很有趣。吃一块巧克力也是如此。
 *   如果你出了差错，不要担心。如果你有一天晚上喝了一杯啤酒，并不意味着整个事情都毁了。重新开始。没有人在记分。
 
@@ -34,4 +34,4 @@ Watch
 
 参加“戒酒十月”活动可以鼓励人们与酒精建立更亲密的关系，而这种评估的一部分包括对自己诚实。有可能依赖酒精而没有完全意识到，滥用酒精而没有上瘾，以及任何其他关于 [酒精- 使用谱](https://www.goodtherapy.org/blog/where-do-you-fall-on-spectrum-of-alcohol-use-1024174) 的可能性。
 
-如果你真的不能30天不喝酒，即使你想，你也应该考虑你有酒精问题的可能性。进行一次 [自我评估](https://www.webmd.com/mental-health/addiction/ss/slideshow-signs-alcohol-problem) ，并与你的医生或治疗师谈谈你的担忧。
+如果你真的不能 30 天不喝酒，即使你想，你也应该考虑你有酒精问题的可能性。进行一次 [自我评估](https://www.webmd.com/mental-health/addiction/ss/slideshow-signs-alcohol-problem) ，并与你的医生或治疗师谈谈你的担忧。

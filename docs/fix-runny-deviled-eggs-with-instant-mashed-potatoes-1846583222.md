@@ -1,6 +1,6 @@
 # 用速食土豆泥固定松软的芥末蛋
 
-> 原文:[https://life hacker . com/fix-runny-deviled-eggs-with-instant-土豆泥-1846583222](https://lifehacker.com/fix-runny-deviled-eggs-with-instant-mashed-potatoes-1846583222)
+> 原文：<https://lifehacker.com/fix-runny-deviled-eggs-with-instant-mashed-potatoes-1846583222>
 
 即使是最老练的 [蛋魔](https://skillet.lifehacker.com/how-to-make-perfect-deviled-eggs-1821471027) 也会犯错。当顽固地拒绝测量任何东西时，对蛋黄酱或有缺陷的芥末瓶的无节制的热情会导致调味鸡蛋馅料有点太重。过多的蛋黄酱或芥末会使你的鸡蛋内部变得粘稠和不舒服，而不是像奶油一样松软。幸运的是，一切都没有失去，你只是需要一些速溶土豆泥。
 

@@ -1,8 +1,8 @@
 # 藤条和柳条的区别，你应该选择哪个
 
-> 原文:[https://life hacker . com/the-difference of-rattan-and-wicker-and-which-you-1846998446](https://lifehacker.com/the-difference-between-rattan-and-wicker-and-which-you-1846998446)
+> 原文：<https://lifehacker.com/the-difference-between-rattan-and-wicker-and-which-you-1846998446>
 
-金童玉女的粉丝们应该对上图中的自然编织风格的家具很熟悉。但它叫什么？ [女孩称它为“柳条”，](https://www.enoughwicker.com/) 但它看起来也很像我们最近经常看到的时髦藤家具。“藤条”只是“柳条”的一种更花哨的说法，还是有更大的区别？萨凡纳·谢尔在 [中为我们分析了一篇关于BobVila.com](https://www.bobvila.com/articles/rattan-vs-wicker/)的文章。以下是需要了解的内容。
+金童玉女的粉丝们应该对上图中的自然编织风格的家具很熟悉。但它叫什么？ [女孩称它为“柳条”，](https://www.enoughwicker.com/) 但它看起来也很像我们最近经常看到的时髦藤家具。“藤条”只是“柳条”的一种更花哨的说法，还是有更大的区别？萨凡纳·谢尔在 [中为我们分析了一篇关于 BobVila.com](https://www.bobvila.com/articles/rattan-vs-wicker/)的文章。以下是需要了解的内容。
 
 Watch
 

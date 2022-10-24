@@ -1,12 +1,12 @@
 # 如何在不惹恼对方的情况下与室友分摊账单
 
-> 原文:[https://life hacker . com/how-to-split-bill-with-your-roommate-without-小便1848083535](https://lifehacker.com/how-to-split-bills-with-your-roommates-without-pissing-1848083535)
+> 原文：<https://lifehacker.com/how-to-split-bills-with-your-roommates-without-pissing-1848083535>
 
 分担家务。内置公司。别人的昂贵零食，让你在不知不觉中一点一点地偷。有很多令人信服的理由让你有室友，但你决定合住的可能性主要是出于经济原因。
 
 Watch
 
-根据2018年 [皮尤研究中心](https://www.pewresearch.org/fact-tank/2018/01/31/more-adults-now-share-their-living-space-driven-in-part-by-parents-living-with-their-adult-children/) 的一项研究，美国成年人越来越多地出于非浪漫、纯粹的经济原因同居。与他人合租通常意味着住在比你们任何一个人作为个人所能负担得起的更大的公寓或更好的地方。(我们之前已经讨论过室友带来的其他一些 [财务优势和劣势](https://lifehacker.com/consider-how-a-potential-roommate-might-affect-you-fina-1834140303) 。)
+根据 2018 年 [皮尤研究中心](https://www.pewresearch.org/fact-tank/2018/01/31/more-adults-now-share-their-living-space-driven-in-part-by-parents-living-with-their-adult-children/) 的一项研究，美国成年人越来越多地出于非浪漫、纯粹的经济原因同居。与他人合租通常意味着住在比你们任何一个人作为个人所能负担得起的更大的公寓或更好的地方。(我们之前已经讨论过室友带来的其他一些 [财务优势和劣势](https://lifehacker.com/consider-how-a-potential-roommate-might-affect-you-fina-1834140303) 。)
 
 然而，即使有最好的室友，分担生活费用也是一件棘手的事情。金钱纠纷往好里说是尴尬，往坏里说是威胁到友谊(更不用说可能会损失一大笔钱)。以下是我们的建议，可以帮助你遵守基本规则，确保你永远不会从友好的室友变成指定的讨债人。
 

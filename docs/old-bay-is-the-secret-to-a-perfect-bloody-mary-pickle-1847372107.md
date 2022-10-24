@@ -1,8 +1,8 @@
 # 老贝是完美血腥玛丽泡菜的秘密
 
-> 原文:[https://life hacker . com/old-bay-is-the-secret-to-a-perfect-bloody-Mary-pickle-1847372107](https://lifehacker.com/old-bay-is-the-secret-to-a-perfect-bloody-mary-pickle-1847372107)
+> 原文：<https://lifehacker.com/old-bay-is-the-secret-to-a-perfect-bloody-mary-pickle-1847372107>
 
-在任何时候，我的冰箱里都有15%的泡菜。这听起来可能没那么令人印象深刻，但这意味着至少有四五罐，这是一个可观的——尽管不算多——的数量。我喜欢所有的种类，从简单的冰箱泡菜到真正的乳酸发酵黄瓜(或其他蔬菜)。我甚至喜欢乔尔和我前几天做的那些农场泡菜。
+在任何时候，我的冰箱里都有 15%的泡菜。这听起来可能没那么令人印象深刻，但这意味着至少有四五罐，这是一个可观的——尽管不算多——的数量。我喜欢所有的种类，从简单的冰箱泡菜到真正的乳酸发酵黄瓜(或其他蔬菜)。我甚至喜欢乔尔和我前几天做的那些农场泡菜。
 
 Watch
 

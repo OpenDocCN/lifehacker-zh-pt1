@@ -1,6 +1,6 @@
 # 演讲的七宗罪
 
-> 原文:[https://life hacker . com/the-7-deadly-sins-of-giving-a-speech-1849576442](https://lifehacker.com/the-7-deadly-sins-of-giving-a-speech-1849576442)
+> 原文：<https://lifehacker.com/the-7-deadly-sins-of-giving-a-speech-1849576442>
 
 如果你一想到要在众人面前演讲就感到害怕，你并不孤单: [更多的美国人害怕公开演讲胜过死亡](https://www.psychologytoday.com/us/blog/the-real-story-risk/201211/the-thing-we-fear-more-death) 。但与死亡不同的是，公开演讲一遍又一遍地发生，无论是“绕着圈子做自我介绍”，还是接受你的人民选择奖。
 
@@ -66,4 +66,4 @@ Watch
 
 <figcaption class="sc-1ptbguh-0 hxeMec caption">Powerpoint, Powerpoint, Powerpoint - The Office US</figcaption> 
 
-当我说: *不要读整张幻灯片*的时候，我是代表所有看过人类历史上任何一种演讲或展示的人说的。求你了。我们都讨厌它。简直是折磨。应该使用Power Point或其他视觉辅助工具来说明你在说什么，并且呈现宽泛的“章节标题”，你将进一步解释，但是当你读完整张幻灯片时，房间里的每个人都在想，“你为什么不发一封电子邮件呢？”
+当我说: *不要读整张幻灯片*的时候，我是代表所有看过人类历史上任何一种演讲或展示的人说的。求你了。我们都讨厌它。简直是折磨。应该使用 Power Point 或其他视觉辅助工具来说明你在说什么，并且呈现宽泛的“章节标题”，你将进一步解释，但是当你读完整张幻灯片时，房间里的每个人都在想，“你为什么不发一封电子邮件呢？”

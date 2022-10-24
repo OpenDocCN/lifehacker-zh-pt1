@@ -1,14 +1,14 @@
 # 什么是‘安静的退出’(你真的应该这么做吗)？
 
-> 原文:[https://life hacker . com/what-is-quiet-quick-and-should-you-really-do it-1849426004](https://lifehacker.com/what-is-quiet-quitting-and-should-you-really-do-it-1849426004)
+> 原文：<https://lifehacker.com/what-is-quiet-quitting-and-should-you-really-do-it-1849426004>
 
 根据名为“安静辞职”的最新趋势，事实证明“伟大的辞职”可能更像是耳语而不是重击。与其在工作中翻桌子，去寻找更好的工作，安静地辞职是一种更加微妙的方式，可以更好地平衡工作和生活。
 
 Watch
 
-LinkedIn职业专家 [Blair Heitmann](https://www.linkedin.com/in/blairdecembrele) 说:“安静地辞职是尽可能少地做你的工作，以达到工作和生活的平衡。”。“对许多人来说，这是实现更好的工作与生活平衡的一种方式，也是远离喧嚣文化的最新举措。这可能意味着在工作中寻找一些更合适的界限，比如每天准时下班，或者对你工作范围之外的项目说不，或者干脆拒绝在工作时间之外回复电子邮件和团队信息。”
+LinkedIn 职业专家 [Blair Heitmann](https://www.linkedin.com/in/blairdecembrele) 说:“安静地辞职是尽可能少地做你的工作，以达到工作和生活的平衡。”。“对许多人来说，这是实现更好的工作与生活平衡的一种方式，也是远离喧嚣文化的最新举措。这可能意味着在工作中寻找一些更合适的界限，比如每天准时下班，或者对你工作范围之外的项目说不，或者干脆拒绝在工作时间之外回复电子邮件和团队信息。”
 
-人们寻求更多的工作和生活平衡是有道理的。根据Heitmann的说法，LinkedIn的一项调查发现，40%的美国职场人士感觉在疫情期间比以前更加疲惫不堪。 [另一项研究](https://www.linkedin.com/pulse/more-important-than-money-8-goals-tempt-us-take-pay-cuts-anders/?trk=eml-email_series_follow_newsletter_01-hero-1-title_link&midToken=AQF2-BisrmeZYw&fromEmail=fromEmail&ut=3zdOgDAY2y9Wo1) 显示，如果工作提供更好的工作- 生活平衡(33%)或更愉快的工作(33%)，三分之一的美国工人会考虑减薪。
+人们寻求更多的工作和生活平衡是有道理的。根据 Heitmann 的说法，LinkedIn 的一项调查发现，40%的美国职场人士感觉在疫情期间比以前更加疲惫不堪。 [另一项研究](https://www.linkedin.com/pulse/more-important-than-money-8-goals-tempt-us-take-pay-cuts-anders/?trk=eml-email_series_follow_newsletter_01-hero-1-title_link&midToken=AQF2-BisrmeZYw&fromEmail=fromEmail&ut=3zdOgDAY2y9Wo1) 显示，如果工作提供更好的工作- 生活平衡(33%)或更愉快的工作(33%)，三分之一的美国工人会考虑减薪。
 
 如果这听起来对你来说是真的，你可能想知道你是否应该开始安静的辞职。如果你正在纠结是辞掉你的工作还是实现更好的界限，以下是你要考虑的
 
@@ -16,7 +16,7 @@ LinkedIn职业专家 [Blair Heitmann](https://www.linkedin.com/in/blairdecembrel
 
 海特曼说:“如果你因为需要更多的工作与生活平衡，并且仍然满足工作中的期望而悄悄辞职，这可能是一个健康的举动。”。“你所能做的任何改变都有助于你更专注于你的优先事项——让你把更多的时间花在你能产生最大影响的领域——将有助于你在工作中获得快乐和成就感。”
 
-但如果你因为工作没有动力或工作不开心而悄悄辞职，和/或结果你没有达到你的角色的期望，海特曼说，可能是时候去找别的事情了。如果你不确定什么是你的最佳选择，Heitmann建议你问自己这些问题来找出你需要什么:
+但如果你因为工作没有动力或工作不开心而悄悄辞职，和/或结果你没有达到你的角色的期望，海特曼说，可能是时候去找别的事情了。如果你不确定什么是你的最佳选择，Heitmann 建议你问自己这些问题来找出你需要什么:
 
 *   有足够的工作- 生活平衡吗？你有健康的界限吗？
 *   能成长吗？你能学会吗？

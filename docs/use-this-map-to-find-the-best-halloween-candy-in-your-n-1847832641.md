@@ -1,6 +1,6 @@
 # 使用这张地图找到你家附近最好的万圣节糖果
 
-> 原文:[https://life hacker . com/use-this-map-to-find-the-best-Halloween-candy-in-your-n-1847832641](https://lifehacker.com/use-this-map-to-find-the-best-halloween-candy-in-your-n-1847832641)
+> 原文：<https://lifehacker.com/use-this-map-to-find-the-best-halloween-candy-in-your-n-1847832641>
 
 我们这些在互联网出现之前的“不给糖就捣蛋”时代长大的人不得不依靠口口相传，或者前一年的记忆和/或笔记来帮助挑选最好的万圣节房子。但即便如此，一家今年发放整块巧克力(在这种情况下，是整块糖果)的商店明年可能会转向铅笔或便士——你永远不会知道。类似地，一座在之前的 幽灵季中没有装饰的建筑可能会在第二年全力以赴地装饰。
 
@@ -8,9 +8,9 @@ Watch
 
 像我们生活中的其他事情一样——从我们在哪里吃饭到我们和谁约会——现在有一些应用程序可以帮助你(或你的孩子)充分利用万圣节。其中一个 [来自隔壁](https://nextdoor.com/treat_map?utm_source=earned&utm_medium=press-release&utm_campaign=treat2021) 。下面是需要了解的内容和使用方法。
 
-## 如何使用Nextdoor万圣节地图
+## 如何使用 Nextdoor 万圣节地图
 
-在经历了又一年的疫情后，人们似乎真的进入了今年的万圣节精神——或者至少是对Nextdoor应用程序所做的民意调查做出回应的人。事实上，根据最近对全国近40，000人 的民意调查，85%的人说他们计划在万圣节晚上分发礼物，68%的人计划装饰他们的家，53%的人计划装饰和分发礼物。
+在经历了又一年的疫情后，人们似乎真的进入了今年的万圣节精神——或者至少是对 Nextdoor 应用程序所做的民意调查做出回应的人。事实上，根据最近对全国近 40，000 人 的民意调查，85%的人说他们计划在万圣节晚上分发礼物，68%的人计划装饰他们的家，53%的人计划装饰和分发礼物。
 
 通常很明显哪些房子已经为万圣节装饰好了，但是那些礼物呢？这就是 [隔壁万圣节请客地图](https://blog.nextdoor.com/2021/10/01/the-treat-map-is-here-to-celebrate-halloween-in-the-neighborhood/) 的用武之地。地图的众包数据使计划你的“不给糖就捣蛋”路线变得轻而易举，帮助你确定你所在地区哪些街道有最好的零食和装饰品。
 

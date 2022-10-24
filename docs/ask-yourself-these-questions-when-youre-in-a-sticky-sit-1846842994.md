@@ -1,6 +1,6 @@
 # 当你处于困境时，问自己这些问题
 
-> 原文:[https://life hacker . com/ask-you-these-questions-when-you-in-a-sticky-sit-1846842994](https://lifehacker.com/ask-yourself-these-questions-when-youre-in-a-sticky-sit-1846842994)
+> 原文：<https://lifehacker.com/ask-yourself-these-questions-when-youre-in-a-sticky-sit-1846842994>
 
 尽管我们尽了最大的努力，我们大多数人还是会时不时地陷入需要我们做出艰难、不愉快的决定的境地(有些人比其他人更难)。也许没有明确的“正确”答案，或者这是一个双输的局面。也许它涉及到一个不仅让你焦虑，而且让你恐惧的人或场景。
 
@@ -12,7 +12,7 @@ Watch
 
 ### 为什么提问会有帮助
 
-在2021年4月26日出版的 [时事通讯](https://www.thesundaysoother.com/home/the-best-questions-i-ask-myself) 中，安德鲁斯分享了她处理艰难决定的方法，利用了一个标准的问题列表(我们一会儿会谈到这些问题)，旨在帮助她找出当她感觉陷入困境时该做什么。下面是T5【安德鲁斯】T6:
+在 2021 年 4 月 26 日出版的 [时事通讯](https://www.thesundaysoother.com/home/the-best-questions-i-ask-myself) 中，安德鲁斯分享了她处理艰难决定的方法，利用了一个标准的问题列表(我们一会儿会谈到这些问题)，旨在帮助她找出当她感觉陷入困境时该做什么。下面是 T5【安德鲁斯】T6:
 
 > 我想很多人喜欢我的工作和我的指导，因为我提出了非常好的问题。很久以前，我听说过通过问高质量的问题来决定高质量的答案的概念(不管这意味着什么)，我曾经认为这是自助的废话，但我通过自己和他人的工作发现，老实说这是真的。
 

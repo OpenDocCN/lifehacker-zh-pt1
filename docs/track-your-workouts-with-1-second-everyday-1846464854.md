@@ -1,14 +1,14 @@
-# 用“每天1秒”记录你的训练
+# 用“每天 1 秒”记录你的训练
 
-> 原文:[https://life hacker . com/track-your-workouts-with-1 seconds-daily-1846464854](https://lifehacker.com/track-your-workouts-with-1-second-everyday-1846464854)
+> 原文：<https://lifehacker.com/track-your-workouts-with-1-second-everyday-1846464854>
 
 当你在追逐一个健身目标时，从长远来看，重要的不是你今天是否锻炼了，而是你随着时间的推移建立了什么样的。应用程序“每天一秒”可以帮助你想象这一点。
 
 Watch
 
-[每天1秒](https://1se.co) 是一款视频日记app，比较出名的是帮你 [看着宝宝们长大](https://offspring.lifehacker.com/document-your-babys-first-year-of-life-with-1-second-ev-1841305795) 。你只需为每天选择一个视频，将其剪辑成一秒钟的片段，该应用程序就会为你提供每月和每年的视频，将你的几秒钟串联起来。
+[每天 1 秒](https://1se.co) 是一款视频日记 app，比较出名的是帮你 [看着宝宝们长大](https://offspring.lifehacker.com/document-your-babys-first-year-of-life-with-1-second-ev-1841305795) 。你只需为每天选择一个视频，将其剪辑成一秒钟的片段，该应用程序就会为你提供每月和每年的视频，将你的几秒钟串联起来。
 
-直到我看到作家兼跑步者Elizabeth Pagel-Hogan用app[记录](https://www.instagram.com/p/CKwZy8bhbD-/) 一个月的每天跑步，我才想到用它来健身。我想过自己做一个为期一个月的挑战，但后来我意识到:我可以用这个应用程序记录我*已经*做过的锻炼。
+直到我看到作家兼跑步者 Elizabeth Pagel-Hogan 用 app[记录](https://www.instagram.com/p/CKwZy8bhbD-/) 一个月的每天跑步，我才想到用它来健身。我想过自己做一个为期一个月的挑战，但后来我意识到:我可以用这个应用程序记录我*已经*做过的锻炼。
 
 所以每天我都会选择一个片段。通常这是我那天最自豪的一次托举，但有时我会包括一次辅助托举，只是为了表明生活不全是偶然的。有时候，我会去跑步或荡壶铃；如果我这样做了，我会尝试抓取一个快速剪辑，或者我会插入一张静态照片(比如我跑步的统计数据截图，如果我用手表或手机跟踪它的话)。
 

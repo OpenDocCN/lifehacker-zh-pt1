@@ -1,6 +1,6 @@
 # 这款番茄焦糖布丁是秋季的完美享受
 
-> 原文:[https://life hacker . com/this-tomato-creme-brulee-is-the-perfect-fall-living-1849678970](https://lifehacker.com/this-tomato-creme-brulee-is-the-perfect-fall-indulgence-1849678970)
+> 原文：<https://lifehacker.com/this-tomato-creme-brulee-is-the-perfect-fall-indulgence-1849678970>
 
 “小荡妇”将是我传记的标题。事情是这样的，即使不是- 所以- 令人敬畏的焦糖布丁仍然相当美味。当你把奶油和糖扔在一起时，很难搞砸。我外出时会点这道菜，因为我一直生活在一种误解之下，认为在家很难做这道菜，但这也完全有可能是我的大脑创造了这个故事，这样我就不会呆在家里，沉迷于焦糖布丁和老电视节目《T4》。但是上个月，当我的厨房柜台无法使用时，除非我把它们的西红柿清理掉，我有了一个主意:西红柿奶油布丁。
 

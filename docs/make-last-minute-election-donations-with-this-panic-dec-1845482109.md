@@ -1,8 +1,8 @@
 # 用这个恐慌决策矩阵做最后一分钟的选举捐赠
 
-> 原文:[https://life hacker . com/make-last-minute-election-contributions-with this-panic-dec-1845482109](https://lifehacker.com/make-last-minute-election-donations-with-this-panic-dec-1845482109)
+> 原文：<https://lifehacker.com/make-last-minute-election-donations-with-this-panic-dec-1845482109>
 
-离明天还有一周就是选举日，这意味着我们正处于全国、全州、和地方政府竞选活动的最后冲刺阶段 。无论民意调查看起来多么有希望，我们从2016年的中学到了一点，即在民意调查中看到你喜欢的候选人*领先*[会增加你的焦虑](https://lifehacker.com/how-to-deal-with-anxiety-related-to-the-election-and-po-1845414578?rev=1603135867630) 。也许你感到无助，好像已经到了无计可施的地步。
+离明天还有一周就是选举日，这意味着我们正处于全国、全州、和地方政府竞选活动的最后冲刺阶段 。无论民意调查看起来多么有希望，我们从 2016 年的中学到了一点，即在民意调查中看到你喜欢的候选人*领先*[会增加你的焦虑](https://lifehacker.com/how-to-deal-with-anxiety-related-to-the-election-and-po-1845414578?rev=1603135867630) 。也许你感到无助，好像已经到了无计可施的地步。
 
 Watch
 

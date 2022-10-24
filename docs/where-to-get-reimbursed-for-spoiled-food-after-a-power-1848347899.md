@@ -1,12 +1,12 @@
 # 停电后变质的食物去哪里报销
 
-> 原文:[https://life hacker . com/1848347899](https://lifehacker.com/where-to-get-reimbursed-for-spoiled-food-after-a-power-1848347899)
+> 原文：<https://lifehacker.com/where-to-get-reimbursed-for-spoiled-food-after-a-power-1848347899>
 
 随着寒冷、雨夹雪、冰雪席卷美国许多地区，断电的威胁越来越大。虽然停电可能只会造成在夜靠头灯吃剩菜的小麻烦，但有时它可能会有更长、更昂贵的影响，因为你冰箱里的食物会慢慢变坏。但是当恶劣天气导致你家停电几天，你实际上可以从你的房屋保险中得到损失的补偿。
 
 Watch
 
-让我们从一个大警告开始:所有的房主保险政策都是不同的。我们不能保证你的保险公司会赔偿因停电而在你家变质的任何食物的价值——你需要检查你的个人保险来确保这一点。然而，在其网站上， [好事达指出](https://www.allstate.com/tr/home-insurance/spoiled-food-coverage.aspx) “在某些情况下，房主保险可能会对停电期间损失的食物进行赔偿。”在线保险市场 [Policy Genius](https://www.policygenius.com/homeowners-insurance/food-spoilage-coverage-what-you-need-to-know/) 提供了一个更令人鼓舞的消息，“大多数标准的房屋保险政策都包括停电后高达500美元的食物损失，但前提是停电原因在你的保单范围内。”( [这适用于租房者的保险，也适用于](https://www.policygenius.com/renters-insurance/does-renters-insurance-cover-food-loss/) )。)
+让我们从一个大警告开始:所有的房主保险政策都是不同的。我们不能保证你的保险公司会赔偿因停电而在你家变质的任何食物的价值——你需要检查你的个人保险来确保这一点。然而，在其网站上， [好事达指出](https://www.allstate.com/tr/home-insurance/spoiled-food-coverage.aspx) “在某些情况下，房主保险可能会对停电期间损失的食物进行赔偿。”在线保险市场 [Policy Genius](https://www.policygenius.com/homeowners-insurance/food-spoilage-coverage-what-you-need-to-know/) 提供了一个更令人鼓舞的消息，“大多数标准的房屋保险政策都包括停电后高达 500 美元的食物损失，但前提是停电原因在你的保单范围内。”( [这适用于租房者的保险，也适用于](https://www.policygenius.com/renters-insurance/does-renters-insurance-cover-food-loss/) )。)
 
 那么这些神秘的“原因和案例”是什么，在这些原因和案例下，房主和租房者的保险可能会涵盖食物腐败？
 
@@ -18,7 +18,7 @@ Watch
 
 ## 牢记限额和免赔额
 
-冰箱或冰柜里的变质食物不会自动获得全额报销。例如，你的杂货总成本可能是675美元，而你的房屋保险的报销限额可能是500美元。或者在你的银行账户有任何收益之前，你可能需要支付一笔免赔额。限额和免赔额各不相同，所以一定要检查您的个人政策的细则。
+冰箱或冰柜里的变质食物不会自动获得全额报销。例如，你的杂货总成本可能是 675 美元，而你的房屋保险的报销限额可能是 500 美元。或者在你的银行账户有任何收益之前，你可能需要支付一笔免赔额。限额和免赔额各不相同，所以一定要检查您的个人政策的细则。
 
 根据福布斯顾问[的说法，如果你确实需要支付免赔额，“保险信息机构建议询问你的公用事业提供商，他们是否会为你报销免赔额。”](https://www.forbes.com/advisor/home-insurance/power-outages/)
 
@@ -28,6 +28,6 @@ Watch
 
 ## 在提出索赔之前，要考虑利弊
 
-即使停电后你看到的是价值200美元的凝固的农家干酪和腐烂的肉，提出索赔可能也不符合你的最佳利益。在你的保险公司看来，索赔记录增加了你再次索赔的机会。对他们来说，更多的索赔意味着更多的费用，这意味着当保单续期时，你的保险费可能会增加。
+即使停电后你看到的是价值 200 美元的凝固的农家干酪和腐烂的肉，提出索赔可能也不符合你的最佳利益。在你的保险公司看来，索赔记录增加了你再次索赔的机会。对他们来说，更多的索赔意味着更多的费用，这意味着当保单续期时，你的保险费可能会增加。
 
 当然，你永远不知道保险费会涨多少，也不知道提交一份与天气有关的索赔不一定等同于更高的保险费。这只是你在权衡是否应该为那些冷冻披萨寻求补偿时要考虑的一个因素。

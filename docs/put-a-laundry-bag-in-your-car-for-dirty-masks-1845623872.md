@@ -1,6 +1,6 @@
 # 在你的车里放一个洗衣袋来装脏口罩
 
-> 原文:[https://life hacker . com/put-a-washing-bag-in-your-car-for-dirty-masks-1845623872](https://lifehacker.com/put-a-laundry-bag-in-your-car-for-dirty-masks-1845623872)
+> 原文：<https://lifehacker.com/put-a-laundry-bag-in-your-car-for-dirty-masks-1845623872>
 
 疫情让我们质疑一切，包括洗衣服。不再是脏衣服仅限于来脱在卧室或卫生间；现在我们不得不处理从外出回家的路上被摘下的面具以及。
 

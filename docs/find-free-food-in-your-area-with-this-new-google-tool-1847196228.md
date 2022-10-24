@@ -1,6 +1,6 @@
 # 用这个新的谷歌工具找到你所在地区的免费食物
 
-> 原文:[https://life hacker . com/find-free-food-in-your-area-with this-new-Google-tool-1847196228](https://lifehacker.com/find-free-food-in-your-area-with-this-new-google-tool-1847196228)
+> 原文：<https://lifehacker.com/find-free-food-in-your-area-with-this-new-google-tool-1847196228>
 
 长期以来，粮食不安全一直是许多美国人的担忧——疫情加剧了这一问题，导致近四分之一的家庭难以满足这一基本需求。对于那些需要额外支持的人来说，那里有资源，现在，有一个谷歌地图可以帮助人们找到他们。
 
@@ -8,7 +8,7 @@
 
 Watch
 
-请注意，谷歌工具只是汇总了90，000多个项目的信息，数据由Foodfinder、No Kid Hungry和美国农业部提供。这意味着地图上的一些信息可能不完整或过期。即使列出了时间，你也应该提前打电话确认。
+请注意，谷歌工具只是汇总了 90，000 多个项目的信息，数据由 Foodfinder、No Kid Hungry 和美国农业部提供。这意味着地图上的一些信息可能不完整或过期。即使列出了时间，你也应该提前打电话确认。
 
 除了地图之外，还可以找到其他资源的食品支持链接，包括热线电话和福利项目，为美国老年人、家庭、军人和其他受食品不安全影响的人提供服务。
 

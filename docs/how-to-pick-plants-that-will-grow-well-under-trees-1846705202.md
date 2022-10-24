@@ -1,6 +1,6 @@
 # 如何挑选在树下生长良好的植物
 
-> 原文:[https://life hacker . com/how-to-pick-the-plants-will-grow-under trees-1846705202](https://lifehacker.com/how-to-pick-plants-that-will-grow-well-under-trees-1846705202)
+> 原文：<https://lifehacker.com/how-to-pick-plants-that-will-grow-well-under-trees-1846705202>
 
 树木周围的地面被鲜花或其他树叶覆盖，这有点像童话故事。即使它是刻意种植和培育的，不知何故它看起来还是那么自然——就好像你无意中走进了一片没人见过的森林。
 
@@ -12,7 +12,7 @@ Watch
 
 ### 小长春花
 
-这是第一个，因为它可能需要一个像这样的名字来提升自尊。这种紫色的花最高约10英寸，通常在仲春出现，并伴随我们直到初秋。但这不会让你的树下区域在一年的剩余时间里都光秃秃的——绿叶会持续一整年。根据克罗斯利的说法，小长春花“在多叶树冠下的部分阴凉处也能很好地生长，并且会相对较快地形成一个密集的垫子。”
+这是第一个，因为它可能需要一个像这样的名字来提升自尊。这种紫色的花最高约 10 英寸，通常在仲春出现，并伴随我们直到初秋。但这不会让你的树下区域在一年的剩余时间里都光秃秃的——绿叶会持续一整年。根据克罗斯利的说法，小长春花“在多叶树冠下的部分阴凉处也能很好地生长，并且会相对较快地形成一个密集的垫子。”
 
 ### 主机
 
@@ -20,4 +20,4 @@ Watch
 
 ### 蕨类
 
-很难打败一棵好蕨类植物，它们看起来很野，但却是故意的。很容易理解为什么维多利亚时代的 [如此受他们](https://daily.jstor.org/when-ferns-were-all-the-rage/) 的青睐。但根据Crossley的说法，并非所有的蕨类植物都是一样的，所以一定要选择能够应对阴凉的品种，如哈特氏舌蕨(Asplenium scolopendrium)、日本盾叶蕨(Dryopteris erythrosora)或“雄性蕨类”(Dryopteris filix-mas)。
+很难打败一棵好蕨类植物，它们看起来很野，但却是故意的。很容易理解为什么维多利亚时代的 [如此受他们](https://daily.jstor.org/when-ferns-were-all-the-rage/) 的青睐。但根据 Crossley 的说法，并非所有的蕨类植物都是一样的，所以一定要选择能够应对阴凉的品种，如哈特氏舌蕨(Asplenium scolopendrium)、日本盾叶蕨(Dryopteris erythrosora)或“雄性蕨类”(Dryopteris filix-mas)。

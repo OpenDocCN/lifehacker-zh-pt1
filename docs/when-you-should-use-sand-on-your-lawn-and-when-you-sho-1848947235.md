@@ -1,6 +1,6 @@
 # 什么时候应该在草坪上使用沙子(什么时候不应该)
 
-> 原文:[https://life hacker . com/when-you-sho-1848947235](https://lifehacker.com/when-you-should-use-sand-on-your-lawn-and-when-you-sho-1848947235)
+> 原文：<https://lifehacker.com/when-you-should-use-sand-on-your-lawn-and-when-you-sho-1848947235>
 
 高尔夫球场因其比绿色更绿、修剪完美的草坪而闻名。如果你去过，你可能会注意到链接上有一层沙子。但与那些专业维护的场地不同，大多数人没有自己的园艺师或场地管理员，因此，他们想自己动手。
 
@@ -10,7 +10,7 @@ Watch
 
 ## 什么时候在你的草坪上撒沙子
 
-在你的草坪上铺一层沙子的做法——有时被称为“追肥”——如果方法正确的话，会对你的草有很大的好处。根据RHS培训的园丁西蒙·克利福德的说法， [一些例子包括](https://www.homesandgardens.com/gardens/sand-on-your-lawn) :
+在你的草坪上铺一层沙子的做法——有时被称为“追肥”——如果方法正确的话，会对你的草有很大的好处。根据 RHS 培训的园丁西蒙·克利福德的说法， [一些例子包括](https://www.homesandgardens.com/gardens/sand-on-your-lawn) :
 
 *   改善表层土壤的结构
 *   改善土壤排水

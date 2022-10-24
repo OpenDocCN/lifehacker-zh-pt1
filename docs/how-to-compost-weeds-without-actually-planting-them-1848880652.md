@@ -1,6 +1,6 @@
 # 如何在不种植杂草的情况下堆肥
 
-> 原文:[https://life hacker . com/how-to-compost-weeds-without-actually-planning-them-1848880652](https://lifehacker.com/how-to-compost-weeds-without-actually-planting-them-1848880652)
+> 原文：<https://lifehacker.com/how-to-compost-weeds-without-actually-planting-them-1848880652>
 
 对于那些刚接触堆肥的人来说，弄清楚什么该放进去，什么该留出来可能会让人望而生畏。如果你在堆肥，很可能你也在院子里做其他事情，比如园艺或景观美化——这意味着你在处理杂草。
 

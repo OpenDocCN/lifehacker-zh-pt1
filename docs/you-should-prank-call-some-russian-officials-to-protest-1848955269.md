@@ -1,8 +1,8 @@
 # 你应该恶作剧打电话给一些俄罗斯官员，抗议乌克兰战争
 
-> 原文:[https://life hacker . com/you-should-prank-call-some-Russian-officials-to-抗议信1848955269](https://lifehacker.com/you-should-prank-call-some-russian-officials-to-protest-1848955269)
+> 原文：<https://lifehacker.com/you-should-prank-call-some-russian-officials-to-protest-1848955269>
 
-从远处追踪乌克兰 [战争](https://lifehacker.com/how-to-talk-to-kids-and-teens-about-the-crisis-in-ukrai-1848589761) 的骇人消息会让你感到无能为力。虽然你可以做一些具体的事情来帮助在s 下的乌克兰公民，一旦你这样做了，参与一些小的钓鱼活动也没什么错:黑客活动网站[wasterussiantime . today](https://wasterussiantime.today/)让你把 [机器人呼叫](https://lifehacker.com/why-you-shouldnt-speak-when-you-get-a-robocall-1847803297) 变成一种抵抗行为。
+从远处追踪乌克兰 [战争](https://lifehacker.com/how-to-talk-to-kids-and-teens-about-the-crisis-in-ukrai-1848589761) 的骇人消息会让你感到无能为力。虽然你可以做一些具体的事情来帮助在 s 下的乌克兰公民，一旦你这样做了，参与一些小的钓鱼活动也没什么错:黑客活动网站[wasterussiantime . today](https://wasterussiantime.today/)让你把 [机器人呼叫](https://lifehacker.com/why-you-shouldnt-speak-when-you-get-a-robocall-1847803297) 变成一种抵抗行为。
 
 Watch
 
@@ -10,11 +10,11 @@ Watch
 
 ## 今天谁浪费了俄罗斯的时间？
 
-该网站的创建者在Twitter上的名字是“山鲁佐德模糊的梦”([@ ringling Russia](https://twitter.com/ringringrussia))，在简历中，这个团体被描述为“一群浪费俄罗斯战争贩子时间的艺术家、科学家和牙医”他们的Twitter相当活跃，我一直在定期查看更新，因为在我的测试电话中，拨号功能已经关闭了几次。(详见下文。)
+该网站的创建者在 Twitter 上的名字是“山鲁佐德模糊的梦”([@ ringling Russia](https://twitter.com/ringringrussia))，在简历中，这个团体被描述为“一群浪费俄罗斯战争贩子时间的艺术家、科学家和牙医”他们的 Twitter 相当活跃，我一直在定期查看更新，因为在我的测试电话中，拨号功能已经关闭了几次。(详见下文。)
 
 ## 网站是如何运作的？
 
-正如在 [有线](https://www.wired.com/story/robo-prank-call-russian-officials-website/?bxid=5e18a3b9f7304359451e70dc&cndid=59631559&esrc=AUTO_PRINT&mbid=mbid%3DCRMWIR012019%0A%0A&source=EDT_WIR_NEWSLETTER_0_DAILY_ZZ&utm_brand=wired&utm_campaign=aud-dev&utm_content=WIR_Daily_051822&utm_mailing=WIR_Daily_051822&utm_medium=email&utm_source=nl&utm_term=P4) 中解释的那样，WasteRussianTime.today的工作原理是启动一个VoIP电话，从现有的数据泄露 中自动拨打俄罗斯官员的号码 [，然后将你与前两个连接的俄罗斯官员的电话合并成一个三方通话。](https://fortune.com/2022/04/04/anonymous-leaks-russian-soldier-data-ukraine-invasion/)
+正如在 [有线](https://www.wired.com/story/robo-prank-call-russian-officials-website/?bxid=5e18a3b9f7304359451e70dc&cndid=59631559&esrc=AUTO_PRINT&mbid=mbid%3DCRMWIR012019%0A%0A&source=EDT_WIR_NEWSLETTER_0_DAILY_ZZ&utm_brand=wired&utm_campaign=aud-dev&utm_content=WIR_Daily_051822&utm_mailing=WIR_Daily_051822&utm_medium=email&utm_source=nl&utm_term=P4) 中解释的那样，WasteRussianTime.today 的工作原理是启动一个 VoIP 电话，从现有的数据泄露 中自动拨打俄罗斯官员的号码 [，然后将你与前两个连接的俄罗斯官员的电话合并成一个三方通话。](https://fortune.com/2022/04/04/anonymous-leaks-russian-soldier-data-ukraine-invasion/)
 
 当您按下拨号键时，您实际上不能在通话中讲话。更重要的是，这是一种保护措施，这样游客就不会说出任何可能泄露你的身份并使你处于危险之中的话。你的任务是封锁防线。网站上写道，“越多的杜马员工被激怒，越好。”
 

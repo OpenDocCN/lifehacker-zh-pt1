@@ -1,8 +1,8 @@
 # 为什么分区对你有好处
 
-> 原文:[https://life hacker . com/why-zoning-out-can-be-good-for-you-1849505250](https://lifehacker.com/why-zoning-out-can-be-good-for-you-1849505250)
+> 原文：<https://lifehacker.com/why-zoning-out-can-be-good-for-you-1849505250>
 
-我们都有无所事事地等待的时候，在医生办公室的候诊室里，在汽车修理工那里，或者在安静的T2工作时间。通常当这种情况发生时，我们的本能是伸手拿起我们的智能手机来浏览社交媒体或查看我们的电子邮件，因为做*某事*感觉比什么都不做*更有效率*。
+我们都有无所事事地等待的时候，在医生办公室的候诊室里，在汽车修理工那里，或者在安静的 T2 工作时间。通常当这种情况发生时，我们的本能是伸手拿起我们的智能手机来浏览社交媒体或查看我们的电子邮件，因为做*某事*感觉比什么都不做*更有效率*。
 
 Watch
 
@@ -10,7 +10,7 @@ Watch
 
 ## **分区比我们意识到的更令人愉快**
 
-在第一个实验中，参与者被要求在一个窗户紧闭的房间里等待20分钟，不能接触他们的物品，包括他们的智能手机，他们只能坐在椅子上。在此之前，他们被问及他们有多喜欢做这件事。
+在第一个实验中，参与者被要求在一个窗户紧闭的房间里等待 20 分钟，不能接触他们的物品，包括他们的智能手机，他们只能坐在椅子上。在此之前，他们被问及他们有多喜欢做这件事。
 
 研究人员发现，人们总是低估他们享受坐着思考的程度。在一系列相关实验中，包括关灯以阻挡任何视觉刺激等变化，参与者再次一致低估了他们认为坐着和思考会有多投入或多愉快。
 
@@ -18,4 +18,4 @@ Watch
 
 每当我们有几分钟无事可做的时候，就会本能地用智能手机浏览新闻、社交媒体、或信息。但是花几分钟坐下来思考可能比我们意识到的更令人愉快，而且它可以提供一个反思的机会。
 
-正如该研究的合著者Kou Muruyama告诉“在现代数字世界中，当有空闲时间时，很容易‘消磨时间’，但在这种情况下让我们沉浸在思考中可能是个好主意。” [和h e也说](https://www.healthline.com/health-news/unplug-and-let-your-mind-wander-research-shows-its-good-for-you#People-enjoy-thinking-more-than-they-realize) 说 [以前的研究](https://journals.plos.org/plosone/article?id=10.1371/journal.pone.0231946) 发现，花点时间让走神可以帮助人们更有创造力，更善于解决问题。
+正如该研究的合著者 Kou Muruyama 告诉“在现代数字世界中，当有空闲时间时，很容易‘消磨时间’，但在这种情况下让我们沉浸在思考中可能是个好主意。” [和 h e 也说](https://www.healthline.com/health-news/unplug-and-let-your-mind-wander-research-shows-its-good-for-you#People-enjoy-thinking-more-than-they-realize) 说 [以前的研究](https://journals.plos.org/plosone/article?id=10.1371/journal.pone.0231946) 发现，花点时间让走神可以帮助人们更有创造力，更善于解决问题。

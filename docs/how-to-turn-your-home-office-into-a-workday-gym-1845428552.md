@@ -1,6 +1,6 @@
 # 如何把你的家庭办公室变成一个工作日健身房
 
-> 原文:[https://life hacker . com/how-to-turn-your-home-office-to-work day-gym-1845428552](https://lifehacker.com/how-to-turn-your-home-office-into-a-workday-gym-1845428552)
+> 原文：<https://lifehacker.com/how-to-turn-your-home-office-into-a-workday-gym-1845428552>
 
 比起去健身房，你更喜欢在工作日一点一点地锻炼吗？或者也许你只是想开始用一些更健康的习惯来打破单调？以下是如何将你的办公室(或你工作的角落)变成一个你也可以健身的地方。
 

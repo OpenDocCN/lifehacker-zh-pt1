@@ -1,6 +1,6 @@
 # 如何组织感恩节砂锅交换
 
-> 原文:[https://life hacker . com/how-to-organize-a-感恩节-砂锅-swap-1845715960](https://lifehacker.com/how-to-organize-a-thanksgiving-casserole-swap-1845715960)
+> 原文：<https://lifehacker.com/how-to-organize-a-thanksgiving-casserole-swap-1845715960>
 
 作为一个来自南方的女人，我发现没有什么比一顿美味的砂锅菜更令人欣慰的了，尤其是在每年的这个时候。( [这个](https://skillet.lifehacker.com/an-ode-to-jiffy-corn-casserole-1830231857) 是我的最爱。砂锅菜几乎是一种爱的语言——如果有人给你一个砂锅菜，他们会说，“给，朋友，这是一顿完全不需要你做的饭。”我认为那很好。
 

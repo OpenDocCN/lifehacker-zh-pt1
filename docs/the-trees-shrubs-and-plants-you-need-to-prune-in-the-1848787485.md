@@ -1,6 +1,6 @@
 # 春天你需要修剪的树木、灌木和植物(以及如何正确修剪)
 
-> 原文:[https://life hacker . com/the-trees-bush-and-plants-you-need-to-prune-in-the-the-1848787485](https://lifehacker.com/the-trees-shrubs-and-plants-you-need-to-prune-in-the-1848787485)
+> 原文：<https://lifehacker.com/the-trees-shrubs-and-plants-you-need-to-prune-in-the-1848787485>
 
 修剪是一项重要的园艺工作。除了简单地控制生长之外，适当的修剪还可以通过确保光线和空气能够到达所有的树枝来保持树木和灌木的健康。适时修剪也可以鼓励更多的花朵盛开，所以如果你想让你的院子看起来最好，这是一个很好的技能。
 
@@ -14,7 +14,7 @@ Watch
 
 大多数在夏天开花的灌木是在新长出来的时候开花的。这意味着你可以在春天修剪任何你喜欢的东西，因为新的生长还没有开始。蝴蝶布什和沙龙玫瑰就属于这一类。
 
-如果你需要一个截止日期，一个经验法则是“夏季开花”的植物是在6月15日 之后开花 [。](https://www.skh.com/thedirt/pruning-fundamentals-for-a-successful-spring/)
+如果你需要一个截止日期，一个经验法则是“夏季开花”的植物是在 6 月 15 日 之后开花 [。](https://www.skh.com/thedirt/pruning-fundamentals-for-a-successful-spring/)
 
 ### **藤蔓**
 
@@ -34,7 +34,7 @@ Watch
 
 ## 春天不要修剪什么
 
-当你进行春季修剪时，重要的是*而不是*修剪某些植物。任何你为它们的花而种植的植物，以及春天的花，在它们开花之前都不应该被修剪。(6月15日规则在这里很有用。)
+当你进行春季修剪时，重要的是*而不是*修剪某些植物。任何你为它们的花而种植的植物，以及春天的花，在它们开花之前都不应该被修剪。(6 月 15 日规则在这里很有用。)
 
 举例来说，紫丁香和连翘:如果你在春天修剪它们，你会移除植物中变成花蕾的部分。等到后*开花，然后你想修剪多少就修剪多少。*
 

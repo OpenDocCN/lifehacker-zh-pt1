@@ -1,6 +1,6 @@
 # 油毡和乙烯基地板的区别
 
-> 原文:[https://life hacker . com/the-difference-in-linoleum-and-vinyl-flooding-1849379646](https://lifehacker.com/the-difference-between-linoleum-and-vinyl-flooring-1849379646)
+> 原文：<https://lifehacker.com/the-difference-between-linoleum-and-vinyl-flooring-1849379646>
 
 虽然油毡和乙烯基地板看起来是一样的，但实际上它们在成本、耐用性、安装方便性和其他各种因素方面有很大不同。这就是为什么在决定在家里安装哪种地板之前，了解每种地板的优缺点是很重要的。这里有一些关于油毡和乙烯基地板的区别的知识。
 
@@ -12,11 +12,11 @@ Watch
 
 ### 油毡
 
-*   发明于 [1860年](https://www.cooperhewitt.org/2012/10/11/linoleum-lives-on/#:~:text=First%20invented%20by%20Frederick%20Walton,the%201870s%20through%20the%201960s.)发明于
+*   发明于 [1860 年](https://www.cooperhewitt.org/2012/10/11/linoleum-lives-on/#:~:text=First%20invented%20by%20Frederick%20Walton,the%201870s%20through%20the%201960s.)发明于
 *   虽然有现代合成版本，但传统的油毡是由全天然和可生物降解的材料制成的，包括亚麻油、松脂、石灰石、软木粉、木粉和黄麻
-*   [床单油毡](https://www.bobvila.com/articles/linoleum-vs-vinyl/) 每平方英尺的成本在5美元到7美元之间
-*   油毡瓦的价格在每平方英尺3美元到5美元之间
-*   平均持续20到40年
+*   [床单油毡](https://www.bobvila.com/articles/linoleum-vs-vinyl/) 每平方英尺的成本在 5 美元到 7 美元之间
+*   油毡瓦的价格在每平方英尺 3 美元到 5 美元之间
+*   平均持续 20 到 40 年
 *   比乙烯树脂更坚硬，更难切割，但也更耐用
 *   防水，但比乙烯树脂更容易被水损坏
 *   需要每三到十年密封一次，以保持防水
@@ -27,9 +27,9 @@ Watch
 
 *   发明于 [二十世纪二十年代的](https://www.finehomebuilding.com/2015/11/11/whats-the-difference-linoleum-vs-vinyl)
 *   合成的；主要由聚氯乙烯(PVC)树脂制成
-*   [乙烯基板材](https://www.bobvila.com/articles/linoleum-vs-vinyl/) 每平方英尺的成本在50美分至2美元之间
-*   乙烯基瓷砖每平方英尺的价格约为3.5美元
-*   持续10到20年
+*   [乙烯基板材](https://www.bobvila.com/articles/linoleum-vs-vinyl/) 每平方英尺的成本在 50 美分至 2 美元之间
+*   乙烯基瓷砖每平方英尺的价格约为 3.5 美元
+*   持续 10 到 20 年
 *   防水；抗霉菌和霉菌堆积
 
 *   比油毡有更多的颜色和图案可供选择
@@ -40,4 +40,4 @@ Watch
 
 那么应该选择哪种地板呢？两者都易于清洁，是厨房和浴室的流行选择。如果你的浴室通风不良，容易变得特别潮湿，乙烯基可能是更好的选择，因为它是防水的。另一方面，油毡更耐热，所以可能是厨房的更好选择。
 
-当考虑成本时，想想你是对前期省钱更感兴趣(在这种情况下，乙烯塑料会赢)还是对长期省钱更感兴趣(油毡是最重要的)。虽然从技术上来说，你可以自己安装油毡和乙烯树脂，但乙烯树脂地板对缺乏经验的DIY者来说要容易得多。
+当考虑成本时，想想你是对前期省钱更感兴趣(在这种情况下，乙烯塑料会赢)还是对长期省钱更感兴趣(油毡是最重要的)。虽然从技术上来说，你可以自己安装油毡和乙烯树脂，但乙烯树脂地板对缺乏经验的 DIY 者来说要容易得多。

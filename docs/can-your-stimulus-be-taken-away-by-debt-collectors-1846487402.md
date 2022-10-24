@@ -1,8 +1,8 @@
 # 你的刺激能被讨债的拿走吗？
 
-> 原文:[https://life hacker . com/can-your-stimulus-be-take-away-by-debt-collectors-1846487402](https://lifehacker.com/can-your-stimulus-be-taken-away-by-debt-collectors-1846487402)
+> 原文：<https://lifehacker.com/can-your-stimulus-be-taken-away-by-debt-collectors-1846487402>
 
-由于最近的救助法案通过的方式有些古怪，你的1400美元的刺激支票可能会被私人收债人扣押。有后续立法来解决这个问题的说法，但可能太少，太晚了。
+由于最近的救助法案通过的方式有些古怪，你的 1400 美元的刺激支票可能会被私人收债人扣押。有后续立法来解决这个问题的说法，但可能太少，太晚了。
 
 Watch
 

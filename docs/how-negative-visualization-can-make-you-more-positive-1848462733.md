@@ -1,6 +1,6 @@
 # “消极视觉化”如何让你变得更加积极
 
-> 原文:[https://life hacker . com/how-negative-visualization-can-make-you-more-positive-1848462733](https://lifehacker.com/how-negative-visualization-can-make-you-more-positive-1848462733)
+> 原文：<https://lifehacker.com/how-negative-visualization-can-make-you-more-positive-1848462733>
 
 人们很容易陷入消极的心态，而让自己摆脱消极心态则困难得多。你可能会感到被对失败的持续恐惧所困，或者陷入对你没有的东西的嫉妒中。被负面情绪吞噬不太可能帮助你改善环境——但如果你能让所有焦虑、不开心的想法为你服务，而不是与你作对，会怎么样？
 
@@ -10,7 +10,7 @@ Watch
 
 ## 什么是负面视觉化？
 
-消极视觉化是消极思维的一种花哨说法，而不是T2。事实上，这个想法源于 [斯多葛派的罗马哲学家](https://en.wikipedia.org/wiki/Negative_visualization) 。现代版的 [斯多葛主义](https://whatisstoicism.com/stoicism-definition/how-to-practice-stoic-negative-visualisation/) 近年来赢得了一批追随者，尤其是随着像正念 这样的 [练习的流行。虽然我绝不遵守斯多葛主义，但这种哲学的一些关键原则肯定对我这个非常焦虑的人有吸引力。例如，我特别被现代斯多葛派](https://lifehacker.com/how-to-get-the-most-out-of-meditation-1843713254) 的 [所吸引，他强调把你能控制的东西(思想和感情)和你不能控制的东西(世界的其他部分)分开。不管怎样，你绝对不需要为了尝试消极的视觉化而完全沉浸在禁欲主义中。](https://lifehacker.com/how-the-principles-of-stoicism-can-help-your-personal-a-1783277251)
+消极视觉化是消极思维的一种花哨说法，而不是 T2。事实上，这个想法源于 [斯多葛派的罗马哲学家](https://en.wikipedia.org/wiki/Negative_visualization) 。现代版的 [斯多葛主义](https://whatisstoicism.com/stoicism-definition/how-to-practice-stoic-negative-visualisation/) 近年来赢得了一批追随者，尤其是随着像正念 这样的 [练习的流行。虽然我绝不遵守斯多葛主义，但这种哲学的一些关键原则肯定对我这个非常焦虑的人有吸引力。例如，我特别被现代斯多葛派](https://lifehacker.com/how-to-get-the-most-out-of-meditation-1843713254) 的 [所吸引，他强调把你能控制的东西(思想和感情)和你不能控制的东西(世界的其他部分)分开。不管怎样，你绝对不需要为了尝试消极的视觉化而完全沉浸在禁欲主义中。](https://lifehacker.com/how-the-principles-of-stoicism-can-help-your-personal-a-1783277251)
 
 [【今日心理学】](https://www.psychologytoday.com/us/blog/mindfulness-insights/201910/5-mindfulness-hacks-feel-better-instantly) 将消极 [形象化](https://www.psychologytoday.com/us/basics/fantasies) 定义为当你“有意想象如果你没有你所拥有的，你的生活会有多糟糕。“就这么简单:你翻转你消极的想法，用它来获得一个更感恩、积极的视角。
 
@@ -23,7 +23,7 @@ Watch
 为了练习消极的视觉化，你从思考每一个当处于受控环境中时你能想到的引发焦虑的*如果*会怎样(而不是以无计划恐慌发作的形式)开始。通过以下步骤，留出一些时间让自己处于更积极的心态:
 
 1.  列一个清单，列出生活中你感激的东西，以及你希望拥有的东西。这些可以是特定的人、财产和一般的生活领域(如工作或爱好)。你可以在头脑中这样做，或者写下来，如果这有助于你集中注意力的话。
-2.  想象第一步中每一项可能的负面结果。花5到10分钟浏览你的清单，想想如果那件事从你身边被拿走，或者那份工作或活动对你来说不再可能，你会有什么感觉。
+2.  想象第一步中每一项可能的负面结果。花 5 到 10 分钟浏览你的清单，想想如果那件事从你身边被拿走，或者那份工作或活动对你来说不再可能，你会有什么感觉。
 3.  继续思考其他对你现在的生活不真实的负面可能性。想想你从未得过的疾病，从未经历过的事故，等等。
 4.  冷静消极情绪的时间到了:集思广益，找出你能够管理这些可能的损失的方法。想想你以前经历过的艰难时期以及你如何能够再经历一次(实际上和情感上)。
 5.  重新关注第一步清单上的所有事情。对你所拥有的感到更大的感激。想想把注意力放在你对这些东西的感激上，比仅仅放在失去它们的前景上，感觉会好得多。

@@ -1,6 +1,6 @@
 # 停电和限电的区别
 
-> 原文:[https://life hacker . com/the-difference-between-blackout-and-brown-out-1849079269](https://lifehacker.com/the-difference-between-blackouts-and-brownouts-1849079269)
+> 原文：<https://lifehacker.com/the-difference-between-blackouts-and-brownouts-1849079269>
 
 随着全国气温和湿度水平的飙升，许多人都在开大空调。虽然这完全可以理解，但这样做可能会导致停电。与此同时，到目前为止，强烈的夏季风暴也已经成为这个季节的固定节目，在闷热的天气中导致停电。
 

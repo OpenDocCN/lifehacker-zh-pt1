@@ -1,6 +1,6 @@
 # 如何在面试中发现一个糟糕的老板
 
-> 原文:[https://life hacker . com/how-to-spot-a-bad-boss-in-a-job-interview-1848047257](https://lifehacker.com/how-to-spot-a-bad-boss-during-a-job-interview-1848047257)
+> 原文：<https://lifehacker.com/how-to-spot-a-bad-boss-during-a-job-interview-1848047257>
 
 工作面试不仅仅是把你自己推销成这份工作的最佳候选人，它也是你了解你将为谁工作，以及他们是否可能是一个糟糕的经理的机会。考虑到 [将近一半的员工](https://www.prnewswire.com/news-releases/half-of-workers-surveyed-have-quit-due-to-a-bad-boss-300933362.html) 因为他们的老板而离职，你会想知道在面试中应该寻找什么，应该问什么。下面是一些常见的危险信号，可以帮助你识别潜在的糟糕主管:
 

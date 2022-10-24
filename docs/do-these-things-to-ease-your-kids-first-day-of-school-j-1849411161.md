@@ -1,6 +1,6 @@
 # 做这些事情来缓解你孩子开学第一天的紧张
 
-> 原文:[https://life hacker . com/do-things-to-ease-your-kids-first-day of-school-j-1849411161](https://lifehacker.com/do-these-things-to-ease-your-kids-first-day-of-school-j-1849411161)
+> 原文：<https://lifehacker.com/do-these-things-to-ease-your-kids-first-day-of-school-j-1849411161>
 
 即将到来的学年通常意味着家庭日程的重大改变，包括早上再次匆忙出门。对许多孩子来说，开学第一天不仅令人兴奋，也让人不知所措。除了起床和做好准备，他们还得记得打包第一天需要的所有东西，导航公交车站或下车线，找到他们的教室，见他们的老师和同学。
 

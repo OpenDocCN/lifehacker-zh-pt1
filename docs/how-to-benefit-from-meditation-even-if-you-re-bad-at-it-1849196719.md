@@ -1,6 +1,6 @@
 # 即使你不擅长冥想，如何从冥想中受益
 
-> 原文:[https://life hacker . com/how-to-benefit-from冥想-即使你不擅长-1849196719](https://lifehacker.com/how-to-benefit-from-meditation-even-if-you-re-bad-at-it-1849196719)
+> 原文：<https://lifehacker.com/how-to-benefit-from-meditation-even-if-you-re-bad-at-it-1849196719>
 
 尽管不断听说的种种好处，但很难 [真正进入冥想](https://lifehacker.com/if-you-hate-meditating-try-these-alternatives-1847237707) 。很多 [尝试冥想](https://www.ucl.ac.uk/news/2019/may/meditation-needs-more-research-study-finds-25-suffer-unpleasant-experiences) 的人都觉得自己好像失败了。我就是那些人中的一个。你说你应该“理清思路”是什么意思？那是我保存所有想法的地方！
 

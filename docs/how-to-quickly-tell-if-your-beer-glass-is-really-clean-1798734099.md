@@ -1,6 +1,6 @@
 # 如何快速判断你的啤酒杯是否真的干净
 
-> 原文:[https://life hacker . com/how-to-quick-tell-if-your ' s beer-glass-is true-clean-1798734099](https://lifehacker.com/how-to-quickly-tell-if-your-beer-glass-is-really-clean-1798734099)
+> 原文：<https://lifehacker.com/how-to-quickly-tell-if-your-beer-glass-is-really-clean-1798734099>
 
 几年前，我决定获得导游资格——品酒师的啤酒版本。在学习期间，我学会了什么构成了一个“ [啤酒杯](https://www.craftbeer.com/craft-beer-muses/coming-clean-about-dirty-beer-glassware) ”玻璃杯。老实说，这是我以前从未考虑过的事情。干净的杯子就是干净的杯子，对吧？不对。
 
@@ -16,7 +16,7 @@ Watch
 
 在不干净的杯子里，啤酒的泡沫也会消散得更快，而且/或者当你开始喝的时候，泡沫不会附着在杯子的边缘
 
-这段YouTube视频很好地向你展示了全部细节:
+这段 YouTube 视频很好地向你展示了全部细节:
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-nCidxNOvPQw&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-nCidxNOvPQw&start=0) 
 

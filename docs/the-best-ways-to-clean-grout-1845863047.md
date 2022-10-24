@@ -1,6 +1,6 @@
 # 清洁水泥浆的最佳方法
 
-> 原文:[https://life hacker . com/the-best-ways-to-clean-grout-1845863047](https://lifehacker.com/the-best-ways-to-clean-grout-1845863047)
+> 原文：<https://lifehacker.com/the-best-ways-to-clean-grout-1845863047>
 
 瓷砖很容易清洗，但祝你好运，让周围的水泥浆恢复到原来的珍珠白。
 

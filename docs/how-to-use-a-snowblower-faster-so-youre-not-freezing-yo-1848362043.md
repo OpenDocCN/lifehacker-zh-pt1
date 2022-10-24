@@ -1,6 +1,6 @@
 # 如何更快地使用扫雪机，这样你就不会冻僵了
 
-> 原文:[https://life hacker . com/how-to-use-a-snow blower-fast-so-you-not-freezing-yo-1848362043](https://lifehacker.com/how-to-use-a-snowblower-faster-so-youre-not-freezing-yo-1848362043)
+> 原文：<https://lifehacker.com/how-to-use-a-snowblower-faster-so-youre-not-freezing-yo-1848362043>
 
 有车道的房主住在每年降雪量相当可观的地方，他们需要做出决定:是铲雪、使用扫雪机，还是雇人除雪。那些选择购买扫雪机的人通常会这样做，因为它比铲雪更快更容易。
 
@@ -16,7 +16,7 @@ Watch
 
 但是如果你的房子紧靠车道，哈多说从最靠近房子的一侧开始，这样你就不会把雪扔到你已经清理过的车道上。
 
-## 一有6英寸厚的雪就开始
+## 一有 6 英寸厚的雪就开始
 
 你可能认为最好等到雪停了，然后*和*拿出扫雪机，但是《家庭杂工》 的 [编辑反对这样做。相反，他们建议在下了六英寸的雪后出门。尽管这确实意味着你可能不得不不止一次地铲雪，“你的机器不需要努力工作，它会把雪扔得更远，”他们注意到。](https://www.familyhandyman.com/list/snow-blowing-tips/)
 

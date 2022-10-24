@@ -1,6 +1,6 @@
 # 如何避免将你的恐惧传递给你的孩子
 
-> 原文:[https://life hacker . com/how-to-avoid-pass-the-your-children-1848871152](https://lifehacker.com/how-to-avoid-passing-your-fears-on-to-your-children-1848871152)
+> 原文：<https://lifehacker.com/how-to-avoid-passing-your-fears-on-to-your-children-1848871152>
 
 作为父母，我们都希望我们的孩子过上比我们更好的生活。尤其是在确保我们的孩子避免我们的一些焦虑时，无论是对飞行、驾驶、高度的恐惧，还是对金钱或社交的焦虑。
 

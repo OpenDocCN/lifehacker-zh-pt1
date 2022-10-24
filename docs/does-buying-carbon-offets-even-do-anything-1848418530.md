@@ -1,8 +1,8 @@
 # 购买碳补偿真的有用吗？
 
-> 原文:[https://life hacker . com/does-buying-carbon-offets-even-do-any-1848418530](https://lifehacker.com/does-buying-carbon-offets-even-do-anything-1848418530)
+> 原文：<https://lifehacker.com/does-buying-carbon-offets-even-do-anything-1848418530>
 
-如果你再次旅行，并对气候变化感到焦虑，你可能会考虑是否购买碳抵消额度，以尽量减少飞行对环境的影响。 [一项研究发现](https://sustainabletravel.org/issues/carbon-footprint-tourism/) 全球8%的碳排放是由旅游业产生的——其中大约一半来自交通运输。与开车相比，空中旅行只占总排放量的很小一部分(显然，还有工业)，但这并不是什么都不是*。那么，为你的航班购买碳补偿值得吗？*
+如果你再次旅行，并对气候变化感到焦虑，你可能会考虑是否购买碳抵消额度，以尽量减少飞行对环境的影响。 [一项研究发现](https://sustainabletravel.org/issues/carbon-footprint-tourism/) 全球 8%的碳排放是由旅游业产生的——其中大约一半来自交通运输。与开车相比，空中旅行只占总排放量的很小一部分(显然，还有工业)，但这并不是什么都不是*。那么，为你的航班购买碳补偿值得吗？*
 
 *Watch*
 
@@ -12,9 +12,9 @@
 
 ## *碳抵消要花多少钱？*
 
-*碳补偿没有单一的比率，因为它取决于你从哪里购买和你的目标是什么。首先，让我们假设你正乘坐从洛杉矶到纽约的往返航班，每段航程大约需要五个小时。根据Cool Effect的 [补偿计算器](https://www.cooleffect.org/travel-offset) ，这次旅行的总碳排放量将为1.56吨，总成本为19.03美元。(每吨成本为12.20美元。)*
+*碳补偿没有单一的比率，因为它取决于你从哪里购买和你的目标是什么。首先，让我们假设你正乘坐从洛杉矶到纽约的往返航班，每段航程大约需要五个小时。根据 Cool Effect 的 [补偿计算器](https://www.cooleffect.org/travel-offset) ，这次旅行的总碳排放量将为 1.56 吨，总成本为 19.03 美元。(每吨成本为 12.20 美元。)*
 
-*但是一些补偿是根据他们支持的项目来定价的。碳信用市场黄金标准 [列出了价格](https://marketplace.goldstandard.org/collections/projects) 从斯里兰卡水电项目的每吨10美元到罗马尼亚支持回收的每吨47美元不等。黄金标准并不直接与旅行产出挂钩，而是根据居住国来估算碳足迹，不过你也可以 [计算你个人的影响](https://footprint.wwf.org.uk/#/questionnaire) 并相应地购买补偿。如果你支持一个注册的501(c)(3)非营利组织，碳补偿 [是可以减税的](https://www.washingtonpost.com/travel/tips/questions-about-carbon-offsets-flights-answered/) 。*
+*但是一些补偿是根据他们支持的项目来定价的。碳信用市场黄金标准 [列出了价格](https://marketplace.goldstandard.org/collections/projects) 从斯里兰卡水电项目的每吨 10 美元到罗马尼亚支持回收的每吨 47 美元不等。黄金标准并不直接与旅行产出挂钩，而是根据居住国来估算碳足迹，不过你也可以 [计算你个人的影响](https://footprint.wwf.org.uk/#/questionnaire) 并相应地购买补偿。如果你支持一个注册的 501(c)(3)非营利组织，碳补偿 [是可以减税的](https://www.washingtonpost.com/travel/tips/questions-about-carbon-offsets-flights-answered/) 。*
 
 ## *我如何为我的航班购买碳补偿？*
 
@@ -28,6 +28,6 @@
 
 *最好找信誉好的项目，用酷效或者金标之类的网站。尽管购买碳补偿不一定是件坏事，但这不是对你的旅行足迹负责的唯一方式。很明显，少坐飞机会大大降低你的影响力，所以如果会议可以过度放大而不是面对面，也许就应该这样。同样，在离家更近的地方度假可以减少你的足迹。* 
 
-*(为了便于比较，Cool Effect计算出一辆全尺寸轿车从洛杉矶到纽约的往返排放量为2.52吨，远远高于飞行该距离的影响。)*
+*(为了便于比较，Cool Effect 计算出一辆全尺寸轿车从洛杉矶到纽约的往返排放量为 2.52 吨，远远高于飞行该距离的影响。)*
 
 *如果你必须乘坐飞机，专家建议预订大型商业航空公司的直达航班，它们的飞机更大、更满，比小型或私人航班的人均排放量更低。*

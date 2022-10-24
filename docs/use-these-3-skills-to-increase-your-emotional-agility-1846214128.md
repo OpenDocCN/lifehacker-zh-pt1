@@ -1,6 +1,6 @@
 # 使用这三个技巧来增加你的情绪灵活性
 
-> 原文:[https://life hacker . com/use-this-3-skills-to-increase-your-emotional-agility-1846214128](https://lifehacker.com/use-these-3-skills-to-increase-your-emotional-agility-1846214128)
+> 原文：<https://lifehacker.com/use-these-3-skills-to-increase-your-emotional-agility-1846214128>
 
 如果在过去的一年左右，你发现自己对一些相对较小的事情反应过度，你并不孤单。我们在精神上和情感上都忙得团团转，以至于很难持续处理我们遇到的所有事情。这些威胁可以是从重大威胁——如全球疫情、种族不公正和暴力，以及经济/金融不安全——到日常烦恼。
 
@@ -10,13 +10,13 @@ Watch
 
 ### 什么是情绪敏捷？
 
-如果你以前没有听说过“情绪敏捷性”的，那可能是因为它是从2013年才出现的，当时领导力教练苏珊·大卫博士和克里斯蒂娜·康格顿在 [一篇](https://hbr.org/2013/11/emotional-agility) [*哈佛商业评论*](https://hbr.org/2013/11/emotional-agility) [文章](https://hbr.org/2013/11/emotional-agility) 中首次创造了这个术语。基本上，情感敏捷就像它听起来的那样:拥有必要的能力和技能来思考复杂和变化时期出现的问题和情绪。
+如果你以前没有听说过“情绪敏捷性”的，那可能是因为它是从 2013 年才出现的，当时领导力教练苏珊·大卫博士和克里斯蒂娜·康格顿在 [一篇](https://hbr.org/2013/11/emotional-agility) [*哈佛商业评论*](https://hbr.org/2013/11/emotional-agility) [文章](https://hbr.org/2013/11/emotional-agility) 中首次创造了这个术语。基本上，情感敏捷就像它听起来的那样:拥有必要的能力和技能来思考复杂和变化时期出现的问题和情绪。
 
 正如大卫在扶手椅专家播客 的最近一集 [中解释的那样，在不确定的时期，你可以练习三种关键技能来提高你的情绪灵活性:接受、同情和好奇心。前华尔街和硅谷高管、现为正念顾问的凡妮莎洛德(Vanessa Loder)表示，以下是提高这些关键技能的一些方法。](https://armchairexpertpod.com/pods/susan-david)
 
 #### 接受
 
-根据洛德在为MindBodyGreen 撰写的一篇文章中所说，情绪敏捷始于认识到你不是你的感觉。她 [写道](https://www.mindbodygreen.com/articles/3-ways-to-practice-emotional-agility-during-uncertain-times) :
+根据洛德在为 MindBodyGreen 撰写的一篇文章中所说，情绪敏捷始于认识到你不是你的感觉。她 [写道](https://www.mindbodygreen.com/articles/3-ways-to-practice-emotional-agility-during-uncertain-times) :
 
 > 给你的想法和感受贴上标签是开始接受你的感受而不被它超越的一个强有力的方法。当你说“我很难过”时，你变得和悲伤融为一体。它现在是你的身份。你是悲伤的灰色云朵。当你说；“我注意到我感到悲伤，”现在你更像一个观察者。你是天空。悲伤的灰色乌云只是穿过。
 

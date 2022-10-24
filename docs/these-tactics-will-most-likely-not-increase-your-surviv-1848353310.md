@@ -1,16 +1,16 @@
 # 这些策略很可能不会增加你劫车的存活率
 
-> 原文:[https://jalopnik . com/these-tactics-will-most-likely-not-increase-your-survivi-1848353310](https://jalopnik.com/these-tactics-will-most-likely-not-increase-your-surviv-1848353310)
+> 原文：<https://jalopnik.com/these-tactics-will-most-likely-not-increase-your-surviv-1848353310>
 
 受到暴力攻击或威胁是很可怕的。有了正确的训练和心态，就有办法生存下来，甚至更好的是，避免这些遭遇。但是我必须强调的是，你应该对社交媒体上的任何“生存策略”非常不满，比如 [Detriot D.U.S.T.](https://www.instagram.com/detroit_d.u.s.t/)
 
 Watch
 
-我们大多数人在互联网上花了太多时间，你可能已经看到了关于底特律D.U.S.T .的一些东西。他是一个社交媒体的轰动人物，向人们展示如何“使用智能选项来增加你的生存能力。”指挥官布朗当然看起来与他的战术装备和事实，他来自汽车城的街道。许多名人、网络影响者和当地新闻媒体都报道过这个人。
+我们大多数人在互联网上花了太多时间，你可能已经看到了关于底特律 D.U.S.T .的一些东西。他是一个社交媒体的轰动人物，向人们展示如何“使用智能选项来增加你的生存能力。”指挥官布朗当然看起来与他的战术装备和事实，他来自汽车城的街道。许多名人、网络影响者和当地新闻媒体都报道过这个人。
 
 他在武术界也极具争议，大多数受尊敬的从业者都认为他的东西纯属扯淡。T3】
 
-这是他的YouTube频道上的两个片段，展示了如果攻击者有刀或枪，如何在劫车中幸存。
+这是他的 YouTube 频道上的两个片段，展示了如果攻击者有刀或枪，如何在劫车中幸存。
 
  [https://jalopnik.com/embed/inset/iframe?id=youtube-video-8Oq5m0pzB2c&start=0](https://jalopnik.com/embed/inset/iframe?id=youtube-video-8Oq5m0pzB2c&start=0)  [https://jalopnik.com/embed/inset/iframe?id=youtube-video-euILikJUtVk&start=0](https://jalopnik.com/embed/inset/iframe?id=youtube-video-euILikJUtVk&start=0) 
 
@@ -22,7 +22,7 @@ Watch
 
 在上面的视频中,“攻击者”几乎没有抵抗，似乎只是随意地放弃了武器。这不是自卫示威，这是双方的“合作”。
 
-这是一个底特律D.U.S.T刀解除的例子。看他从“攻击者”手里拿走刀片是多么容易
+这是一个底特律 D.U.S.T 刀解除的例子。看他从“攻击者”手里拿走刀片是多么容易
 
  [https://jalopnik.com/embed/inset/iframe?id=youtube-video-i11lWuL0VH8&start=0](https://jalopnik.com/embed/inset/iframe?id=youtube-video-i11lWuL0VH8&start=0) 
 

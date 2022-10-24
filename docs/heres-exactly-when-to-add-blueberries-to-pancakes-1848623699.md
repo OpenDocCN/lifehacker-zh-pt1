@@ -1,6 +1,6 @@
 # 以下是在煎饼中加入蓝莓的确切时间
 
-> 原文:[https://life hacker . com/heres-what-exact-when-add-蓝莓到煎饼-1848623699](https://lifehacker.com/heres-exactly-when-to-add-blueberries-to-pancakes-1848623699)
+> 原文：<https://lifehacker.com/heres-exactly-when-to-add-blueberries-to-pancakes-1848623699>
 
 蓝莓是一种受欢迎的煎饼内含物。它们是一种非常适合早餐的水果——实际上有一种叫做“蓝莓早晨”的谷物——它们给原本米色的菜肴增添了一抹亮色。还有:他们就是味道好。它们很甜，略带酸味，是甜腻薄煎饼的完美平衡。但是做蓝莓煎饼并不像往面糊里扔一把水果那么简单。
 

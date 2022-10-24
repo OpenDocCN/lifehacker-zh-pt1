@@ -1,12 +1,12 @@
 # 如何识别可疑的在线体育博彩网站
 
-> 原文:[https://life hacker . com/how-to-spot-a-shady-online-sports-site-1848525467](https://lifehacker.com/how-to-spot-a-shady-online-sports-betting-site-1848525467)
+> 原文：<https://lifehacker.com/how-to-spot-a-shady-online-sports-betting-site-1848525467>
 
-一大堆人打算在本周日的超级碗上下注。 [体育博彩在30个州以某种形式合法](https://lifehacker.com/where-exactly-is-sports-gambling-legal-1848333429) ，根据美国博彩协会 的预测，预计3140万美国人将在这项游戏上投入总计76.1亿美元。
+一大堆人打算在本周日的超级碗上下注。 [体育博彩在 30 个州以某种形式合法](https://lifehacker.com/where-exactly-is-sports-gambling-legal-1848333429) ，根据美国博彩协会 的预测，预计 3140 万美国人将在这项游戏上投入总计 76.1 亿美元。
 
 Watch
 
-但是在你加入人群之前，花几分钟确保你没有被欺骗或误导。正如 [Better Business Bureau的卡门·米恩(Carmen Million)在](https://www.wbrz.com/news/betting-red-flags-to-lookout-for-bbb-warns/) 所说，“每个人都想参与进来，每个人都对此感到兴奋，但在投资之前，你必须花点时间进行调查。”
+但是在你加入人群之前，花几分钟确保你没有被欺骗或误导。正如 [Better Business Bureau 的卡门·米恩(Carmen Million)在](https://www.wbrz.com/news/betting-red-flags-to-lookout-for-bbb-warns/) 所说，“每个人都想参与进来，每个人都对此感到兴奋，但在投资之前，你必须花点时间进行调查。”
 
 以下是在网上体育博彩时要注意的一些事情，以免被骗。
 
@@ -37,7 +37,7 @@ Watch
 下面是一些来自博彩网站的可疑和/或令人困惑的报价，由纽约州总检察长莱蒂西亚·詹姆士提供。
 
 *   尽管名为“无风险”赌注，但它往往没有风险。相反，“无风险”可能意味着你失去的钱变成了网站上的信用，你只能用它来下其他赌注。
-*   向新用户提供“注册奖金”的网站通常要求他们在获得这些奖金之前用自己的钱赌一把，有时甚至达到荒谬的极端——比如一个网站提供1000美元，但只有在用自己的25000美元赌博后才能获得。
+*   向新用户提供“注册奖金”的网站通常要求他们在获得这些奖金之前用自己的钱赌一把，有时甚至达到荒谬的极端——比如一个网站提供 1000 美元，但只有在用自己的 25000 美元赌博后才能获得。
 *   一些网站惩罚以战略方式利用优惠和促销的赌徒，甚至将工作规则贴上“可疑行为”的标签
 
 ## **确保你可以取钱**

@@ -1,6 +1,6 @@
 # 这里有(几乎)所有你能在飞机上得到的免费物品
 
-> 原文:[https://life hacker . com/heres-almost-all-the-the-free-stuff-you-can-get-on-a-air-1848187647](https://lifehacker.com/heres-almost-all-the-free-stuff-you-can-get-on-an-air-1848187647)
+> 原文：<https://lifehacker.com/heres-almost-all-the-free-stuff-you-can-get-on-an-air-1848187647>
 
 飞机上的免费赠品已经今非昔比，但这并不意味着它们已经完全消失了。如果你知道要什么，你可能会惊讶于你能免费得到什么。
 
@@ -30,7 +30,7 @@ Watch
 
 ## 饮食
 
-在15.99美元的“小吃盒”和价格过高的塑料杯酒的时代，你可能会认为你总是需要为飞机上的食物付钱。不一定:如果你问得好，你可以免费得到很多东西。
+在 15.99 美元的“小吃盒”和价格过高的塑料杯酒的时代，你可能会认为你总是需要为飞机上的食物付钱。不一定:如果你问得好，你可以免费得到很多东西。
 
 **额外的小吃(可能还有正餐)**
 

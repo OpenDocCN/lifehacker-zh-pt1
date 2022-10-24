@@ -1,6 +1,6 @@
 # 如何清洁吊扇(以及为什么它很重要)
 
-> 原文:[https://life hacker . com/how-to-clean-a吊扇及其重要性-1848288165](https://lifehacker.com/how-to-clean-a-ceiling-fan-and-why-its-important-1848288165)
+> 原文：<https://lifehacker.com/how-to-clean-a-ceiling-fan-and-why-its-important-1848288165>
 
 当你花几分钟时间快速整理你的家时，你可能会把注意力放在最显眼的东西上——比如地板、工作台面和眼睛高度的东西。甚至当你在做更彻底的清洁时，你可能不会想到抬头看，让你的吊扇(字面上)落在灰尘里。
 

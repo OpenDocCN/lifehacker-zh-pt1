@@ -1,6 +1,6 @@
 # 现在种植这些冬季覆盖作物，为春天提供更好的土壤
 
-> 原文:[https://life hacker . com/plant-these-winter-cover-crops-now-for-better-soil-in-t-1849564143](https://lifehacker.com/plant-these-winter-cover-crops-now-for-better-soil-in-t-1849564143)
+> 原文：<https://lifehacker.com/plant-these-winter-cover-crops-now-for-better-soil-in-t-1849564143>
 
 很难夸大覆盖作物对你的花园的好处。除了帮助补充土壤中的氮，覆盖作物还可以作为健康的花园生态系统的栖息地，并帮助防止土壤在不种植蔬菜时受到侵蚀。使用覆盖作物，如配套种植，是一种侵入性较小的促进土壤健康的方法，同时还能让菜园茁壮成长。种植覆盖作物将使明年的蔬菜更加健康，抑制杂草将使春季种植变得轻而易举。
 

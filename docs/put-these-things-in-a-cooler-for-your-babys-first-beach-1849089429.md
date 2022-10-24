@@ -1,6 +1,6 @@
 # 为宝宝的第一次海滩之旅把这些东西放在冷藏箱里
 
-> 原文:[https://life hacker . com/put-things-in-a-cooler-for-your babys-first-beach-1849089429](https://lifehacker.com/put-these-things-in-a-cooler-for-your-babys-first-beach-1849089429)
+> 原文：<https://lifehacker.com/put-these-things-in-a-cooler-for-your-babys-first-beach-1849089429>
 
 你可能已经给你的宝宝买了一顶可爱的太阳帽和一瓶防晒霜，但是为了确保宝宝的第一次海滩之旅成功，你还需要考虑一些其他的因素。(明确地说，你仍然需要可爱的帽子和防晒霜。)
 
@@ -14,7 +14,7 @@ Watch
 
 ## **设置手机定时器，确定何时重新涂抹防晒霜**
 
-你必须每两个小时 [给孩子重新涂一次防晒霜](https://kidshealth.org/en/parents/sunscreen.html#:~:text=Reapply%20sunscreen%20often%2C%20about%20every,kids%20need%20protection%20that%20lasts.) 左右，加上任何他们出汗或湿了的时候。在炎热或他们玩耍时，你也应该让你的孩子 [每20分钟](https://www.uab.edu/news/youcanuse/item/10660-keeping-toddlers-safe-hydrated-and-having-fun-as-summer-heat-continues#:~:text=It%20is%20key%20to%20always,drink%20water%20every%2020%20minutes.) 左右喝一点水。设置手机提醒定时器将有助于避免晒伤和脱水。
+你必须每两个小时 [给孩子重新涂一次防晒霜](https://kidshealth.org/en/parents/sunscreen.html#:~:text=Reapply%20sunscreen%20often%2C%20about%20every,kids%20need%20protection%20that%20lasts.) 左右，加上任何他们出汗或湿了的时候。在炎热或他们玩耍时，你也应该让你的孩子 [每 20 分钟](https://www.uab.edu/news/youcanuse/item/10660-keeping-toddlers-safe-hydrated-and-having-fun-as-summer-heat-continues#:~:text=It%20is%20key%20to%20always,drink%20water%20every%2020%20minutes.) 左右喝一点水。设置手机提醒定时器将有助于避免晒伤和脱水。
 
 ## **把所有东西放进洗衣篮**
 

@@ -1,8 +1,8 @@
 # 如何带你的狗去工作而不成为一个混蛋
 
-> 原文:[https://life hacker . com/how-to-bring your dog-work-being-by-a-butter-1849106867](https://lifehacker.com/how-to-bring-your-dog-to-work-without-being-an-asshole-1849106867)
+> 原文：<https://lifehacker.com/how-to-bring-your-dog-to-work-without-being-an-asshole-1849106867>
 
-6月24日正好是全国带狗上班日，但是许多人带着他们的狗进入办公室或其他职业场所的次数比一年一次多得多——*通常*让他们的同事高兴。这对狗狗们来说很好，他们不必呆在家里焦急地等待他们心爱的人回来，对员工来说也很有趣，但是把小狗带到工作场所仍然需要一些计划。
+6 月 24 日正好是全国带狗上班日，但是许多人带着他们的狗进入办公室或其他职业场所的次数比一年一次多得多——*通常*让他们的同事高兴。这对狗狗们来说很好，他们不必呆在家里焦急地等待他们心爱的人回来，对员工来说也很有趣，但是把小狗带到工作场所仍然需要一些计划。
 
 Watch
 

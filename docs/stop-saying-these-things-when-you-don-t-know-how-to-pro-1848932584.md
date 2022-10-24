@@ -1,12 +1,12 @@
 # 当你不知道如何念别人的名字时，不要再说这些话
 
-> 原文:[https://life hacker . com/stop-saying-things-when-you-don ' t-know-how-to-pro-1848932584](https://lifehacker.com/stop-saying-these-things-when-you-don-t-know-how-to-pro-1848932584)
+> 原文：<https://lifehacker.com/stop-saying-these-things-when-you-don-t-know-how-to-pro-1848932584>
 
 名字里有很多东西。我们之前已经讨论过处理忘记某人名字的最平稳的方法——但是如果你首先不知道如何读他们的名字呢？
 
 Watch
 
-把一个人的名字写对不仅仅是礼貌——这是包容和尊重的问题。在为《哈佛商业评论》 撰写的一篇文章中， [*的作者Ruchika Tulshyan分享了某人的名字与他们在工作中的价值之间的联系。同样，来自Damneet Kaur的一篇*](https://www.rtulshyan.com/inclusion-on-purpose) *[在LinkedIn](https://www.linkedin.com/posts/damneet-kaur_dei-names-community-activity-6887103475923189760-m9SE/)* *上疯传的帖子解释说，念错某人的名字会让他们感到被排斥和轻视。这些影响早在工作场所出现之前就开始了:研究表明，当老师没能学会他们名字的发音时，学生们会感到羞愧。*
+把一个人的名字写对不仅仅是礼貌——这是包容和尊重的问题。在为《哈佛商业评论》 撰写的一篇文章中， [*的作者 Ruchika Tulshyan 分享了某人的名字与他们在工作中的价值之间的联系。同样，来自 Damneet Kaur 的一篇*](https://www.rtulshyan.com/inclusion-on-purpose) *[在 LinkedIn](https://www.linkedin.com/posts/damneet-kaur_dei-names-community-activity-6887103475923189760-m9SE/)* *上疯传的帖子解释说，念错某人的名字会让他们感到被排斥和轻视。这些影响早在工作场所出现之前就开始了:研究表明，当老师没能学会他们名字的发音时，学生们会感到羞愧。*
 
 世界上有这么多不同的名字，我们肯定会在一些地方出现发音错误。这种经历对移民来说太熟悉了，尤其是那些拥有非白人或非西方名字的人。然而，有一种方法可以机智地处理一个新名字，而不是让人们觉得低人一等。下次当你遇到一个你不确定如何正确发音的名字时，这里有一些你不应该说的例子(以及应该怎么做)。
 
@@ -44,7 +44,7 @@ Watch
 
 ## 要学习如何读某人的名字，只需问
 
-“谦逊地经营，”图尔西安 [写道](https://hbr.org/2020/01/if-you-dont-know-how-to-say-someones-name-just-ask) 。如果你写错了一个名字——这是必然会发生的——简单地道歉并要求正确的发音。Tulshyan说一个很好的经验法则是说，*“很抱歉我念错了。你能重复一下你的名字吗？”然后，仔细听这个人强调的地方，以及变化的地方。重复一次或两次，不要超过。感谢他们，继续前进。*
+“谦逊地经营，”图尔西安 [写道](https://hbr.org/2020/01/if-you-dont-know-how-to-say-someones-name-just-ask) 。如果你写错了一个名字——这是必然会发生的——简单地道歉并要求正确的发音。Tulshyan 说一个很好的经验法则是说，*“很抱歉我念错了。你能重复一下你的名字吗？”然后，仔细听这个人强调的地方，以及变化的地方。重复一次或两次，不要超过。感谢他们，继续前进。*
 
 如果你有机会在开会或宣布之前问某人的名字，把他们拉到一边，说一些简单的话，比如，“嘿！我不想叫错你的名字，你怎么念？”无论你是否担心某个特定的发音，在见面之前都要积极主动地检查对方的名字——这是一个需要养成的习惯。
 

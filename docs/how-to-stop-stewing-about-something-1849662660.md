@@ -1,6 +1,6 @@
 # 如何停止为某事焦虑不安
 
-> 原文:[https://life hacker . com/how-to-stop-stopping-about-something-1849662660](https://lifehacker.com/how-to-stop-stewing-about-something-1849662660)
+> 原文：<https://lifehacker.com/how-to-stop-stewing-about-something-1849662660>
 
 每个人都有自己的众所周知的按钮，当按下时，真的会引爆它们:所谓的“痛处”,会引发特别强烈的反应。我们身边的人通常都知道这些按钮，但往往是陌生人或其他不了解我们的人在不知不觉中按下了它们。
 

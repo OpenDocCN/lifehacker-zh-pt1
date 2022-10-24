@@ -1,6 +1,6 @@
 # 如何帮助体温过低的人
 
-> 原文:[https://life hacker . com/how-to-help-someone-frontier-1845509858](https://lifehacker.com/how-to-help-someone-with-hypothermia-1845509858)
+> 原文：<https://lifehacker.com/how-to-help-someone-with-hypothermia-1845509858>
 
 体温过低是一种威胁生命的情况，如果一个人太冷就会发生。(这个词的字面意思是“体温低”)以下是如何识别它，以及如果你和有症状的人在一起时该怎么做。
 
@@ -16,9 +16,9 @@ Watch
 
 ### 寻求医疗帮助
 
-体温过低是一种医疗紧急情况，如果可能，请拨打911。如果你有体温计，注意体温过低的人的体温会低于华氏95度。
+体温过低是一种医疗紧急情况，如果可能，请拨打 911。如果你有体温计，注意体温过低的人的体温会低于华氏 95 度。
 
-如果这个人失去知觉或者看起来没有脉搏， [立即开始心肺复苏术](https://lifehacker.com/all-the-first-aid-stuff-thats-changed-since-you-first-l-1742121480) 。(这是紧急情况，你应该*也*让人打911，你应该*也*试着让他们暖和起来，如下文所述。)继续进行CPR，直到救援到达或该人开始有反应。
+如果这个人失去知觉或者看起来没有脉搏， [立即开始心肺复苏术](https://lifehacker.com/all-the-first-aid-stuff-thats-changed-since-you-first-l-1742121480) 。(这是紧急情况，你应该*也*让人打 911，你应该*也*试着让他们暖和起来，如下文所述。)继续进行 CPR，直到救援到达或该人开始有反应。
 
 ### 小心地温暖这个人
 

@@ -1,6 +1,6 @@
 # 如何修剪室外常青树而不破坏它们
 
-> 原文:[https://life hacker . com/how-to-prune-outdoor-evergreens-without-wresting-them-1848199276](https://lifehacker.com/how-to-prune-outdoor-evergreens-without-ruining-them-1848199276)
+> 原文：<https://lifehacker.com/how-to-prune-outdoor-evergreens-without-ruining-them-1848199276>
 
 在一年中的大部分时间里，落叶树得到了所有的关注。然而，值得称赞的是，它们确实上演了一出好戏:春天落叶，夏天遮阴，然后全力以赴完成它们的最后一场——树叶变色，然后从树枝上掉落。
 

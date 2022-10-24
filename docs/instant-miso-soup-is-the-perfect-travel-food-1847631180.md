@@ -1,6 +1,6 @@
 # 速溶味噌汤是完美的旅行食品
 
-> 原文:[https://life hacker . com/instant-miso-soup-is-the-perfect-travel-food-1847631180](https://lifehacker.com/instant-miso-soup-is-the-perfect-travel-food-1847631180)
+> 原文：<https://lifehacker.com/instant-miso-soup-is-the-perfect-travel-food-1847631180>
 
 小包即食味噌汤既美味又方便。我早餐吃味噌汤(用 [一个微波荷包蛋](https://lifehacker.com/poach-an-egg-in-instant-miso-for-a-quick-savory-breakf-1842863559) )，但它的效用远远超出了一天的第一餐，尤其是如果你在乘飞机、公路旅行、野营或以任何方式 旅行。
 

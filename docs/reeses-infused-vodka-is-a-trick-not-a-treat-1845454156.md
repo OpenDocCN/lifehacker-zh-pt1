@@ -1,6 +1,6 @@
 # 里斯注入的伏特加是一个诡计，而不是一种享受
 
-> 原文:[https://life hacker . com/reeses-infined-vodka-is-a-trick-not-treat-1845454156](https://lifehacker.com/reeses-infused-vodka-is-a-trick-not-a-treat-1845454156)
+> 原文：<https://lifehacker.com/reeses-infused-vodka-is-a-trick-not-a-treat-1845454156>
 
 我不喜欢主题鸡尾酒，但是大量含糖的万圣节鸡尾酒不是我的菜(或者塑料南瓜)。然而，我愿意尝试几乎任何东西至少一次，即使那是里斯的混合伏特加。
 

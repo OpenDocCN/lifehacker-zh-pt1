@@ -1,8 +1,8 @@
 # 为什么所有的日子都在一起，如何应对
 
-> 原文:[https://life hacker . com/why-all-days-are-running-together-and-how-to-cope-1845330119](https://lifehacker.com/why-all-the-days-are-running-together-and-how-to-cope-1845330119)
+> 原文：<https://lifehacker.com/why-all-the-days-are-running-together-and-how-to-cope-1845330119>
 
-在COVID疫情 期间，有很多关于 [倦怠的谈论，这是理所当然的——新的工作安排(或失业)，加上家庭责任和经历这场持续的公共健康危机的压力可能会令人难以承受。](https://lifehacker.com/how-to-avoid-burnout-in-the-middle-of-a-pandemic-1843322169)
+在 COVID 疫情 期间，有很多关于 [倦怠的谈论，这是理所当然的——新的工作安排(或失业)，加上家庭责任和经历这场持续的公共健康危机的压力可能会令人难以承受。](https://lifehacker.com/how-to-avoid-burnout-in-the-middle-of-a-pandemic-1843322169)
 
 Watch
 
@@ -10,9 +10,9 @@ Watch
 
 ### 什么是‘bore out’？
 
-你会问“无聊”是什么？这是瑞士商业顾问 彼得·韦达和菲利普·罗斯林在2007年创造的一个术语 [，用来形容你的工作缺乏刺激、挑战或任务。这也体现在](https://www.theguardian.com/money/2020/jun/09/forget-burnout-there-is-nothing-worse-than-a-boring-job) [有几天感觉他们都在一起跑](https://vitals.lifehacker.com/why-time-no-longer-has-meaning-according-to-science-1842459302) 。如果你经历过精疲力尽，这听起来可能是理想的工作场景，但也可能导致疲惫和抑郁。
+你会问“无聊”是什么？这是瑞士商业顾问 彼得·韦达和菲利普·罗斯林在 2007 年创造的一个术语 [，用来形容你的工作缺乏刺激、挑战或任务。这也体现在](https://www.theguardian.com/money/2020/jun/09/forget-burnout-there-is-nothing-worse-than-a-boring-job) [有几天感觉他们都在一起跑](https://vitals.lifehacker.com/why-time-no-longer-has-meaning-according-to-science-1842459302) 。如果你经历过精疲力尽，这听起来可能是理想的工作场景，但也可能导致疲惫和抑郁。
 
-和倦怠一样，在疫情期间，无聊也在增加。“在过去的几个月里，你的日常工作生活会经历很多变化，”英国健康保险公司 [的专家心理健康顾问Fatmata Kamara告诉红色杂志](https://www.redonline.co.uk/health-self/self/a34308769/boreout) 。“无论你是从通勤到在家工作，还是休假，还是留在办公室，我们都必须适应。你的心理健康受到影响是正常的。”
+和倦怠一样，在疫情期间，无聊也在增加。“在过去的几个月里，你的日常工作生活会经历很多变化，”英国健康保险公司 [的专家心理健康顾问 Fatmata Kamara 告诉红色杂志](https://www.redonline.co.uk/health-self/self/a34308769/boreout) 。“无论你是从通勤到在家工作，还是休假，还是留在办公室，我们都必须适应。你的心理健康受到影响是正常的。”
 
 同样，你的工作环境也会影响你的心理健康，“尤其是当你和同事之间很少交流的时候，”卡马拉补充道。
 

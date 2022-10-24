@@ -1,6 +1,6 @@
 # 冷冻牛奶的正确方法，一半一半，和重奶油
 
-> 原文:[https://life hacker . com/the-right-way-to-freeze-milk-half-half-and-heavy-Cr-1848938121](https://lifehacker.com/the-right-way-to-freeze-milk-half-half-and-heavy-cr-1848938121)
+> 原文：<https://lifehacker.com/the-right-way-to-freeze-milk-half-half-and-heavy-cr-1848938121>
 
 我是那种为了品尝而喝一大杯冰镇全脂牛奶的神经病。大概是我性格最变态的一面吧——而 [的比赛](https://lifehacker.com/10-classic-porn-films-made-by-women-1848687729) [就是僵硬的](https://lifehacker.com/17-golden-age-porn-flicks-you-should-enjoy-with-your-pa-1847727088) ！——而且*绝对是*我身上最白的东西。我来自一个在晚餐时给孩子们提供牛奶的家庭，这让我变成了今天这个嗜食奶制品的怪胎。这意味着我的冰箱里总是储存着太多的牛奶，一半是牛奶，一半是奶油，都有不同的过期日期，我很难记住这些日期。幸运的是，这三样东西都可以冷冻。
 
@@ -10,7 +10,7 @@ Watch
 
 ## 当你冷冻和解冻牛奶时会发生什么
 
-牛奶冷冻是绝对安全的，只要你在它的“最佳食用”日期前冷冻。我母亲过去常常从好市多(Costco)买几罐2%的牛奶，放在我们独立的冰箱里。塑料罐会膨胀，当解冻时，牛奶会分离，需要在食用前摇晃。
+牛奶冷冻是绝对安全的，只要你在它的“最佳食用”日期前冷冻。我母亲过去常常从好市多(Costco)买几罐 2%的牛奶，放在我们独立的冰箱里。塑料罐会膨胀，当解冻时，牛奶会分离，需要在食用前摇晃。
 
 分离没办法，鼓胀可以减轻。水结冰时会膨胀，这个事实必须考虑进去。如果你的牛奶是装在硬纸板盒里的，把它转移到一个密封的塑料容器或冷冻袋里，在顶部留出几英寸的空间以便膨胀。(将它放在多孔纸板中也意味着它更容易吸收冰箱的气味和味道，没有人想喝 [废弃袋](https://lifehacker.com/how-to-make-seafood-stock-out-of-scraps-1823958899) 风味的牛奶。)
 

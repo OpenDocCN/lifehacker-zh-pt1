@@ -1,6 +1,6 @@
 # 你应该清理你的室内植物
 
-> 原文:[https://life hacker . com/you-should-be-cleaning-your-indoor-plants-1847416830](https://lifehacker.com/you-should-be-cleaning-your-indoor-plants-1847416830)
+> 原文：<https://lifehacker.com/you-should-be-cleaning-your-indoor-plants-1847416830>
 
 当你的房子一团糟时，你最不想做的事情就是清理你的植物。但是室内植物就像你家里的其他东西一样会变得肮脏和布满灰尘，即使清洁它们需要一些专业知识。许多清洁产品(甚至温和的肥皂)会损害植物的叶子和根，所以知道如何在不造成持久伤害的情况下清理它们是值得的。
 

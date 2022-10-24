@@ -1,12 +1,12 @@
 # 如何安全地将室内植物转移到新的地方
 
-> 原文:[https://life hacker . com/how-to-safe-move-your-house plants-to-your-new-place-1846756156](https://lifehacker.com/how-to-safely-move-your-houseplants-to-your-new-place-1846756156)
+> 原文：<https://lifehacker.com/how-to-safely-move-your-houseplants-to-your-new-place-1846756156>
 
 几乎所有关于搬家的事情都很难，很烦人，让你发誓你再也不会搬家了。但是带着一大堆(甚至几堆)室内植物搬家就更加棘手了。你要确保他们在旅行中幸存下来，他们的罐子不会破，土壤不会洒得到处都是，不会弄脏你剩下的东西。
 
 Watch
 
-幸运的是，在一篇为 [mindbodygreen](https://www.mindbodygreen.com/articles/how-to-prepare-and-transport-your-houseplants-during-move) 撰写的文章中，专业植物设计师Hilton Carter分享了一些成功移动室内植物的小技巧，在这个过程中保持它们完好无损。以下是需要了解的内容。
+幸运的是，在一篇为 [mindbodygreen](https://www.mindbodygreen.com/articles/how-to-prepare-and-transport-your-houseplants-during-move) 撰写的文章中，专业植物设计师 Hilton Carter 分享了一些成功移动室内植物的小技巧，在这个过程中保持它们完好无损。以下是需要了解的内容。
 
 ### 搬家前
 
@@ -36,11 +36,11 @@ Watch
 
 为了更容易进出移动的卡车和门口，卡特建议将你较大的植物的树枝绑起来:
 
-> 不折断它们其中一条肢体的最好方法是轻轻地向内拉。要做到这一点，使用园艺Velcro或字符串慢慢地把树枝或茎在一起，并把它们绑起来。这将迫使树枝和树干更多地向上而不是向外。
+> 不折断它们其中一条肢体的最好方法是轻轻地向内拉。要做到这一点，使用园艺 Velcro 或字符串慢慢地把树枝或茎在一起，并把它们绑起来。这将迫使树枝和树干更多地向上而不是向外。
 
 #### 把植物包起来
 
-最后，Carter说最好在移动过程中包裹住植物的顶部以保护它:
+最后，Carter 说最好在移动过程中包裹住植物的顶部以保护它:
 
 > 用牛皮纸，撕下一张足够长的纸来包裹你的植物。一旦你把它围在所有的叶子上，用胶带把它固定住。这也有助于你在一年中较冷的月份搬家。这将有助于保护树叶免受冻伤。
 

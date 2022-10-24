@@ -1,12 +1,12 @@
-# 让你的Google Speaker在“访客模式”下不记录搜索
+# 让你的 Google Speaker 在“访客模式”下不记录搜索
 
-> 原文:[https://life hacker . com/keep-your-Google-speaker-from-logging-searches-with-gue-1846066956](https://lifehacker.com/keep-your-google-speaker-from-logging-searches-with-gue-1846066956)
+> 原文：<https://lifehacker.com/keep-your-google-speaker-from-logging-searches-with-gue-1846066956>
 
-你现在可以在谷歌的智能扬声器和显示器上启用新的“ [”访客模式](https://blog.google/products/assistant/introducing-guest-mode/) ”，如Nest Audio，而使分享你的设备减少了隐私风险。该功能阻止Google Assistant保存您输入的任何命令和问题——这通常有助于让您的数字助手更好地了解您，但如果您处于多人纠缠您的数字助手的情况下，就会出现问题。
+你现在可以在谷歌的智能扬声器和显示器上启用新的“ [”访客模式](https://blog.google/products/assistant/introducing-guest-mode/) ”，如 Nest Audio，而使分享你的设备减少了隐私风险。该功能阻止 Google Assistant 保存您输入的任何命令和问题——这通常有助于让您的数字助手更好地了解您，但如果您处于多人纠缠您的数字助手的情况下，就会出现问题。
 
 Watch
 
-当访客模式打开时，智能扬声器听到的任何命令都不会出现在谷歌助理的记录历史和谷歌账户中。(然而，访客模式不会阻止第三方应用或谷歌搜索、地图或 YouTube等其他谷歌服务收集数据。 ) 访客模式还会阻止谷歌助手在其共享的任何结果中建议个性化信息，如日历事件、提醒或收藏的媒体。
+当访客模式打开时，智能扬声器听到的任何命令都不会出现在谷歌助理的记录历史和谷歌账户中。(然而，访客模式不会阻止第三方应用或谷歌搜索、地图或 YouTube 等其他谷歌服务收集数据。 ) 访客模式还会阻止谷歌助手在其共享的任何结果中建议个性化信息，如日历事件、提醒或收藏的媒体。
 
 谷歌助手的新访客模式有明显的数据隐私好处，但它的最佳用途就在它的名字上:它让你的访客使用你的智能扬声器，而不会记录他们的互动。这也意味着你不必经常从你的谷歌助手记录历史中删除不相关的(或不需要的)语音搜索。
 

@@ -1,8 +1,8 @@
 # 如果你的家有水渍，你需要做的一切
 
-> 原文:[https://life hacker . com/everything-your-need-do-if your home ' s have-water-damage-1849678525](https://lifehacker.com/everything-you-need-to-do-if-your-home-has-water-damage-1849678525)
+> 原文：<https://lifehacker.com/everything-you-need-to-do-if-your-home-has-water-damage-1849678525>
 
-燃烧的水管或漏水的热水器会像T2洪水一样造成水毁，这两者都会给你的家带来坏消息。如果你家的某个不应该积水的地方有T4，你可以马上做一些事情来减少损失。虽然修复通常必须由专业人员来处理，但这些基本步骤可以让修复过程开始，并为您节省时间、麻烦和金钱。
+燃烧的水管或漏水的热水器会像 T2 洪水一样造成水毁，这两者都会给你的家带来坏消息。如果你家的某个不应该积水的地方有 T4，你可以马上做一些事情来减少损失。虽然修复通常必须由专业人员来处理，但这些基本步骤可以让修复过程开始，并为您节省时间、麻烦和金钱。
 
 Watch
 

@@ -1,8 +1,8 @@
-# 你可以从Uber Eats订购圣诞树、圣诞礼物和其他节日必需品
+# 你可以从 Uber Eats 订购圣诞树、圣诞礼物和其他节日必需品
 
-> 原文:[https://life hacker . com/Christmas-trees-stocking-stuffers-and-other-holiday-e-1848205399](https://lifehacker.com/christmas-trees-stocking-stuffers-and-other-holiday-e-1848205399)
+> 原文：<https://lifehacker.com/christmas-trees-stocking-stuffers-and-other-holiday-e-1848205399>
 
-你是否通过点 [优步吃](https://www.ubereats.com/) 玉米卷和Pad See Ew(我个人的节日传统)来平衡你的圣诞饼干摄入量？好吧，你现在也可以打开那个应用程序来完成一些假日购物。以下是你如何通过新的" [假日中心](https://www.ubereats.com/?q=Holiday) "使用送餐服务购买节日必需品的方法，包括圣诞礼物和圣诞树本身。
+你是否通过点 [优步吃](https://www.ubereats.com/) 玉米卷和 Pad See Ew(我个人的节日传统)来平衡你的圣诞饼干摄入量？好吧，你现在也可以打开那个应用程序来完成一些假日购物。以下是你如何通过新的" [假日中心](https://www.ubereats.com/?q=Holiday) "使用送餐服务购买节日必需品的方法，包括圣诞礼物和圣诞树本身。
 
 Watch
 
@@ -10,10 +10,10 @@ Watch
 
 ## 优步如何吃掉“假日枢纽”
 
-打开 [优步吃app](https://apps.apple.com/us/app/uber-eats-food-delivery/id1058959277) ，轻点“假期”广告牌。你也可以使用节日表情符号搜索你需要的东西，比如圣诞树、礼品盒，甚至是圣诞老人夫妇。在这个“中心”，你可以虚拟浏览像Rite Aid、GoPuff、Walgreens、等商家的假日购物通道。在12月31日之前，从参与商店订购60美元或以上的商品还可以获得20美元的折扣，包括Mr. Jingles和Bed Bath & Beyond。
+打开 [优步吃 app](https://apps.apple.com/us/app/uber-eats-food-delivery/id1058959277) ，轻点“假期”广告牌。你也可以使用节日表情符号搜索你需要的东西，比如圣诞树、礼品盒，甚至是圣诞老人夫妇。在这个“中心”，你可以虚拟浏览像 Rite Aid、GoPuff、Walgreens、等商家的假日购物通道。在 12 月 31 日之前，从参与商店订购 60 美元或以上的商品还可以获得 20 美元的折扣，包括 Mr. Jingles 和 Bed Bath & Beyond。
 
-目前，仅在部分城市提供圣诞树递送服务。洛杉矶、圣地亚哥、和西棕榈滩的优步顾客可以订购2英尺到4英尺的圣诞树，或者5英尺到10英尺的圣诞树，让顾客上门取货。纽约市的顾客可以订购由T2送货上门的花环。
+目前，仅在部分城市提供圣诞树递送服务。洛杉矶、圣地亚哥、和西棕榈滩的优步顾客可以订购 2 英尺到 4 英尺的圣诞树，或者 5 英尺到 10 英尺的圣诞树，让顾客上门取货。纽约市的顾客可以订购由 T2 送货上门的花环。
 
 ## 更多季节性产品
 
-今年早些时候，优步首次尝试了他们的假日中心，为万圣节准备了南瓜和雕刻工具，预计2022年情人节也会有季节性产品。我猜是巧克力、玫瑰和…纸巾盒，满足你心碎的需求？只有时间能证明一切。
+今年早些时候，优步首次尝试了他们的假日中心，为万圣节准备了南瓜和雕刻工具，预计 2022 年情人节也会有季节性产品。我猜是巧克力、玫瑰和…纸巾盒，满足你心碎的需求？只有时间能证明一切。

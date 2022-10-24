@@ -1,6 +1,6 @@
 # 如何和有孩子的人约会
 
-> 原文:[https://life hacker . com/how-to-date-someone-with-kids-1848946372](https://lifehacker.com/how-to-date-someone-with-kids-1848946372)
+> 原文：<https://lifehacker.com/how-to-date-someone-with-kids-1848946372>
 
 和有孩子的人约会是件大事。无论你对你的恋爱关系有多兴奋，事实仍然是——你的新欢已经对他们的孩子有了承诺，最终，你将不得不决定你是否也想承担这一承诺。
 

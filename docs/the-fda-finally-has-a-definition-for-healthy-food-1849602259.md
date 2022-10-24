@@ -1,25 +1,25 @@
-# FDA终于有了“健康”食品的定义
+# FDA 终于有了“健康”食品的定义
 
-> 原文:[https://life hacker . com/the-FDA-终于有了健康食品的定义-1849602259](https://lifehacker.com/the-fda-finally-has-a-definition-for-healthy-food-1849602259)
+> 原文：<https://lifehacker.com/the-fda-finally-has-a-definition-for-healthy-food-1849602259>
 
-当应用于食品时,“健康”的确切含义是什么？这是一个比你想象的更难的问题。FDA多年来一直试图回答这个问题，他们宣布他们终于有了一个粗略的定义。
+当应用于食品时,“健康”的确切含义是什么？这是一个比你想象的更难的问题。FDA 多年来一直试图回答这个问题，他们宣布他们终于有了一个粗略的定义。
 
 Watch
 
-这里的起源故事是疯狂的:几年前，美国食品和药物管理局给KIND(那些能量棒的制造商，基本上只是用糖浆粘在一起的坚果)发了一封信，说坚果脂肪含量太高，不被认为是“健康的”，因此该公司可能不会使用这个词。善良的反驳道，T2的坚果是健康的，是食品和药物管理局错了。FDA说:哦。也许你是对的。我们会考虑的。
+这里的起源故事是疯狂的:几年前，美国食品和药物管理局给 KIND(那些能量棒的制造商，基本上只是用糖浆粘在一起的坚果)发了一封信，说坚果脂肪含量太高，不被认为是“健康的”，因此该公司可能不会使用这个词。善良的反驳道，T2 的坚果是健康的，是食品和药物管理局错了。FDA 说:哦。也许你是对的。我们会考虑的。
 
-那是2016年，机构 [一直在琢磨那个问题](https://lifehacker.com/the-fda-wants-to-know-what-you-think-healthy-means-1787183344) (有公、 [法人](https://lifehacker.com/how-big-food-wants-the-fda-to-define-healthy-1793223564) 输入)至今。“健康”的旧定义要求食物低钠、低脂肪、低胆固醇，但饮食指南(由另一个机构美国农业部发布)自最初的定义被编纂以来已经发生了变化。2015年指南 [取消了对胆固醇](https://lifehacker.com/the-us-is-finally-dropping-its-outdated-guideline-again-1686339755) 的限制，2020年指南 [引入了](https://lifehacker.com/hey-the-2020-usda-dietary-guidelines-are-finally-out-1845970070) 对添加糖的限制。新规则使“健康”的定义与现行的指导方针一致。
+那是 2016 年，机构 [一直在琢磨那个问题](https://lifehacker.com/the-fda-wants-to-know-what-you-think-healthy-means-1787183344) (有公、 [法人](https://lifehacker.com/how-big-food-wants-the-fda-to-define-healthy-1793223564) 输入)至今。“健康”的旧定义要求食物低钠、低脂肪、低胆固醇，但饮食指南(由另一个机构美国农业部发布)自最初的定义被编纂以来已经发生了变化。2015 年指南 [取消了对胆固醇](https://lifehacker.com/the-us-is-finally-dropping-its-outdated-guideline-again-1686339755) 的限制，2020 年指南 [引入了](https://lifehacker.com/hey-the-2020-usda-dietary-guidelines-are-finally-out-1845970070) 对添加糖的限制。新规则使“健康”的定义与现行的指导方针一致。
 
 以下是该机构如何描述一家公司何时可以称其食品为健康食品的新提议规则:
 
 > 根据拟议的定义，为了在食品包装上贴上“健康”标签，产品需要:
 
 > *   从至少一个食物组或亚组(如水果、蔬菜、奶制品等)中含有一定量的有意义的食物。)膳食指南推荐。
-> *   坚持对某些营养素的具体限制，如饱和脂肪、钠和添加糖。限量的阈值是基于营养素每日价值(DV)的百分比，并根据食物和食物组的不同而变化。钠的限量是每份每日摄入量的10%(每份230毫克)。
+> *   坚持对某些营养素的具体限制，如饱和脂肪、钠和添加糖。限量的阈值是基于营养素每日价值(DV)的百分比，并根据食物和食物组的不同而变化。钠的限量是每份每日摄入量的 10%(每份 230 毫克)。
 > 
-> 例如，一种谷物需要含有10盎司的全谷物，不超过1克饱和脂肪，230毫克钠和2.5克添加糖。
+> 例如，一种谷物需要含有 10 盎司的全谷物，不超过 1 克饱和脂肪，230 毫克钠和 2.5 克添加糖。
 
-因此，一罐酸奶可能是“健康的”，因为它提供乳制品，但前提是它没有太多的糖。一包trail mix可以是“健康”的，因为它提供水果和坚果，只要它不含太多的糖、盐或添加的饱和脂肪。FDA有 [更具体的例子这里有](https://www.fda.gov/food/food-labeling-nutrition/use-term-healthy-food-labeling) 。
+因此，一罐酸奶可能是“健康的”，因为它提供乳制品，但前提是它没有太多的糖。一包 trail mix 可以是“健康”的，因为它提供水果和坚果，只要它不含太多的糖、盐或添加的饱和脂肪。FDA 有 [更具体的例子这里有](https://www.fda.gov/food/food-labeling-nutrition/use-term-healthy-food-labeling) 。
 
 新规则更符合这样一种观点，即饮食模式可以是健康的或不健康的，并且应该在某种程度上转移人们对美化或妖魔化个别食物和营养素的关注。新的标签意味着本质上说“你可以很容易地将它融入健康饮食中。”
 

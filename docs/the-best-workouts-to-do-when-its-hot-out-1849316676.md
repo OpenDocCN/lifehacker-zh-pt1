@@ -1,6 +1,6 @@
 # 天气炎热时最好的锻炼
 
-> 原文:[https://life hacker . com/the-best-outs-when-the-hot-out-1849316676](https://lifehacker.com/the-best-workouts-to-do-when-its-hot-out-1849316676)
+> 原文：<https://lifehacker.com/the-best-workouts-to-do-when-its-hot-out-1849316676>
 
 在高温下锻炼会很痛苦——这就是为什么你已经知道在清晨或傍晚做户外运动，保持水分， [以及所有其他好东西](https://lifehacker.com/how-to-stay-safe-during-a-heatwave-1835947762) 。但是如果你有安全角度覆盖并且你愿意勇敢面对高温呢？这里是我们推荐的在酷热天气下保持活力的最佳方法。
 
@@ -16,7 +16,7 @@ Watch
 
 ## 拉伸
 
-这个是免费的，你可以在任何地方做。当我们的肌肉温暖时，我们更灵活，这也是热瑜伽 如此令人满意的原因之一。在潮湿的天气里，把你的瑜伽垫拿出来，假装你刚刚为这项特权支付了20美元。(同样，享受知道你是*而不是*支持实践的 [有问题的创始人](https://www.refinery29.com/en-us/2019/11/8852572/bikram-yoga-founder-scandal-new-netflix-documentary) 。)跟随你选择的瑜伽视频，或者尝试一个朴素的老 [拉伸套路](https://lifehacker.com/im-finally-stretching-and-i-kind-of-like-it-1848700419) 。
+这个是免费的，你可以在任何地方做。当我们的肌肉温暖时，我们更灵活，这也是热瑜伽 如此令人满意的原因之一。在潮湿的天气里，把你的瑜伽垫拿出来，假装你刚刚为这项特权支付了 20 美元。(同样，享受知道你是*而不是*支持实践的 [有问题的创始人](https://www.refinery29.com/en-us/2019/11/8852572/bikram-yoga-founder-scandal-new-netflix-documentary) 。)跟随你选择的瑜伽视频，或者尝试一个朴素的老 [拉伸套路](https://lifehacker.com/im-finally-stretching-and-i-kind-of-like-it-1848700419) 。
 
 ## 徒步旅行
 

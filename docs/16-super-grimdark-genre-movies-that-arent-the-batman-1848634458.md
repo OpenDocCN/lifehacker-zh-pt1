@@ -1,10 +1,10 @@
-# 16部不是《蝙蝠侠》的超级黑暗类型电影
+# 16 部不是《蝙蝠侠》的超级黑暗类型电影
 
-> 原文:[https://life hacker . com/16-super-grim dark-genre-movies-the-parent-the-Batman-1848634458](https://lifehacker.com/16-super-grimdark-genre-movies-that-arent-the-batman-1848634458)
+> 原文：<https://lifehacker.com/16-super-grimdark-genre-movies-that-arent-the-batman-1848634458>
 
 也许这反映了世界的现状(或者我们对世界的看法)，但是过去十多年来许多最受欢迎的类型电影都是冷酷无情的。特别是当涉及到超级英雄(尤其是蝙蝠侠，他的电影在过去几十年里变得越来越阴沉)，忧郁甚至被视为质量的标志——不管公平与否。大团圆结局很棒，但我们沉迷于不仅仅是黑暗，而是疯狂、冷酷的类型电影。
 
-在最好的情况下，这些电影向我们展示了一个可能与我们的日常经历不太符合的世界，但T4可能与我们在最黯淡的想象中看到的生活景象相差不远。另一方面，一些似乎反映了青少年高度的戏剧感。
+在最好的情况下，这些电影向我们展示了一个可能与我们的日常经历不太符合的世界，但 T4 可能与我们在最黯淡的想象中看到的生活景象相差不远。另一方面，一些似乎反映了青少年高度的戏剧感。
 
 也许我们只是发现这是高度相关的，即使像蝙蝠侠这样的人物，其的生活远比我们自己单调的生活精彩，仍然有很多的理由感到悲伤。就像我们一样！接下来的所有电影也都以人有充足的理由爬回床上为特色，然而他们仍然设法过着充满动作的生活。对他们有好处。
 
@@ -40,7 +40,7 @@
 
  *[https://lifehacker.com/embed/inset/iframe?id=youtube-video-2L47JwR9vDs&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-2L47JwR9vDs&start=0) 
 
-*作为一个属性，在理论上总是比执行上成功一点。可利夫·巴克关于超凡脱俗的身体恐怖的黑暗、怪异和歌剧式的作品从未被很好地翻译成电影，即使在这种情况下，他自己导演了这部电影。尽管如此，在这部处女作中，还是可以找到快乐和痛苦，一个扭曲的、令人毛骨悚然的三角恋和一个令人难忘的反派(或者他只是想让你开心一下？)在道格·布拉德利的针头里。这是许多BDSM黑暗幻想的素材。*
+*作为一个属性，在理论上总是比执行上成功一点。可利夫·巴克关于超凡脱俗的身体恐怖的黑暗、怪异和歌剧式的作品从未被很好地翻译成电影，即使在这种情况下，他自己导演了这部电影。尽管如此，在这部处女作中，还是可以找到快乐和痛苦，一个扭曲的、令人毛骨悚然的三角恋和一个令人难忘的反派(或者他只是想让你开心一下？)在道格·布拉德利的针头里。这是许多 BDSM 黑暗幻想的素材。*
 
 ***在哪里流媒体:**黄金视频，喧闹，Tubi，颤栗*
 
@@ -66,19 +66,19 @@
 
 就像一部带有动作和恐怖色彩的老派黑色电影，罗梅罗的这部冷酷的杰作从一开始就表明，没有任何一个角色有幸福结局的希望。
 
-**在哪里流媒体:**颤栗，HBO Max，孔雀，派拉蒙+，Starz，Roku频道，Hoopla，Vudu，The Criterion频道，Tubi，Kanopy，富博电视台等。(几乎无处不在。)
+**在哪里流媒体:**颤栗，HBO Max，孔雀，派拉蒙+，Starz，Roku 频道，Hoopla，Vudu，The Criterion 频道，Tubi，Kanopy，富博电视台等。(几乎无处不在。)
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-XS-PRypBdIM&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-XS-PRypBdIM&start=0) 
 
 比罗梅罗的僵尸经典早几年，并(在一定程度上)开创了同样的高度令人毛骨悚然的低成本风格，*灵魂的狂欢*像之前或之后的几部电影一样倾向于存在主义的恐惧，让观众陷入对来世的无情看法。
 
-**在哪里流媒体:** HBO Max，Paramount+，颤栗，Epix，Roku频道，Hoopla，Criterion频道，Vudu，Tubi等。(再次重申:几乎无处不在)
+**在哪里流媒体:** HBO Max，Paramount+，颤栗，Epix，Roku 频道，Hoopla，Criterion 频道，Vudu，Tubi 等。(再次重申:几乎无处不在)
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-qf2p-tkn7cE&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-qf2p-tkn7cE&start=0) 
 
-尽管科马克·麦卡锡的小说并不完全是凄凉的，但他也不算是一个与奇思妙想有关联的作家。既然如此，尽管好莱坞肯定有能力用原始素材向完全意想不到的方向发展，但改编自《T2之路》的《T3》不太可能成为《T4》的轻松娱乐。当然不是！这部电影是美国票房史上最惨淡的大片之一，这是一部后启示录寓言，最终讲述了一个现代美国，在这里，幸福的结局不仅难以实现，而且几乎是不可能想象的。
+尽管科马克·麦卡锡的小说并不完全是凄凉的，但他也不算是一个与奇思妙想有关联的作家。既然如此，尽管好莱坞肯定有能力用原始素材向完全意想不到的方向发展，但改编自《T2 之路》的《T3》不太可能成为《T4》的轻松娱乐。当然不是！这部电影是美国票房史上最惨淡的大片之一，这是一部后启示录寓言，最终讲述了一个现代美国，在这里，幸福的结局不仅难以实现，而且几乎是不可能想象的。
 
-**在哪里播放:**Roku频道、Hoopla、Vudu、Tubi、Kanopy、Redbox、Pluto TV、Plex、IMDb TV
+**在哪里播放:**Roku 频道、Hoopla、Vudu、Tubi、Kanopy、Redbox、Pluto TV、Plex、IMDb TV
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-MKg7kmfFP3g&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-MKg7kmfFP3g&start=0) 
 
@@ -94,12 +94,12 @@
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-wpci2WuWy4E&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-wpci2WuWy4E&start=0) 
 
-这部电影没有《T2》想象的那么深刻，但是乔·舒马赫的《X一代》有点经典，讲述了研究生探索濒死体验的领域,《T4》有着怪异的风格，以及由基弗·萨瑟兰和茱莉亚·罗伯茨主演的(当时的)年轻明星le d的完美阵容。这*可能*不会扩展你对来世的想法，但伴随着一两个可食用的，你可能会觉得它有。
+这部电影没有《T2》想象的那么深刻，但是乔·舒马赫的《X 一代》有点经典，讲述了研究生探索濒死体验的领域,《T4》有着怪异的风格，以及由基弗·萨瑟兰和茱莉亚·罗伯茨主演的(当时的)年轻明星 le d 的完美阵容。这*可能*不会扩展你对来世的想法，但伴随着一两个可食用的，你可能会觉得它有。
 
 **在哪里播放:**富博电视台、Hulu、派拉蒙+
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-L58rdhCfDIU&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-L58rdhCfDIU&start=0) 
 
-90年代早期绝对是超级英雄电影的狂野西部(尽管这是一部原创作品)；电影公司热衷于复制《蝙蝠侠》的成功，但还没有找到公式。这是辉煌的:虽然像《T2》、《迪克·特蕾西》、《T4》、《乌鸦》、《面具》、《T7》和《火箭人》、《T9》这样的电影并不都是经典之作，但它们至少比我们目前的作品更加多样化，也没有那么精心管理。典型的例子:山姆·雷米的《黑暗人》讲述了一个科学家(连姆·尼森饰)被一个暴徒遗弃致死，却被一种让他精神极度不稳定并沉迷于复仇的配方救活的故事。莱米典型的用一点黑色幽默使事情变得轻松，使*黑暗人*比我们今天看到的那么多冷酷无情的超级英雄的东西更具娱乐性(也更古怪)。
+90 年代早期绝对是超级英雄电影的狂野西部(尽管这是一部原创作品)；电影公司热衷于复制《蝙蝠侠》的成功，但还没有找到公式。这是辉煌的:虽然像《T2》、《迪克·特蕾西》、《T4》、《乌鸦》、《面具》、《T7》和《火箭人》、《T9》这样的电影并不都是经典之作，但它们至少比我们目前的作品更加多样化，也没有那么精心管理。典型的例子:山姆·雷米的《黑暗人》讲述了一个科学家(连姆·尼森饰)被一个暴徒遗弃致死，却被一种让他精神极度不稳定并沉迷于复仇的配方救活的故事。莱米典型的用一点黑色幽默使事情变得轻松，使*黑暗人*比我们今天看到的那么多冷酷无情的超级英雄的东西更具娱乐性(也更古怪)。
 
 **流向何处:**不寒而栗**

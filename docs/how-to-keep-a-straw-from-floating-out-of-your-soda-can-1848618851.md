@@ -1,6 +1,6 @@
 # 如何防止吸管从汽水罐中飘出
 
-> 原文:[https://life hacker . com/how-to-keep a straw-from-floating-out-of-your ' s soda-can-1848618851](https://lifehacker.com/how-to-keep-a-straw-from-floating-out-of-your-soda-can-1848618851)
+> 原文：<https://lifehacker.com/how-to-keep-a-straw-from-floating-out-of-your-soda-can-1848618851>
 
 我不知道你是否知道，我最近从波特兰前往纽约市参加一个小小的集体行动。在集体行动的同时，我也和新老同事一起吃饭。一天晚上，经过一天的游行和诵经，我们出去吃韩国烧烤，这(自然)导致我点了一杯健怡可乐。(健怡可乐是苏打水的香槟——它可以搭配任何东西，尤其是含盐和脂肪多的东西。)
 

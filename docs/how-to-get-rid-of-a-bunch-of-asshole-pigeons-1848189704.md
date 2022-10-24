@@ -1,6 +1,6 @@
 # 如何摆脱一群混蛋鸽子
 
-> 原文:[https://life hacker . com/how-to-摆脱一群混蛋鸽子-1848189704](https://lifehacker.com/how-to-get-rid-of-a-bunch-of-asshole-pigeons-1848189704)
+> 原文：<https://lifehacker.com/how-to-get-rid-of-a-bunch-of-asshole-pigeons-1848189704>
 
 鸽子是害虫。城市居民称它们为“长着翅膀的老鼠”是有原因的:它们繁殖迅速，只需几周就能繁殖，并赶走其他鸟类。它们的粪便很恶心，可以携带和传播一系列寄生虫和疾病。他们也可以 [给你的家庭带来麻烦](https://smithspestmanagement.com/blog/post/how-to-get-rid-of-pigeons/) :
 
@@ -29,6 +29,6 @@ Watch
 
 当鸟儿着陆时，太阳能震动胶带会发出微弱的震动，通常被认为是人道和安全的。你也可以在鸟儿着陆前涂上凝胶，提供视觉威慑，或者在鸟儿着陆时提供物理威慑。
 
-为威慑而设计的风铃和声音装置可以让鸽子远离阳台和门廊。结合了反射表面和运动的稻草人——如绳子上的CDs也可以驱赶鸟类。
+为威慑而设计的风铃和声音装置可以让鸽子远离阳台和门廊。结合了反射表面和运动的稻草人——如绳子上的 CDs 也可以驱赶鸟类。
 
 祝你好运——同时不要踩到任何酸性粪便。

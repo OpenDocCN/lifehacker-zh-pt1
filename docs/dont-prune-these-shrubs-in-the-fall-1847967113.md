@@ -1,12 +1,12 @@
 # 秋天不要修剪这些灌木
 
-> 原文:[https://life hacker . com/don-prune-these-bushes-in-fall-1847967113](https://lifehacker.com/dont-prune-these-shrubs-in-the-fall-1847967113)
+> 原文：<https://lifehacker.com/dont-prune-these-shrubs-in-the-fall-1847967113>
 
 说到园艺工作，秋天感觉就像是一个准备的季节:让你的植物为冬天做好准备，清理一些东西，这样你在春天就可以少做一些工作。但是如果你已经种下了春天开花的球茎植物，放好了你的户外家具，耙好了所有的叶子，你可能会忍不住伸手去拿剪枝剪，给你的灌木来一次快速的霜前修剪。
 
 Watch
 
-但是，根据PureWow 的Arricca Elin SanSone所说，这并不总是一个好主意。她在网站的一篇文章中解释说，事实上，在一年中的这个时候修剪某些灌木实际上会损害它们。这里有几个属于这一类的灌木的例子。
+但是，根据 PureWow 的 Arricca Elin SanSone 所说，这并不总是一个好主意。她在网站的一篇文章中解释说，事实上，在一年中的这个时候修剪某些灌木实际上会损害它们。这里有几个属于这一类的灌木的例子。
 
 ## 杜鹃花
 
@@ -22,4 +22,4 @@ Watch
 
 ## 九层皮
 
-ninebark的部分吸引力在于它的拱形形状，彩色的叶子和娇小的花朵在春天开放。在秋天修剪灌木——或者一年中的任何时候，就此而言——可能会破坏它的形状。像丁香一样，你可以修剪掉任何枯枝，但除此之外， [桑松说](https://www.purewow.com/home/shrubs-never-prune-in-fall) 别管它。
+ninebark 的部分吸引力在于它的拱形形状，彩色的叶子和娇小的花朵在春天开放。在秋天修剪灌木——或者一年中的任何时候，就此而言——可能会破坏它的形状。像丁香一样，你可以修剪掉任何枯枝，但除此之外， [桑松说](https://www.purewow.com/home/shrubs-never-prune-in-fall) 别管它。

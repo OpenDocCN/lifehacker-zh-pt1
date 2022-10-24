@@ -1,6 +1,6 @@
 # 如何为任何房间挑选最好的窗帘
 
-> 原文:[https://life hacker . com/how-the-pick-the-best-窗帘-适合任何房间-1847702009](https://lifehacker.com/how-the-pick-the-best-curtains-for-any-room-1847702009)
+> 原文：<https://lifehacker.com/how-the-pick-the-best-curtains-for-any-room-1847702009>
 
 买一套新窗帘是让房间焕然一新的快速且相对实惠的方法。但除了挑选颜色和图案，其他因素——如材料和长度——可以帮助你进一步定制空间。在为云杉撰写的文章中，劳拉·米勒 分享了一些挑选最适合特定房间的窗帘的策略。以下是需要了解的内容。
 
@@ -18,7 +18,7 @@ Watch
 
 ## 长度
 
-虽然窗帘的材料对房间的自然光量影响最大，但窗帘的长度也是需要考虑的因素。窗帘有五种标准长度——63英寸、84英寸、95英寸、108英寸和120英寸——但是根据米勒 的说法，有时指定的术语被用来描述一般的长度:
+虽然窗帘的材料对房间的自然光量影响最大，但窗帘的长度也是需要考虑的因素。窗帘有五种标准长度——63 英寸、84 英寸、95 英寸、108 英寸和 120 英寸——但是根据米勒 的说法，有时指定的术语被用来描述一般的长度:
 
 > *   **Multi-layer curtain** -a short curtain that only covers part of the window.
 > *   **Apron curtain** -the curtain hanging directly below the bottom of the window.

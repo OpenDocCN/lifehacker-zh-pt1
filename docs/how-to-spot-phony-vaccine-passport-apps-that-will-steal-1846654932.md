@@ -1,14 +1,14 @@
 # 如何识别会窃取你数据的虚假“疫苗护照”应用程序
 
-> 原文:[https://life hacker . com/how-to-spot-phone-vaccine-passport-apps-that-will-steak-1846654932](https://lifehacker.com/how-to-spot-phony-vaccine-passport-apps-that-will-steal-1846654932)
+> 原文：<https://lifehacker.com/how-to-spot-phony-vaccine-passport-apps-that-will-steal-1846654932>
 
-作为一个政策问题，疫苗护照的使用仍然不清楚。在美国没有官方的、联邦政府认可的“疫苗护照”，但是T2的公司已经在为那些想要旅行或参加大型活动的接种过疫苗的人开发护照应用程序。随后，疫苗护照的模糊状态为骗子窃取你的个人信息提供了机会，这就是为什么 [商业改善局发布了关于虚假应用的警告](https://www.bbb.org/article/scams/24048-bbb-scam-alert-covid-19-vaccine-passports-are-coming-scams-are-sure-to-follow) 。
+作为一个政策问题，疫苗护照的使用仍然不清楚。在美国没有官方的、联邦政府认可的“疫苗护照”，但是 T2 的公司已经在为那些想要旅行或参加大型活动的接种过疫苗的人开发护照应用程序。随后，疫苗护照的模糊状态为骗子窃取你的个人信息提供了机会，这就是为什么 [商业改善局发布了关于虚假应用的警告](https://www.bbb.org/article/scams/24048-bbb-scam-alert-covid-19-vaccine-passports-are-coming-scams-are-sure-to-follow) 。
 
 Watch
 
 ### **注意什么**
 
-有一些合法的应用程序已经在使用了。纽约州推出了 [Excelsior Pass](https://covid19vaccine.health.ny.gov/excelsior-pass) ，它使用该州的疫苗登记处来确认疫苗接种状态，像 [美国航空公司和捷蓝航空公司也使用应用程序](https://www.npr.org/2021/04/08/985400141/faq-what-is-a-vaccine-passport-and-what-are-these-credentials-used-for) 来确认航班的阴性COVID测试。
+有一些合法的应用程序已经在使用了。纽约州推出了 [Excelsior Pass](https://covid19vaccine.health.ny.gov/excelsior-pass) ，它使用该州的疫苗登记处来确认疫苗接种状态，像 [美国航空公司和捷蓝航空公司也使用应用程序](https://www.npr.org/2021/04/08/985400141/faq-what-is-a-vaccine-passport-and-what-are-these-credentials-used-for) 来确认航班的阴性 COVID 测试。
 
 然而，由于白宫拒绝使用疫苗护照，我们可能不会看到一个单一的，集中的应用程序将被所有美国人使用。相反，我们可能会看到越来越多由私营公司开发的应用程序，供地方或州一级使用。但这也将使识别骗子运行的虚假应用程序变得更加困难，这就是为什么你应该格外小心你的个人信息，并验证该应用程序是否合法。
 

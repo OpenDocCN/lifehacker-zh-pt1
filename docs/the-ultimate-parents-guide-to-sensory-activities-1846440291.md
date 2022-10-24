@@ -1,6 +1,6 @@
 # 感官活动的终极父母指南
 
-> 原文:[https://life hacker . com/the-ultimate-parents-guide-to-sensory-activities-1846440291](https://lifehacker.com/the-ultimate-parents-guide-to-sensory-activities-1846440291)
+> 原文：<https://lifehacker.com/the-ultimate-parents-guide-to-sensory-activities-1846440291>
 
 感官活动在幼儿的发展中起着至关重要的作用。这不仅仅是针对感觉统合有困难的孩子:这对所有的孩子用他们的感觉探索世界都有好处。事实上，他们几乎在没有我们任何帮助的情况下就本能地这么做了。婴儿会抓住你柔滑的头发或闪亮的项链。蹒跚学步的孩子探索任何他们能拿到的东西，把它直接放进嘴里。
 

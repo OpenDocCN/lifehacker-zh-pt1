@@ -1,6 +1,6 @@
 # 如何去除木制砧板上的大蒜味
 
-> 原文:[https://life hacker . com/how-to-get-the-smooth-cutti-1848170888](https://lifehacker.com/how-to-get-the-smell-of-garlic-out-of-your-wooden-cutti-1848170888)
+> 原文：<https://lifehacker.com/how-to-get-the-smell-of-garlic-out-of-your-wooden-cutti-1848170888>
 
 如果你拥有木制餐具或砧板，你可能已经注意到它们有办法保留某些刺鼻的气味。尽管我们很喜欢木制厨房工具，但它们也容易渗透，所以它们很容易吸收强烈的气味，然后将这些气味转移到我们稍后准备的食物中(有人想吃大蒜西瓜吗？).
 
@@ -8,7 +8,7 @@ Watch
 
 清洁木制厨房工具的常规方法——用肥皂和水清洗，然后用油处理——在大多数情况下都很有效；但是肥皂和水并不总是能够去除特别强烈的气味，比如大蒜或者洋葱。
 
-Lifehacker的高级美食编辑Claire Lower提出的答案之一是，专门为大蒜 准备一个 [专用木勺。这是一个很好的解决方案，对很多人都有效，但是如果你碰巧有一个心不在焉的配偶和/或孩子，这个计划就失败了。当然，你可以告诉他们不要为了某些目的使用特定的餐具，但是很有可能他们会忘记(或者他们一开始就没有听你的话)。](https://lifehacker.com/you-need-a-dedicated-garlic-spoon-1847573118)
+Lifehacker 的高级美食编辑 Claire Lower 提出的答案之一是，专门为大蒜 准备一个 [专用木勺。这是一个很好的解决方案，对很多人都有效，但是如果你碰巧有一个心不在焉的配偶和/或孩子，这个计划就失败了。当然，你可以告诉他们不要为了某些目的使用特定的餐具，但是很有可能他们会忘记(或者他们一开始就没有听你的话)。](https://lifehacker.com/you-need-a-dedicated-garlic-spoon-1847573118)
 
 对于蒜味勺子这个问题的另一个答案是完全避免使用木制餐具，但对于我们这些喜欢木制餐具的人来说，这是一个艰难的要求。然而，正如厨房最近报道的 ，有一个有效(且简单)的方法可以去除木制餐具上的强烈气味:用小苏打和水制成的浆糊擦洗餐具。 [小苏打可以中和气味](https://www.cooksillustrated.com/how_tos/5728-cleaning-wooden-utensils) ，将它与少量水混合意味着它会被吸入木材，在那里它会中和任何气味。
 

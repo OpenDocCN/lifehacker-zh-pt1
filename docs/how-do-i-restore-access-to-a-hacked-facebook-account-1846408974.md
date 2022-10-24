@@ -1,18 +1,18 @@
 # 我如何恢复访问被黑的脸书帐户？
 
-> 原文:[https://life hacker . com/how-do-I-restore-access-to-a-hacked-Facebook-account-1846408974](https://lifehacker.com/how-do-i-restore-access-to-a-hacked-facebook-account-1846408974)
+> 原文：<https://lifehacker.com/how-do-i-restore-access-to-a-hacked-facebook-account-1846408974>
 
 没有必要在评论中说“退出脸书”。对于那些坚持使用社交服务的人——看起来你们中有很多人，考虑到公司的活跃用户总数 并没有下降——你可以也应该做很多事情来保护你的账户。然而，如果有人闯入你的数字王国，找回你的在线角色可能会是一件非常痛苦的事情，如果你能做到的话。
 
 Watch
 
-Lifehacker读者 **Tim** 在本周的[**Tech 911**](https://lifehacker.com/c/tech/tech-911)Q&A:
+Lifehacker 读者 **Tim** 在本周的[**Tech 911**](https://lifehacker.com/c/tech/tech-911)Q&A:
 
 > 当你的脸书账户被黑客入侵时，你能做什么？我丈夫的账户被黑了。该帐户的电子邮件地址、密码和电话号码已更改，因此他无法使用任何恢复帮助中心恢复选项。我已经报了账号，一直没有回应。”
 
 ### 求助于脸书的工具，然后变得令人讨厌
 
-我同情你，蒂姆，我也读过很多经历这种情况的人的故事。攻击者进入某人的账户，更改所有信息，甚至可能将2FA切换到他们的设备，并从根本上破坏某人的脸书体验。至于把它找回来，嗯，我也很难过地告诉大家，在这方面我还没有读到很多成功的故事。
+我同情你，蒂姆，我也读过很多经历这种情况的人的故事。攻击者进入某人的账户，更改所有信息，甚至可能将 2FA 切换到他们的设备，并从根本上破坏某人的脸书体验。至于把它找回来，嗯，我也很难过地告诉大家，在这方面我还没有读到很多成功的故事。
 
 这并不是说这是一个不可能的任务，只是一个不可能的任务。让我们来看几个你可以尝试的潜在解决方案。
 
@@ -28,12 +28,12 @@ Lifehacker读者 **Tim** 在本周的[**Tech 911**](https://lifehacker.com/c/tec
 
  [https://lifehacker.com/embed/inset/iframe?id=twitter-1330776994397687808&autosize=1](https://lifehacker.com/embed/inset/iframe?id=twitter-1330776994397687808&autosize=1) 
 
-接下来，确保你的丈夫 [在他的脸书账户上设置了双因素认证](https://www.facebook.com/settings?tab=security)——无论他是重新获得现有账户的访问权限，还是放弃并创建一个新账户。这样一来，除非有人实际接触到他的智能手机或进行某种SIM欺骗攻击，否则他几乎不可能侵入他的账户。和往常一样，为脸书使用一个唯一的、强密码是非常重要的，这个密码不能用于任何其他服务。理想情况下，通过 [一个专用的密码管理器](https://lifehacker.com/the-five-best-password-managers-5529133) 来保证安全。
+接下来，确保你的丈夫 [在他的脸书账户上设置了双因素认证](https://www.facebook.com/settings?tab=security)——无论他是重新获得现有账户的访问权限，还是放弃并创建一个新账户。这样一来，除非有人实际接触到他的智能手机或进行某种 SIM 欺骗攻击，否则他几乎不可能侵入他的账户。和往常一样，为脸书使用一个唯一的、强密码是非常重要的，这个密码不能用于任何其他服务。理想情况下，通过 [一个专用的密码管理器](https://lifehacker.com/the-five-best-password-managers-5529133) 来保证安全。
 
-我希望我能给你更好的建议——或者甚至是联系脸书，寻求个人帮助来解决这个问题。不幸的是，脸书的自动化工具是你能得到的最好的工具。确保他已经彻底尝试了所有的选项，即使这需要跑很多次，一路上点击所有不同的“帮助我”链接。他甚至可能不得不在别处纠缠脸书。(推特DMs？甚至可能是Oculus support，如果他假装是需要访问他的脸书帐户才能使用的客户)，或者在他重新获得帐户访问权之前多次提交他的ID(以及越来越刻薄的评论)。
+我希望我能给你更好的建议——或者甚至是联系脸书，寻求个人帮助来解决这个问题。不幸的是，脸书的自动化工具是你能得到的最好的工具。确保他已经彻底尝试了所有的选项，即使这需要跑很多次，一路上点击所有不同的“帮助我”链接。他甚至可能不得不在别处纠缠脸书。(推特 DMs？甚至可能是 Oculus support，如果他假装是需要访问他的脸书帐户才能使用的客户)，或者在他重新获得帐户访问权之前多次提交他的 ID(以及越来越刻薄的评论)。
 
 这样很烦吗？一百次是的。然而，坚持(希望)会有回报。
 
-*<small>你是否有一个让你夜不能寐的技术问题？厌倦了对您的Windows或Mac进行故障诊断？寻找关于应用程序、浏览器扩展或实用程序的建议来完成特定任务？让我们知道！在下面的评论或者邮件中告诉我们</small>*[*<small></small>*](mailto:david.murphy@lifehacker.com?subject=Tech%20911)<small>*<small>。</small>T15】*</small>
+*<small>你是否有一个让你夜不能寐的技术问题？厌倦了对您的 Windows 或 Mac 进行故障诊断？寻找关于应用程序、浏览器扩展或实用程序的建议来完成特定任务？让我们知道！在下面的评论或者邮件中告诉我们</small>*[*<small></small>*](mailto:david.murphy@lifehacker.com?subject=Tech%20911)<small>*<small>。</small>T15】*</small>
 
 <small></small>

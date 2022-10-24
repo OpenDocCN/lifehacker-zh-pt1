@@ -1,6 +1,6 @@
 # 如何设计一份不会让同事讨厌的办公室活动菜单
 
-> 原文:[https://the take out . com/how-to-plan-office-event-餐饮-菜单-同事-won-t-1848792295](https://thetakeout.com/how-to-plan-office-event-catering-menu-coworkers-won-t-1848792295)
+> 原文：<https://thetakeout.com/how-to-plan-office-event-catering-menu-coworkers-won-t-1848792295>
 
 很少有事情能像餐饮混乱那样迅速或容易地破坏一场好的活动。
 
@@ -12,7 +12,7 @@ Watch
 
 ## **获取人数**
 
-这很少像计算一个场馆的座位数，或 [售出的门票数](https://www.defna.org/announcements/2017/7/25/the-joys-of-catering-part-1-tickets-sold-does-not-equal-catering-count/) 或确认的RSVPs数那么简单。有些活动可能会有很多人缺席，而另一些活动可能会在最后一刻不请自来。但是收集一个临时的人数，最好是通过一个包括一个关于饮食限制的问题的RSVP，将会让你保持在正确的范围内，特别是当结合从过去的活动出席情况中收集的见解时。
+这很少像计算一个场馆的座位数，或 [售出的门票数](https://www.defna.org/announcements/2017/7/25/the-joys-of-catering-part-1-tickets-sold-does-not-equal-catering-count/) 或确认的 RSVPs 数那么简单。有些活动可能会有很多人缺席，而另一些活动可能会在最后一刻不请自来。但是收集一个临时的人数，最好是通过一个包括一个关于饮食限制的问题的 RSVP，将会让你保持在正确的范围内，特别是当结合从过去的活动出席情况中收集的见解时。
 
 一旦你有了一个大概的数字，你就可以打电话给一家知名的餐饮企业，或者当地一家提供餐饮服务的餐馆；他们将利用他们的专业知识，将数字、规定的饮食需求和你的预算转化为定制的传播。
 
@@ -24,7 +24,7 @@ Watch
 
 因为审查供应商可能是一个耗时的过程，记得在你去的时候建立一个可信任的餐饮供应商名单。下次你要组织办公室活动时，这会减轻一些压力。你的继任者会感谢你把备忘单留给他们。
 
-## **保持DIY菜单简单**
+## **保持 DIY 菜单简单**
 
 如果你被要求在最后一分钟做点什么，或者你的预算很少，与任何餐饮专家 [合作可能看起来不切实际](https://www.socialtables.com/blog/catering/role-food-and-beverage/) 。幸运的是，在这种情况下，你完全有可能自己动手做。
 

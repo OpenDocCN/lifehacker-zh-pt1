@@ -1,16 +1,16 @@
 # 美国农业部羊肉和羊肉的不同等级及其含义
 
-> 原文:[https://life hacker . com/the-different-USDA-grades of-lamb and-mountain-what-t-1846740490](https://lifehacker.com/the-different-usda-grades-of-lamb-and-mutton-and-what-t-1846740490)
+> 原文：<https://lifehacker.com/the-different-usda-grades-of-lamb-and-mutton-and-what-t-1846740490>
 
 羊肉有一些特别的肉味。我不是说它的骨头上有很多肉——尽管它可以。我的意思是吃肉的体验就是吃肉的感觉。它通常放在骨头上，有一种强烈、浓郁的味道，与无菌的小鸡柳完全相反。
 
 Watch
 
-[像牛肉](https://skillet.lifehacker.com/the-different-grades-of-beef-and-what-they-mean-1846667553) 一样，并不是所有的羊肉都是一样的，但你在杂货店或市场上看到的羊肉等级差异较小。根据meatscience.org的说法，“美国90%以上的羊肉将被评为美国农业部优质羊肉或精选羊肉。”然而，还有三个等级——好的、实用的和精选的。就像牛肉一样，羊肉的等级与脂肪含量有很大关系，尽管年龄和肌肉“厚度”也会影响等级。
+[像牛肉](https://skillet.lifehacker.com/the-different-grades-of-beef-and-what-they-mean-1846667553) 一样，并不是所有的羊肉都是一样的，但你在杂货店或市场上看到的羊肉等级差异较小。根据 meatscience.org 的说法，“美国 90%以上的羊肉将被评为美国农业部优质羊肉或精选羊肉。”然而，还有三个等级——好的、实用的和精选的。就像牛肉一样，羊肉的等级与脂肪含量有很大关系，尽管年龄和肌肉“厚度”也会影响等级。
 
 ### 最好的
 
-小羊羔(6-8周大)的肉“肌肉发达”，侧腹脂肪条纹从“少”到“多”不等，被认为是上等肉。但是随着绵羊年龄的增长，对脂肪的需求会增加。一只老羔羊需要“适度”到“丰富”的条纹才能被认为是最好的；一岁的羊肉必须显示至少适度的脂肪条纹。一旦羊进入“羊肉领域”(年龄超过20个月)，无论它的脂肪含量有多高，它的肉都不再是上等肉。(参见美国农业部的 [图](https://www.ams.usda.gov/sites/default/files/media/CarcassLambStandardFigure1.pdf) 以获得直观表示。)所有上等的羊排都会很嫩，要么是因为它年轻，要么是因为它脂肪含量高，但我仍然喜欢在商店里浏览一下，选择大理石花纹最多的排骨或牛排。
+小羊羔(6-8 周大)的肉“肌肉发达”，侧腹脂肪条纹从“少”到“多”不等，被认为是上等肉。但是随着绵羊年龄的增长，对脂肪的需求会增加。一只老羔羊需要“适度”到“丰富”的条纹才能被认为是最好的；一岁的羊肉必须显示至少适度的脂肪条纹。一旦羊进入“羊肉领域”(年龄超过 20 个月)，无论它的脂肪含量有多高，它的肉都不再是上等肉。(参见美国农业部的 [图](https://www.ams.usda.gov/sites/default/files/media/CarcassLambStandardFigure1.pdf) 以获得直观表示。)所有上等的羊排都会很嫩，要么是因为它年轻，要么是因为它脂肪含量高，但我仍然喜欢在商店里浏览一下，选择大理石花纹最多的排骨或牛排。
 
 ### 选择
 

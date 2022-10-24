@@ -1,14 +1,14 @@
 # 脱离现实的成人对儿童文化的指导:谁是？)黑粉色？
 
-> 原文:[https://life hacker . com/the-out-of-touch-大人-guide-to-kid-culture-who-a-1849460418](https://lifehacker.com/the-out-of-touch-adults-guide-to-kid-culture-who-is-a-1849460418)
+> 原文：<https://lifehacker.com/the-out-of-touch-adults-guide-to-kid-culture-who-is-a-1849460418>
 
-在他们的新专辑之前，K-Pop乐队Blackpink发布了他们的歌曲“粉红毒液”的视频，网上的反应似乎让过去一周地球上发生的所有事情都相形见绌——前提是你大约16岁，还不关心学生债务减免。但是在底特律也有一个杀手级的新滑坡，年轻人最终决定停止如此辛苦的工作。
+在他们的新专辑之前，K-Pop 乐队 Blackpink 发布了他们的歌曲“粉红毒液”的视频，网上的反应似乎让过去一周地球上发生的所有事情都相形见绌——前提是你大约 16 岁，还不关心学生债务减免。但是在底特律也有一个杀手级的新滑坡，年轻人最终决定停止如此辛苦的工作。
 
 Watch
 
 ## 本周热门视频:黑粉色——“粉红毒液”舞蹈练习视频
 
-视频没有比Blackpink的 [粉红毒液的舞蹈练习视频](https://www.youtube.com/watch?v=RFMi3v0TXP8) 更“病毒性”的了。超过2000万人在线观看了它的第一天。如果你和我一样，你会问“什么是黑粉色？”好吧，让我来告诉你:Blackpink是一支韩国女子流行乐队，自2016年成立以来，一直稳步占领着世界。智洙、珍妮、罗丝和丽莎只发行了一张专辑，2020年的*专辑*，但后续专辑*天生粉红*定于9月16日发布——因此对新视频进行了大规模宣传(我猜是新视频的彩排)。我不知道更多，但我知道“粉红毒液”是一种香肠。我认为这是世界上最好的歌，直到我听到了“巨大的滑梯”
+视频没有比 Blackpink 的 [粉红毒液的舞蹈练习视频](https://www.youtube.com/watch?v=RFMi3v0TXP8) 更“病毒性”的了。超过 2000 万人在线观看了它的第一天。如果你和我一样，你会问“什么是黑粉色？”好吧，让我来告诉你:Blackpink 是一支韩国女子流行乐队，自 2016 年成立以来，一直稳步占领着世界。智洙、珍妮、罗丝和丽莎只发行了一张专辑，2020 年的*专辑*，但后续专辑*天生粉红*定于 9 月 16 日发布——因此对新视频进行了大规模宣传(我猜是新视频的彩排)。我不知道更多，但我知道“粉红毒液”是一种香肠。我认为这是世界上最好的歌，直到我听到了“巨大的滑梯”
 
 ## **美丽岛巨型滑梯，伤害国家**
 
@@ -16,11 +16,11 @@ Watch
 
  [https://lifehacker.com/embed/inset/iframe?id=twitter-1562138410696843264&autosize=1](https://lifehacker.com/embed/inset/iframe?id=twitter-1562138410696843264&autosize=1) 
 
-要亲眼目睹这场大屠杀，可以看看上面底特律说唱歌手Gmac Cash的歌曲“ [巨型滑梯](https://twitter.com/champnella/status/1562138410696843264?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1562170040052490242%7Ctwgr%5E9042395998f3b09d750e55cea799be148d79df9c%7Ctwcon%5Es3_&ref_url=https://www.detroitnews.com/story/news/local/detroit-city/2022/08/24/belle-isle-slide-viral-internet-highlights/7882713001/) 的粉丝制作的视频我已经看了85000遍了，我永远不会不爱它。
+要亲眼目睹这场大屠杀，可以看看上面底特律说唱歌手 Gmac Cash 的歌曲“ [巨型滑梯](https://twitter.com/champnella/status/1562138410696843264?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1562170040052490242%7Ctwgr%5E9042395998f3b09d750e55cea799be148d79df9c%7Ctwcon%5Es3_&ref_url=https://www.detroitnews.com/story/news/local/detroit-city/2022/08/24/belle-isle-slide-viral-internet-highlights/7882713001/) 的粉丝制作的视频我已经看了 85000 遍了，我永远不会不爱它。
 
 ## **安德鲁·塔特禁止地球上的一切**
 
-上周，我不情愿地告诉任何阅读本专栏的人，失败的真人秀明星和厌恶女性的男性影响者安德鲁·泰特的存在。本周，泰特因违反了Instagram、脸书、抖音和YouTube平台的仇恨言论政策而被下架。我尖刻的评论和泰特严厉的禁止之间有联系吗？肯定不是！但重要的是，我再也不会受刺激去写安德鲁·泰特了，至少在报道参加他葬礼的人如此之少之前不会。
+上周，我不情愿地告诉任何阅读本专栏的人，失败的真人秀明星和厌恶女性的男性影响者安德鲁·泰特的存在。本周，泰特因违反了 Instagram、脸书、抖音和 YouTube 平台的仇恨言论政策而被下架。我尖刻的评论和泰特严厉的禁止之间有联系吗？肯定不是！但重要的是，我再也不会受刺激去写安德鲁·泰特了，至少在报道参加他葬礼的人如此之少之前不会。
 
 ## **“你不该在抖音谷歌的东西”**
 
@@ -28,7 +28,7 @@ Watch
 
 ## 为什么青少年要自学性教育？
 
-在这个国家最具宗教色彩的地区，年轻人中正在掀起一场既鼓舞人心又令人悲伤的草根运动:青少年正在进行他们自己的性教育课程，因为他们的学校不再允许关于性和堕胎的现实信息。青少年 [在弗吉尼亚州](https://www.washingtonpost.com/education/2022/07/14/fairfax-students-sex-ed-reform-roe/) 学校董事会外集会，得克萨斯州的青少年 [在Instagram](https://www.instagram.com/fortbendsurf/?igshid=YmMyMTA2M2Y=) 上分享堕胎和性信息，田纳西州的青少年正在组织争取生育权。与此同时， [家长团体](https://www.momsforliberty.org/staff/) 正在组织把书带出图书馆， [关闭学校里的LGBTQ+团体](https://www.washingtonpost.com/education/2022/06/28/gay-straight-alliance-indoctrination-school-club/) ，结束学校性教育项目，让 [避孕药](https://www.washingtonpost.com/education/2022/07/14/fairfax-students-sex-ed-reform-roe/) 远离孩子。
+在这个国家最具宗教色彩的地区，年轻人中正在掀起一场既鼓舞人心又令人悲伤的草根运动:青少年正在进行他们自己的性教育课程，因为他们的学校不再允许关于性和堕胎的现实信息。青少年 [在弗吉尼亚州](https://www.washingtonpost.com/education/2022/07/14/fairfax-students-sex-ed-reform-roe/) 学校董事会外集会，得克萨斯州的青少年 [在 Instagram](https://www.instagram.com/fortbendsurf/?igshid=YmMyMTA2M2Y=) 上分享堕胎和性信息，田纳西州的青少年正在组织争取生育权。与此同时， [家长团体](https://www.momsforliberty.org/staff/) 正在组织把书带出图书馆， [关闭学校里的 LGBTQ+团体](https://www.washingtonpost.com/education/2022/06/28/gay-straight-alliance-indoctrination-school-club/) ，结束学校性教育项目，让 [避孕药](https://www.washingtonpost.com/education/2022/07/14/fairfax-students-sex-ed-reform-roe/) 远离孩子。
 
 ## 接管抖音的“慢生活”趋势是什么？
 

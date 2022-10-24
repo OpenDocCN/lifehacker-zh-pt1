@@ -1,8 +1,8 @@
 # 使用口渴陷阱来找出你对社交媒体的迷恋
 
-> 原文:[https://life hacker . com/use-a-drug-trap-to-fish-out-your-crush-on-social-medi-1845904843](https://lifehacker.com/use-a-thirst-trap-to-fish-out-your-crush-on-social-medi-1845904843)
+> 原文：<https://lifehacker.com/use-a-thirst-trap-to-fish-out-your-crush-on-social-medi-1845904843>
 
-电影制作人、制片人和喜剧节目主持人泰勒·佩里从未真正影响过生活方式。他非常成功——演艺圈 [身价10亿美元的大亨](https://www.latimes.com/entertainment-arts/movies/story/2020-09-02/tyler-perry-has-become-a-billionaire)——但是公众从来没有指望佩里去做个人健康、美容、或者任何可能属于卡戴珊职权范围的事情。
+电影制作人、制片人和喜剧节目主持人泰勒·佩里从未真正影响过生活方式。他非常成功——演艺圈 [身价 10 亿美元的大亨](https://www.latimes.com/entertainment-arts/movies/story/2020-09-02/tyler-perry-has-become-a-billionaire)——但是公众从来没有指望佩里去做个人健康、美容、或者任何可能属于卡戴珊职权范围的事情。
 
 Watch
 
@@ -26,7 +26,7 @@ Watch
 
 ### 确保它确实是一张像样的照片
 
-老实说，用智能手机拍出好照片并不需要成为专业摄影师，但Instagram上的很多人都表明，他们对如何拍出美学上令人愉悦的照片一无所知。你可以通过一些基本的基础工作来避免落入这个阵营，比如找到合适的灯光和角度。你可以随意进行多次拍摄，因为你想把这个拍好。
+老实说，用智能手机拍出好照片并不需要成为专业摄影师，但 Instagram 上的很多人都表明，他们对如何拍出美学上令人愉悦的照片一无所知。你可以通过一些基本的基础工作来避免落入这个阵营，比如找到合适的灯光和角度。你可以随意进行多次拍摄，因为你想把这个拍好。
 
 作为一个通用的专业建议:来自你窗户的自然光通常有助于体面的智能手机摄影。低照度的灯通常总是比顶灯好。
 

@@ -1,12 +1,12 @@
 # 如何与否认者交谈
 
-> 原文:[https://life hacker . com/how-to-talk-to-a-covid-denier-1845700147](https://lifehacker.com/how-to-talk-to-a-covid-denier-1845700147)
+> 原文：<https://lifehacker.com/how-to-talk-to-a-covid-denier-1845700147>
 
-自三月以来，全世界的人们一直生活在至少两个不同的现实世界中。一个领域是那些由于新冠肺炎疫情的全球危机而改变了日常习惯的人，他们现在的每一个行动都是为了保护自己和他人免受一种新的高传染性病毒的影响，这种病毒已导致美国近25万人死亡，并将经济推向深渊。
+自三月以来，全世界的人们一直生活在至少两个不同的现实世界中。一个领域是那些由于新冠肺炎疫情的全球危机而改变了日常习惯的人，他们现在的每一个行动都是为了保护自己和他人免受一种新的高传染性病毒的影响，这种病毒已导致美国近 25 万人死亡，并将经济推向深渊。
 
 Watch
 
-在其他生活中，对COVID有不同看法的人。也许他们认为疫情的安全防范措施，就像戴着面具一样，都是的暴虐政府的不自量力。也许他们对挤进拥挤的餐馆有一种 [某种宿命般的冷漠](https://www.cnn.com/2020/09/02/us/kirk-cousins-masks-minnesota-vikings-covid-spt-trnd/index.html) ，或者质疑关于疫苗和社会距离的科学共识。他们甚至可能认为疫情是比尔·盖茨为了开创一个新的世界秩序而虚构出来的一个骗局。
+在其他生活中，对 COVID 有不同看法的人。也许他们认为疫情的安全防范措施，就像戴着面具一样，都是的暴虐政府的不自量力。也许他们对挤进拥挤的餐馆有一种 [某种宿命般的冷漠](https://www.cnn.com/2020/09/02/us/kirk-cousins-masks-minnesota-vikings-covid-spt-trnd/index.html) ，或者质疑关于疫苗和社会距离的科学共识。他们甚至可能认为疫情是比尔·盖茨为了开创一个新的世界秩序而虚构出来的一个骗局。
 
 如果你是一个相信主流科学的人，你可能很难和属于后一种阵营的朋友、爱人或家人交谈。也许你担心他们的安全(因为他们没有遵循健康建议)，或者担心他们成为阴谋论的受害者(如果他们加入了传播疫苗错误信息的脸书组织)。
 
@@ -14,11 +14,11 @@ Watch
 
 ### 试着感同身受
 
-这说起来容易做起来难，尤其是考虑到这种心态对COVID造成的大屠杀表现出的明显漠不关心。为了给自己省点痛苦，试着把这个人看成是你可能能够帮助的人，而不是需要被无情斥责的人。
+这说起来容易做起来难，尤其是考虑到这种心态对 COVID 造成的大屠杀表现出的明显漠不关心。为了给自己省点痛苦，试着把这个人看成是你可能能够帮助的人，而不是需要被无情斥责的人。
 
 在争执中，人们宁愿被交谈而不是被吼。虽然努力让某人相信客观现实令人抓狂，尤其是当风险如此巨大时，你必须保持冷静。试着去理解为什么这个人会有这样的感觉，去倾听他们的担忧，不管他们可能被误导了。
 
-作为 [、](https://urldefense.proofpoint.com/v2/url?u=https-3A__conductscience.com_leadership_&d=DwMF-g&c=aqMfXOEvEJQh2iQMCb7Wy8l0sPnURkcqADc2guUW8IM&r=qeW5mNKohu8xmIlEmLA3CjUmi2zeb4xByN7GQn0JW5E&m=aHJlHagVOXFz7Pqc4eQLm36JhrTZn6NL1QSzjx5vElI&s=iOo93jY4I4h43a5yjkPIN093QBhl2Y0hZC2xNu3daag&e=)、哈佛大学麻省总医院急诊科、[的一位内科医生在三月份告诉life hacker](https://lifehacker.com/how-to-convince-your-parents-or-grandparents-that-the-c-1842358582)、 :
+作为 [、](https://urldefense.proofpoint.com/v2/url?u=https-3A__conductscience.com_leadership_&d=DwMF-g&c=aqMfXOEvEJQh2iQMCb7Wy8l0sPnURkcqADc2guUW8IM&r=qeW5mNKohu8xmIlEmLA3CjUmi2zeb4xByN7GQn0JW5E&m=aHJlHagVOXFz7Pqc4eQLm36JhrTZn6NL1QSzjx5vElI&s=iOo93jY4I4h43a5yjkPIN093QBhl2Y0hZC2xNu3daag&e=)、哈佛大学麻省总医院急诊科、[的一位内科医生在三月份告诉 life hacker](https://lifehacker.com/how-to-convince-your-parents-or-grandparents-that-the-c-1842358582)、 :
 
 > 我认为，倾听人们的心声并努力倾听他们的关切是有道理的。听着，我是世界顶尖学府之一哈佛大学附属大医院的医生。我一生都在用免责声明、行话和技术术语说话，因为我们总是希望技术上正确。但是，当涉及到改变普通人的行为时，这些东西就不那么管用了。
 
@@ -44,9 +44,9 @@ Watch
 
 现在我们到了你一直在思考的部分。一旦你培养了足够的信任，你就必须坚定而冷静地反复强调现实。这在很大程度上可能取决于通过引用真实的事实和数字来反击他们在对话中带来的任何边缘信息。
 
-如果你缺少这些信息，只要看看新闻就知道了。首先，位于 [约翰·霍普金斯大学](https://coronavirus.jhu.edu/) 的冠状病毒资源中心是美国每日病例和死亡人数被引用最多的追踪者之一。除此之外，还有足够多的关于COVID的公共知识，你真的拥有帮助这个人所需的一切，至少开始考虑你的观点。
+如果你缺少这些信息，只要看看新闻就知道了。首先，位于 [约翰·霍普金斯大学](https://coronavirus.jhu.edu/) 的冠状病毒资源中心是美国每日病例和死亡人数被引用最多的追踪者之一。除此之外，还有足够多的关于 COVID 的公共知识，你真的拥有帮助这个人所需的一切，至少开始考虑你的观点。
 
-口罩做 [有助于减少传播](https://vitals.lifehacker.com/how-masks-protect-us-from-the-coronavirus-1844220877)[漱口水治不了COVID](https://vitals.lifehacker.com/sorry-mouthwash-isnt-a-coronavirus-cure-1845440818?_ga=2.33629857.1261694384.1605535513-1939164690.1604959108)[群体免疫不是万能的](https://vitals.lifehacker.com/herd-immunity-wont-save-us-1843006237)[冠状病毒可以通过空气传播](https://vitals.lifehacker.com/what-would-it-mean-if-the-coronavirus-is-airborne-1844281525) 等等情况。这只是你能以尊重的方式提出的观点的一个例子。
+口罩做 [有助于减少传播](https://vitals.lifehacker.com/how-masks-protect-us-from-the-coronavirus-1844220877)[漱口水治不了 COVID](https://vitals.lifehacker.com/sorry-mouthwash-isnt-a-coronavirus-cure-1845440818?_ga=2.33629857.1261694384.1605535513-1939164690.1604959108)[群体免疫不是万能的](https://vitals.lifehacker.com/herd-immunity-wont-save-us-1843006237)[冠状病毒可以通过空气传播](https://vitals.lifehacker.com/what-would-it-mean-if-the-coronavirus-is-airborne-1844281525) 等等情况。这只是你能以尊重的方式提出的观点的一个例子。
 
 ### 明白这可能行不通
 

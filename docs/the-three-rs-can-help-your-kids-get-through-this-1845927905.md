@@ -1,6 +1,6 @@
-# “三个R”可以帮助你的孩子度过难关
+# “三个 R”可以帮助你的孩子度过难关
 
-> 原文:[https://life hacker . com/the-three-RS-can-help-your-kids-through-this-1845927905](https://lifehacker.com/the-three-rs-can-help-your-kids-get-through-this-1845927905)
+> 原文：<https://lifehacker.com/the-three-rs-can-help-your-kids-get-through-this-1845927905>
 
 整整一年，家长们一直在担心疫情将对我们的孩子产生的长期影响，这是理所当然的:随着学校关闭，他们喜欢的活动被取消，他们的友谊不得不远距离进行，他们的心理健康，身体健康，学业和社交技能可能都受到了打击。
 
@@ -10,7 +10,7 @@ Watch
 
 当然，疫情的问题在于这种苦难的广度和深度。克服生活关闭几个星期是一回事；克服关闭一年以上的一切又是另一回事。但是我们可以做些事情来帮助我们的孩子度过难关。
 
-劳拉·桑塔纳姆最近为 [PBS新闻时间](https://www.pbs.org/newshour/health/how-to-help-kids-build-resilience-amid-covid-19-chaos?fbclid=IwAR0F_Ovd4Na1xaQUWILzdRuu80mWnqj0co6cwjgeC6TrZOGgvcfosyvzuXs) 报道了这个话题，而为 [儿童趋势](https://www.childtrends.org/) 指导早期儿童研究的杰西卡·巴特利特告诉她，父母应该依靠“三个R”——安慰、常规和监管。
+劳拉·桑塔纳姆最近为 [PBS 新闻时间](https://www.pbs.org/newshour/health/how-to-help-kids-build-resilience-amid-covid-19-chaos?fbclid=IwAR0F_Ovd4Na1xaQUWILzdRuu80mWnqj0co6cwjgeC6TrZOGgvcfosyvzuXs) 报道了这个话题，而为 [儿童趋势](https://www.childtrends.org/) 指导早期儿童研究的杰西卡·巴特利特告诉她，父母应该依靠“三个 R”——安慰、常规和监管。
 
 [桑塔南写道](https://www.pbs.org/newshour/health/how-to-help-kids-build-resilience-amid-covid-19-chaos?fbclid=IwAR0F_Ovd4Na1xaQUWILzdRuu80mWnqj0co6cwjgeC6TrZOGgvcfosyvzuXs) :
 

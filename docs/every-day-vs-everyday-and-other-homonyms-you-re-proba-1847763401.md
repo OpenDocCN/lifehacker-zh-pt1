@@ -1,6 +1,6 @@
 # “每天”和“天天”(以及其他你可能一直搞混的同音异义词)
 
-> 原文:[https://life hacker . com/every-day-vs-everyday-and-other-homomony-you-re-proba-1847763401](https://lifehacker.com/every-day-vs-everyday-and-other-homonyms-you-re-proba-1847763401)
+> 原文：<https://lifehacker.com/every-day-vs-everyday-and-other-homonyms-you-re-proba-1847763401>
 
 你可以原谅把“每天”和“日常”或者“任何人”和“任何一个人”搞混了。毕竟，它们听起来是一样的。但是这些同音异义词不能在写作中互换使用，否则会激怒英语老师和其他语法食尸鬼。幸运的是，很容易理解这些常见的发音相同的单词和短语之间的区别，你可能有时会混淆。
 
@@ -16,7 +16,7 @@ Watch
 
 *   她每天都穿着同样的厚底凉鞋。
 
-*(*我爱例外:“日常”也可以slangily用作名词，在“我正在习惯我的日常”这样的句子中表示类似“日常事务”的东西，但有点烦人。)*
+*(*我爱例外:“日常”也可以 slangily 用作名词，在“我正在习惯我的日常”这样的句子中表示类似“日常事务”的东西，但有点烦人。)*
 
 因为英语是一头脾气暴躁的野兽，管理其他发音相同的单词和短语(如“任何人”和“任何一个”或“每个人”和“每个人”)的规则略有不同。
 
@@ -28,7 +28,7 @@ Watch
 
 另一方面，“任何一个”是一个形容词短语，指一个群体中任何一个单独的、特定的人或事物。通常接在“of”后面
 
-*   例:土、风、火的任何一个成员都可以来我的pad要一个模糊的肚脐。
+*   例:土、风、火的任何一个成员都可以来我的 pad 要一个模糊的肚脐。
 
 ## 你应该用“每个人”还是“每一个人”？
 
@@ -42,7 +42,7 @@ Watch
 
 *   每一只流汗猪都没有通过测试，伍德曼先生很生气。
 
-记住这一点的方法是:当“every”和“one”在一起构成“everyone”时，他们指的是一个群体。当“每个”和“一个”分开时，你指的是个人。(我从 [得知grammarly.com](https://www.grammarly.com/blog/everyone-vs-every-one/#:~:text=Everyone%20(one%20word)%20should%20be,the%20people%20within%20a%20group.&text=Every%20one%20(two%20words)%20should,by%20an%20%E2%80%9Cof%E2%80%9D%20phrase.)T3】。)
+记住这一点的方法是:当“every”和“one”在一起构成“everyone”时，他们指的是一个群体。当“每个”和“一个”分开时，你指的是个人。(我从 [得知 grammarly.com](https://www.grammarly.com/blog/everyone-vs-every-one/#:~:text=Everyone%20(one%20word)%20should%20be,the%20people%20within%20a%20group.&text=Every%20one%20(two%20words)%20should,by%20an%20%E2%80%9Cof%E2%80%9D%20phrase.)T3】。)
 
 ## **“随时”和“任何时间”的区别**
 
@@ -52,13 +52,13 @@ Watch
 
 “任何时候”是一个名词短语，在以下句子中表示“不在特定时间”或“很快”:
 
-"随时来享受我的热水浴缸和Abba唱片！"还有“那个拿着安眠酮的家伙应该随时会来。”
+"随时来享受我的热水浴缸和 Abba 唱片！"还有“那个拿着安眠酮的家伙应该随时会来。”
 
 “任何时候”也是副词(“任何”)修饰名词(“时间”)，在类似“我没有时间去裸奔”的句子中。我正忙着给人烫发。”
 
 “任何时候”用作副词或连词。
 
-副词:“我随时准备去54演播室。”
+副词:“我随时准备去 54 演播室。”
 
 连词:“任何时候你想学麦克拉梅，给我打电话。”
 

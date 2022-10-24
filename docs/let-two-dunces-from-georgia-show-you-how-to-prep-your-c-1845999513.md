@@ -1,8 +1,8 @@
 # 让两个来自乔治亚州的傻瓜告诉你如何为冬天准备你的车
 
-> 原文:[https://jalopnik . com/let-two-duces-from-Georgia-show-you-how-to-prep-you-c-1845999513](https://jalopnik.com/let-two-dunces-from-georgia-show-you-how-to-prep-your-c-1845999513)
+> 原文：<https://jalopnik.com/let-two-dunces-from-georgia-show-you-how-to-prep-your-c-1845999513>
 
-冬天，一年中最美好的时光！充满节日欢乐、家庭聚会、路上结冰和疯狂的假日购物。嗯，今年冬天不会。这是一个与众不同的冬天，在这个冬天里，你可能会有一些空闲时间来准备你的车，以应对恶劣的条件。呆在家里，泡一杯热巧克力，拿出工具箱，亲爱的，因为我们正在讨论7件你可以为你的车做的事情。
+冬天，一年中最美好的时光！充满节日欢乐、家庭聚会、路上结冰和疯狂的假日购物。嗯，今年冬天不会。这是一个与众不同的冬天，在这个冬天里，你可能会有一些空闲时间来准备你的车，以应对恶劣的条件。呆在家里，泡一杯热巧克力，拿出工具箱，亲爱的，因为我们正在讨论 7 件你可以为你的车做的事情。
 
 你已经知道这是怎么回事了。 [冬天。轮胎。](https://jalopnik.com/reminder-yes-you-absolutely-need-winter-tires-even-if-1830590607) 如果你要应对寒冷月份的常规降雪，你需要考虑一套独立的冬季轮胎。据我们所知，如果你所在的地方不经常下雪，你可以在一个好的四季环境中度过。无论如何，只要确保你的轮胎不是光秃秃的，而且你运行的压力是合适的。
 
@@ -12,4 +12,4 @@
 
 如今，与心爱的人共度美好时光的机会很少，所以为什么不把你的孤独转移到你信任的车轮上呢？你会很高兴你做了。祝你好运！
 
-*要查看Jalopnik上更多的Gears & Queers，点击* [*这里。*](https://jalopnik.com/let-these-two-idiots-show-you-how-to-change-your-transm-1845890575)T8】
+*要查看 Jalopnik 上更多的 Gears & Queers，点击* [*这里。*](https://jalopnik.com/let-these-two-idiots-show-you-how-to-change-your-transm-1845890575)T8】

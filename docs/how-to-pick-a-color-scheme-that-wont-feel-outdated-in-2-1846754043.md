@@ -1,12 +1,12 @@
-# 如何挑选一个2年内都不会觉得过时的配色
+# 如何挑选一个 2 年内都不会觉得过时的配色
 
-> 原文:[https://life hacker . com/how-to-pick-a-color-scheme-the-wot-to-feel-out-in-2-1846754043](https://lifehacker.com/how-to-pick-a-color-scheme-that-wont-feel-outdated-in-2-1846754043)
+> 原文：<https://lifehacker.com/how-to-pick-a-color-scheme-that-wont-feel-outdated-in-2-1846754043>
 
 一旦你决定粉刷房子的内部——甚至只是一个房间——下一个决定就更难了:选择配色方案。也许你真的喜欢淡黄色，但是你担心做出那样的承诺。或者也许你提到你已经决定画画，每个人都告诉你你的选择是白色、米色、灰色或灰色，但你讨厌住在这样一个平淡无奇的地方。
 
 Watch
 
-关键是，选择配色方案并不总是容易的。幸运的是，有一些策略可以让这项任务不那么令人生畏。谢尔比·迪林在为Hunker撰写的一篇文章中对它们进行了分类。 这里有什么要知道的。
+关键是，选择配色方案并不总是容易的。幸运的是，有一些策略可以让这项任务不那么令人生畏。谢尔比·迪林在为 Hunker 撰写的一篇文章中对它们进行了分类。 这里有什么要知道的。
 
 ### 配色方案的类型
 

@@ -1,8 +1,8 @@
 # 忘了奥利维亚·维尔德吧，你的“特制沙拉酱”里有什么？
 
-> 原文:[https://life hacker . com/forget-Olivia-Wilde-what-in-your-special-salad-dressi-1849673100](https://lifehacker.com/forget-olivia-wilde-whats-in-your-special-salad-dressi-1849673100)
+> 原文：<https://lifehacker.com/forget-olivia-wilde-whats-in-your-special-salad-dressi-1849673100>
 
-昨天，《每日邮报》发布了一篇关于奥利维亚·维尔德和杰森·苏代、、[分手的“内幕”的](https://jezebel.com/jason-sudeikis-olivia-wilde-breakup-nanny-harry-styles-1849667719) [独家报道](https://www.dailymail.co.uk/news/article-11299523/Jason-Sudeikis-tried-prevent-Olivia-Wilde-seeing-Harry-Styles-fight.html)、、充斥着他们匿名前保姆的短信和轶事。整件事非常混乱和悲伤，虽然这对夫妇谴责了这些“虚假和下流的指控”，但互联网似乎不太关心耸人听闻的细节，而是更关心王尔德的“ [特制沙拉酱](https://www.newsweek.com/whats-olivia-wildes-special-salad-dressing-internet-dying-know-1752577) ”的内容，据称这是她制作并提供给哈里·斯泰尔斯的，这让Sudekis很生气。
+昨天，《每日邮报》发布了一篇关于奥利维亚·维尔德和杰森·苏代、、[分手的“内幕”的](https://jezebel.com/jason-sudeikis-olivia-wilde-breakup-nanny-harry-styles-1849667719) [独家报道](https://www.dailymail.co.uk/news/article-11299523/Jason-Sudeikis-tried-prevent-Olivia-Wilde-seeing-Harry-Styles-fight.html)、、充斥着他们匿名前保姆的短信和轶事。整件事非常混乱和悲伤，虽然这对夫妇谴责了这些“虚假和下流的指控”，但互联网似乎不太关心耸人听闻的细节，而是更关心王尔德的“ [特制沙拉酱](https://www.newsweek.com/whats-olivia-wildes-special-salad-dressing-internet-dying-know-1752577) ”的内容，据称这是她制作并提供给哈里·斯泰尔斯的，这让 Sudekis 很生气。
 
 Watch
 

@@ -1,8 +1,8 @@
-# 如何升级2021，与酷工具的马克·弗劳恩菲尔德和凯文·凯利
+# 如何升级 2021，与酷工具的马克·弗劳恩菲尔德和凯文·凯利
 
-> 原文:[https://life hacker . com/how-to-upgrade-2021-with-cool-tools-mark-frauenfelder-1846086251](https://lifehacker.com/how-to-upgrade-2021-with-cool-tools-mark-frauenfelder-1846086251)
+> 原文：<https://lifehacker.com/how-to-upgrade-2021-with-cool-tools-mark-frauenfelder-1846086251>
 
-本周我们将学习在2021年提升我们生活所需的工具和技术，马克·弗劳恩菲尔德和凯文·凯利将帮助我们——他们是“酷工具播客”和“酷工具博客”的主持人。听听马克和凯文的建议，看看他们能从最好的工作- 中得到什么- 家庭体验，他们最喜欢的2020年的新技术，以及他们对后疫情时代工作前景的预期。
+本周我们将学习在 2021 年提升我们生活所需的工具和技术，马克·弗劳恩菲尔德和凯文·凯利将帮助我们——他们是“酷工具播客”和“酷工具博客”的主持人。听听马克和凯文的建议，看看他们能从最好的工作- 中得到什么- 家庭体验，他们最喜欢的 2020 年的新技术，以及他们对后疫情时代工作前景的预期。
 
 Watch
 
@@ -10,7 +10,7 @@ Watch
 
 T2】
 
-听听上面的升级或者在所有通常提供播客的地方找到我们，包括[Google Play](https://play.google.com/music/listen?u=0#/ps/Illldmn6f4jkwb32lslhae3laru)[Spotify](https://open.spotify.com/show/43qzAEOZ861D4aXaBXaRKj)[iHeartRadio](https://www.iheart.com/podcast/8-The-Upgrade-by-Lifehacker-28037794)和NPR一号。
+听听上面的升级或者在所有通常提供播客的地方找到我们，包括[Google Play](https://play.google.com/music/listen?u=0#/ps/Illldmn6f4jkwb32lslhae3laru)[Spotify](https://open.spotify.com/show/43qzAEOZ861D4aXaBXaRKj)[iHeartRadio](https://www.iheart.com/podcast/8-The-Upgrade-by-Lifehacker-28037794)和 NPR 一号。
 
 ## **本周集锦**
 
@@ -24,9 +24,9 @@ T2】
 
 > 我更喜欢在开始的时候找到便宜和免费的东西，以弄清楚我想从中得到什么，如果我会经常使用它，我真的想继续使用它。然后，当我使用这样的工具或发现它的质量让我欣赏时，我就开始购买这种终身工具。我不是从终生工具开始的。这与许多其他人关于工具的政策相反，因为他们想要最好的。为什么不买你买得起的最好的呢？我是说，即使我付得起，我也付不起。我会从便宜开始，作为一种策略来找出我想要什么。与此同时，如果我长时间使用一个工具，那么我肯定想升级它。
 
-要听更多Mark和Kevin关于寻找最佳工具的建议，我们建议听完整集。
+要听更多 Mark 和 Kevin 关于寻找最佳工具的建议，我们建议听完整集。
 
-对未来的剧集有什么反馈或想法吗？想上节目吗？请拨打347-687-8109给我们留言，或者给upgrade@lifehacker.com发送语音备忘录。
+对未来的剧集有什么反馈或想法吗？想上节目吗？请拨打 347-687-8109 给我们留言，或者给 upgrade@lifehacker.com 发送语音备忘录。
 
 ### **一集文字记录**
 

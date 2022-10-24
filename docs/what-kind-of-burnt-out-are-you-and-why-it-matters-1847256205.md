@@ -1,6 +1,6 @@
 # 你是哪种精疲力竭的人？(以及为什么它很重要)
 
-> 原文:[https://life hacker . com/what-kind-of-burn-out-of-you-and-why-it-matters-1847256205](https://lifehacker.com/what-kind-of-burnt-out-are-you-and-why-it-matters-1847256205)
+> 原文：<https://lifehacker.com/what-kind-of-burnt-out-are-you-and-why-it-matters-1847256205>
 
 Watch
 

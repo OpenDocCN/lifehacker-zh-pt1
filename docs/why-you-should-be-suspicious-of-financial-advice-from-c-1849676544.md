@@ -1,8 +1,8 @@
 # 为什么你应该怀疑名人的理财建议
 
-> 原文:[https://life hacker . com/why-you-should-suspect-of-financial-advice-from-c-1849676544](https://lifehacker.com/why-you-should-be-suspicious-of-financial-advice-from-c-1849676544)
+> 原文：<https://lifehacker.com/why-you-should-be-suspicious-of-financial-advice-from-c-1849676544>
 
-本月早些时候，美国证券交易委员会(SEC) [宣布指控金·卡戴珊](https://www.sec.gov/news/press-release/2022-183) 在社交媒体上兜售加密技术，而 未能披露她是有偿这样做的。卡戴珊同意以126万美元勉强接受，但她远不是唯一一个大明星为了 [推密码产品](https://www.nytimes.com/2022/05/17/business/media/crypto-gwyneth-paltrow-matt-damon-reese-witherspoon.html) 而没有明确表示自己的帖子我们重新赞助。这还不算更不用说 [那些加密资产后来价值](https://www.bloomberg.com/features/2022-crypto-celebrity-endorsements/) 暴跌。
+本月早些时候，美国证券交易委员会(SEC) [宣布指控金·卡戴珊](https://www.sec.gov/news/press-release/2022-183) 在社交媒体上兜售加密技术，而 未能披露她是有偿这样做的。卡戴珊同意以 126 万美元勉强接受，但她远不是唯一一个大明星为了 [推密码产品](https://www.nytimes.com/2022/05/17/business/media/crypto-gwyneth-paltrow-matt-damon-reese-witherspoon.html) 而没有明确表示自己的帖子我们重新赞助。这还不算更不用说 [那些加密资产后来价值](https://www.bloomberg.com/features/2022-crypto-celebrity-endorsements/) 暴跌。
 
 Watch
 
@@ -10,9 +10,9 @@ Watch
 
 ## 名人被要求把付费广告做得清清楚楚
 
-[美国证券交易委员会规定](https://www.sec.gov/news/press-release/2022-183) 如果名人没有明确披露他们是付费广告，那么他们的投资推广可能是非法的。过去，所有类型的投资建议都是如此，但美国证交会的警告越来越多地聚焦于名人在高度动荡的加密世界中推销资产。不幸的是，Instagram视频角落的“#ad”经常被忽视。
+[美国证券交易委员会规定](https://www.sec.gov/news/press-release/2022-183) 如果名人没有明确披露他们是付费广告，那么他们的投资推广可能是非法的。过去，所有类型的投资建议都是如此，但美国证交会的警告越来越多地聚焦于名人在高度动荡的加密世界中推销资产。不幸的是，Instagram 视频角落的“#ad”经常被忽视。
 
-“这是一个高度投机的资产类别，所以当一个名人或有影响力的人吹捧它时，公众理解这种关系很重要，他们得到报酬了吗？他们在Instagram网站上能拿到多少钱？这就是问题所在，”证交会主席加里·詹斯勒 [在一次采访中告诉美国消费者新闻与商业频道](https://www.cnbc.com/video/2022/10/03/sec-chair-gary-gensler-breaks-down-charges-against-kim-kardashian-over-a-crypto-promo.html) 该机构对金·卡戴珊的指控。
+“这是一个高度投机的资产类别，所以当一个名人或有影响力的人吹捧它时，公众理解这种关系很重要，他们得到报酬了吗？他们在 Instagram 网站上能拿到多少钱？这就是问题所在，”证交会主席加里·詹斯勒 [在一次采访中告诉美国消费者新闻与商业频道](https://www.cnbc.com/video/2022/10/03/sec-chair-gary-gensler-breaks-down-charges-against-kim-kardashian-over-a-crypto-promo.html) 该机构对金·卡戴珊的指控。
 
 ## 对秘密建议持怀疑态度
 
@@ -23,4 +23,4 @@ Watch
 *   他们的资质如何？为某项投资背书的名人通常没有足够的专业知识来确保该项投资是适当的，并且符合联邦证券法。
 *   你自己做过调查吗？如果你依赖某个特定的认可或推荐，多了解一下推广者和公司之间的关系，考虑一下推荐是否真正独立或有偿推广。
 
-[Money.com同意](https://money.com/investing-advice-celebrities-sec/)“听取专家们的建议进行你自己的研究，”而不是相信你最喜欢的名人的话“谁最有可能得到报酬来告诉你一些公司想让你听的话。r 记住与股票和债券相比， [密码风险特别大](https://lifehacker.com/is-the-crypto-bubble-going-to-burst-1848475768) 。如果你要冒这个险，确保是一个消息灵通的人，不要让付费的名人做你的向导。
+[Money.com 同意](https://money.com/investing-advice-celebrities-sec/)“听取专家们的建议进行你自己的研究，”而不是相信你最喜欢的名人的话“谁最有可能得到报酬来告诉你一些公司想让你听的话。r 记住与股票和债券相比， [密码风险特别大](https://lifehacker.com/is-the-crypto-bubble-going-to-burst-1848475768) 。如果你要冒这个险，确保是一个消息灵通的人，不要让付费的名人做你的向导。

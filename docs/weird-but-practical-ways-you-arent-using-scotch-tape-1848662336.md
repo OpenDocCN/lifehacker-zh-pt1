@@ -1,6 +1,6 @@
 # 透明胶带奇怪但令人惊讶的实际用途
 
-> 原文:[https://life hacker . com/verged-but-practical-ways-you-arent-use-scotch-tape-1848662336](https://lifehacker.com/weird-but-practical-ways-you-arent-using-scotch-tape-1848662336)
+> 原文：<https://lifehacker.com/weird-but-practical-ways-you-arent-using-scotch-tape-1848662336>
 
 我们都知道透明胶带在包装礼物、连接错误的纸片和修补破损的书页时的优点。但事实证明，我们可能睡在这种胶带的一些鲜为人知，但同样有用的应用上。这里有一些创造性的方法来使用它，不仅仅是基本的。
 
@@ -12,7 +12,7 @@ Watch
 
 修补磨损的鞋带。如果你的鞋带末端破损严重，无法穿过鞋带孔，用一条胶带将它重新变窄变整齐——这应该可以持续到更换鞋带。
 
-自己制作棉绒滚筒。是，T3】实际皮棉辊存在T5】。但有时，即使作为正常的成年人，当我们需要时，我们身边也没有一个。输入透明胶带:将它大量缠绕(粘性面朝外)在毛刷或空卫生纸卷筒的手柄上。瞧，DIY去绒效果最好。
+自己制作棉绒滚筒。是，T3】实际皮棉辊存在 T5】。但有时，即使作为正常的成年人，当我们需要时，我们身边也没有一个。输入透明胶带:将它大量缠绕(粘性面朝外)在毛刷或空卫生纸卷筒的手柄上。瞧，DIY 去绒效果最好。
 
 **整齐地插花。**将一条条胶带以十字交叉的方式重叠在一起，在花瓶的顶部 [制作一个均匀间隔的网格](https://www.scotchbrand.com/3M/en_US/scotch-brand/tips-uses/tape-hacks/) 。将花放在胶带之间的空白方格中，以确保它们的间距合适，并且直立美观。
 

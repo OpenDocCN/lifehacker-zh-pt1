@@ -1,8 +1,8 @@
 # 用甜瓜搅拌机做出更圆更漂亮的松露
 
-> 原文:[https://life hacker . com/make-rounder-beautiful-truffles-with a melon-baller-1848228175](https://lifehacker.com/make-rounder-prettier-truffles-with-a-melon-baller-1848228175)
+> 原文：<https://lifehacker.com/make-rounder-prettier-truffles-with-a-melon-baller-1848228175>
 
-松露巧克力是甜点世界的奶酪球(T2，T3):T4，高效，省力，T5，T6总能取悦大众。制作它们所需要的只是高质量的巧克力、某种乳制品，以及美味的粉末、碎坚果或撒在上面。你可以用手塑造ganache，营造一种质朴、自制的氛围，但如果你想要一种抛光的巧克力外观的松露，那就去拿一个磨瓜机吧。
+松露巧克力是甜点世界的奶酪球(T2，T3):T4，高效，省力，T5，T6 总能取悦大众。制作它们所需要的只是高质量的巧克力、某种乳制品，以及美味的粉末、碎坚果或撒在上面。你可以用手塑造 ganache，营造一种质朴、自制的氛围，但如果你想要一种抛光的巧克力外观的松露，那就去拿一个磨瓜机吧。
 
 Watch
 
@@ -10,8 +10,8 @@ Watch
 
 ## 三个简单的松露食谱
 
-但在我们开始之前，让我们花点时间来欣赏一下你可以用来制作ganache的巧克力和乳制品的各种组合。你可以 [保持经典](https://lifehacker.com/make-perfect-chocolate-truffles-with-just-two-ingredien-1757912085) ，12盎司巧克力(深色或牛奶)和2/3杯重奶油；你可以用3杯半甜巧克力片、8盎司奶油奶酪和3杯糖粉制作T5】黑松露；或者你可以将等量的 [鲜奶油和黑巧克力](https://food52.com/recipes/87057-best-chocolate-truffles-recipe) 混合在一起，加入一点乳酸的味道。
+但在我们开始之前，让我们花点时间来欣赏一下你可以用来制作 ganache 的巧克力和乳制品的各种组合。你可以 [保持经典](https://lifehacker.com/make-perfect-chocolate-truffles-with-just-two-ingredien-1757912085) ，12 盎司巧克力(深色或牛奶)和 2/3 杯重奶油；你可以用 3 杯半甜巧克力片、8 盎司奶油奶酪和 3 杯糖粉制作 T5】黑松露；或者你可以将等量的 [鲜奶油和黑巧克力](https://food52.com/recipes/87057-best-chocolate-truffles-recipe) 混合在一起，加入一点乳酸的味道。
 
 无论你选择哪种组合，过程都是一样的:轻轻融化巧克力，加入牛奶(和糖粉，，如果你用的是，然后在冰箱里冷却和/或冷藏直到变硬。*现在*你会想要拿起你的瓜球。
 
-将你的固体ganache舀进干净的小球中，然后将球放入可可粉、粉末、碎椒盐卷饼、薯片、碎石南条、碎椰子或碎坚果中。立即食用，或者如果需要的话，把它们放回冰箱里冷藏。不过，如果你能等那么久的话，你会想在上菜前把它们(T2)调到室温。
+将你的固体 ganache 舀进干净的小球中，然后将球放入可可粉、粉末、碎椒盐卷饼、薯片、碎石南条、碎椰子或碎坚果中。立即食用，或者如果需要的话，把它们放回冰箱里冷藏。不过，如果你能等那么久的话，你会想在上菜前把它们(T2)调到室温。

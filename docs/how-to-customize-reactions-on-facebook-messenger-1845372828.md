@@ -1,14 +1,14 @@
-# 如何在Facebook Messenger上自定义反应
+# 如何在 Facebook Messenger 上自定义反应
 
-> 原文:[https://life hacker . com/how-to-customize-reactions-on-Facebook-messenger-1845372828](https://lifehacker.com/how-to-customize-reactions-on-facebook-messenger-1845372828)
+> 原文：<https://lifehacker.com/how-to-customize-reactions-on-facebook-messenger-1845372828>
 
-脸书刚刚更新了它的Messenger应用，当看到 [那个明亮的、刷新过的紫红logo](https://www.engadget.com/facebook-messenger-app-redesign-140445037.html) 的时候，大概就意识到了。可爱的新ook更像是一个先驱:不久，Facebook Messenger将与Instagram集成，无论你使用哪个应用程序，你都可以在两个平台上与你的朋友聊天。
+脸书刚刚更新了它的 Messenger 应用，当看到 [那个明亮的、刷新过的紫红 logo](https://www.engadget.com/facebook-messenger-app-redesign-140445037.html) 的时候，大概就意识到了。可爱的新 ook 更像是一个先驱:不久，Facebook Messenger 将与 Instagram 集成，无论你使用哪个应用程序，你都可以在两个平台上与你的朋友聊天。
 
 Watch
 
-无论你喜欢它，讨厌它，还是已经准备离开一个“真正的诀窍是离开脸书，混蛋”评论这篇文章，当你等待脸书的奇点形成并吸收它所涉及的所有内容时，Messenger实际上有一些*微小的*变化值得了解。第一点，也是最重要的一点，是消除那种难看的竖起大拇指的反应。
+无论你喜欢它，讨厌它，还是已经准备离开一个“真正的诀窍是离开脸书，混蛋”评论这篇文章，当你等待脸书的奇点形成并吸收它所涉及的所有内容时，Messenger 实际上有一些*微小的*变化值得了解。第一点，也是最重要的一点，是消除那种难看的竖起大拇指的反应。
 
-### 如何在Facebook Messenger上创建自定义反应列表
+### 如何在 Facebook Messenger 上创建自定义反应列表
 
 你不再受少数不同表情符号的束缚，无法对聊天中的评论做出反应。长按某人说过的任何内容，您将看到这个新窗口弹出:
 
@@ -16,7 +16,7 @@ Watch
 
 * * *
 
-### **如何启用Facebook Messenger的新聊天主题**
+### **如何启用 Facebook Messenger 的新聊天主题**
 
 打开一个对话，点击顶部的名字(或名字列表)，点击“主题”,从中为你的对话选择各种不同的颜色变化——包括一个全新的万圣节主题。*哦哦哦。*
 
@@ -32,6 +32,6 @@ Watch
 
  [https://lifehacker.com/embed/inset/iframe?id=twitter-1311326937625706497&autosize=1](https://lifehacker.com/embed/inset/iframe?id=twitter-1311326937625706497&autosize=1) 
 
-我还不能在Messenger上使用这个功能，但脸书也推出了一个新的“消失”模式，你可以用它在私人聊天中创建消失的消息。在和你聊天的另一个人看过他们之后，他们会消失，他们应该同时处理文本*和*图片。是的，我知道你在想什么。)
+我还不能在 Messenger 上使用这个功能，但脸书也推出了一个新的“消失”模式，你可以用它在私人聊天中创建消失的消息。在和你聊天的另一个人看过他们之后，他们会消失，他们应该同时处理文本*和*图片。是的，我知道你在想什么。)
 
-这有点像Messenger中已经内置的“秘密对话”,但实现起来要简单得多。你只需在聊天中向上滑动就可以切换到消失模式，而不是创建一个单独的秘密对话，设置你希望你的消息保留多长时间的指导原则，等等。多想想这个...路过的秘密消息。
+这有点像 Messenger 中已经内置的“秘密对话”,但实现起来要简单得多。你只需在聊天中向上滑动就可以切换到消失模式，而不是创建一个单独的秘密对话，设置你希望你的消息保留多长时间的指导原则，等等。多想想这个...路过的秘密消息。

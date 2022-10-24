@@ -1,6 +1,6 @@
 # 如何处理兄弟间的竞争
 
-> 原文:[https://life hacker . com/how-to-manage-sibling-rivals-1846465156](https://lifehacker.com/how-to-manage-sibling-rivalries-1846465156)
+> 原文：<https://lifehacker.com/how-to-manage-sibling-rivalries-1846465156>
 
 如果你有不止一个孩子，你可能已经注意到他们并不总是相处融洽。尤其是现在，冬天的天气和疫情让我们大部分时间都呆在家里，兄弟姐妹之间的竞争可能已经达到了以前看起来深不可测的高度。坏消息是:兄弟间的竞争本质上是不可避免的。好消息是:你*可以*以减少冲突的方式管理他们。
 

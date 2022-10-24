@@ -1,8 +1,8 @@
 # 为什么你不应该相信新车窗贴上的燃料成本估算
 
-> 原文:[https://life hacker . com/why-you-should-trust-fuel-cost-estimates-on-new-car-w-1849125349](https://lifehacker.com/why-you-shouldnt-trust-fuel-cost-estimates-on-new-car-w-1849125349)
+> 原文：<https://lifehacker.com/why-you-shouldnt-trust-fuel-cost-estimates-on-new-car-w-1849125349>
 
-购买一辆新车一直是一项重大投资，在每个人都感受到通货膨胀压力的时候，考虑到现在的成本，以及随着时间的推移与使用和维护它相关的费用尤为重要。随着汽油价格徘徊在5美元/加仑左右，汽车的燃油效率可能会成为购买时的决定性因素。
+购买一辆新车一直是一项重大投资，在每个人都感受到通货膨胀压力的时候，考虑到现在的成本，以及随着时间的推移与使用和维护它相关的费用尤为重要。随着汽油价格徘徊在 5 美元/加仑左右，汽车的燃油效率可能会成为购买时的决定性因素。
 
 Watch
 
@@ -14,9 +14,9 @@ Watch
 
 ## **为什么车窗贴纸上的燃油成本估算不准确**
 
-根据消费者报告，事实证明，美国环保署和美国能源情报署提供给汽车制造商用于计算一年和五年燃料成本估算的数据是两年前的。例如，2023车型年的燃料成本预测是在2021年11月计算的。
+根据消费者报告，事实证明，美国环保署和美国能源情报署提供给汽车制造商用于计算一年和五年燃料成本估算的数据是两年前的。例如，2023 车型年的燃料成本预测是在 2021 年 11 月计算的。
 
-以前，两年的计算延迟并不遥远，但在过去几个月天然气价格大幅上涨后，过时的估计不再准确。事实上，当《消费者报告》 [的专家计算](https://www.consumerreports.org/buying-a-car/car-window-sticker-fuel-estimates-are-inaccurate-outdated-a1072412298/) 时，他们发现一些五年燃料成本预测的误差超过1万美元。
+以前，两年的计算延迟并不遥远，但在过去几个月天然气价格大幅上涨后，过时的估计不再准确。事实上，当《消费者报告》 [的专家计算](https://www.consumerreports.org/buying-a-car/car-window-sticker-fuel-estimates-are-inaccurate-outdated-a1072412298/) 时，他们发现一些五年燃料成本预测的误差超过 1 万美元。
 
 另一个要考虑的因素是，所有的燃料成本估算都是使用普通汽油的价格进行的——即使制造商建议车辆使用优质燃料。
 

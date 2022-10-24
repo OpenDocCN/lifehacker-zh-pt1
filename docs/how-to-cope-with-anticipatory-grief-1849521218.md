@@ -1,6 +1,6 @@
 # 如何应对预期悲伤
 
-> 原文:[https://life hacker . com/how-to-应付-预期-悲伤-1849521218](https://lifehacker.com/how-to-cope-with-anticipatory-grief-1849521218)
+> 原文：<https://lifehacker.com/how-to-cope-with-anticipatory-grief-1849521218>
 
 失去之后，悲伤是艰难而复杂的，但是一些人可能会发现自己在处理 [预期悲伤](https://www.verywellhealth.com/understanding-anticipatory-grief-and-symptoms-2248855) ，这是在失去之前*到来的悲伤。预期悲伤可能发生在这样的情况下，比如当一个朋友或家人被诊断患有绝症时——当知道损失即将到来，但它还没有发生。* 
 

@@ -1,8 +1,8 @@
 # 如何在没有保险(或金钱)的情况下获得牙科保健
 
-> 原文:[https://life hacker . com/how-to-get-dental care-no-insurance or-money-1849642862](https://lifehacker.com/how-to-get-dental-care-without-insurance-or-money-1849642862)
+> 原文：<https://lifehacker.com/how-to-get-dental-care-without-insurance-or-money-1849642862>
 
-美国的大多数“健康”保险计划不包括两个非常重要的东西:我们的视力和你的牙齿。虽然健康保险在这个国家是一场垃圾大火，但没有什么比得上 [牙科保险](https://lifehacker.com/is-dental-insurance-worth-it-1840267563) 的彻底无用。任何曾经需要大量牙科工作的人都知道，即使*有*牙科保险 [你的自付费用也是天文数字](https://www.consumerreports.org/insurance/private-dental-insurance-think-twice-before-buying/) 。事实上，许多人甚至不认为牙科保险是真正的保险，因为大多数人支付的保险费比他们得到的收益要多。虽然医疗补助可以提供牙科保健，但它的牙科覆盖范围因州而异，在21岁后显著下降，只有大约40%的牙医接受它。这就是为什么这个国家多达7400万人根本没有任何牙科保险的一个重要原因。
+美国的大多数“健康”保险计划不包括两个非常重要的东西:我们的视力和你的牙齿。虽然健康保险在这个国家是一场垃圾大火，但没有什么比得上 [牙科保险](https://lifehacker.com/is-dental-insurance-worth-it-1840267563) 的彻底无用。任何曾经需要大量牙科工作的人都知道，即使*有*牙科保险 [你的自付费用也是天文数字](https://www.consumerreports.org/insurance/private-dental-insurance-think-twice-before-buying/) 。事实上，许多人甚至不认为牙科保险是真正的保险，因为大多数人支付的保险费比他们得到的收益要多。虽然医疗补助可以提供牙科保健，但它的牙科覆盖范围因州而异，在 21 岁后显著下降，只有大约 40%的牙医接受它。这就是为什么这个国家多达 7400 万人根本没有任何牙科保险的一个重要原因。
 
 Watch
 
@@ -18,7 +18,7 @@ Watch
 
 在这个国家的几乎每个地区，都有免费和低成本的公共牙科诊所，它们采用基于收入和保险范围的浮动比例。你可以通过搜索找到他们。许多非营利组织也在展会和其他公共活动中举办牙科诊所，而 [美国牙医保健基金会](https://adcf.net/clinic-schedule/) 在他们的网站上跟踪这些活动，所以你可以看到未来几个月是否会有人前往你所在的地区。联合之路还维护着一个可以帮助你的紧急和低成本牙科服务目录。
 
-如果您正在治疗残疾或超过65岁且无力负担口腔健康服务，您可以联系 [牙科生命线网络](https://dentallifeline.org/about-us/) 。牙医志愿为DLN贡献他们的时间和服务，以帮助社会上最弱势的群体。如果是你，他们也许能帮上忙。最后，全国有数百家由联邦政府资助的公共卫生中心提供低成本的口腔保健。您可以在 [健康资源&服务管理局](https://findahealthcenter.hrsa.gov/) 网站上找到您所在地区的名单。
+如果您正在治疗残疾或超过 65 岁且无力负担口腔健康服务，您可以联系 [牙科生命线网络](https://dentallifeline.org/about-us/) 。牙医志愿为 DLN 贡献他们的时间和服务，以帮助社会上最弱势的群体。如果是你，他们也许能帮上忙。最后，全国有数百家由联邦政府资助的公共卫生中心提供低成本的口腔保健。您可以在 [健康资源&服务管理局](https://findahealthcenter.hrsa.gov/) 网站上找到您所在地区的名单。
 
 ## 你的牙医
 
@@ -26,4 +26,4 @@ Watch
 
 ## 临床试验
 
-虽然希望渺茫，但如果你的口腔健康需求超出了最常见的程序，你可以搜索一个适用的临床试验。临床试验通常提供免费的基本医疗保健作为试验的一部分，如果你有特定的疾病，这可能是一种不用花一分钱就能获得尖端治疗的方法。ClinicalTrials.gov政府的是一个很好的起点，而 [WCG中心观察](https://www.centerwatch.com/clinical-trials/listings/therapeutic-area/2/dental-and-oral-health/) 保存着一份正在进行的牙齿和口腔健康试验的清单。
+虽然希望渺茫，但如果你的口腔健康需求超出了最常见的程序，你可以搜索一个适用的临床试验。临床试验通常提供免费的基本医疗保健作为试验的一部分，如果你有特定的疾病，这可能是一种不用花一分钱就能获得尖端治疗的方法。ClinicalTrials.gov 政府的是一个很好的起点，而 [WCG 中心观察](https://www.centerwatch.com/clinical-trials/listings/therapeutic-area/2/dental-and-oral-health/) 保存着一份正在进行的牙齿和口腔健康试验的清单。

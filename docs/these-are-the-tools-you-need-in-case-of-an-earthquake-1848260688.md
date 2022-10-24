@@ -1,6 +1,6 @@
 # 这些是你在地震、洪水或野火发生时需要的工具
 
-> 原文:[https://life hacker . com/these-is-the-tools-you-case-of-an-stationary-1848260688](https://lifehacker.com/these-are-the-tools-you-need-in-case-of-an-earthquake-1848260688)
+> 原文：<https://lifehacker.com/these-are-the-tools-you-need-in-case-of-an-earthquake-1848260688>
 
 美国的不同地区容易遭受不同类型的自然灾害。虽然你手头可能已经有一个基本的急救包，里面有食物、水和急救箱，但你可以——也应该——投资购买其他工具，这取决于你居住的地方和你附近最有可能发生的自然灾害的类型。
 
@@ -24,6 +24,6 @@ Watch
 
 美国西海岸的主要野火越来越常见。这些野火会导致人员疏散、有毒空气，当然还会烧毁房屋。在大多数野火的情况下，当务之急是迅速撤离，但如果你有时间，你也许可以做一些事情来保护你的家。如果你在一个煤渣和火花可能被吹到你的院子里和屋顶上的地区，使用一根超长的花园软管来浇灌这个地区和你的屋顶是一个常见的安全措施。在某些情况下，清除你院子里的过度生长和长草或枯叶也有助于防止损害。
 
-有一个或两个额外的熔炉或HVAC过滤器，额定为烟雾(MERV 10以上)是为野火季节做准备的一个聪明的方法。炉灰和煤烟会很快堵塞过滤器，所以在灾难来临，镇上所有五金店都卖光之前，准备一个备用的。
+有一个或两个额外的熔炉或 HVAC 过滤器，额定为烟雾(MERV 10 以上)是为野火季节做准备的一个聪明的方法。炉灰和煤烟会很快堵塞过滤器，所以在灾难来临，镇上所有五金店都卖光之前，准备一个备用的。
 
-准备一个“旅行包”也是一个好主意。你可以得到 [防火包](https://www.amazon.com/Fireproof-Waterproof-Money-Document-Bag/dp/B08PBDJBX6/ref=pd_lpo_3?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/these-are-the-tools-you-need-in-case-of-an-earthquake-1848260688&asc_source=&pd_rd_i=B08PBDJBX6&psc=1&tag=kinjalifehackerlink-20) 来保护你的装备和重要文件，万一房子着火，它们也是很好的选择。如果你需要在烟雾弥漫的环境中旅行，一个配有合适过滤筒的好的呼吸器会有很大的帮助。一个呼吸器或者一个 [N95口罩](https://www.amazon.com/Black-Safety-Breathable-Elastic-Bridge/dp/B08P3JZ95C/ref=sr_1_1_sspa?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/these-are-the-tools-you-need-in-case-of-an-earthquake-1848260688&asc_source=&crid=5X5NJNS76AEU&keywords=n95 mask&psc=1&qid=1640205467&spLa=ZW5jcnlwdGVkUXVhbGlmaWVyPUFQTUhGTUVQS0UwUU0mZW5jcnlwdGVkSWQ9QTAxMDA2MTYzNDhXTTBOQkhWTTEzJmVuY3J5cHRlZEFkSWQ9QTA4MTkwMTgyR1dKVjhaQk05SkZXJndpZGdldE5hbWU9c3BfYXRmJmFjdGlvbj1jbGlja1JlZGlyZWN0JmRvTm90TG9nQ2xpY2s9dHJ1ZQ==&sprefix=n95 ,aps,165&sr=8-1-spons&tag=kinjalifehackerlink-20) 可以帮助保护你的肺部免受烟尘的侵害。在紧急情况下准备一些这样的装备是个好主意，这样你就不会在灾难中耗尽急救人员可用的安全装备。
+准备一个“旅行包”也是一个好主意。你可以得到 [防火包](https://www.amazon.com/Fireproof-Waterproof-Money-Document-Bag/dp/B08PBDJBX6/ref=pd_lpo_3?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/these-are-the-tools-you-need-in-case-of-an-earthquake-1848260688&asc_source=&pd_rd_i=B08PBDJBX6&psc=1&tag=kinjalifehackerlink-20) 来保护你的装备和重要文件，万一房子着火，它们也是很好的选择。如果你需要在烟雾弥漫的环境中旅行，一个配有合适过滤筒的好的呼吸器会有很大的帮助。一个呼吸器或者一个 [N95 口罩](https://www.amazon.com/Black-Safety-Breathable-Elastic-Bridge/dp/B08P3JZ95C/ref=sr_1_1_sspa?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/these-are-the-tools-you-need-in-case-of-an-earthquake-1848260688&asc_source=&crid=5X5NJNS76AEU&keywords=n95 mask&psc=1&qid=1640205467&spLa=ZW5jcnlwdGVkUXVhbGlmaWVyPUFQTUhGTUVQS0UwUU0mZW5jcnlwdGVkSWQ9QTAxMDA2MTYzNDhXTTBOQkhWTTEzJmVuY3J5cHRlZEFkSWQ9QTA4MTkwMTgyR1dKVjhaQk05SkZXJndpZGdldE5hbWU9c3BfYXRmJmFjdGlvbj1jbGlja1JlZGlyZWN0JmRvTm90TG9nQ2xpY2s9dHJ1ZQ==&sprefix=n95 ,aps,165&sr=8-1-spons&tag=kinjalifehackerlink-20) 可以帮助保护你的肺部免受烟尘的侵害。在紧急情况下准备一些这样的装备是个好主意，这样你就不会在灾难中耗尽急救人员可用的安全装备。

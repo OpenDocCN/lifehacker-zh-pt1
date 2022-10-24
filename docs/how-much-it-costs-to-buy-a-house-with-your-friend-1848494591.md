@@ -1,12 +1,12 @@
 # 和你的朋友一起买房要花多少钱
 
-> 原文:[https://life hacker . com/how-more-it-cost-to-buy-a house-your-friend-1848494591](https://lifehacker.com/how-much-it-costs-to-buy-a-house-with-your-friend-1848494591)
+> 原文：<https://lifehacker.com/how-much-it-costs-to-buy-a-house-with-your-friend-1848494591>
 
-与前几代人相比， [千禧一代不太可能拥有自己的家庭](https://www.pewresearch.org/social-trends/2020/05/27/as-millennials-near-40-theyre-approaching-family-life-differently-than-previous-generations/) 。这可能与普通千禧一代背负近93，000美元债务的事实 [有点关系。根据美国消费者新闻与商业频道](https://www.cnbc.com/2021/11/09/how-much-debt-millennials-have-on-average.html)[的说法，房价不会变得更实惠；我们可以期待在2022年继续看到卖方市场的高价。](https://www.cnbc.com/2021/12/29/what-will-the-2022-housing-market-look-like.html) 
+与前几代人相比， [千禧一代不太可能拥有自己的家庭](https://www.pewresearch.org/social-trends/2020/05/27/as-millennials-near-40-theyre-approaching-family-life-differently-than-previous-generations/) 。这可能与普通千禧一代背负近 93，000 美元债务的事实 [有点关系。根据美国消费者新闻与商业频道](https://www.cnbc.com/2021/11/09/how-much-debt-millennials-have-on-average.html)[的说法，房价不会变得更实惠；我们可以期待在 2022 年继续看到卖方市场的高价。](https://www.cnbc.com/2021/12/29/what-will-the-2022-housing-market-look-like.html) 
 
 Watch
 
-因此，30多岁的人正在寻找一种方法，让他们这一代人有可能拥有自己的房子:和朋友一起买房。与朋友签订抵押贷款协议既是一项合法的投资，也是一项实际的投资(只要你仔细权衡风险——详见下文)。除了已经令人望而生畏的首付之外，与朋友签订抵押贷款可以将一系列遥不可及的购房成本变成现实。
+因此，30 多岁的人正在寻找一种方法，让他们这一代人有可能拥有自己的房子:和朋友一起买房。与朋友签订抵押贷款协议既是一项合法的投资，也是一项实际的投资(只要你仔细权衡风险——详见下文)。除了已经令人望而生畏的首付之外，与朋友签订抵押贷款可以将一系列遥不可及的购房成本变成现实。
 
 ## **为什么你想和朋友一起买房**
 
@@ -16,28 +16,28 @@ Watch
 
 ## **两种共有制**
 
-你的成本细目将取决于你建立的共同所有权的类型。有一种共同租赁，最基本的定义是允许你和你的朋友分享一处房产的所有权，即使你们的份额大小不一样。例如，你可以拥有50%的财产，而两个朋友各拥有25%(尽管每个人对财产都有平等的权利)。
+你的成本细目将取决于你建立的共同所有权的类型。有一种共同租赁，最基本的定义是允许你和你的朋友分享一处房产的所有权，即使你们的份额大小不一样。例如，你可以拥有 50%的财产，而两个朋友各拥有 25%(尽管每个人对财产都有平等的权利)。
 
 另一方面，在**共同租赁**中，共有人都持有相等的财产份额。大多数已婚夫妇都是合租。除了份额的划分之外，共同承租人和共同承租人之间的主要区别还与生存权有关。例如，如果共同租赁中的某人去世，其他所有人不会自动继承死者的财产权益。你需要咨询法律专业人士，以决定哪种共同所有权适合你的情况。
 
 ## **共有房屋所有权的成本**
 
-买房的费用明细很大程度上取决于你住在哪里。NBC报道 报道的一个2021年的例子 [描绘了田纳西州的一个三口之家，他们31.5万美元的抵押贷款计划在30年内还清。下面是一些一般的成本考虑任何人寻找共同购买他们的第一个家。](https://www.nbcnews.com/news/us-news/friends-are-buying-homes-together-rcna9087)
+买房的费用明细很大程度上取决于你住在哪里。NBC 报道 报道的一个 2021 年的例子 [描绘了田纳西州的一个三口之家，他们 31.5 万美元的抵押贷款计划在 30 年内还清。下面是一些一般的成本考虑任何人寻找共同购买他们的第一个家。](https://www.nbcnews.com/news/us-news/friends-are-buying-homes-together-rcna9087)
 
 当谈到为一个家存钱时，甚至想知道从哪里开始都是令人畏惧的。首先，用一个 [在线计算器](https://www.investopedia.com/mortgage-calculator-5084794) 来确定你每月的抵押贷款额。 [我们推荐](https://lifehacker.com/top-10-things-you-need-to-know-before-you-buy-a-home-1709505200/slides/11) 瞄准一栋比计算器建议的价格更低的房子——安全总比后悔好。
 
-Investopedia有一个一般规则 说你能负担得起两倍于你总收入的抵押贷款。另一种观点是30/30法则，即你的抵押贷款不应超过你总收入的30%。再说一次，在朋友之间处理抵押贷款最明显的好处是集体收入高得多。
+Investopedia 有一个一般规则 说你能负担得起两倍于你总收入的抵押贷款。另一种观点是 30/30 法则，即你的抵押贷款不应超过你总收入的 30%。再说一次，在朋友之间处理抵押贷款最明显的好处是集体收入高得多。
 
 ## **如何分摊房子的成本**
 
 在确立了共同所有权的条款后(以书面形式！)，您应该记录您计划如何分摊前期成本和经常性成本。毕竟和朋友一起买房，比单纯拆分挂牌价有更多的好处。作为共同业主，你们会分摊其他费用的一些例子:
 
-*   **前期成本。**最大的成本将是你的首付，普遍建议首付20%左右，但也可以低至购买价格的3%。你的首付不包括成交费用，这大约是房价的百分之二到五。
+*   **前期成本。**最大的成本将是你的首付，普遍建议首付 20%左右，但也可以低至购买价格的 3%。你的首付不包括成交费用，这大约是房价的百分之二到五。
 *   每月按揭付款。一旦你知道了房价、首付和贷款期限，你就可以 [使用这样的在线计算器](https://www.investopedia.com/mortgage-calculator-5084794) 来确定你每月的抵押贷款。
-*   **财产税。**这些可以 [根据你所在的位置](https://www.millionacres.com/research/property-taxes-state/) 大相径庭。你可能要为新泽西州一套价值25万美元的房子缴纳5000美元的财产税，或者为阿拉巴马州一套价值75万美元的房子缴纳同样数额的税。
-*   **房主保险。** [市场观察](https://www.marketwatch.com/picks/guides/insurance/average-home-insurance-cost/) 报道称，2020年房主保险的平均成本为每年1249美元，或每月104.08美元。
-*   **公用事业。**如果你曾经有过室友，你对分摊电费、煤气费和WiFi费用了如指掌。
-*   **保养。**如果你以前只租过房子，维护费用通常由你的房东负责。 [美国家庭保险建议使用平方英尺法则](https://www.amfam.com/resources/articles/at-home/average-home-maintenance-costs#:~:text=The%20square%20foot%20rule&text=Budget%20about%20%241%20for%20every,or%20about%20%24209%20per%20month.) 来估算经常不可预测的维修费用。每平方英尺宜居空间的预算约为1美元。因此，一个2500平方英尺的房子每年需要2500美元的预算，或每月约209美元。
+*   **财产税。**这些可以 [根据你所在的位置](https://www.millionacres.com/research/property-taxes-state/) 大相径庭。你可能要为新泽西州一套价值 25 万美元的房子缴纳 5000 美元的财产税，或者为阿拉巴马州一套价值 75 万美元的房子缴纳同样数额的税。
+*   **房主保险。** [市场观察](https://www.marketwatch.com/picks/guides/insurance/average-home-insurance-cost/) 报道称，2020 年房主保险的平均成本为每年 1249 美元，或每月 104.08 美元。
+*   **公用事业。**如果你曾经有过室友，你对分摊电费、煤气费和 WiFi 费用了如指掌。
+*   **保养。**如果你以前只租过房子，维护费用通常由你的房东负责。 [美国家庭保险建议使用平方英尺法则](https://www.amfam.com/resources/articles/at-home/average-home-maintenance-costs#:~:text=The%20square%20foot%20rule&text=Budget%20about%20%241%20for%20every,or%20about%20%24209%20per%20month.) 来估算经常不可预测的维修费用。每平方英尺宜居空间的预算约为 1 美元。因此，一个 2500 平方英尺的房子每年需要 2500 美元的预算，或每月约 209 美元。
 
 上面的列表并不详尽，但仍然是一个很好的起点，可以用来考虑在一群朋友之间分摊时会变得更加可行的迫在眉睫的费用。这里有一份更详细的房主隐性成本清单。
 

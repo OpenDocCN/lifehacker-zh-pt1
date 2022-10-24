@@ -1,6 +1,6 @@
 # 为什么值得倾听政治泡沫之外的人
 
-> 原文:[https://life hacker . com/why-it-s-worth-listen-to-people-out-of-your-politic-1845941390](https://lifehacker.com/why-it-s-worth-listening-to-people-outside-your-politic-1845941390)
+> 原文：<https://lifehacker.com/why-it-s-worth-listening-to-people-outside-your-politic-1845941390>
 
 过去十年的一个流行主题是社会和政治两极分化的加剧。从国会两院到感恩节餐桌，政治分歧的双方越来越难找到共同点，即使是在看似微不足道的事情上。
 
@@ -12,11 +12,11 @@ Watch
 
 ### 好奇心是可爱的
 
-我先回避一下:有时迎合那些与你意见相左的人不值得。首先，不要理会那些否认疫情 现实的人，或者那些认为2020年总统选举被操纵的人，因为有人声称存在猖獗的、未经证实的欺诈。你接触的任何人都需要至少相信客观现实的一些表象，尽管在这个错误信息横行的时代，这是一个越来越大的问题。
+我先回避一下:有时迎合那些与你意见相左的人不值得。首先，不要理会那些否认疫情 现实的人，或者那些认为 2020 年总统选举被操纵的人，因为有人声称存在猖獗的、未经证实的欺诈。你接触的任何人都需要至少相信客观现实的一些表象，尽管在这个错误信息横行的时代，这是一个越来越大的问题。
 
 但是，如果你发现自己有机会接触一个不会立即用阴谋论轰炸你的朋友或家人，你的好奇心通常会形成一个橄榄枝。
 
-乔治梅森大学的托德·卡什丹(Todd Kashdan)撰写了一项关于好奇心和牢固关系 之间联系的 [研究，他在2017年说:](http://dx.doi.org/10.1111/j.1467-6494.2012.00796.x)
+乔治梅森大学的托德·卡什丹(Todd Kashdan)撰写了一项关于好奇心和牢固关系 之间联系的 [研究，他在 2017 年说:](http://dx.doi.org/10.1111/j.1467-6494.2012.00796.x)
 
 > 当你表现出好奇心，提出问题，并发现另一个人的一些有趣的事情时，人们会透露更多，分享更多，他们会回报你，向你提问。它建立了一个给予和索取的螺旋，促进了亲密关系。
 
@@ -28,7 +28,7 @@ Watch
 
 你可能很难找到保守的工人阶级选民，他们认为健康保险公司的股东应该获得丰厚的利润，而许多美国人 [却深陷医疗债务](https://www.prnewswire.com/news-releases/survey-more-than-half-of-americans-have-avoided-medical-care-due-to-cost-300963503.html) 。同样，每个人都可能以讽刺 [昂贵得惊人的高等教育费用](https://news.gallup.com/poll/182441/americans-say-higher-education-not-affordable.aspx) 为乐，尤其是当我们都努力偿还我们的大学债务的时候。
 
-甚至在更多的热点问题上，一旦你 [去掉党派烙印](https://www.usatoday.com/story/news/health/2020/02/07/remove-buzzwords-health-care-debate-americans-find-common-ground/4601892002/) ，跨越政治鸿沟的美国人似乎会找到更多的共同点。政治在2020年总统大选前进行的一项民意调查发现，一系列看似不可调和的问题可以获得广泛的两党支持。
+甚至在更多的热点问题上，一旦你 [去掉党派烙印](https://www.usatoday.com/story/news/health/2020/02/07/remove-buzzwords-health-care-debate-americans-find-common-ground/4601892002/) ，跨越政治鸿沟的美国人似乎会找到更多的共同点。政治在 2020 年总统大选前进行的一项民意调查发现，一系列看似不可调和的问题可以获得广泛的两党支持。
 
 正如 [政治今年早些时候写的](https://www.politico.com/news/2020/09/15/election-season-americans-united-issues-poll-414687) :
 

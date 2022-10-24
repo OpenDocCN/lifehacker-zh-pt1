@@ -1,6 +1,6 @@
 # 配电盘和电涌保护器之间的区别
 
-> 原文:[https://life hacker . com/the-difference-before-strips-and-surge-protector-1849102988](https://lifehacker.com/the-difference-between-power-strips-and-surge-protector-1849102988)
+> 原文：<https://lifehacker.com/the-difference-between-power-strips-and-surge-protector-1849102988>
 
 除了你的浴室之外，你可能有多种电器、设备、照明和电子设备在你家的大多数房间里——所有这些都需要插上电源。此外，还有像吸尘器、风扇和其他物品可能没有自己的专用插座，但有时需要一个。
 

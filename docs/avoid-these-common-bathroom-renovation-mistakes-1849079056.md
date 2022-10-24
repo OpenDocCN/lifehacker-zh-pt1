@@ -1,6 +1,6 @@
 # 避免这些常见的浴室改造错误
 
-> 原文:[https://life hacker . com/avoid-these-common-卫浴-装修-错误-1849079056](https://lifehacker.com/avoid-these-common-bathroom-renovation-mistakes-1849079056)
+> 原文：<https://lifehacker.com/avoid-these-common-bathroom-renovation-mistakes-1849079056>
 
 无论你是彻底改造你的浴室，从头开始，还是给你的浴室来个化妆品翻新，记住通往你梦想中的浴室的路并不总是平坦的。事实上，发生了这么多事情——管道、电气、家具、瓷砖、非常重的固定装置等等。—出错的机会很多。
 

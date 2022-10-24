@@ -1,24 +1,24 @@
-# FDA说，不要吃任何含有花生酱的产品
+# FDA 说，不要吃任何含有花生酱的产品
 
-> 原文:[https://life hacker . com/do-not-eat-any-the-products-that-contained-peanut-bu-1849000220](https://lifehacker.com/do-not-eat-any-of-these-products-that-contain-peanut-bu-1849000220)
+> 原文：<https://lifehacker.com/do-not-eat-any-of-these-products-that-contain-peanut-bu-1849000220>
 
-继最近 [召回49款被认为与沙门氏菌爆发有关的Jif花生酱产品](https://lifehacker.com/throw-out-these-recalled-jif-peanut-butters-immediately-1848962436?rev=1653316610184) 之后，根据 [美国美国食品药品监督管理局](https://www.fda.gov/safety/recalls-market-withdrawals-safety-alerts) (FDA)的消息，几家在零食和甜点中使用花生酱的公司也发布了他们自己的召回。
+继最近 [召回 49 款被认为与沙门氏菌爆发有关的 Jif 花生酱产品](https://lifehacker.com/throw-out-these-recalled-jif-peanut-butters-immediately-1848962436?rev=1653316610184) 之后，根据 [美国美国食品药品监督管理局](https://www.fda.gov/safety/recalls-market-withdrawals-safety-alerts) (FDA)的消息，几家在零食和甜点中使用花生酱的公司也发布了他们自己的召回。
 
 Watch
 
-在这一点上，还不清楚是否有人在吃了最近召回的含有Jif花生酱(可能含有沙门氏菌)的零食或甜点后生病了，但你不想冒险。下面是关于这一轮召回需要了解的内容。
+在这一点上，还不清楚是否有人在吃了最近召回的含有 Jif 花生酱(可能含有沙门氏菌)的零食或甜点后生病了，但你不想冒险。下面是关于这一轮召回需要了解的内容。
 
 ## 现在召回的是哪些产品？
 
-这就有点棘手了。不同于J.M. Smucker公司最初的召回——只包括不同品种和大小的Jif花生酱——这一次，有几家公司分别召回。
+这就有点棘手了。不同于 J.M. Smucker 公司最初的召回——只包括不同品种和大小的 Jif 花生酱——这一次，有几家公司分别召回。
 
-因此，你需要去 [该机构的召回页面](https://www.fda.gov/safety/recalls-market-withdrawals-safety-alerts) 寻找生产含有Jif花生酱的零食的公司，而不是一份列出所有召回产品的FDA召回通知。
+因此，你需要去 [该机构的召回页面](https://www.fda.gov/safety/recalls-market-withdrawals-safety-alerts) 寻找生产含有 Jif 花生酱的零食的公司，而不是一份列出所有召回产品的 FDA 召回通知。
 
-虽然有太多的项目需要逐一列出，但这里列出了已经召回含有Jif花生酱产品的公司名单:
+虽然有太多的项目需要逐一列出，但这里列出了已经召回含有 Jif 花生酱产品的公司名单:
 
 ### 德尔蒙特
 
-鲜德尔蒙特 [是指含有即食Jif花生酱蘸酱的鲜切果蔬产品](https://www.fda.gov/safety/recalls-market-withdrawals-safety-alerts/supplier-jm-smucker-cos-jif-recall-prompts-fresh-del-monte-voluntarily-recall-select-ready-eat) 。此处 列出了所有召回产品 [的UPC代码和保质期。它们作为德尔蒙特品牌产品在全国零售商中销售，也作为内部品牌在7-Eleven、Get Go和Circle K零售商中销售。](https://www.fda.gov/safety/recalls-market-withdrawals-safety-alerts/supplier-jm-smucker-cos-jif-recall-prompts-fresh-del-monte-voluntarily-recall-select-ready-eat)
+鲜德尔蒙特 [是指含有即食 Jif 花生酱蘸酱的鲜切果蔬产品](https://www.fda.gov/safety/recalls-market-withdrawals-safety-alerts/supplier-jm-smucker-cos-jif-recall-prompts-fresh-del-monte-voluntarily-recall-select-ready-eat) 。此处 列出了所有召回产品 [的 UPC 代码和保质期。它们作为德尔蒙特品牌产品在全国零售商中销售，也作为内部品牌在 7-Eleven、Get Go 和 Circle K 零售商中销售。](https://www.fda.gov/safety/recalls-market-withdrawals-safety-alerts/supplier-jm-smucker-cos-jif-recall-prompts-fresh-del-monte-voluntarily-recall-select-ready-eat)
 
 ### 艾伯森、西夫韦、杰威尔-奥斯科和其他超市品牌
 
@@ -26,15 +26,15 @@ Watch
 
 ### 捏造事实
 
-Fudgeamentals正在全国范围内召回以Fudgeamentals和沃尔玛品牌销售的多种软糖产品 。
+Fudgeamentals 正在全国范围内召回以 Fudgeamentals 和沃尔玛品牌销售的多种软糖产品 。
 
 ### 科布伦茨巧克力公司
 
-Coblentz巧克力公司正在召回使用Jif花生酱 生产并在全国销售的多种产品。
+Coblentz 巧克力公司正在召回使用 Jif 花生酱 生产并在全国销售的多种产品。
 
 ### 乡村新鲜
 
-Country Fresh是 [召回各种水果零食托盘](https://www.fda.gov/safety/recalls-market-withdrawals-safety-alerts/country-fresh-cooperation-j-m-smucker-co-voluntarily-recalls-select-items-containing-peanut-butter) 和装有召回Jif花生酱的水果零食杯。
+Country Fresh 是 [召回各种水果零食托盘](https://www.fda.gov/safety/recalls-market-withdrawals-safety-alerts/country-fresh-cooperation-j-m-smucker-co-voluntarily-recalls-select-items-containing-peanut-butter) 和装有召回 Jif 花生酱的水果零食杯。
 
 这些零食在以下州的各种零售商出售，包括威格曼和捷安特:阿拉巴马州、康涅狄格州、特拉华州、佐治亚州、佛罗里达州、路易斯安那州、马里兰州、马萨诸塞州、密西西比州、北卡罗来纳州、新罕布什尔州、新泽西州、纽约州、宾夕法尼亚州、南卡罗来纳州、田纳西州、弗吉尼亚州、佛蒙特州、华盛顿特区和西弗吉尼亚州。
 
@@ -42,34 +42,34 @@ Country Fresh是 [召回各种水果零食托盘](https://www.fda.gov/safety/rec
 
 ### 花园切割
 
-Garden Cut正在召回 [芹菜和苹果零食](https://www.fda.gov/safety/recalls-market-withdrawals-safety-alerts/garden-cut-llc-recalls-snack-cups-containing-jifr-peanut-butter-due-potential-salmonella) 含有0.7盎司杯Jif花生酱，在肯塔基州、伊利诺伊州、印第安纳州、密歇根州、俄亥俄州、西弗吉尼亚州和威斯康星州的零售商出售。
+Garden Cut 正在召回 [芹菜和苹果零食](https://www.fda.gov/safety/recalls-market-withdrawals-safety-alerts/garden-cut-llc-recalls-snack-cups-containing-jifr-peanut-butter-due-potential-salmonella) 含有 0.7 盎司杯 Jif 花生酱，在肯塔基州、伊利诺伊州、印第安纳州、密歇根州、俄亥俄州、西弗吉尼亚州和威斯康星州的零售商出售。
 
 ### 奥瑟契苏木
 
-根据 [来自连锁加油站](https://www.fda.gov/safety/recalls-market-withdrawals-safety-alerts/wawa-removes-two-products-containing-jifr-peanut-butter-due-voluntary-recall-jm-smucker-co-select) 的公告，Wawa只上架了两款含有Jif花生酱的产品(如下所列)，并于5月21日下架。
+根据 [来自连锁加油站](https://www.fda.gov/safety/recalls-market-withdrawals-safety-alerts/wawa-removes-two-products-containing-jifr-peanut-butter-due-voluntary-recall-jm-smucker-co-select) 的公告，Wawa 只上架了两款含有 Jif 花生酱的产品(如下所列)，并于 5 月 21 日下架。
 
-*   Wawa苹果和花生酱勺4.9盎司(所有代码)-所有Wawa商店
-*   JIF奶油花生酱16盎司| UPC: 00051500255162 |批号:1274425至2140425
+*   Wawa 苹果和花生酱勺 4.9 盎司(所有代码)-所有 Wawa 商店
+*   JIF 奶油花生酱 16 盎司| UPC: 00051500255162 |批号:1274425 至 2140425
 
 ### 卡吉尔
 
-该公司召回了精选批次的牛奶和黑巧克力覆盖的花生酱丽兹饼干、花生酱夹心饼干、花生酱鸡蛋和软糖，这些产品在宾夕法尼亚州的威尔伯巧克力零售店和Wilburbuds.com网上销售。
+该公司召回了精选批次的牛奶和黑巧克力覆盖的花生酱丽兹饼干、花生酱夹心饼干、花生酱鸡蛋和软糖，这些产品在宾夕法尼亚州的威尔伯巧克力零售店和 Wilburbuds.com 网上销售。
 
 ### 新鲜的季节
 
-塔赫尔公司正在召回其在明尼苏达州和威斯康辛州西部的零售店和自动售货机中销售的6.3盎司包装的[Fresh Seasons Power pack](https://www.fda.gov/safety/recalls-market-withdrawals-safety-alerts/taher-inc-recalls-fresh-seasons-power-packs)。该产品采用透明塑料包装，底部标有批号135-142，有效期为5月24日至5月31日。
+塔赫尔公司正在召回其在明尼苏达州和威斯康辛州西部的零售店和自动售货机中销售的 6.3 盎司包装的[Fresh Seasons Power pack](https://www.fda.gov/safety/recalls-market-withdrawals-safety-alerts/taher-inc-recalls-fresh-seasons-power-packs)。该产品采用透明塑料包装，底部标有批号 135-142，有效期为 5 月 24 日至 5 月 31 日。
 
 ### 瑞奇花生酱杯
 
-艾博年糖果集团公司 [召回两种含有Jif花生酱的Rich's花生酱杯产品](https://www.fda.gov/safety/recalls-market-withdrawals-safety-alerts/albanese-confectionery-group-inc-recalls-select-peanut-butter-products-because-possible-health-risk) ，并在全国零售商中销售。受影响的 [产品和零售商可以在这里找到](https://www.fda.gov/safety/recalls-market-withdrawals-safety-alerts/albanese-confectionery-group-inc-recalls-select-peanut-butter-products-because-possible-health-risk) 。
+艾博年糖果集团公司 [召回两种含有 Jif 花生酱的 Rich's 花生酱杯产品](https://www.fda.gov/safety/recalls-market-withdrawals-safety-alerts/albanese-confectionery-group-inc-recalls-select-peanut-butter-products-because-possible-health-risk) ，并在全国零售商中销售。受影响的 [产品和零售商可以在这里找到](https://www.fda.gov/safety/recalls-market-withdrawals-safety-alerts/albanese-confectionery-group-inc-recalls-select-peanut-butter-products-because-possible-health-risk) 。
 
 ### 特色食品
 
-A G Specialty Foods对其四种含有Jif花生酱的产品——包括零食包和花生酱三明治——发出了 [召回。它们的保质期为7到14天，从5月11日到5月23日，它们在俄勒冈州和华盛顿州被分发给零售商和食品服务公司，批次代码从129到141。](https://www.fda.gov/safety/recalls-market-withdrawals-safety-alerts/g-specialty-foods-inc-issues-voluntary-recall-food-products-containing-jif-and-smuckers-peanut)
+A G Specialty Foods 对其四种含有 Jif 花生酱的产品——包括零食包和花生酱三明治——发出了 [召回。它们的保质期为 7 到 14 天，从 5 月 11 日到 5 月 23 日，它们在俄勒冈州和华盛顿州被分发给零售商和食品服务公司，批次代码从 129 到 141。](https://www.fda.gov/safety/recalls-market-withdrawals-safety-alerts/g-specialty-foods-inc-issues-voluntary-recall-food-products-containing-jif-and-smuckers-peanut)
 
 ### **玛丽的收获**
 
-玛丽丰收新鲜食品公司正在召回俄勒冈州和华盛顿州零售商出售的含有1.5- 盎司Jif花生酱的芹菜和苹果零食。
+玛丽丰收新鲜食品公司正在召回俄勒冈州和华盛顿州零售商出售的含有 1.5- 盎司 Jif 花生酱的芹菜和苹果零食。
 
 ### 巨鹰
 
@@ -77,12 +77,12 @@ A G Specialty Foods对其四种含有Jif花生酱的产品——包括零食包�
 
 ### 快速检查
 
-Safeway Fresh Foods已经召回在新泽西销售的 [Quick Chek品牌苹果和花生酱小吃托盘](https://www.fda.gov/safety/recalls-market-withdrawals-safety-alerts/safeway-fresh-foods-dba-sunnyside-fresh-vineland-new-jersey-issuing-voluntary-class-1-recall-quick) 。
+Safeway Fresh Foods 已经召回在新泽西销售的 [Quick Chek 品牌苹果和花生酱小吃托盘](https://www.fda.gov/safety/recalls-market-withdrawals-safety-alerts/safeway-fresh-foods-dba-sunnyside-fresh-vineland-new-jersey-issuing-voluntary-class-1-recall-quick) 。
 
 ### 欣快感巧克力
 
-欣快感巧克力公司 [召回四种含有Jif花生酱并在俄勒冈州销售的产品](https://www.fda.gov/safety/recalls-market-withdrawals-safety-alerts/euphoria-chocolate-company-issues-voluntary-recall-peanut-butter-classic-truffles-dark-chocolate) 。
+欣快感巧克力公司 [召回四种含有 Jif 花生酱并在俄勒冈州销售的产品](https://www.fda.gov/safety/recalls-market-withdrawals-safety-alerts/euphoria-chocolate-company-issues-voluntary-recall-peanut-butter-classic-truffles-dark-chocolate) 。
 
 ## 如果您购买了召回的产品，该怎么办
 
-纵观所有这些召回通知，FDA已经明确了一件事: [不要食用](https://www.fda.gov/safety/recalls-market-withdrawals-safety-alerts/j-m-smucker-co-issues-voluntary-recall-select-jifr-products-sold-us-potential-salmonella) 这些产品中的任何一种。相反，把它们扔掉，然后对它们接触过的任何表面进行消毒。上面列出的每家公司都有自己的退款流程，所以请查看相关的召回通知，了解如何获得您的退款。
+纵观所有这些召回通知，FDA 已经明确了一件事: [不要食用](https://www.fda.gov/safety/recalls-market-withdrawals-safety-alerts/j-m-smucker-co-issues-voluntary-recall-select-jifr-products-sold-us-potential-salmonella) 这些产品中的任何一种。相反，把它们扔掉，然后对它们接触过的任何表面进行消毒。上面列出的每家公司都有自己的退款流程，所以请查看相关的召回通知，了解如何获得您的退款。

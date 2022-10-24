@@ -1,6 +1,6 @@
 # 用被动语态可以吗？
 
-> 原文:[https://life hacker . com/is-it-ok-when-passive-voice-is-use-1846797551](https://lifehacker.com/is-it-ok-when-passive-voice-is-used-1846797551)
+> 原文：<https://lifehacker.com/is-it-ok-when-passive-voice-is-used-1846797551>
 
 即使你认为你已经掌握了语法，你可能也没有意识到无意中冒险进入词汇领域会激怒你的大一英语老师是多么容易。当然，在我的大学时代，我有几个助教会因为我使用被动语态而找我的麻烦。
 
@@ -22,7 +22,7 @@ Watch
 
 “这个男孩真的很喜欢足球。”
 
-是的，就这么简单。活跃的声音没有留下太多混淆的空间。正如Pu rdue大学的在线写作实验室所解释的:
+是的，就这么简单。活跃的声音没有留下太多混淆的空间。正如 Pu rdue 大学的在线写作实验室所解释的:
 
 > 在你的大部分句子中使用主动语态可以让你的意思对读者来说更加清晰，并且避免句子变得过于复杂或冗长。
 

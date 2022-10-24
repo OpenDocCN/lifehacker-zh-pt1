@@ -1,14 +1,14 @@
 # 你需要一枚“度假戒指”吗？
 
-> 原文:[https://life hacker . com/do-you-need-a-vacation-ring-1848206601](https://lifehacker.com/do-you-need-a-vacation-ring-1848206601)
+> 原文：<https://lifehacker.com/do-you-need-a-vacation-ring-1848206601>
 
-如果你有一个，它可能是你最昂贵的珠宝:那颗写着“我愿意”(或“我愿意”】的闪闪发光的宝石，那枚你很少摘下的闪闪发光的承诺信物，那枚价值不菲的珠宝——你的订婚戒指。考虑到2020年 ，普通夫妇在订婚戒指上的花费接近4000美元，这可不是一笔可以掉以轻心的投资。当我们旅行的时候，当我们更有可能从事不属于我们日常生活的户外活动的时候，我们的戒指特别容易受到伤害。这里有一些在去外国(至少对你来说是)旅行时保护你的珍贵物品的最好方法。
+如果你有一个，它可能是你最昂贵的珠宝:那颗写着“我愿意”(或“我愿意”】的闪闪发光的宝石，那枚你很少摘下的闪闪发光的承诺信物，那枚价值不菲的珠宝——你的订婚戒指。考虑到 2020 年 ，普通夫妇在订婚戒指上的花费接近 4000 美元，这可不是一笔可以掉以轻心的投资。当我们旅行的时候，当我们更有可能从事不属于我们日常生活的户外活动的时候，我们的戒指特别容易受到伤害。这里有一些在去外国(至少对你来说是)旅行时保护你的珍贵物品的最好方法。
 
 Watch
 
 ## 给你的戒指上保险
 
-就像你的房子或汽车一样，精美的珠宝可以而且应该投保以防丢失或损坏。根据新娘的说法，你的戒指每值100美元，你平均每年要支付1到3美元 。(因此，一块价值10，000美元的石头每年需要100-300美元。)除了 [珠宝商互助](https://www.jewelersmutual.com/) 之外，还有 [其他保险提供者从](https://www.brides.com/best-engagement-ring-insurance-5090475) 中选择，根据戒指价值和您的具体保障需求而定。你也可以考虑将你的戒指添加到你目前的房主或租房者保险中，并附上 [s ched uled财产背书或个人物品背书](https://lifehacker.com/insure-your-new-engagement-ring-right-now-1840928611) ，因为默认情况下可能不会涵盖全部价值。
+就像你的房子或汽车一样，精美的珠宝可以而且应该投保以防丢失或损坏。根据新娘的说法，你的戒指每值 100 美元，你平均每年要支付 1 到 3 美元 。(因此，一块价值 10，000 美元的石头每年需要 100-300 美元。)除了 [珠宝商互助](https://www.jewelersmutual.com/) 之外，还有 [其他保险提供者从](https://www.brides.com/best-engagement-ring-insurance-5090475) 中选择，根据戒指价值和您的具体保障需求而定。你也可以考虑将你的戒指添加到你目前的房主或租房者保险中，并附上 [s ched uled 财产背书或个人物品背书](https://lifehacker.com/insure-your-new-engagement-ring-right-now-1840928611) ，因为默认情况下可能不会涵盖全部价值。
 
 ## 请检查一下
 
@@ -22,10 +22,10 @@ Watch
 
 ## 只戴我们的结婚戒指
 
-虽然这没有一边喝着鸡尾酒一边眨眼那么有趣，但考虑一下在度假时独自戴上你的结婚戒指。你仍然会有一个小东西，上面写着“我名花有主了，”，但价格要低得多。(你也可以借此机会玩玩 [可叠放的戒指](https://www.nordstrom.com/browse/women/jewelry/rings/stacked-rings) ，这样你的vacay美甲仍然会有一些实质性的浮华。)
+虽然这没有一边喝着鸡尾酒一边眨眼那么有趣，但考虑一下在度假时独自戴上你的结婚戒指。你仍然会有一个小东西，上面写着“我名花有主了，”，但价格要低得多。(你也可以借此机会玩玩 [可叠放的戒指](https://www.nordstrom.com/browse/women/jewelry/rings/stacked-rings) ，这样你的 vacay 美甲仍然会有一些实质性的浮华。)
 
 ## 得到一枚“度假戒指”
 
-如果你不想每次去海滩或涂防晒霜时都把你最珍贵的小玩意锁在保险箱里(或者有那种“裸指”的感觉，可能会引起不必要的注意)，那就买一个便宜的订婚戒指(比如 [这个立方氧化锆](https://www.target.com/p/cubic-zirconia-engagement-ring-silver/-/A-82432210?preselect=14631890#lnk=sametab)20美元)，专门在旅行时戴。尽情尝试一周的新造型——但是注意不要让石头变得太大，否则你会吸引扒手和店主的目光，他们会抓住任何机会为看起来富有的游客抬高价格。(男性也可以这样做，通过购买一个 [硅胶圈](https://ensorings.com/collections/silicone-rings?g_network=g&g_adid=500207049785&g_keyword=&g_adtype=search&g_adgroupid=121058403994&g_keywordid=dsa-19959388920&g_acctid=834-359-1075&g_campaignid=12398198581&g_campaign=RG_S_NB_Dynamic_22221&gclid=CjwKCAiA-9uNBhBTEiwAN3IlNF4X-wJgOA9Ao0Plmonmm9ZCQtnzWZi5mYvpOCwP4zKGFUOiSwBzxRoCbIUQAvD_BwE)；这些运行在40美元左右。)
+如果你不想每次去海滩或涂防晒霜时都把你最珍贵的小玩意锁在保险箱里(或者有那种“裸指”的感觉，可能会引起不必要的注意)，那就买一个便宜的订婚戒指(比如 [这个立方氧化锆](https://www.target.com/p/cubic-zirconia-engagement-ring-silver/-/A-82432210?preselect=14631890#lnk=sametab)20 美元)，专门在旅行时戴。尽情尝试一周的新造型——但是注意不要让石头变得太大，否则你会吸引扒手和店主的目光，他们会抓住任何机会为看起来富有的游客抬高价格。(男性也可以这样做，通过购买一个 [硅胶圈](https://ensorings.com/collections/silicone-rings?g_network=g&g_adid=500207049785&g_keyword=&g_adtype=search&g_adgroupid=121058403994&g_keywordid=dsa-19959388920&g_acctid=834-359-1075&g_campaignid=12398198581&g_campaign=RG_S_NB_Dynamic_22221&gclid=CjwKCAiA-9uNBhBTEiwAN3IlNF4X-wJgOA9Ao0Plmonmm9ZCQtnzWZi5mYvpOCwP4zKGFUOiSwBzxRoCbIUQAvD_BwE)；这些运行在 40 美元左右。)
 
 无论你选择什么，抵制诱惑，不要仅仅因为你每天都戴着它，就把你的戒指当成日常用品。

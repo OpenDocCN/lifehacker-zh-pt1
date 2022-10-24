@@ -1,8 +1,8 @@
 # 如何研究你家的历史
 
-> 原文:[https://life hacker . com/how-to-research-the-history of your home-1847397127](https://lifehacker.com/how-to-research-the-history-of-your-home-1847397127)
+> 原文：<https://lifehacker.com/how-to-research-the-history-of-your-home-1847397127>
 
-无论你是住在老房子里，还是只是欣赏它们(可能会花上几个小时浏览 [便宜的老房子](https://www.instagram.com/cheapoldhouses/?hl=en) Instagram账户)，你可能会看着一栋房子，想知道它的历史:它有多古老，谁在那里生活和死亡，以及这些年来在那里发生了什么其他事件。
+无论你是住在老房子里，还是只是欣赏它们(可能会花上几个小时浏览 [便宜的老房子](https://www.instagram.com/cheapoldhouses/?hl=en) Instagram 账户)，你可能会看着一栋房子，想知道它的历史:它有多古老，谁在那里生活和死亡，以及这些年来在那里发生了什么其他事件。
 
 Watch
 
@@ -12,7 +12,7 @@ Watch
 
 像任何其他类型的研究一样，最容易的开始是用谷歌搜索家庭地址。这可能有用，也可能没用，但你不妨从最容易摘到的水果开始。
 
-如果房子在过去几年已经或曾经在市场上出售，你可能会看到Zillow或Realtor.com的清单，如果没有其他信息，它应该会告诉你房子的建造年份。另外，如果你不住在房子里，它可能包含有趣的室内镜头。谷歌快速搜索发现的任何其他东西都是额外收获。
+如果房子在过去几年已经或曾经在市场上出售，你可能会看到 Zillow 或 Realtor.com 的清单，如果没有其他信息，它应该会告诉你房子的建造年份。另外，如果你不住在房子里，它可能包含有趣的室内镜头。谷歌快速搜索发现的任何其他东西都是额外收获。
 
 ## 寻找线索
 

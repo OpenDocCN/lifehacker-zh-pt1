@@ -1,6 +1,6 @@
 # 如何在不杀死木工蜂的情况下将它们赶出你的院子
 
-> 原文:[https://life hacker . com/how-to-get-carpenter-bees-out of your ' s yard-with-kill-1847619354](https://lifehacker.com/how-to-get-carpenter-bees-out-of-your-yard-without-kill-1847619354)
+> 原文：<https://lifehacker.com/how-to-get-carpenter-bees-out-of-your-yard-without-kill-1847619354>
 
 蜜蜂的体型可能很小，但它们在生态系统中扮演着重要角色，为树木、花朵和其他植物授粉。但是有一种蜜蜂不仅仅是授粉:蜜蜂。
 
@@ -28,5 +28,5 @@ Watch
 
 1.  纽约皇后区阿斯特养蜂场的养蜂人尼克·霍菲莱告诉《大众科学》说，在木匠蜜蜂的巢洞里滴一滴杏仁油或柑橘油。它们不喜欢这些气味，可能会想离开，去别的地方筑巢。一旦他们搬走了，用木油灰或钢丝绒把洞填上。
 
-2.  挂一些风铃。根据Hoefly的说法，木匠蜂讨厌它们的声音，所以持续的噪音可能会把它们赶走。
+2.  挂一些风铃。根据 Hoefly 的说法，木匠蜂讨厌它们的声音，所以持续的噪音可能会把它们赶走。
 3.  留下一些你不再需要的风化的、未加工的木头在户外——但是离你的房子足够远——为木匠蜂提供替代的住所。

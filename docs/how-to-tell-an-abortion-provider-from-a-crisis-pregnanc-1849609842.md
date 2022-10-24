@@ -1,6 +1,6 @@
 # 如何辨别“危机妊娠中心”的堕胎提供者
 
-> 原文:[https://life hacker . com/how-to-tell-an-faultion-provider-from-a-crisis-pregnancy-1849609842](https://lifehacker.com/how-to-tell-an-abortion-provider-from-a-crisis-pregnanc-1849609842)
+> 原文：<https://lifehacker.com/how-to-tell-an-abortion-provider-from-a-crisis-pregnanc-1849609842>
 
 假堕胎诊所通常比真堕胎诊所更容易被发现。他们在网上用堕胎相关的搜索词做广告，给自己起的名字和标识看起来和真实的医疗诊所一样令人困惑。但是他们不做堕胎手术，他们不会帮你堕胎，而且他们可能根本没有医务人员。以下是识别它们的方法。
 
@@ -24,7 +24,7 @@ Watch
 
 我试过了，对于我所做的搜索来说，这绝对是真的。用我所在城市的名字在谷歌上搜索“堕胎”,会出现提供堕胎服务的诊所，并贴上正确的标签。太好了！但当我搜索“怀孕选项”和城市名称时，所有的搜索结果都是假诊所，名字听起来很医学。它们是堕胎搜索标记为不提供堕胎的相同中心，但是在这次搜索中，它们没有被标记。
 
-如果你使用谷歌搜索，考虑在你的搜索词中使用“堕胎”这个词。我们在Gizmodo [的朋友推荐](https://gizmodo.com/how-to-get-an-abortion-privately-after-roe-v-wade-11-ti-1848884984) 使用Tor浏览器，如果你想保持你的搜索隐私的话。
+如果你使用谷歌搜索，考虑在你的搜索词中使用“堕胎”这个词。我们在 Gizmodo [的朋友推荐](https://gizmodo.com/how-to-get-an-abortion-privately-after-roe-v-wade-11-ti-1848884984) 使用 Tor 浏览器，如果你想保持你的搜索隐私的话。
 
 ## 他们提供什么服务？
 
@@ -56,13 +56,13 @@ Watch
 
 *如果你对堕胎或任何其他生殖健康护理有疑问或担心，去一个合法的来源(即使它不是你附近的提供者)并仔细阅读。计划生育有 [网上有丰富的信息](https://www.plannedparenthood.org/learn/abortion/considering-abortion) ，供新手参考。*
 
-*“计划生育”还推荐了“所有选择对话”( T2)和“所有选择对话”( T4 ),它提供了危机妊娠中心假装提供的那种同伴咨询:无偏见的对话，在对话中你可以获得关于“所有选择”的信息。他们还推荐[Faith loud神职人员咨询热线](https://www.faithaloud.org/find-clergy-support/clergycounseling/) ，它可以在怀孕期间提供宗教和精神咨询，而不会试图影响你的医疗保健决定，如果那是你正在寻找的东西。*
+*“计划生育”还推荐了“所有选择对话”( T2)和“所有选择对话”( T4 ),它提供了危机妊娠中心假装提供的那种同伴咨询:无偏见的对话，在对话中你可以获得关于“所有选择”的信息。他们还推荐[Faith loud 神职人员咨询热线](https://www.faithaloud.org/find-clergy-support/clergycounseling/) ，它可以在怀孕期间提供宗教和精神咨询，而不会试图影响你的医疗保健决定，如果那是你正在寻找的东西。*
 
 ### *从已知的合法来源开始*
 
 *不要搜索一般的诊所，从一个你知道会向你推荐合法医疗机构的地方开始。一些允许您搜索附近供应商的在线工具包括:*
 
-*   *(“我需要一个A”)*
+*   *(“我需要一个 A”)*
 *   *计划生育*
 *   *AbortionFinder.org*
 

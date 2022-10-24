@@ -1,8 +1,8 @@
 # 在你舒适的家中环绕月球飞行
 
-> 原文:[https://life hacker . com/orbit-the-moon-from-the-comfort-of-your-home-1846163712](https://lifehacker.com/orbit-the-moon-from-the-comfort-of-your-home-1846163712)
+> 原文：<https://lifehacker.com/orbit-the-moon-from-the-comfort-of-your-home-1846163712>
 
-上周我们谈到了 [【慢电视】，并重点介绍了一张](https://lifehacker.com/use-this-map-to-find-the-best-of-slow-tv-from-around-th-1846115354) 世界地图，在那里你可以根据位置找到不同的剪辑。如果你错过了，艾伦·亨利在2016年Lifehacker文章 中描述了“慢电视” [:](https://lifehacker.com/netflixs-new-slow-tv-shows-are-meditative-and-chill-1785811246)
+上周我们谈到了 [【慢电视】，并重点介绍了一张](https://lifehacker.com/use-this-map-to-find-the-best-of-slow-tv-from-around-th-1846115354) 世界地图，在那里你可以根据位置找到不同的剪辑。如果你错过了，艾伦·亨利在 2016 年 Lifehacker 文章 中描述了“慢电视” [:](https://lifehacker.com/netflixs-new-slow-tv-shows-are-meditative-and-chill-1785811246)
 
 > 像穿越乡村的长途火车旅行、运河之旅的放松景观、噼啪作响的壁炉、人们编织的安静视频等等。这些都是你可以在工作、集中注意力或放松时放在背景中的东西...从头到尾播放一个完全普通的事件。
 
@@ -18,9 +18,9 @@ Watch
 
 视频本身没有音频成分，也就是说你可以 [选择自己的月球轨道配乐](https://kottke.org/21/01/orbit-the-moon-in-realtime) 。
 
-使用NHK [辉夜姬轨道飞行器](https://earth.esa.int/web/eoportal/satellite-missions/s/selene) 档案中的图像，多兰对这部电影中使用的照片进行了降噪、修复、分级和重新定时。
+使用 NHK [辉夜姬轨道飞行器](https://earth.esa.int/web/eoportal/satellite-missions/s/selene) 档案中的图像，多兰对这部电影中使用的照片进行了降噪、修复、分级和重新定时。
 
-这并不是多兰第一次涉足实时轨道视频:早在2018年，他就创造了类似的东西，只是用 [在90分钟内绕地球一周](https://kottke.org/18/11/an-incredible-video-of-what-its-like-to-orbit-the-earth-for-90-minutes) 。(诚然，它比月球视频更有趣，因为你可以假装你在飞机上看着窗外。)
+这并不是多兰第一次涉足实时轨道视频:早在 2018 年，他就创造了类似的东西，只是用 [在 90 分钟内绕地球一周](https://kottke.org/18/11/an-incredible-video-of-what-its-like-to-orbit-the-earth-for-90-minutes) 。(诚然，它比月球视频更有趣，因为你可以假装你在飞机上看着窗外。)
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-7KXGZAEWzn0&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-7KXGZAEWzn0&start=0) 
 

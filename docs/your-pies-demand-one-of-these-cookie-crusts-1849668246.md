@@ -1,6 +1,6 @@
 # 你的芝士蛋糕需要一个这样的饼干皮
 
-> 原文:[https://life hacker . com/your-pies-demand-one-of-this-cookie-crushes-1849668246](https://lifehacker.com/your-pies-demand-one-of-these-cookie-crusts-1849668246)
+> 原文：<https://lifehacker.com/your-pies-demand-one-of-these-cookie-crusts-1849668246>
 
 芝士蛋糕 可能是我最喜欢的甜点之一。它突出了一个顶级的食物群体(乳制品),它不需要我做糕点外壳，这是我最讨厌做的事情。标志性的奶酪蛋糕通常放在碎面包皮上，通常由全麦饼干制成。但是换个口味也不错，尤其是如果你把所有的全麦饼干都用来做别的东西(比如 [这些肉丸](https://lifehacker.com/what-if-you-put-graham-cracker-crumbs-in-your-meatballs-1849649890) )。
 
@@ -14,7 +14,7 @@ Watch
 
 > 这种饼干有浓郁的姜味，又脆又脆。它们不太甜，也不像全麦饼干那样容易碎，这是制作结实的奶酪蛋糕外壳的完美选择，可以处理多一点黄油。
 
-作为一个对可以处理更多黄油的人和事物怀有深深敬意的人，下次我去吃HEMNES或FRIKOSTIG时，我会拿一包黄油。(拿一些越橘酱来完成你的宜家芝士蛋糕。)
+作为一个对可以处理更多黄油的人和事物怀有深深敬意的人，下次我去吃 HEMNES 或 FRIKOSTIG 时，我会拿一包黄油。(拿一些越橘酱来完成你的宜家芝士蛋糕。)
 
 ## 吃奥利奥变得奇怪
 

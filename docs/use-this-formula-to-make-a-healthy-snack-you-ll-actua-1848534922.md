@@ -1,6 +1,6 @@
 # 使用这个公式来制作你真正想吃的“健康”零食
 
-> 原文:[https://life hacker . com/use-this-formula-to-make-a-healthy-snack-you-ll-actual-1848534922](https://lifehacker.com/use-this-formula-to-make-a-healthy-snack-you-ll-actua-1848534922)
+> 原文：<https://lifehacker.com/use-this-formula-to-make-a-healthy-snack-you-ll-actua-1848534922>
 
 二月已经过了一半，在这个月里，决心被削弱，决心被放弃。即使你以最好的饮食习惯开始了新的一年，恶劣的天气、以巧克力为主的假期和*生活*总有办法打乱这些最好的饮食计划。
 

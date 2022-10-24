@@ -1,6 +1,6 @@
 # 如何以及何时清洗你的(可能)恶心的喂鸟器
 
-> 原文:[https://life hacker . com/how-and-when-to-clean-your-possible-oxy-bird-f-1847206459](https://lifehacker.com/how-and-when-to-clean-your-probably-disgusting-bird-f-1847206459)
+> 原文：<https://lifehacker.com/how-and-when-to-clean-your-probably-disgusting-bird-f-1847206459>
 
 喂鸟者对鸟类来说可能是一个宁静而友好的环境——除非他们没有得到适当的照顾。据 [科罗拉多公园&野生动物](https://cpw.state.co.us/Documents/Viewing/Bird-Feeder-Diseases-Fact-Sheet.pdf) 报道，喂鸟者传播沙门氏菌病、滴虫病、鸽子副粘病毒、禽痘等疾病。在其他情况下，旧湿种子可以 [生长霉菌](https://www.wildbirdscoop.com/how-to-clean-bird-feeders.html) 和霉变，伤害以它们为食的鸟类。所有这些情况对鸟类来说都是威胁生命的，所以保持喂食器清洁是这个过程的重要部分。
 
@@ -8,7 +8,7 @@ Watch
 
 以下是清洁喂食器的频率和正确完成的最佳方法。
 
-## 你应该多久清洗一次T2的喂鸟器？
+## 你应该多久清洗一次 T2 的喂鸟器？
 
 来自 [密执安州自然资源部](https://www.youtube.com/watch?v=ezIxaaT1Jps) (DNR)的伊丽莎白·蒂尔曼建议每月清洗喂鸟器一次，以防止任何积垢和细菌，科罗拉多公园&的野生动物敦促每月清洗喂鸟器两次。
 
@@ -40,6 +40,6 @@ Watch
 
 ## 清洁蜂鸟喂食器
 
-清洁蜂鸟喂食器的过程有点不同，因为它们盛放的是液体而不是T2种子。鸟类学网站 [关于鸟类的山茱萸实验室](https://www.allaboutbirds.org/news/how-to-clean-your-bird-feeder/) 建议每周更换糖水两到三次，以防止发霉和发酵。
+清洁蜂鸟喂食器的过程有点不同，因为它们盛放的是液体而不是 T2 种子。鸟类学网站 [关于鸟类的山茱萸实验室](https://www.allaboutbirds.org/news/how-to-clean-your-bird-feeder/) 建议每周更换糖水两到三次，以防止发霉和发酵。
 
-蜂鸟喂食器应该用热水和刷子清洗。山茱萸实验室警告不要使用肥皂或清洁剂，它们会污染水源。虽然T2看起来像是一个更苛刻的解决方案，但是使用九份水和一份漂白剂(或醋)就足够消毒喂食器了。确保彻底冲洗，以消除任何残留的溶液，并让它在阳光直射下干燥以保护你的蜂鸟免受任何残留的清洁剂的影响。
+蜂鸟喂食器应该用热水和刷子清洗。山茱萸实验室警告不要使用肥皂或清洁剂，它们会污染水源。虽然 T2 看起来像是一个更苛刻的解决方案，但是使用九份水和一份漂白剂(或醋)就足够消毒喂食器了。确保彻底冲洗，以消除任何残留的溶液，并让它在阳光直射下干燥以保护你的蜂鸟免受任何残留的清洁剂的影响。

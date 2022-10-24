@@ -1,6 +1,6 @@
 # 不要让你的狗玩网球
 
-> 原文:[https://life hacker . com/don ' t-let-to-let-your-dog-play-to-netbeans-1846367687](https://lifehacker.com/dont-let-your-dog-play-with-tennis-balls-1846367687)
+> 原文：<https://lifehacker.com/dont-let-your-dog-play-with-tennis-balls-1846367687>
 
 没有什么比看到一只狗疯狂追逐一个弹跳的网球时脸上的喜悦更令人愉快的了。不幸的是，你的小狗最喜欢的玩具可能对他们的健康有害。以下是为什么你应该用更安全的东西代替那些网球——以及如何更明智地选择你的狗的玩具。
 

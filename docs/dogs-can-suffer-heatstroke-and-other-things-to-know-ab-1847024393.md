@@ -1,22 +1,22 @@
 # 狗狗可能会中暑，还有其他一些让你的宠物在夏天保持凉爽的知识
 
-> 原文:[https://life hacker . com/dogs-can-beat-success-other-things-to-know-a b-1847024393](https://lifehacker.com/dogs-can-suffer-heatstroke-and-other-things-to-know-ab-1847024393)
+> 原文：<https://lifehacker.com/dogs-can-suffer-heatstroke-and-other-things-to-know-ab-1847024393>
 
 当它们气喘吁吁，四处游荡寻找阴凉，最后倔强地躺着拒绝行走的时候，你的狗在告诉你一些事情，你大概不需要狗语者就能搞清楚:你的犬科朋友*火辣*，用 告诉你只有狗才能做到的可爱方式。
 
 Watch
 
-尽管你无法控制湿度或驯服T2夏日无情的骄阳，但你可以采取积极的措施让你的毛茸茸的朋友在一年中最热的几个月里更加舒适。因为训斥它们并不是一个正确的选择——一会儿再谈夏季修剪的好处——大多数建议涉及帮助它们避免危险的情况，并认识到你的小狗过热的警告信号。
+尽管你无法控制湿度或驯服 T2 夏日无情的骄阳，但你可以采取积极的措施让你的毛茸茸的朋友在一年中最热的几个月里更加舒适。因为训斥它们并不是一个正确的选择——一会儿再谈夏季修剪的好处——大多数建议涉及帮助它们避免危险的情况，并认识到你的小狗过热的警告信号。
 
 ## 如何让你的狗不过热
 
-这可能不言而喻，但对人类来说也适用于狗:当天气炎热时、保持水分是关键。狗喜欢到处跑，和它们毛茸茸的朋友称兄道弟，即使外面热得要命，它们也可能会这样做——但它们不会问你要饮料。所以，即使你和你的狗在大热天外出，也要带上冷水，并带一个可折叠的碗或其他他们可以很容易地从中喝到的东西。用水量会根据你的狗的大小和它们的活动水平而变化，但是你应该给它们一个经常喝水的机会。多久一次？宠物健康网络 [建议每15–20分钟](https://www.pethealthnetwork.com/dog-health/dog-checkups-preventive-care/summertime-dehydration-and-your-dog) 做一次。
+这可能不言而喻，但对人类来说也适用于狗:当天气炎热时、保持水分是关键。狗喜欢到处跑，和它们毛茸茸的朋友称兄道弟，即使外面热得要命，它们也可能会这样做——但它们不会问你要饮料。所以，即使你和你的狗在大热天外出，也要带上冷水，并带一个可折叠的碗或其他他们可以很容易地从中喝到的东西。用水量会根据你的狗的大小和它们的活动水平而变化，但是你应该给它们一个经常喝水的机会。多久一次？宠物健康网络 [建议每 15–20 分钟](https://www.pethealthnetwork.com/dog-health/dog-checkups-preventive-care/summertime-dehydration-and-your-dog) 做一次。
 
 ### 你的狗需要喝多少水？
 
-与直觉相反的是，你的狗也可能一次喝太多水，所以你想g ua rd反对给它们浇水过多(虽然很少， [水中毒是一种风险](https://thebark.com/content/danger-water-intoxication) ) 。宠物食品公司普瑞纳的营养学家和营养学家提供了一些计算健康水与体重比率的指导方针:
+与直觉相反的是，你的狗也可能一次喝太多水，所以你想 g ua rd 反对给它们浇水过多(虽然很少， [水中毒是一种风险](https://thebark.com/content/danger-water-intoxication) ) 。宠物食品公司普瑞纳的营养学家和营养学家提供了一些计算健康水与体重比率的指导方针:
 
-> 对于45到55磅的狗，不要让他们一次喝超过4到8盎司的水。在他们有时间吸收并从胃中排出后，10到15分钟后再给他们一些。
+> 对于 45 到 55 磅的狗，不要让他们一次喝超过 4 到 8 盎司的水。在他们有时间吸收并从胃中排出后，10 到 15 分钟后再给他们一些。
 
 ## **限制你的狗在热天的活动**
 
@@ -30,13 +30,13 @@ Watch
 
 这一条是常识，适用于任何不能通过降低窗户或打开空调来降温的生物。当天气足够热时，你停放的汽车就变成了一个烤箱(在某些地区是，，[这种情况全年都可能发生](https://www.webmd.com/children/news/20140724/cars-children-heatstroke-deaths) ) ，即使当你在外面开车或散步时，气温感觉宜人和温暖。
 
-也不要以为敲碎一扇窗户就足够了:美国兽医协会指出了两项研究:T1、T2、T3、T4、T5、T6，这两项研究都证明了在炎热的日子里，即使放下窗户，车内的温度也会成倍增加。其中一项研究“发现在炎热但部分多云的天气里，停放在一辆深色轿车和一辆浅灰色小型货车内的温度在20分钟内超过了 125华氏度”, AVMA写道。
+也不要以为敲碎一扇窗户就足够了:美国兽医协会指出了两项研究:T1、T2、T3、T4、T5、T6，这两项研究都证明了在炎热的日子里，即使放下窗户，车内的温度也会成倍增加。其中一项研究“发现在炎热但部分多云的天气里，停放在一辆深色轿车和一辆浅灰色小型货车内的温度在 20 分钟内超过了 125 华氏度”, AVMA 写道。
 
-这也不是一个选择性的数据分组:[T28个州](https://www.animallaw.info/topic/table-state-laws-protect-animals-left-parked-vehicles) 目前有法律明文规定把狗单独留在停放的汽车里是违法的。
+这也不是一个选择性的数据分组:[T28 个州](https://www.animallaw.info/topic/table-state-laws-protect-animals-left-parked-vehicles) 目前有法律明文规定把狗单独留在停放的汽车里是违法的。
 
 ## 知道狗中暑的征兆吗
 
-最糟糕的结果可能是你的狗会经历中暑，中暑的定义是，“体温升高到104华氏度以上”， [《今日兽医实践》写道。](https://todaysveterinarypractice.com/todays-technician-heatstroke-in-dogs/#:~:text=Heatstroke%20is%20a%20common%20problem,a%20spectrum%20of%20systemic%20signs.) 根据美国人道协会的说法， [这种危及生命的状况的症状包括](https://www.americanhumane.org/blog/summer-pet-safety-tips-from-american-humane) 、“过度喘气、舌头和牙龈呈暗红色或亮红色、嗜睡、磕磕绊绊、癫痫发作、血性腹泻和呕吐。”
+最糟糕的结果可能是你的狗会经历中暑，中暑的定义是，“体温升高到 104 华氏度以上”， [《今日兽医实践》写道。](https://todaysveterinarypractice.com/todays-technician-heatstroke-in-dogs/#:~:text=Heatstroke%20is%20a%20common%20problem,a%20spectrum%20of%20systemic%20signs.) 根据美国人道协会的说法， [这种危及生命的状况的症状包括](https://www.americanhumane.org/blog/summer-pet-safety-tips-from-american-humane) 、“过度喘气、舌头和牙龈呈暗红色或亮红色、嗜睡、磕磕绊绊、癫痫发作、血性腹泻和呕吐。”
 
 如果你怀疑你的狗中暑了，立即咨询兽医。在此期间，如果有必要，你可以做很多事情来安抚和冷却你的狗，包括将它们浸入冷水中，或者用冷的湿毛巾或海绵擦拭它们。无论发生什么事情——即使它们看起来在离开高温后恢复了活力——你还是应该带你的狗去看兽医，因为器官衰竭是严重中暑的不幸后果之一。
 

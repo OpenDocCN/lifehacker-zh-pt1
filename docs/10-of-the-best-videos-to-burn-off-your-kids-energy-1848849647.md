@@ -1,10 +1,10 @@
-# 消耗孩子能量的10个最佳视频
+# 消耗孩子能量的 10 个最佳视频
 
-> 原文:[https://life hacker . com/10-of-the-best-videos-to-burn-off-your-kids-energy-1848849647](https://lifehacker.com/10-of-the-best-videos-to-burn-off-your-kids-energy-1848849647)
+> 原文：<https://lifehacker.com/10-of-the-best-videos-to-burn-off-your-kids-energy-1848849647>
 
-我第一次看到这个有价值的生活帮 [是在抖音](https://www.tiktok.com/@childishadvice/video/7086062495697325355?_t=8Rg6hK1RWPe&_r=1) 上:当你需要让你的孩子忙一会儿的时候，在YouTube上搜索“马里奥快跑”。我看了，但我不确定最终的视频是否真的能吸引孩子的注意力。所以我向我幼儿园年龄的女儿提议，让她尝试一些。当她看到我屏幕上的缩略图时，她的眼睛睁得大大的。“我们在学校做这些！”她尖叫起来，并立即开始要求我在客厅的电视上播放她最喜欢的歌曲。
+我第一次看到这个有价值的生活帮 [是在抖音](https://www.tiktok.com/@childishadvice/video/7086062495697325355?_t=8Rg6hK1RWPe&_r=1) 上:当你需要让你的孩子忙一会儿的时候，在 YouTube 上搜索“马里奥快跑”。我看了，但我不确定最终的视频是否真的能吸引孩子的注意力。所以我向我幼儿园年龄的女儿提议，让她尝试一些。当她看到我屏幕上的缩略图时，她的眼睛睁得大大的。“我们在学校做这些！”她尖叫起来，并立即开始要求我在客厅的电视上播放她最喜欢的歌曲。
 
-这些视频的风格和主题各不相同，但都有一种互动游戏的感觉。你可能会把它们想象成虚拟现实游戏，或者那种你可以用手势识别控制器玩的游戏。但事实证明，孩子们并不一定在乎游戏是否真的在回应他们的行为；他们只想跑来跑去，跳来跳去。因此，这里有10个最好的视频可以满足这个目的——你可以直接从YouTube上播放它们，不需要游戏机。
+这些视频的风格和主题各不相同，但都有一种互动游戏的感觉。你可能会把它们想象成虚拟现实游戏，或者那种你可以用手势识别控制器玩的游戏。但事实证明，孩子们并不一定在乎游戏是否真的在回应他们的行为；他们只想跑来跑去，跳来跳去。因此，这里有 10 个最好的视频可以满足这个目的——你可以直接从 YouTube 上播放它们，不需要游戏机。
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-0HtLitzCAKY&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-0HtLitzCAKY&start=0) 
 

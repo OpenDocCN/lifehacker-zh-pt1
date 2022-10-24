@@ -1,12 +1,12 @@
 # 卡住的柠檬籽和其他洗碗机故障(以及如何解决它们)
 
-> 原文:[https://life hacker . com/ducked-lemon-seeds-and-other-distrevors-mishaps-and-ho-1848954814](https://lifehacker.com/jammed-lemon-seeds-and-other-dishwasher-mishaps-and-ho-1848954814)
+> 原文：<https://lifehacker.com/jammed-lemon-seeds-and-other-dishwasher-mishaps-and-ho-1848954814>
 
 你知道如何正确清洁 和 [如何正确装载](https://lifehacker.com/how-to-properly-load-a-dishwasher-1837836635) 你的洗碗机——为什么你的一些盘子洗出来比其他的更脏？如果你最不想做的事情就是花钱请修理工——或者更糟，不得不买一台全新的机器——你可能会很幸运。你的洗碗机不清洗脏盘子的原因可能很简单，因为你的洗碗机本身太脏了。
 
 Watch
 
-我解决洗碗机问题的知识来自我在餐馆的日子。很多时候，服务员会把一个玻璃架从洗碗机中拖到楼上，却发现一整排玻璃杯仍然很脏——尽管相邻的几排玻璃杯非常干净。每当这种情况发生时，我们都知道最有可能的罪魁祸首是l emon seeds。在求助于专业人士之前，这里有一些关于排除洗碗机堵塞故障的知识。
+我解决洗碗机问题的知识来自我在餐馆的日子。很多时候，服务员会把一个玻璃架从洗碗机中拖到楼上，却发现一整排玻璃杯仍然很脏——尽管相邻的几排玻璃杯非常干净。每当这种情况发生时，我们都知道最有可能的罪魁祸首是 l emon seeds。在求助于专业人士之前，这里有一些关于排除洗碗机堵塞故障的知识。
 
 ## 检查洗碗机的喷嘴是否有食物或碎屑
 

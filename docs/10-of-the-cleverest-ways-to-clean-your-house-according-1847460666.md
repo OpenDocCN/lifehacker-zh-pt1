@@ -1,6 +1,6 @@
-# 根据抖音的说法，打扫房间的10个最聪明的方法
+# 根据抖音的说法，打扫房间的 10 个最聪明的方法
 
-> 原文: [https://lifehacker.com/10种最聪明的打扫房子的方法1847460666](https://lifehacker.com/10-of-the-cleverest-ways-to-clean-your-house-according-1847460666)
+> 原文：<https://lifehacker.com/10-of-the-cleverest-ways-to-clean-your-house-according-1847460666>
 
 在清洁难以到达的地方时，管家和专业清洁工知道最好的技巧，有时他们利用像抖音这样的平台来帮助其余的美国。但是最好的技巧与许多不好的技巧混杂在一起，这些技巧实际上不起作用，所以我们整理并找到了一些我们最喜欢的。这里有一些来自知道自己在做什么的健身者的最佳清洁技巧。
 
@@ -16,7 +16,7 @@
 
 门上有双层玻璃，既能隔热又能很好地烹饪食物。不幸的是，意味着在之间的玻璃表面会变得相当脏，如果没有一些说明 你就不知道如何进入那里 [。管家瓦妮莎·阿马罗用她详细的抖音视频再次拯救了世界。](https://lifehacker.com/how-to-clean-the-grime-between-your-ovens-glass-doors-1846750233)
 
-根据你的烤箱类型，你可以拆下最下面的抽屉，用超细纤维布包裹一个标尺(或长的超细纤维掸子)进入玻璃之间(就像Vanessa展示的那样)。其他炉门铰链松开，让您可以移除炉门并打开它彻底清洁玻璃。
+根据你的烤箱类型，你可以拆下最下面的抽屉，用超细纤维布包裹一个标尺(或长的超细纤维掸子)进入玻璃之间(就像 Vanessa 展示的那样)。其他炉门铰链松开，让您可以移除炉门并打开它彻底清洁玻璃。
 
  [https://lifehacker.com/embed/inset/iframe?id=tiktok-6909641950685662470&autosize=1](https://lifehacker.com/embed/inset/iframe?id=tiktok-6909641950685662470&autosize=1) 
 
@@ -26,11 +26,11 @@
 
  [https://lifehacker.com/embed/inset/iframe?id=tiktok-6975670861751667974&autosize=1](https://lifehacker.com/embed/inset/iframe?id=tiktok-6975670861751667974&autosize=1) 
 
-有几种方法可以让切花保持更长时间的新鲜——从水中的到 [漱口水](https://lifehacker.com/15-household-uses-for-mouthwash-outside-of-your-mouth-1846761495/slides/9)——但是TikToker [Allison的Cleanin](https://www.tiktok.com/@allisonscleanin/video/6975670861751667974?sender_device=pc&sender_web_id=6955577764650026501&is_from_webapp=v1&is_copy_url=0) 展示了如何保持水的清洁。在花水中喷洒一些家用漂白剂(或普通瓶装漂白剂),植物会保持新鲜，水也会保持更长时间的清洁和清澈。此外，你可以在修剪(或重新修剪)你的花后，在水中溶解几片婴儿阿司匹林来达到同样的效果。
+有几种方法可以让切花保持更长时间的新鲜——从水中的到 [漱口水](https://lifehacker.com/15-household-uses-for-mouthwash-outside-of-your-mouth-1846761495/slides/9)——但是 TikToker [Allison 的 Cleanin](https://www.tiktok.com/@allisonscleanin/video/6975670861751667974?sender_device=pc&sender_web_id=6955577764650026501&is_from_webapp=v1&is_copy_url=0) 展示了如何保持水的清洁。在花水中喷洒一些家用漂白剂(或普通瓶装漂白剂),植物会保持新鲜，水也会保持更长时间的清洁和清澈。此外，你可以在修剪(或重新修剪)你的花后，在水中溶解几片婴儿阿司匹林来达到同样的效果。
 
  [https://lifehacker.com/embed/inset/iframe?id=tiktok-6878253301566049542&autosize=1](https://lifehacker.com/embed/inset/iframe?id=tiktok-6878253301566049542&autosize=1) 
 
-拥有一面一尘不染的镜子是很难做到的，但是TikToker[sharoncleaningva](https://www.tiktok.com/@sharonscleaningva/video/6878253301566049542)找到了一个完美的方法来让你的镜子看起来完美无瑕，即使是在洗了一场蒸汽浴之后。首先，用温水肥皂和超细纤维布清洁镜子。然后擦干镜子，在清洁布上喷上剃须凝胶。你要均匀地涂在镜子上，然后用超细纤维布擦拭，直到镜子完全干净干燥。下次洗完澡后，你会注意到保护层会排斥冷凝。
+拥有一面一尘不染的镜子是很难做到的，但是 TikToker[sharoncleaningva](https://www.tiktok.com/@sharonscleaningva/video/6878253301566049542)找到了一个完美的方法来让你的镜子看起来完美无瑕，即使是在洗了一场蒸汽浴之后。首先，用温水肥皂和超细纤维布清洁镜子。然后擦干镜子，在清洁布上喷上剃须凝胶。你要均匀地涂在镜子上，然后用超细纤维布擦拭，直到镜子完全干净干燥。下次洗完澡后，你会注意到保护层会排斥冷凝。
 
  [https://lifehacker.com/embed/inset/iframe?id=tiktok-6804883377796304134&autosize=1](https://lifehacker.com/embed/inset/iframe?id=tiktok-6804883377796304134&autosize=1) 
 
@@ -38,7 +38,7 @@
 
  [https://lifehacker.com/embed/inset/iframe?id=tiktok-6889821741384813830&autosize=1](https://lifehacker.com/embed/inset/iframe?id=tiktok-6889821741384813830&autosize=1) 
 
-当你的浴巾( [或床单](https://lifehacker.com/maybe-its-time-to-trade-your-bath-towel-in-for-a-bath-s-1847397621) )不再像以前那样看起来像毛绒并且不再像以前那样干燥时，TikToker Renee Alyse Bell在她的页面[mommyhasntshowed](https://www.tiktok.com/@mommyhasntshowered/video/6889821741384813830?sender_device=pc&sender_web_id=6923208287039440389&is_from_webapp=v1&is_copy_url=0)，中展示了如何让它们在洗衣机中恢复活力。
+当你的浴巾( [或床单](https://lifehacker.com/maybe-its-time-to-trade-your-bath-towel-in-for-a-bath-s-1847397621) )不再像以前那样看起来像毛绒并且不再像以前那样干燥时，TikToker Renee Alyse Bell 在她的页面[mommyhasntshowed](https://www.tiktok.com/@mommyhasntshowered/video/6889821741384813830?sender_device=pc&sender_web_id=6923208287039440389&is_from_webapp=v1&is_copy_url=0)，中展示了如何让它们在洗衣机中恢复活力。
 
 先加几条毛巾，再加小苏打和醋，再加几条毛巾，再加小苏打和醋，以此类推。完成分层后，打开热水漂洗和脱水程序，但在水用完之前停止洗涤。让洗衣机静置四个小时，然后正常洗涤。小心不要使用洗涤剂或衣物柔顺剂，它们会阻碍你的进程；醋会自行清洁和软化。
 

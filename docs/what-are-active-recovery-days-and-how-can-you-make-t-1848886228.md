@@ -1,6 +1,6 @@
 # 什么是“积极恢复日”(你如何充分利用它们)？
 
-> 原文:[https://life hacker . com/what-are-active-recovery-days-and-how-can-make-t-1848886228](https://lifehacker.com/what-are-active-recovery-days-and-how-can-you-make-t-1848886228)
+> 原文：<https://lifehacker.com/what-are-active-recovery-days-and-how-can-you-make-t-1848886228>
 
 如果你刚刚开始一个锻炼计划，你知道你不可能每天都努力。通常建议在高强度训练之间休息一天，以减少疲劳，给肌肉时间修复。 [然而，并不是所有的恢复日都要求完全休息](https://lifehacker.com/do-you-really-need-a-rest-day-after-exercise-1792349953) 。
 

@@ -1,6 +1,6 @@
 # 你应该像沙威蒂一样在你的意大利面上撒上牧场吗？
 
-> 原文:[https://life hacker . com/should-you-climb-ranch-on-you-spaghetti-like-saweeti-1846546133](https://lifehacker.com/should-you-drizzle-ranch-on-your-spaghetti-like-saweeti-1846546133)
+> 原文：<https://lifehacker.com/should-you-drizzle-ranch-on-your-spaghetti-like-saweeti-1846546133>
 
 最近，我一直在用一集或三集《黑道家族》来结束我的夜晚。第一次看系列，我(很明显)是个粉丝。我最喜欢的角色？意大利面——或者，正如我出生在康涅狄格州、有一半意大利血统的男朋友所说的，“通心粉”
 

@@ -1,14 +1,14 @@
-# 你可以在健身房用TRX背带做的11个最好的练习
+# 你可以在健身房用 TRX 背带做的 11 个最好的练习
 
-> 原文:[https://life hacker . com/11-of-the-best-of-exercises-you-can-do-on-Trx-straps-at-th-1848908010](https://lifehacker.com/11-of-the-best-exercises-you-can-do-on-trx-straps-at-th-1848908010)
+> 原文：<https://lifehacker.com/11-of-the-best-exercises-you-can-do-on-trx-straps-at-th-1848908010>
 
 悬浮训练器 [非常适合家庭训练](https://lifehacker.com/how-to-get-stronger-with-suspension-training-without-g-1847822168) 和旅行，但你也会在健身房看到黄色和黑色的带子悬挂在下拉杆上。如果机器和哑铃的替代品就在那里，它们还有什么用？让我们来看看一些在悬挂训练器上做得最好的*练习。*
 
-许多这些也可以用体操吊环来完成，但是反过来就不正确了。戒指通常挂在两个独立的带子上，而TRX装置将两个带子连接到同一个锚点。这意味着他们不适合环浸，但你仍然可以做很多很好的练习。
+许多这些也可以用体操吊环来完成，但是反过来就不正确了。戒指通常挂在两个独立的带子上，而 TRX 装置将两个带子连接到同一个锚点。这意味着他们不适合环浸，但你仍然可以做很多很好的练习。
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-lBxgQ2FEiH8&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-lBxgQ2FEiH8&start=0) 
 
-交叉练习者称这些为“环行”，用体操环做；TRX用户通常称之为“低排”无论你怎么称呼它们，它们都是上拉 的一种方便、易于调整的 [替代。初学版略往后靠；将你的脚向前，这样你的身体几乎是水平的，以迎接更艰难的挑战。](https://lifehacker.com/discover-your-perfect-pullup-variation-1848119449)
+交叉练习者称这些为“环行”，用体操环做；TRX 用户通常称之为“低排”无论你怎么称呼它们，它们都是上拉 的一种方便、易于调整的 [替代。初学版略往后靠；将你的脚向前，这样你的身体几乎是水平的，以迎接更艰难的挑战。](https://lifehacker.com/discover-your-perfect-pullup-variation-1848119449)
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-OlUqeytSoxE&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-OlUqeytSoxE&start=0) 
 
@@ -28,7 +28,7 @@
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-hfHUWysKgXc&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-hfHUWysKgXc&start=0) 
 
-这是一种环行运动，以类似于举哑铃的方式挑战你的肩部肌肉。它还以类似于划船的方式锻炼你的上背部肌肉，这使它成为几乎任何力量训练的绝佳配件。一旦你掌握了Y飞，尝试不同的手臂姿势来做所谓的 [T/Y/I拉](https://youtu.be/OhJSh3rgotc?t=39) 。
+这是一种环行运动，以类似于举哑铃的方式挑战你的肩部肌肉。它还以类似于划船的方式锻炼你的上背部肌肉，这使它成为几乎任何力量训练的绝佳配件。一旦你掌握了 Y 飞，尝试不同的手臂姿势来做所谓的 [T/Y/I 拉](https://youtu.be/OhJSh3rgotc?t=39) 。
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-ddq8ECSkm-w&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-ddq8ECSkm-w&start=0) 
 

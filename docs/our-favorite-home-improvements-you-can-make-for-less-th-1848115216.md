@@ -1,6 +1,6 @@
-# 不到100美元，你就能做出我们最喜欢的家居装修
+# 不到 100 美元，你就能做出我们最喜欢的家居装修
 
-> 原文:[https://life hacker . com/our-favorite-home-improvements-you-can-make-for-less-th-1848115216](https://lifehacker.com/our-favorite-home-improvements-you-can-make-for-less-th-1848115216)
+> 原文：<https://lifehacker.com/our-favorite-home-improvements-you-can-make-for-less-th-1848115216>
 
 家装项目在规模和成本上都令人望而生畏。但是，如果你在寻找小方法，让你和你的客人的家更舒适、更高效或更安全，你不必破产。这里有几个我们最喜欢的家庭装修项目，它们会产生巨大的效果，即使预算很少。
 
@@ -8,15 +8,15 @@ Watch
 
 ## 添加智能恒温器
 
-有很多售价不到100美元的智能恒温器，它们可以帮你节省取暖和制冷费用。你不仅可以减少能源消耗，还可以让你的家更加舒适。智能恒温器可以学习你的时间表和习惯，根据你的需要调高或调低温度——自动调节可以为你节省大约10%的家庭取暖费用。
+有很多售价不到 100 美元的智能恒温器，它们可以帮你节省取暖和制冷费用。你不仅可以减少能源消耗，还可以让你的家更加舒适。智能恒温器可以学习你的时间表和习惯，根据你的需要调高或调低温度——自动调节可以为你节省大约 10%的家庭取暖费用。
 
 ## 让你的楼梯不那么滑
 
-如果你的内外台阶都很光滑，通过投资一些 [防滑胶带](https://www.amazon.com/Tape-King-Anti-Slip-Traction/dp/B01M63K167?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/our-favorite-home-improvements-you-can-make-for-less-th-1848115216&asc_source=&tag=kinjalifehackerlink-20) 来拯救自己免于潜在的跌落。这将使你每投一次远低于100美元，为了避免事故，这个价格是值得的。防滑胶带— 也称为摩擦胶带— 有多种宽度，适合不同的应用。确保检查一卷有多少，这样你就能为你的楼梯买足够的。
+如果你的内外台阶都很光滑，通过投资一些 [防滑胶带](https://www.amazon.com/Tape-King-Anti-Slip-Traction/dp/B01M63K167?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/our-favorite-home-improvements-you-can-make-for-less-th-1848115216&asc_source=&tag=kinjalifehackerlink-20) 来拯救自己免于潜在的跌落。这将使你每投一次远低于 100 美元，为了避免事故，这个价格是值得的。防滑胶带— 也称为摩擦胶带— 有多种宽度，适合不同的应用。确保检查一卷有多少，这样你就能为你的楼梯买足够的。
 
 ## 用太阳能灯照亮你的院子
 
-对于通道和门廊，太阳能驱动的LED照明是一种经济高效且安全的升级产品。你可以安装时尚的门廊灯或路径灯，不需要任何电力成本，,让你的院子保持良好照明。这些灯具不需要外部插座或电线，安装非常方便，立竿见影。
+对于通道和门廊，太阳能驱动的 LED 照明是一种经济高效且安全的升级产品。你可以安装时尚的门廊灯或路径灯，不需要任何电力成本，,让你的院子保持良好照明。这些灯具不需要外部插座或电线，安装非常方便，立竿见影。
 
 ## 重新填缝你的浴缸
 

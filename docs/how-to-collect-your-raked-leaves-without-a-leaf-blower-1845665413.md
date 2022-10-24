@@ -1,6 +1,6 @@
 # 如何不用吹叶机收集耙下的树叶
 
-> 原文:[https://life hacker . com/how-to-collect your-raked-leaf-without-a leaf-blower-1845665413](https://lifehacker.com/how-to-collect-your-raked-leaves-without-a-leaf-blower-1845665413)
+> 原文：<https://lifehacker.com/how-to-collect-your-raked-leaves-without-a-leaf-blower-1845665413>
 
 我丈夫这周运气很好。首先，他用 [这种咖啡渣黑](https://lifehacker.com/use-coffee-grounds-to-eliminate-household-odors-1845653775) 控制了我们家狗的呕吐物的残留气味。然后，在这个房子里住了八个秋天后，他终于想出了如何将覆盖我们后院整个表面的树叶运到街上——通过使用一个巨大的毯子作为运输方法。
 

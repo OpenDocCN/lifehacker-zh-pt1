@@ -1,6 +1,6 @@
 # 如何检查你的州是否欠你无人认领的钱
 
-> 原文:[https://life hacker . com/how-to-check-if-your-state-own-you-claimed-money-1847639557](https://lifehacker.com/how-to-check-if-your-state-owes-you-unclaimed-money-1847639557)
+> 原文：<https://lifehacker.com/how-to-check-if-your-state-owes-you-unclaimed-money-1847639557>
 
 你不应该把本该属于你的钱留在桌子上，但是如果是无人认领的财产——公司或金融机构欠你的资金或资产——你可能甚至不知道你错过了什么。
 
@@ -12,7 +12,7 @@ Watch
 
 ## 如何找到(并取回)无人认领的财产
 
-1.  前往全国无人认领财产管理人协会的官方网站[【unclaimed.org】](https://unclaimed.org/)。向下滚动到“选择您所在的州或省”按钮，或者在地图上点击您所在的州，进入您所在州的官方无人认领财产网站。这包括DC、关岛、波多黎各、和美国 S. 维尔京群岛、以及加拿大各省。
+1.  前往全国无人认领财产管理人协会的官方网站[【unclaimed.org】](https://unclaimed.org/)。向下滚动到“选择您所在的州或省”按钮，或者在地图上点击您所在的州，进入您所在州的官方无人认领财产网站。这包括 DC、关岛、波多黎各、和美国 S. 维尔京群岛、以及加拿大各省。
 
 2.  每个州的数据库都有一点不同，但是你会看到一个搜索无人认领财产的选项。同样，根据您所在的州，您可能需要输入您的姓氏或公司名称以及名字、城市、或其他识别信息，这些信息可能不是必需的，但可以帮助您缩小搜索结果的范围。
 

@@ -1,6 +1,6 @@
 # 今年春天，为你的孩子打造一个后院“泥厨房”
 
-> 原文:[https://life hacker . com/create-a-backyard-mud-kitchen-for-your-kids-this-spring-1846414473](https://lifehacker.com/create-a-backyard-mud-kitchen-for-your-kids-this-spring-1846414473)
+> 原文：<https://lifehacker.com/create-a-backyard-mud-kitchen-for-your-kids-this-spring-1846414473>
 
 随着外面的地面开始解冻，我们哄着我们的孩子回到常规的户外玩耍，可能是时候让他们开始大自然最伟大的感官活动了——泥厨房。
 

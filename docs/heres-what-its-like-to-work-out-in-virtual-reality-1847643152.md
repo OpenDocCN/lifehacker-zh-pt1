@@ -1,10 +1,10 @@
 # 这就是在虚拟现实中锻炼的感觉
 
-> 原文:[https://life hacker . com/heres-what-its-like-to-work-out-in-virtual-reality-1847643152](https://lifehacker.com/heres-what-its-like-to-work-out-in-virtual-reality-1847643152)
+> 原文：<https://lifehacker.com/heres-what-its-like-to-work-out-in-virtual-reality-1847643152>
 
 在虚拟现实中用适应度做了一些的实验后，我最终得出了 [的结论](https://lifehacker.com/what-ive-learned-about-working-out-in-vr-1847424891) 它擅长某些事情而不擅长其他事情。在这个视频中，你可以看着我挥拳猛击想象中的东西，而我会想出所有的办法。
 
-在我的实验中，我的目标是每周至少几次在虚拟现实中锻炼30分钟。这取代了跑步、散步或壶铃训练。就健身而言，虚拟现实是轻松慢跑的一个很好的替代选择，我喜欢能够在室内工作，在像我家庭办公室那么小的空间里。
+在我的实验中，我的目标是每周至少几次在虚拟现实中锻炼 30 分钟。这取代了跑步、散步或壶铃训练。就健身而言，虚拟现实是轻松慢跑的一个很好的替代选择，我喜欢能够在室内工作，在像我家庭办公室那么小的空间里。
 
 在视频中你会看到一些我最喜欢的游戏——喊出*超自然*和*战斗的快感*的片段。(你还会看到我添加的售后硅胶套，这样当我儿子借耳机时，它不会汗流浃背地回到我身边。)
 

@@ -1,10 +1,10 @@
-# 如何在iOS 14中自定义你的iPhone主屏幕
+# 如何在 iOS 14 中自定义你的 iPhone 主屏幕
 
-> 原文:[https://life hacker . com/how-to-customize-your-iphone-home-screen-in-IOs-14-1845450222](https://lifehacker.com/how-to-customize-your-iphone-home-screen-in-ios-14-1845450222)
+> 原文：<https://lifehacker.com/how-to-customize-your-iphone-home-screen-in-ios-14-1845450222>
 
-你有没有遇到过这种情况:你打开手机，然后*希望*你可以把应用程序的图标和字体改成一个匹配的、可爱的主题？iOS 14中有好消息告诉你！
+你有没有遇到过这种情况:你打开手机，然后*希望*你可以把应用程序的图标和字体改成一个匹配的、可爱的主题？iOS 14 中有好消息告诉你！
 
-在你决定了完美传达你个性的主题后，你会想要一些图标。你可以使用像icons8.com这样的网站来挑选完美的匹配集，并将这些新图标保存到你的相机胶卷中。
+在你决定了完美传达你个性的主题后，你会想要一些图标。你可以使用像 icons8.com 这样的网站来挑选完美的匹配集，并将这些新图标保存到你的相机胶卷中。
 
 然后下载应用程序 [Widgetsmith](https://apps.apple.com/us/app/widgetsmith/id1523682319) ，它可以让你改变主屏幕上的颜色和字体，以及 [快捷方式](https://apps.apple.com/us/app/shortcuts/id915249334) ，这是一个苹果应用程序，它可以让你改变图标本身。
 

@@ -1,6 +1,6 @@
 # 你可以用牙膏清洁这些家居用品
 
-> 原文:[https://life hacker . com/you-can-clean-these-food-1846451615](https://lifehacker.com/you-can-clean-these-household-items-with-toothpaste-1846451615)
+> 原文：<https://lifehacker.com/you-can-clean-these-household-items-with-toothpaste-1846451615>
 
 牙膏一般是由化学物质 制成的 [，可以对抗蛀牙，去除牙菌斑，增加味道。碳酸钙等成分有助于分解牙菌斑，但用于口腔卫生的相同化学物质也可以清洁你房子周围的无尽物品。这里有一些不太可能的用途，一团牙膏可以用很长时间。](https://www.deltadentalins.com/oral_health/whats-in-your-toothpaste.html)
 
@@ -12,7 +12,7 @@ Watch
 
 ### 让鞋子恢复原来的光泽
 
-将牙膏放在旧牙刷上，轻轻擦洗鞋底橡胶。DIY网站 [家庭杂工](https://www.familyhandyman.com/article/use-toothpaste-to-clean-sneakers/) 建议让牙膏保持10分钟，让牙齿变得更白——之后冲洗并擦干就能有明显的效果。牙膏甚至可以去除皮革上的磨损，方法是用柔软的毛巾将牙膏涂抹在磨损处，然后用超细纤维毛巾擦净。
+将牙膏放在旧牙刷上，轻轻擦洗鞋底橡胶。DIY 网站 [家庭杂工](https://www.familyhandyman.com/article/use-toothpaste-to-clean-sneakers/) 建议让牙膏保持 10 分钟，让牙齿变得更白——之后冲洗并擦干就能有明显的效果。牙膏甚至可以去除皮革上的磨损，方法是用柔软的毛巾将牙膏涂抹在磨损处，然后用超细纤维毛巾擦净。
 
 ### 去除蜡笔痕迹
 
@@ -20,7 +20,7 @@ Watch
 
 ### 清除模糊的车灯
 
-随着时间的推移，车头灯往往会在其透镜上形成一层暗淡的薄膜，使光线变暗。你可以花大约20美元买一套除雾工具——或者甚至花190美元专业地完成——或者你可以把牙膏挤在海绵上，马上擦掉污垢、尘垢和划痕。用湿布冲洗一下，车头灯就会闪亮如新。
+随着时间的推移，车头灯往往会在其透镜上形成一层暗淡的薄膜，使光线变暗。你可以花大约 20 美元买一套除雾工具——或者甚至花 190 美元专业地完成——或者你可以把牙膏挤在海绵上，马上擦掉污垢、尘垢和划痕。用湿布冲洗一下，车头灯就会闪亮如新。
 
 ### 去除食物气味
 

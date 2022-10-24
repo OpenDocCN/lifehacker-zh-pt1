@@ -1,8 +1,8 @@
 # 如何知道一份“入门级”工作是扯淡
 
-> 原文:[https://life hacker . com/if-you-arent-qualified-for-entry-level-job-you-d-1846976334](https://lifehacker.com/if-you-arent-qualified-for-their-entry-level-job-you-d-1846976334)
+> 原文：<https://lifehacker.com/if-you-arent-qualified-for-their-entry-level-job-you-d-1846976334>
 
-就像在大萧条时期从大学毕业的千禧一代一样，2021届毕业生在就业市场上面临严峻的前景( [)然而，与去年遭受重创的市场相比，这仍然有了显著的改善](https://money.usnews.com/money/blogs/outside-voices-careers/articles/jobs-after-college-for-recent-graduates) )。或者至少这是他们的感觉，根据教育技术和出版公司Cengage的 [新调查](https://cengage.widen.net/content/e5oqtwwrw1/pdf/Graduate_Employability_Report---May-24-FINAL.pdf?u=fn2gt2) 。
+就像在大萧条时期从大学毕业的千禧一代一样，2021 届毕业生在就业市场上面临严峻的前景( [)然而，与去年遭受重创的市场相比，这仍然有了显著的改善](https://money.usnews.com/money/blogs/outside-voices-careers/articles/jobs-after-college-for-recent-graduates) )。或者至少这是他们的感觉，根据教育技术和出版公司 Cengage 的 [新调查](https://cengage.widen.net/content/e5oqtwwrw1/pdf/Graduate_Employability_Report---May-24-FINAL.pdf?u=fn2gt2) 。
 
 在寻找第一份工作的受访者中，大约一半的人承认不愿申请初级职位，因为他们觉得自己不够格。任何初入职场的人都会觉得自己的技能配不上入门级工作，这表明他们与公司设定的期望明显脱节，此外，最近的毕业生对自己的学习能力有误解。
 

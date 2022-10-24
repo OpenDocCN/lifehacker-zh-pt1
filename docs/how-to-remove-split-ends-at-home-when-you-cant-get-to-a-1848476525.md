@@ -1,12 +1,12 @@
 # 当你找不到专业人士时，如何在家去除分叉
 
-> 原文:[https://life hacker . com/how-to-remove-split-ends-in-home-when-you-can-to-a-1848476525](https://lifehacker.com/how-to-remove-split-ends-at-home-when-you-cant-get-to-a-1848476525)
+> 原文：<https://lifehacker.com/how-to-remove-split-ends-at-home-when-you-cant-get-to-a-1848476525>
 
 回到新冠肺炎·疫情时代的初期，当大多数人还把它看得很重的时候，理发是“正常”生活中第一个(也是最明显的)被抛弃的部分之一。社交媒体上充斥着头发的照片，这些照片之前经常被的专业人士处理，但现在却让它们自己生长，慢慢地恢复到自然的颜色。
 
 Watch
 
-但是，一旦2021年春夏商业开始重新开放，去发型师那里的旅行又开始了，许多人没有回头——不管新的变种或激增。然而，其他人继续谨慎行事，要么完全避免去美容院或理发店，要么大幅减少去的次数。
+但是，一旦 2021 年春夏商业开始重新开放，去发型师那里的旅行又开始了，许多人没有回头——不管新的变种或激增。然而，其他人继续谨慎行事，要么完全避免去美容院或理发店，要么大幅减少去的次数。
 
 如果你属于第二类，你可能会发现自己现在更多地处理分叉，而没有常规修剪的好处。幸运的是，有一种叫做“除尘”的技术可以帮助去除家中受损的头发。以下是需要了解的内容。
 
@@ -30,7 +30,7 @@ Watch
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-rGJbIT6qyUc&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-rGJbIT6qyUc&start=0) 
 
-### 4型头发:
+### 4 型头发:
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-5yuwe_l98cI&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-5yuwe_l98cI&start=0) 
 

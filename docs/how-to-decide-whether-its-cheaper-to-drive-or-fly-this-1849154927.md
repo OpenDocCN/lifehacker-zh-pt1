@@ -1,8 +1,8 @@
 # 如何决定今年夏天开车还是坐飞机更便宜
 
-> 原文:[https://life hacker . com/how-to-decision-what-it ' s-drive or-fly-this-1849154927](https://lifehacker.com/how-to-decide-whether-its-cheaper-to-drive-or-fly-this-1849154927)
+> 原文：<https://lifehacker.com/how-to-decide-whether-its-cheaper-to-drive-or-fly-this-1849154927>
 
-现在我们已经进入了新冠肺炎疫情的第三个夏天，一些在2020年或2021年不习惯旅行的人已经选择今年这样做。不幸的是，一系列因素——包括高油价、租车短缺、机票价格上涨和航班减少——意味着2022年夏天的旅行不会便宜。(或者愉快。)
+现在我们已经进入了新冠肺炎疫情的第三个夏天，一些在 2020 年或 2021 年不习惯旅行的人已经选择今年这样做。不幸的是，一系列因素——包括高油价、租车短缺、机票价格上涨和航班减少——意味着 2022 年夏天的旅行不会便宜。(或者愉快。)
 
 Watch
 
@@ -12,7 +12,7 @@ Watch
 
 ## 去的人数
 
-最近，斯科特的廉价航班[的创始人斯科特·凯斯告诉《华盛顿邮报》。假设你要去纳什维尔，往返机票是300美元，油费总共是250美元(而且你有自己的车)。](https://www.washingtonpost.com/travel/tips/fly-or-drive-cost/)
+最近，斯科特的廉价航班[的创始人斯科特·凯斯告诉《华盛顿邮报》。假设你要去纳什维尔，往返机票是 300 美元，油费总共是 250 美元(而且你有自己的车)。](https://www.washingtonpost.com/travel/tips/fly-or-drive-cost/)
 
 如果你独自旅行(只考虑机票和汽油，不考虑其他因素)，坐飞机会比开车便宜。但是如果你和其他人一起旅行，开车可能是更实惠的选择。
 

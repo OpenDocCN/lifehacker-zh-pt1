@@ -1,6 +1,6 @@
 # 你每个月应该做的烘干机维护任务
 
-> 原文:[https://life hacker . com/the-dryer-maintenance-tasks-you-should-do-every-month-1849582598](https://lifehacker.com/the-dryer-maintenance-tasks-you-should-do-every-month-1849582598)
+> 原文：<https://lifehacker.com/the-dryer-maintenance-tasks-you-should-do-every-month-1849582598>
 
 如果你的烘干机突然停止工作或者开始运转太热，你将会剩下湿透或者缩水的衣服。更糟糕的是，运转不良的烘干机实际上是火灾隐患。当我们的洗衣设备运行良好时，我们通常不会过多考虑它们，所以我们倾向于认为它们是理所当然的。但是有一些我们都应该做的简单的日常事情来保持我们的干衣机处于良好状态(避免房屋火灾)。
 
@@ -20,7 +20,7 @@ Watch
 
 ## 检查外部通风口
 
-检查通向烘干机的外部通风口，确保没有树枝、植物或其他碎片阻碍气流，并且g et习惯于偶尔 看一下通风口，确保没有堵塞。您可以用抹布和刷子清除该区域的任何碎屑和棉绒。
+检查通向烘干机的外部通风口，确保没有树枝、植物或其他碎片阻碍气流，并且 g et 习惯于偶尔 看一下通风口，确保没有堵塞。您可以用抹布和刷子清除该区域的任何碎屑和棉绒。
 
 ## 检查并清洁管道
 

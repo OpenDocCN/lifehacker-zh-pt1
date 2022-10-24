@@ -1,14 +1,14 @@
-# 每个人都会遇到的10种尴尬情况(以及如何应对)
+# 每个人都会遇到的 10 种尴尬情况(以及如何应对)
 
-> 原文:[https://life hacker . com/top-10-unless-situations-and-how-to-deal-to-th-1689899501](https://lifehacker.com/top-10-uncomfortable-situations-and-how-to-deal-with-th-1689899501)
+> 原文：<https://lifehacker.com/top-10-uncomfortable-situations-and-how-to-deal-with-th-1689899501>
 
-生活充满了尴尬和不舒服的时刻。我们不能完全避免它们，但我们可以优雅地处理它们。或者，至少，我们可以用足够的诚实来对付他们，帮助从的帆上拿出气。无论是忘记某人的名字，谈论性，还是不知道该说些什么，这里有10种我们都可能遇到的情况，以及如何缓解这种不适。
+生活充满了尴尬和不舒服的时刻。我们不能完全避免它们，但我们可以优雅地处理它们。或者，至少，我们可以用足够的诚实来对付他们，帮助从的帆上拿出气。无论是忘记某人的名字，谈论性，还是不知道该说些什么，这里有 10 种我们都可能遇到的情况，以及如何缓解这种不适。
 
 [它发生在我们最好的人身上](https://lifehacker.com/why-its-so-hard-to-remember-peoples-names-1620881563) 。你五秒钟前才知道一个人的名字(或者更糟，之前见过这个人几次)，现在却一片空白。趁着还有 [事情](http://lifehacker.com/help-yourself-remember-someones-name-by-introducing-the-1672921090) [你可以做](http://lifehacker.com/ask-a-question-to-better-remember-someones-name-5994497) [记人名](http://lifehacker.com/remember-peoples-names-and-faces-by-creating-visual-hoo-5973948) [下一次](http://lifehacker.com/how-to-remember-peoples-names-and-deal-with-unusual-na-5626604) ，你可以用几种方法绕开当前的紧急情况。
 
-如果你正在参加一个专业活动，而你还没有，你可以索要对方的电子邮件地址，这可能会给你你所需要的。你可以问他们的名字 [假装你不知道他们的姓](http://lifehacker.com/find-out-someones-name-which-youve-forgotten-259647) ，尽管这个已经用了太多次了，基本上就是认罪。你也可以把这个人介绍给你的朋友(“这是我的朋友Tina，”，Tina可以问这个无名的人的名字)。
+如果你正在参加一个专业活动，而你还没有，你可以索要对方的电子邮件地址，这可能会给你你所需要的。你可以问他们的名字 [假装你不知道他们的姓](http://lifehacker.com/find-out-someones-name-which-youve-forgotten-259647) ，尽管这个已经用了太多次了，基本上就是认罪。你也可以把这个人介绍给你的朋友(“这是我的朋友 Tina，”，Tina 可以问这个无名的人的名字)。
 
-或者，当然，你可以承认你的记性很差，但是如果对方记得你的 ，那就太棒了。在之后，给他们一个适当而周到的cc你的尴尬可以帮助减轻伤害。
+或者，当然，你可以承认你的记性很差，但是如果对方记得你的 ，那就太棒了。在之后，给他们一个适当而周到的 cc 你的尴尬可以帮助减轻伤害。
 
 无论你是在陌生人之间的聚会上，还是在你认识的人之间的谈话中有一个长时间的间歇，沉默都会让人感到震耳欲聋。每个人都想有更有趣的对话——或者至少避免尴尬的。正如你可能猜到的，关键是要有所准备。 [有计划](https://lifehacker.com/how-to-be-more-interesting-when-meeting-new-people-1612086910) ，撑起一些 [的好故事](http://lifehacker.com/save-everyone-from-awkward-silences-with-good-go-to-sto-1688072974) ，运用 [的福特手法](http://lifehacker.com/use-the-ford-technique-to-make-small-talk-easier-5937348)[把闲聊变成实际的对话](http://lifehacker.com/how-can-i-turn-small-talk-into-a-conversation-5913355) ，而且，有时候， [只是享受](http://lifehacker.com/dont-be-afraid-of-silences-give-others-a-chance-to-get-1665862532) 的沉默。
 
@@ -34,4 +34,4 @@
 
 也许是家庭成员总是不得不为所欲为，也许是朋友从不让任何人插话，也许是同事过度分享个人细节，但令人不舒服的情况可能总是会出现，因为这是人类的本性。这里有一个简单的指南，介绍一些更常见的不舒服的情绪类型[](https://lifehacker.com/the-awkward-human-survival-guide-how-to-handle-lifes-m-5967410)以及如何应对。然而，事实是，有时偶尔不舒服是好事， [就像海军海豹突击队](https://lifehacker.com/get-comfortable-being-uncomfortable-1599385696) 。当它发生时，你让它成长。
 
-*这个故事最初发表于2015年3月，并于2021年5月10日更新为幻灯片，提供了新的照片和信息。*
+*这个故事最初发表于 2015 年 3 月，并于 2021 年 5 月 10 日更新为幻灯片，提供了新的照片和信息。*

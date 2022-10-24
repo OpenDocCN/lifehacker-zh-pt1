@@ -1,6 +1,6 @@
 # 你可以设计你的花园来阻止蛇
 
-> 原文:[https://life hacker . com/how-to-design-your-garden-to-detent-snakes-1848929165](https://lifehacker.com/how-to-design-your-garden-to-deter-snakes-1848929165)
+> 原文：<https://lifehacker.com/how-to-design-your-garden-to-deter-snakes-1848929165>
 
 蛇通常有助于控制我们花园中的老鼠等害虫，但你可能也不喜欢在除草时在你的院子里发现一条有毒的蛇。我们通常更喜欢它们在*距离*处提供帮助，我们可以通过种植什么和如何维护空间来鼓励它们，以避免它们可能喜欢隐藏的过多地方，并阻止它们成为食物来源。以下是你可以做的，让你的花园不那么蛇友好。
 

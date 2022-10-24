@@ -1,8 +1,8 @@
-# DIY床头板的最佳(也是最便宜)制作方法
+# DIY 床头板的最佳(也是最便宜)制作方法
 
-> 原文:[https://life hacker . com/the-best-and-cheap-way-to-make-a-DIY-head board-1848217873](https://lifehacker.com/the-best-and-cheapest-way-to-make-a-diy-headboard-1848217873)
+> 原文：<https://lifehacker.com/the-best-and-cheapest-way-to-make-a-diy-headboard-1848217873>
 
-床架和床头板可能会很贵，但即使是最简单的装饰品味，舒适、温馨的卧室也是必不可少的。无论你的装修品味和预算如何，有了 DIY人造床头板，你可以两全其美。
+床架和床头板可能会很贵，但即使是最简单的装饰品味，舒适、温馨的卧室也是必不可少的。无论你的装修品味和预算如何，有了 DIY 人造床头板，你可以两全其美。
 
 Watch
 

@@ -1,8 +1,8 @@
 # 如何清洁你的茶壶内部，因为里面很脏
 
-> 原文:[https://life hacker . com/how-to-clean-the-inside-of-your tea-kettle-its-1848016354](https://lifehacker.com/how-to-clean-the-inside-of-your-tea-kettle-because-its-1848016354)
+> 原文：<https://lifehacker.com/how-to-clean-the-inside-of-your-tea-kettle-because-its-1848016354>
 
-冒着听起来像英国人的风险(这是我最害怕的事情之一)，我发现自己每天至少要说11次“*该喝茶了*”。尤其是当树叶变色的时候——字面上或隐喻上，取决于你在哪里——没有什么比蜷缩着喝你选择的热饮更好的了。
+冒着听起来像英国人的风险(这是我最害怕的事情之一)，我发现自己每天至少要说 11 次“*该喝茶了*”。尤其是当树叶变色的时候——字面上或隐喻上，取决于你在哪里——没有什么比蜷缩着喝你选择的热饮更好的了。
 
 Watch
 
@@ -14,11 +14,11 @@ Watch
 
 你只是用茶壶烧水吧？能有多糟？
 
-偷看一眼你的水壶，你可能会看到当你超过几周没有清洗它时，会出现矿物质沉积。你很可能会发现一种白色的石灰垢，通常会在你的水槽或浴室瓷砖周围形成。根据 [美国家庭用水和空气](https://americanhomewater.com/what-is-limescale-how-can-you-get-rid-of-it/) (AHWA)的说法，水垢是由硬水中的钙和碳酸根离子组成的( [这里是AHWA对硬水和软水的分解](https://americanhomewater.com/hard-water-vs-soft-water/) )。
+偷看一眼你的水壶，你可能会看到当你超过几周没有清洗它时，会出现矿物质沉积。你很可能会发现一种白色的石灰垢，通常会在你的水槽或浴室瓷砖周围形成。根据 [美国家庭用水和空气](https://americanhomewater.com/what-is-limescale-how-can-you-get-rid-of-it/) (AHWA)的说法，水垢是由硬水中的钙和碳酸根离子组成的( [这里是 AHWA 对硬水和软水的分解](https://americanhomewater.com/hard-water-vs-soft-water/) )。
 
 此外，如果你一次让水在你的水壶里呆几天(或几周)，你可能会开始看到一些铁锈在那里形成。
 
-好消息是，我们有一种快速简单的清洁方法，可以让你的水壶恢复最佳状态。我们之前已经讲过如何用柠檬酸粉[清洁你的电热水壶，但是b elow是最初在](https://lifehacker.com/clean-your-electric-kettle-with-citric-acid-powder-1706093894) [真正简单的](https://www.realsimple.com/home-organizing/cleaning/how-to-clean-tea-kettle) 中发现的另一种方法。
+好消息是，我们有一种快速简单的清洁方法，可以让你的水壶恢复最佳状态。我们之前已经讲过如何用柠檬酸粉[清洁你的电热水壶，但是 b elow 是最初在](https://lifehacker.com/clean-your-electric-kettle-with-citric-acid-powder-1706093894) [真正简单的](https://www.realsimple.com/home-organizing/cleaning/how-to-clean-tea-kettle) 中发现的另一种方法。
 
 ## **清洗茶壶需要什么**
 
@@ -28,12 +28,12 @@ Watch
 
 ## **清洁水壶内部的步骤**
 
-向水壶中加入四分之一杯白醋和两杯水。炖20分钟。冷却并彻底冲洗。
+向水壶中加入四分之一杯白醋和两杯水。炖 20 分钟。冷却并彻底冲洗。
 
 如果醋里的矿物质被洗掉了，你可以就此打住，或者你也可以继续深入清洁:
 
 *   在水壶中混合两汤匙小苏打、两汤匙柠檬汁和水。
-*   煮30分钟(确保水壶里一直有水)。
+*   煮 30 分钟(确保水壶里一直有水)。
 *   让其冷却，然后彻底冲洗并擦干。
 
 ## **防止未来积聚**

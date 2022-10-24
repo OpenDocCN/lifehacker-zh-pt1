@@ -1,6 +1,6 @@
 # 冷冻你的姜，这样更容易磨碎
 
-> 原文:[https://life hacker . com/freeze-your-ginger-for-easy-grating-1846547281](https://lifehacker.com/freeze-your-ginger-for-easier-grating-1846547281)
+> 原文：<https://lifehacker.com/freeze-your-ginger-for-easier-grating-1846547281>
 
 我吃了很多姜，这意味着我买了很多姜，这有时意味着在姜开始枯萎之前没有用完所有的姜。我有干姜 [缓解策略](https://lifehacker.com/use-dried-up-ginger-to-make-a-flavored-oil-1846400817) 但是，在最近一次过于热情的生姜购买后，我把大约六个大根扔进了冰箱，让它们尽可能长时间保持新鲜。
 

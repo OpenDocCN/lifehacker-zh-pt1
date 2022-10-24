@@ -1,16 +1,16 @@
 # 十二月什么时候看“冷月”
 
-> 原文:[https://life hacker . com/when-to-see-the-cold-moon-in-12-1848117266](https://lifehacker.com/when-to-see-the-cold-moon-in-december-1848117266)
+> 原文：<https://lifehacker.com/when-to-see-the-cold-moon-in-december-1848117266>
 
-[11月的血腥海狸月食](https://lifehacker.com/when-to-see-novembers-lunar-eclipse-of-the-beaver-moon-1847977601) 很壮观，但不要小看12月的满月。被称为“冷月”的12月满月将于2021年12月18日星期六升起。东部时间晚上11点37分最亮。Brrr。
+[11 月的血腥海狸月食](https://lifehacker.com/when-to-see-novembers-lunar-eclipse-of-the-beaver-moon-1847977601) 很壮观，但不要小看 12 月的满月。被称为“冷月”的 12 月满月将于 2021 年 12 月 18 日星期六升起。东部时间晚上 11 点 37 分最亮。Brrr。
 
 Watch
 
 ## 十二月的满月有什么特别的吗？
 
-每个月的满月都有其独特之处，但老实说，12月的满月很美。它将在高空，导致它在地平线上更长时间可见，所以这至少是*某事*。甚至一个普通的满月也很酷。
+每个月的满月都有其独特之处，但老实说，12 月的满月很美。它将在高空，导致它在地平线上更长时间可见，所以这至少是*某事*。甚至一个普通的满月也很酷。
 
-如果你想知道什么时候能看到12月的满月(以及其他月亮)，这里有一个 [月亮升起和落下计算器](https://www.almanac.com/astronomy/moon-rise-and-set) 供你阅读。就我个人而言，我不会那样提前计划我的探月计划。我只是晚上出去走走，然后说，“哦，看。月亮。”
+如果你想知道什么时候能看到 12 月的满月(以及其他月亮)，这里有一个 [月亮升起和落下计算器](https://www.almanac.com/astronomy/moon-rise-and-set) 供你阅读。就我个人而言，我不会那样提前计划我的探月计划。我只是晚上出去走走，然后说，“哦，看。月亮。”
 
 ## 为什么叫“冷月？”
 

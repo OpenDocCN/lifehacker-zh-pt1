@@ -1,8 +1,8 @@
 # 为什么你应该在咖啡中加入菊苣
 
-> 原文:[https://life hacker . com/why-you-should-add-菊苣到你的咖啡-1848822988](https://lifehacker.com/why-you-should-add-chicory-to-your-coffee-1848822988)
+> 原文：<https://lifehacker.com/why-you-should-add-chicory-to-your-coffee-1848822988>
 
-如果你尝过新奥尔良式咖啡，你可能会知道它的一些独特风味是由于添加了菊苣T3[。菊苣是一种菊苣植物的根，被烘焙、研磨后加入咖啡中。菊苣的使用是由法国人引入的，作为解决咖啡短缺的一种方式，这种影响也在新奥尔良以外的地方发现，菊苣是](https://shop.cafedumonde.com/coffee/) [南印度过滤咖啡](https://www.kaapi.com.au/post/ultimate-guide-to-indian-filter-coffee) 和 [越南裔美国人冰咖啡](https://www.atlasobscura.com/articles/chicory-vietnamese-coffee-cafe-du-monde) 的一种成分。
+如果你尝过新奥尔良式咖啡，你可能会知道它的一些独特风味是由于添加了菊苣 T3[。菊苣是一种菊苣植物的根，被烘焙、研磨后加入咖啡中。菊苣的使用是由法国人引入的，作为解决咖啡短缺的一种方式，这种影响也在新奥尔良以外的地方发现，菊苣是](https://shop.cafedumonde.com/coffee/) [南印度过滤咖啡](https://www.kaapi.com.au/post/ultimate-guide-to-indian-filter-coffee) 和 [越南裔美国人冰咖啡](https://www.atlasobscura.com/articles/chicory-vietnamese-coffee-cafe-du-monde) 的一种成分。
 
 Watch
 
@@ -18,8 +18,8 @@ Watch
 
 ## **如何在咖啡中加入菊苣**
 
-一些混合咖啡，如Café du Monde，出售已经添加了菊苣的咖啡，你可以像冲泡其他咖啡一样冲泡。你也可以单独购买菊苣，添加到你选择的咖啡中。
+一些混合咖啡，如 Café du Monde，出售已经添加了菊苣的咖啡，你可以像冲泡其他咖啡一样冲泡。你也可以单独购买菊苣，添加到你选择的咖啡中。
 
-一个好的开始是将菊苣粉和咖啡粉以1:3的比例混合，这样你就可以像煮其他咖啡一样来煮混合物了。根据你对口味和咖啡因含量的偏好，你可以调整这个比例，加入或多或少的菊苣。
+一个好的开始是将菊苣粉和咖啡粉以 1:3 的比例混合，这样你就可以像煮其他咖啡一样来煮混合物了。根据你对口味和咖啡因含量的偏好，你可以调整这个比例，加入或多或少的菊苣。
 
-如果你想做牛奶咖啡，你可以将你选择的牛奶加热到略低于沸点，然后以热牛奶和热咖啡1:1的比例混合。为了给你的 咖啡添加一点泡沫，你可以将混合物倒在两个杯子之间，直到形成小泡沫。
+如果你想做牛奶咖啡，你可以将你选择的牛奶加热到略低于沸点，然后以热牛奶和热咖啡 1:1 的比例混合。为了给你的 咖啡添加一点泡沫，你可以将混合物倒在两个杯子之间，直到形成小泡沫。

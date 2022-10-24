@@ -1,6 +1,6 @@
 # 如何穿复古服装而不破坏它
 
-> 原文:[https://life hacker . com/how-to-wear-vintage-clothing-without-destroying-it-1849505184](https://lifehacker.com/how-to-wear-vintage-clothing-without-destroying-it-1849505184)
+> 原文：<https://lifehacker.com/how-to-wear-vintage-clothing-without-destroying-it-1849505184>
 
 假设你在跳蚤市场购买了一件完美的复古衬衫，或者在阁楼上发现了一箱你父母或祖父母的衣服，并找到了一些实际上很合身的衣服。然后，在对衣服进行初步评估后，你确定它还有一些寿命，并决定穿上它。当然，你(很可能)不会在与朋友聚会前穿上那件复古丝绸衬衫，但在你选择穿它的场合，有一些不太明显的策略可以让它保持良好的身材。
 

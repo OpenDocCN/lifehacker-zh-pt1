@@ -1,6 +1,6 @@
 # 你不知道洗碗精可以清洗的所有东西
 
-> 原文:[https://life hacker . com/all-the-things-you-not-know-dish-soap-can-clean-1848332952](https://lifehacker.com/all-the-things-you-didnt-know-dish-soap-can-clean-1848332952)
+> 原文：<https://lifehacker.com/all-the-things-you-didnt-know-dish-soap-can-clean-1848332952>
 
 我们都知道洗碗精在对付盘子、罐子和餐具上的变硬的食物、油脂和污垢时的荣耀(你们都 [爱你的黎明](https://lifehacker.com/20-name-brand-products-worth-choosing-over-the-generic-1847929610/slides/2) )。但是你知道它在房子周围的无数潜在的其他用途吗？从去除污渍到控制果蝇，看看液体洗洁精的诸多神奇之处。
 
@@ -22,7 +22,7 @@ Watch
 
 将水、小苏打和洗碗精混合成糊状，制作你自己的烤箱清洁液。在整个烤箱中展开，然后用一个装满等量醋和水的瓶子喷洒。让我们坐至少几个小时(或一夜)，然后擦洗掉污垢。
 
-对于**烤架**:首先去除任何大的烧焦的块或碎片后，用1/2杯小苏打和足够的洗碗皂混合成稠糊状。涂抹后静置至少30分钟，然后擦洗和冲洗。
+对于**烤架**:首先去除任何大的烧焦的块或碎片后，用 1/2 杯小苏打和足够的洗碗皂混合成稠糊状。涂抹后静置至少 30 分钟，然后擦洗和冲洗。
 
 ## 让宝石(和银)闪闪发光
 

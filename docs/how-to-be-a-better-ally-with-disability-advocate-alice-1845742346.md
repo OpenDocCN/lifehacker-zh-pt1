@@ -1,18 +1,18 @@
 # 如何成为一个更好的盟友，残疾人倡导者黄陈小萍
 
-> 原文:[https://life hacker . com/how-to-be-a-better-ally-disability-advocate-Alice-1845742346](https://lifehacker.com/how-to-be-a-better-ally-with-disability-advocate-alice-1845742346)
+> 原文：<https://lifehacker.com/how-to-be-a-better-ally-with-disability-advocate-alice-1845742346>
 
 本周我们将学习残疾人权利，以及如何在残疾人活动家黄陈小萍的帮助下成为一个更好的盟友。请听爱丽丝谈论残疾人给对话带来的独特视角，非残疾人可以做些什么来促进和保护平等，以及为什么 [Crip Camp](https://cripcamp.com/) 是必不可少的观看。
 
 Watch
 
-爱丽丝是一名残疾人活动家、 [残疾能见度项目](https://disabilityvisibilityproject.com/) 的创始人和主任，该项目是一个与StoryCorps的社区合作伙伴，也是一个致力于在2020年扩大残疾、媒体、和文化的在线社区。她还有一个名为 [残疾可见性](https://disabilityvisibilityproject.com/podcast-2/) 的播客，最近还出版了《残疾可见性 [*:来自21世纪的第一人称故事*](https://disabilityvisibilityproject.com/book/) *》一书。*
+爱丽丝是一名残疾人活动家、 [残疾能见度项目](https://disabilityvisibilityproject.com/) 的创始人和主任，该项目是一个与 StoryCorps 的社区合作伙伴，也是一个致力于在 2020 年扩大残疾、媒体、和文化的在线社区。她还有一个名为 [残疾可见性](https://disabilityvisibilityproject.com/podcast-2/) 的播客，最近还出版了《残疾可见性 [*:来自 21 世纪的第一人称故事*](https://disabilityvisibilityproject.com/book/) *》一书。*
 
 [https://art19.com/shows/96bf1671-b079-4f44-b7d2-e95d655de263/episodes/083a3515-d10a-4ffc-a187-03866881da22/embed](https://art19.com/shows/96bf1671-b079-4f44-b7d2-e95d655de263/episodes/083a3515-d10a-4ffc-a187-03866881da22/embed)
 
 T2】
 
-听听上面的升级或者在所有通常提供播客的地方找到我们，包括[Google Play](https://play.google.com/music/listen?u=0#/ps/Illldmn6f4jkwb32lslhae3laru)[Spotify](https://open.spotify.com/show/43qzAEOZ861D4aXaBXaRKj)[iHeartRadio](https://www.iheart.com/podcast/8-The-Upgrade-by-Lifehacker-28037794)和NPR一号。
+听听上面的升级或者在所有通常提供播客的地方找到我们，包括[Google Play](https://play.google.com/music/listen?u=0#/ps/Illldmn6f4jkwb32lslhae3laru)[Spotify](https://open.spotify.com/show/43qzAEOZ861D4aXaBXaRKj)[iHeartRadio](https://www.iheart.com/podcast/8-The-Upgrade-by-Lifehacker-28037794)和 NPR 一号。
 
 ## **本周集锦**
 
@@ -32,7 +32,7 @@ T2】
 
 想听更多爱丽丝关于残疾人权利的对话，我们建议听完整集。
 
-对未来的剧集有什么反馈或想法吗？想上节目吗？请拨打347-687-8109给我们留言，或者给upgrade@lifehacker.com发送语音备忘录。
+对未来的剧集有什么反馈或想法吗？想上节目吗？请拨打 347-687-8109 给我们留言，或者给 upgrade@lifehacker.com 发送语音备忘录。
 
 ### **一集文字记录**
 

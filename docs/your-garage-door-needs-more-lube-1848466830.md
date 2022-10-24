@@ -1,8 +1,8 @@
 # 你的车库门需要更多的润滑油
 
-> 原文:[https://life hacker . com/your-garage-door-needs-more-lube-1848466830](https://lifehacker.com/your-garage-door-needs-more-lube-1848466830)
+> 原文：<https://lifehacker.com/your-garage-door-needs-more-lube-1848466830>
 
-车库门在我们的家庭维护清单上经常被忽视，除非并且直到T2把它们弄坏。但是保持它们平稳运行并防止磨损可以延长它们的寿命，也使它们更安静。为了避免以后昂贵的维修，你现在应该保养你的门，至少包括每六个月润滑一次。
+车库门在我们的家庭维护清单上经常被忽视，除非并且直到 T2 把它们弄坏。但是保持它们平稳运行并防止磨损可以延长它们的寿命，也使它们更安静。为了避免以后昂贵的维修，你现在应该保养你的门，至少包括每六个月润滑一次。
 
 Watch
 
@@ -16,9 +16,9 @@ Watch
 
 **涂抹润滑剂**
 
-一旦你完成清洁，下一步就是开始用 [硅喷雾润滑剂](https://www.amazon.com/Blaster-16-SL-Industrial-Strength-Lubricant/dp/B0019LV3GO/ref=asc_df_B0019LV3GO/?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/your-garage-door-needs-more-lube-1848466830&asc_source=&hvadid=312201455257&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=9061081&hvnetw=g&hvpone=&hvpos=&hvptwo=&hvqmt=&hvrand=4946540602131670212&hvtargid=pla-568913294040&linkCode=df0&psc=1&tag=kinjalifehackerlink-20) 或 [白锂润滑脂](https://www.amazon.com/AGS-WL-1H-Lithium-Grease-1-25/dp/B000GQ6N1S/ref=asc_df_B000GQ6N1S/?adgrpid=79758197438&asc_campaign=InlineText&asc_refurl=https://lifehacker.com/your-garage-door-needs-more-lube-1848466830&asc_source=&hvadid=385545944042&hvadid=385545944042&hvdev=c&hvdev=c&hvdvcmdl=&hvdvcmdl=&hvlocint=&hvlocint=&hvlocphy=9061081&hvlocphy=9061081&hvnetw=g&hvnetw=g&hvpone=&hvpone=&hvpos=&hvpos=&hvptwo=&hvptwo=&hvqmt=&hvqmt=&hvrand=8940255985439861327&hvrand=8940255985439861327&hvtargid=pla-840442438791&hvtargid=pla-840442438791&linkCode=df0&psc=1&ref=&tag=kinjalifehackerlink-20) 润滑零件。这些比油或其他类型的油脂如WD-40更受推荐，因为它们不太可能吸引和附着污垢。
+一旦你完成清洁，下一步就是开始用 [硅喷雾润滑剂](https://www.amazon.com/Blaster-16-SL-Industrial-Strength-Lubricant/dp/B0019LV3GO/ref=asc_df_B0019LV3GO/?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/your-garage-door-needs-more-lube-1848466830&asc_source=&hvadid=312201455257&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=9061081&hvnetw=g&hvpone=&hvpos=&hvptwo=&hvqmt=&hvrand=4946540602131670212&hvtargid=pla-568913294040&linkCode=df0&psc=1&tag=kinjalifehackerlink-20) 或 [白锂润滑脂](https://www.amazon.com/AGS-WL-1H-Lithium-Grease-1-25/dp/B000GQ6N1S/ref=asc_df_B000GQ6N1S/?adgrpid=79758197438&asc_campaign=InlineText&asc_refurl=https://lifehacker.com/your-garage-door-needs-more-lube-1848466830&asc_source=&hvadid=385545944042&hvadid=385545944042&hvdev=c&hvdev=c&hvdvcmdl=&hvdvcmdl=&hvlocint=&hvlocint=&hvlocphy=9061081&hvlocphy=9061081&hvnetw=g&hvnetw=g&hvpone=&hvpone=&hvpos=&hvpos=&hvptwo=&hvptwo=&hvqmt=&hvqmt=&hvrand=8940255985439861327&hvrand=8940255985439861327&hvtargid=pla-840442438791&hvtargid=pla-840442438791&linkCode=df0&psc=1&ref=&tag=kinjalifehackerlink-20) 润滑零件。这些比油或其他类型的油脂如 WD-40 更受推荐，因为它们不太可能吸引和附着污垢。
 
-首先给铰链 ges涂上润滑剂，慢慢抬起门，一次一个面板，将润滑剂注入每个铰链。然后你将需要润滑滚轮。接下来，u 阿瑟爬梯到达位于门上方车库天花板上的弹簧和支承板，并在它们上面涂上你的润滑剂。最后，不要忘记沿天花板的扶手杆，以及任何插销或锁。完成后，升降几次门，以便加入润滑剂。
+首先给铰链 ges 涂上润滑剂，慢慢抬起门，一次一个面板，将润滑剂注入每个铰链。然后你将需要润滑滚轮。接下来，u 阿瑟爬梯到达位于门上方车库天花板上的弹簧和支承板，并在它们上面涂上你的润滑剂。最后，不要忘记沿天花板的扶手杆，以及任何插销或锁。完成后，升降几次门，以便加入润滑剂。
 
 **进行修理**
 

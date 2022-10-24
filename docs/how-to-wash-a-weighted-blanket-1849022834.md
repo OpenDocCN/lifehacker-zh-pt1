@@ -1,8 +1,8 @@
 # 如何清洗加重毛毯
 
-> 原文:[https://life hacker . com/how-to-wash-a-weighted-blanket-1849022834](https://lifehacker.com/how-to-wash-a-weighted-blanket-1849022834)
+> 原文：<https://lifehacker.com/how-to-wash-a-weighted-blanket-1849022834>
 
-人们出于各种原因使用加重毯子。根据 [健康热线](https://www.healthline.com/health/anxiety/do-weighted-blankets-work#_noHeaderPrefixedContent) 、 [的研究表明](https://pubmed.ncbi.nlm.nih.gov/32536366/) 重量在5到30磅之间的治疗毯“可能有益于患有焦虑、自闭症和失眠等疾病的人。”利用 [深层- 压力刺激](https://pubmed.ncbi.nlm.nih.gov/25871605/) ，毯子放松神经系统，模仿被抱或被抱的体验(想想:婴儿襁褓，但对成人)。
+人们出于各种原因使用加重毯子。根据 [健康热线](https://www.healthline.com/health/anxiety/do-weighted-blankets-work#_noHeaderPrefixedContent) 、 [的研究表明](https://pubmed.ncbi.nlm.nih.gov/32536366/) 重量在 5 到 30 磅之间的治疗毯“可能有益于患有焦虑、自闭症和失眠等疾病的人。”利用 [深层- 压力刺激](https://pubmed.ncbi.nlm.nih.gov/25871605/) ，毯子放松神经系统，模仿被抱或被抱的体验(想想:婴儿襁褓，但对成人)。
 
 Watch
 
@@ -28,4 +28,4 @@ Watch
 
 ## 你应该多久洗一次你的加重毛毯？
 
-看情况。如果你每晚都使用它，你的毯子(或者，最好是它的可拆卸外套)应该每隔几周清洗一次，以消除汗液、油脂和细菌的积累。如果只是偶尔用来小睡或看电视，每年洗4-6次就足够了。避免过于频繁地清洗，以保持其寿命、耐用性和填料的预期分布。过于频繁的洗涤会导致毯子降解得更快，并增加它被撕破和溢出内含物的机会。
+看情况。如果你每晚都使用它，你的毯子(或者，最好是它的可拆卸外套)应该每隔几周清洗一次，以消除汗液、油脂和细菌的积累。如果只是偶尔用来小睡或看电视，每年洗 4-6 次就足够了。避免过于频繁地清洗，以保持其寿命、耐用性和填料的预期分布。过于频繁的洗涤会导致毯子降解得更快，并增加它被撕破和溢出内含物的机会。

@@ -1,6 +1,6 @@
 # 不要再叫孩子“挑食”
 
-> 原文:[https://life hacker . com/stop-calling-kids-挑食-1845454678](https://lifehacker.com/stop-calling-kids-picky-eaters-1845454678)
+> 原文：<https://lifehacker.com/stop-calling-kids-picky-eaters-1845454678>
 
 生活就是成长、学习、改变(或试图改变)成我们自己最好的版本。因此，有一件事我要停止做，我希望你们都加入到我的探索中来:我认为是时候停止称某些孩子为“挑食者”了。
 
@@ -8,7 +8,7 @@ Watch
 
 需要澄清的是，我从未当着孩子的面给他们贴上“挑食”的标签——同样，我也不会当着他们的面说孩子“顽固”。有些人可能会说我自己的儿子属于这两种类型；但是*我*不会这么说，因为那样不好。他喜欢吃的东西是不是有点有限？当然可以。他是否坚持在他的意大利面条上放多少酱是可以接受的？为什么是的，他是。不过没关系。他是个孩子，有时候孩子不喜欢大人喜欢的东西。
 
-但是我会和其他不是T2孩子的人谈论抚养一个挑食者的困难。其实，正如Lifehacker自己的档案显示，我又犯了这个 [超过](https://offspring.lifehacker.com/create-a-menu-for-your-picky-eater-1842058400) 和 [超过](https://offspring.lifehacker.com/let-your-picky-eater-pretend-to-be-a-cooking-show-judge-1845000666) 和 [超过](https://lifehacker.com/yes-you-should-accommodate-your-friends-picky-eating-k-1841204883) 的错误。(看，我并不完美！此外，“挑食者”在标题中往往比“味觉特别敏锐的孩子”更好。)
+但是我会和其他不是 T2 孩子的人谈论抚养一个挑食者的困难。其实，正如 Lifehacker 自己的档案显示，我又犯了这个 [超过](https://offspring.lifehacker.com/create-a-menu-for-your-picky-eater-1842058400) 和 [超过](https://offspring.lifehacker.com/let-your-picky-eater-pretend-to-be-a-cooking-show-judge-1845000666) 和 [超过](https://lifehacker.com/yes-you-should-accommodate-your-friends-picky-eating-k-1841204883) 的错误。(看，我并不完美！此外，“挑食者”在标题中往往比“味觉特别敏锐的孩子”更好。)
 
 但是最近来自作家安妮·瑟里奥特 在推特上的一个帖子让我想到我们关于这个的框架有点，有点，完全错误:
 
@@ -20,7 +20,7 @@ Watch
 
 许多人认为挑食是由父母的坏习惯“造成”的。也就是说，除非你的孩子最终变得很挑剔，在这种情况下，你会说，“哦，哼，我错了。”
 
-另一方面，如果你的孩子什么都吃，从扇贝到花椰菜，再到最好的寿司，不要告诉我这是因为他们18个月大时你的喂养方式；我也这么做了，你的自命不凡显露出来了。孩子终归是孩子。
+另一方面，如果你的孩子什么都吃，从扇贝到花椰菜，再到最好的寿司，不要告诉我这是因为他们 18 个月大时你的喂养方式；我也这么做了，你的自命不凡显露出来了。孩子终归是孩子。
 
 ### 吃是一种复杂的感官体验
 

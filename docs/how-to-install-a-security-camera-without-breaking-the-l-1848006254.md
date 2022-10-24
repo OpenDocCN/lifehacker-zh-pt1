@@ -1,6 +1,6 @@
 # 如何在不违反法律的情况下安装安全摄像头
 
-> 原文:[https://life hacker . com/how-to-install-a-security-camera-without-break-the-l-1848006254](https://lifehacker.com/how-to-install-a-security-camera-without-breaking-the-l-1848006254)
+> 原文：<https://lifehacker.com/how-to-install-a-security-camera-without-breaking-the-l-1848006254>
 
 越来越多的房主投资购买安全摄像头，但隐私法也限制了所有这些摄像头的指向。如果你想在你家周围安装安全摄像头，你需要像考虑自己的安全一样考虑这些法律，所以让我们来探讨一下使用家庭安全摄像头的一些法律含义，这样当邻居敲门时你就知道你的权利了。
 
@@ -32,10 +32,10 @@ Watch
 
 你会想花时间研究哪种相机最适合你的需求，或者 [安装一些你已经有的旧技术](https://lifehacker.com/top-10-ways-to-turn-your-retired-gadgetry-into-the-tech-5841196) 来代替昂贵的小工具。接下来，通过在你家外面寻找理想的地点来计划你想要放置相机的地方，比如在你的车库附近，在你的门廊上，在你的后门或院子旁边。一旦所有的硬件都设置好了，花点时间来玩一下这个系统，无论是移动摄像机还是调整运动检测设置。你可能需要在你的设备上安装软件来管理你漂亮的新相机。
 
-*来自G/O媒体合作伙伴的更多关于家庭安全的信息:*
+*来自 G/O 媒体合作伙伴的更多关于家庭安全的信息:*
 
 *-*[*2022*](https://lifehacker.com/advisor/best-home-security-systems/)
-*-*[*ADT点评2022*](https://lifehacker.com/advisor/adt-reviews/)
-*-*[*SimpliSafe点评2022*](https://lifehacker.com/advisor/simplisafe-reviews/)
+*-*[*ADT 点评 2022*](https://lifehacker.com/advisor/adt-reviews/)
+*-*[*SimpliSafe 点评 2022*](https://lifehacker.com/advisor/simplisafe-reviews/)
 
-Lifehacker并不参与这些文章的创作，但可能会从购买其内容中获得佣金。
+Lifehacker 并不参与这些文章的创作，但可能会从购买其内容中获得佣金。

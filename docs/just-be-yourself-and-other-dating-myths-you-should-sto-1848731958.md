@@ -1,6 +1,6 @@
 # 做你自己就好，其他你应该停止相信的约会神话
 
-> 原文:[https://life hacker . com/just-be self-and-other-date-myths-you-should-sto-1848731958](https://lifehacker.com/just-be-yourself-and-other-dating-myths-you-should-sto-1848731958)
+> 原文：<https://lifehacker.com/just-be-yourself-and-other-dating-myths-you-should-sto-1848731958>
 
 不是吹牛，但我有很多第一次约会。但是这一点，我熟悉当先 所有潜规则。我们是平摊费用呢，还是太柏拉图式了？我们是否应该承认，在今晚 出现之前，我显然 [跟踪了你？*抱还是不抱？*T11】](https://lifehacker.com/this-is-how-much-online-stalking-you-should-do-before-1848172339)
 
@@ -26,7 +26,7 @@ Watch
 
 ## “必须马上产生‘火花’。”
 
-与Tinder上的人见面并不总是带来那种温暖、模糊的可爱感觉。没关系。你想感受到某种联系，但不要因为缺乏T2电影的火花而退缩。我最棒的一些艳遇一开始需要克服一点尴尬。
+与 Tinder 上的人见面并不总是带来那种温暖、模糊的可爱感觉。没关系。你想感受到某种联系，但不要因为缺乏 T2 电影的火花而退缩。我最棒的一些艳遇一开始需要克服一点尴尬。
 
 与此同时，如果你真的*没有*感觉到联系，不要觉得有必要“推进”任何一点都不能让你兴奋或感兴趣的事情。
 
@@ -36,9 +36,9 @@ Watch
 
 ## “异性相吸”
 
-这可能是真的，如果你说的“对立”，是指“早起的人对夜猫子”，或者“猫对d，“T6”或者“s weets对savory。”这些差异很可爱，给你开玩笑的机会。
+这可能是真的，如果你说的“对立”，是指“早起的人对夜猫子”，或者“猫对 d，“T6”或者“s weets 对 savory。”这些差异很可爱，给你开玩笑的机会。
 
-这条规则并没有涵盖政治和意识形态的差异，比如，“ COVID是个骗局”和“我相信科学”
+这条规则并没有涵盖政治和意识形态的差异，比如，“ COVID 是个骗局”和“我相信科学”
 
 ## **“做你自己就好！”**
 

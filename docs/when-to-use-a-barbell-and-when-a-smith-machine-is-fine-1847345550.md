@@ -1,6 +1,6 @@
 # 何时使用杠铃(以及何时史密斯机是好的)
 
-> 原文:[https://life hacker . com/when-to-use-a-barbell-and-when-a-Smith-machine-fine-1847345550](https://lifehacker.com/when-to-use-a-barbell-and-when-a-smith-machine-is-fine-1847345550)
+> 原文：<https://lifehacker.com/when-to-use-a-barbell-and-when-a-smith-machine-is-fine-1847345550>
 
 史密斯机器可能是健身房设备中最两极分化的一件。每个廉价的商业健身房都有一个，这是许多人对深蹲和其他杠铃举的介绍。但它不是杠铃，或任何接近杠铃的东西，铁杆健身房兄弟对此嗤之以鼻。
 
@@ -12,7 +12,7 @@ Watch
 
 史密斯机的杆是水平的，你可以像杠铃一样把盘子放在上面。但多亏了轨道，酒吧只能上下移动，不能向任何其他方向移动。如果你设置好止损点，它也能确保你永远不会掉下横杆或者被横杆压住。可以说，这使得它比真正的杠铃更安全、更容易接近，这也是它如此受欢迎的原因。
 
-但是这些优点也是它的缺点。因为横杠附在它的轨道上，你的身体不需要那么努力来稳定它。相比之下，杠铃只停留在你的背上，因为你把它举在那里。笔直的上下杠路径也与很多杠铃举的实际动作不符。卧推实际上应该呈J形弯曲，例如，当横杠处于最低点时，向胸腔底部击打，当横杠处于最高点时，在颈部或上胸部上方的某处结束。史密斯机器并不是用来模仿这个的。
+但是这些优点也是它的缺点。因为横杠附在它的轨道上，你的身体不需要那么努力来稳定它。相比之下，杠铃只停留在你的背上，因为你把它举在那里。笔直的上下杠路径也与很多杠铃举的实际动作不符。卧推实际上应该呈 J 形弯曲，例如，当横杠处于最低点时，向胸腔底部击打，当横杠处于最高点时，在颈部或上胸部上方的某处结束。史密斯机器并不是用来模仿这个的。
 
 于是我们陷入了僵局:这台机器很方便，对初学者也很友好，但是它限制了运动。这些因素中哪一个更重要？这里有几件事需要考虑。
 
@@ -22,7 +22,7 @@ Watch
 
 如果人们经常在史密斯机器上自寻死路，资本主义就会要求制造商、健身房老板和(最重要的)健身房保险公司不再容忍他们的存在。事实显然不是这样。我也找不到任何科学数据把受伤和使用史密斯机器联系起来。这并不是说人们在使用这些机器时不会受伤，但是那些声称这些机器很危险的人确实应该支持他们的观点。
 
-让我们来看看另一面，尽管:D史密斯机器的安全特性使它们比杠铃更安全？虽然史密斯机器确实让你很难放下杠铃，但对于任何合适的杠铃设置来说也是如此。如果你蹲在蹲架上，你应该知道 [如何设置安全](https://lifehacker.com/learn-bailout-techniques-to-do-squats-by-yourself-saf-1761903103) 。如果你在没有安全措施的情况下坐冷板凳，你应该有一个人 [盯着](https://lifehacker.com/how-to-ask-someone-to-spot-you-on-the-bench-press-1837201332) 你。杠铃和史密斯机在正确使用时都是安全的。
+让我们来看看另一面，尽管:D 史密斯机器的安全特性使它们比杠铃更安全？虽然史密斯机器确实让你很难放下杠铃，但对于任何合适的杠铃设置来说也是如此。如果你蹲在蹲架上，你应该知道 [如何设置安全](https://lifehacker.com/learn-bailout-techniques-to-do-squats-by-yourself-saf-1761903103) 。如果你在没有安全措施的情况下坐冷板凳，你应该有一个人 [盯着](https://lifehacker.com/how-to-ask-someone-to-spot-you-on-the-bench-press-1837201332) 你。杠铃和史密斯机在正确使用时都是安全的。
 
 ## 杠铃给你一个更好的锻炼，算是吧
 
@@ -34,9 +34,9 @@ Watch
 
 ## 许多人变得强壮，被史密斯机器劫持
 
-听着，我喜欢杠铃运动。我喜欢举重[举重](https://lifehacker.com/the-best-advice-i-learned-from-my-first-powerlifting-me-1840067277) 和大力士，我会在任何一天拿杠铃过机器。我想我最后一次使用史密斯机器是在20多岁的时候，这只是因为我厌倦了用杠铃建立臀部推力站的多步骤过程。但我也认识到，不是每个人都像我一样。
+听着，我喜欢杠铃运动。我喜欢举重[举重](https://lifehacker.com/the-best-advice-i-learned-from-my-first-powerlifting-me-1840067277) 和大力士，我会在任何一天拿杠铃过机器。我想我最后一次使用史密斯机器是在 20 多岁的时候，这只是因为我厌倦了用杠铃建立臀部推力站的多步骤过程。但我也认识到，不是每个人都像我一样。
 
-例如，职业健美运动员约翰·梅多斯(John Meadows)在YouTube上有一个频道叫 [，里面满是使用史密斯机器锻炼肌肉的技巧](https://www.youtube.com/results?search_query=john+meadows+smith+machine) 。例如， [这里有一个腿部练习](https://www.youtube.com/watch?v=fKJoIWiBwkA) ，其中包括一个关于如何避免膝盖拉伤的重要提示:把脚放在杠铃前，而不是像杠铃深蹲那样放在杠铃正下方。
+例如，职业健美运动员约翰·梅多斯(John Meadows)在 YouTube 上有一个频道叫 [，里面满是使用史密斯机器锻炼肌肉的技巧](https://www.youtube.com/results?search_query=john+meadows+smith+machine) 。例如， [这里有一个腿部练习](https://www.youtube.com/watch?v=fKJoIWiBwkA) ，其中包括一个关于如何避免膝盖拉伤的重要提示:把脚放在杠铃前，而不是像杠铃深蹲那样放在杠铃正下方。
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-fKJoIWiBwkA&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-fKJoIWiBwkA&start=0) 
 

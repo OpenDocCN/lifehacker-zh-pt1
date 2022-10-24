@@ -1,6 +1,6 @@
 # 当你应该“摇滚”生活中的自恋者时
 
-> 原文:[https://life hacker . com/when-you-should-gray-rock-the-自恋者-in-your life-1847074584](https://lifehacker.com/when-you-should-gray-rock-the-narcissists-in-your-life-1847074584)
+> 原文：<https://lifehacker.com/when-you-should-gray-rock-the-narcissists-in-your-life-1847074584>
 
 有时候，当一个情绪控制型的人试图制造戏剧性事件时，你可能会想要提供一个与他们的行为相称的回应。除此之外，你真的应该考虑反其道而行之:也就是说，表现得好像在订婚方面你什么也提供不了，并且在无风的下午保持平静如湖。
 
@@ -16,7 +16,7 @@ Watch
 
 从本质上来说，这并不完全是无视他人，而是更像是情感上的超脱，以至于操控者的行为忽略了你。对于大多数人来说，这可能不是一个必要的做法，但它尤其适用于那些必须与施虐者接触的家庭暴力幸存者。
 
-治疗师Shannon Thomas [告诉Insider](https://www.insider.com/how-to-use-gray-rock-method-narcissist-no-contact-2019-6) 说，表现得像石头一样无聊剥夺了这个人挑起的冲突，或者，至少，这表明你没有令人兴奋的混乱可以提供。
+治疗师 Shannon Thomas [告诉 Insider](https://www.insider.com/how-to-use-gray-rock-method-narcissist-no-contact-2019-6) 说，表现得像石头一样无聊剥夺了这个人挑起的冲突，或者，至少，这表明你没有令人兴奋的混乱可以提供。
 
 她解释道:
 
@@ -30,7 +30,7 @@ Watch
 
 保持你的互动简短也是必要的。例如，这一点更容易适用于那些必须与施虐者或控制欲强的前伴侣打交道的人。这里的办法是保持互动简短，你的回答也要简短。
 
-Healthline还建议尽可能通过短信交谈，如果你一定要和你要找的人交流，写下:
+Healthline 还建议尽可能通过短信交谈，如果你一定要和你要找的人交流，写下:
 
 > 电子或电话沟通在这里可能会很好，因为这样做可以让你避免长时间的互动，这可能会导致的压力，并使其更难保持灰色的岩石外观。但是灰色摇摆适用于任何类型的交流。
 

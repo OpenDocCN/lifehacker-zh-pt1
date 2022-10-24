@@ -1,12 +1,12 @@
 # 不要用热水洗你油腻的锅
 
-> 原文:[https://life hacker . com/don-t-wash-your-油腻的锅用热水洗-1847502340](https://lifehacker.com/dont-wash-your-greasy-pots-with-hot-water-1847502340)
+> 原文：<https://lifehacker.com/dont-wash-your-greasy-pots-with-hot-water-1847502340>
 
 热肥皂水真的很难喝。它是你清洁大多数东西所需要的。但是，在某些情况下，它做得有点儿太好了，尤其是当你处理油腻的锅碗瓢盆时。
 
 Watch
 
-根据多伊尔·詹姆斯的说法，[*Rooter先生水暖*](https://www.mrrooter.com/) 的总裁，他与 [The Kitchn](https://www.thekitchn.com/cold-water-washing-greasy-pots-pans-23201166) 谈论过这个粘性问题，冷水实际上是手洗炊具上的油性或脂肪残留物的更好选择。热水会融化油脂，当油脂在管道中冷却时会凝固，在管道上覆盖一层脂肪，最终导致管道堵塞。詹姆斯解释说，冷水的作用正好相反:
+根据多伊尔·詹姆斯的说法，[*Rooter 先生水暖*](https://www.mrrooter.com/) 的总裁，他与 [The Kitchn](https://www.thekitchn.com/cold-water-washing-greasy-pots-pans-23201166) 谈论过这个粘性问题，冷水实际上是手洗炊具上的油性或脂肪残留物的更好选择。热水会融化油脂，当油脂在管道中冷却时会凝固，在管道上覆盖一层脂肪，最终导致管道堵塞。詹姆斯解释说，冷水的作用正好相反:
 
 > 然而，冷水有助于保持油脂固态，因此它可以轻松有效地通过管道，而不会被堵塞。“当脂肪、油和油脂遇到冷水时，它会迅速凝固，[并且]水和重力的原理会接管并冲走它，”詹姆斯说。
 

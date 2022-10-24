@@ -1,8 +1,8 @@
 # 孩子们整个夏天都可以免费用餐
 
-> 原文:[https://life hacker . com/kids-can-get-free-footprints-all-summer-1846448101](https://lifehacker.com/kids-can-get-free-meals-all-summer-1846448101)
+> 原文：<https://lifehacker.com/kids-can-get-free-meals-all-summer-1846448101>
 
-美国农业部 [延长了夏季](https://www.usda.gov/media/press-releases/2021/03/09/usda-extends-free-meals-children-through-summer-2021-due-pandemic) 的疫情免费餐计划，至少持续到2021年9月30日。如果你还没有参加，你可能会惊讶地发现这些餐食是为所有学龄儿童准备的，而且是100%免费的，不需要任何证明文件。
+美国农业部 [延长了夏季](https://www.usda.gov/media/press-releases/2021/03/09/usda-extends-free-meals-children-through-summer-2021-due-pandemic) 的疫情免费餐计划，至少持续到 2021 年 9 月 30 日。如果你还没有参加，你可能会惊讶地发现这些餐食是为所有学龄儿童准备的，而且是 100%免费的，不需要任何证明文件。
 
 Watch
 

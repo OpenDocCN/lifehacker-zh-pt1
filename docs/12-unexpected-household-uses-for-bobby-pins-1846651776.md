@@ -1,16 +1,16 @@
-# 发夹的12种意想不到的家庭用途
+# 发夹的 12 种意想不到的家庭用途
 
-> 原文:[https://life hacker . com/12-unexpected-household-uses-for-bobby-pins-1846651776](https://lifehacker.com/12-unexpected-household-uses-for-bobby-pins-1846651776)
+> 原文：<https://lifehacker.com/12-unexpected-household-uses-for-bobby-pins-1846651776>
 
-发夹既便宜又容易大量获得。我年前花了3美元 买了一大盆 [的发夹，至今还满满的。但是我为什么需要这么多？我*能用所有这些东西做什么呢？事实证明，很多。发夹非常适合用来固定复杂的发型或装饰一两朵花，但这只需要一两个发夹，但多年来，我们发现发夹也非常有用，可以用来做各种快速修复。从保持你在书里的位置到把盖子拧回到你的电灯开关上，发夹不仅仅是为了头发。这里有12种奇怪的方式可以在家里使用发夹。*](https://www.beautyofnewyork.com/shop/diane-dec010-extra-large-bobby-pins-100-count-bin-3-black.html?gclid=CjwKCAjw9r-DBhBxEiwA9qYUpcmw3cxpvWuFKVuIe4Mwh9Er9zCShxGlcBJbp_t438MFFQ26ltKLFRoCtjIQAvD_BwE)
+发夹既便宜又容易大量获得。我年前花了 3 美元 买了一大盆 [的发夹，至今还满满的。但是我为什么需要这么多？我*能用所有这些东西做什么呢？事实证明，很多。发夹非常适合用来固定复杂的发型或装饰一两朵花，但这只需要一两个发夹，但多年来，我们发现发夹也非常有用，可以用来做各种快速修复。从保持你在书里的位置到把盖子拧回到你的电灯开关上，发夹不仅仅是为了头发。这里有 12 种奇怪的方式可以在家里使用发夹。*](https://www.beautyofnewyork.com/shop/diane-dec010-extra-large-bobby-pins-100-count-bin-3-black.html?gclid=CjwKCAjw9r-DBhBxEiwA9qYUpcmw3cxpvWuFKVuIe4Mwh9Er9zCShxGlcBJbp_t438MFFQ26ltKLFRoCtjIQAvD_BwE)
 
-敲钉子有50%的风险，你会砸碎你的拇指。为了保护你的手指，将 [钉子放入发夹](https://lifehacker.com/hold-nails-with-a-bobby-pin-to-spare-your-fingers-478939147) 中固定它，这样你就可以轻轻地将它钉入到位，而不会危及你的手指。
+敲钉子有 50%的风险，你会砸碎你的拇指。为了保护你的手指，将 [钉子放入发夹](https://lifehacker.com/hold-nails-with-a-bobby-pin-to-spare-your-fingers-478939147) 中固定它，这样你就可以轻轻地将它钉入到位，而不会危及你的手指。
 
 像毕业帽这样的礼帽不会戴在每个人的头上。如果你想留在庆祝的气氛中，并确保你的发型保持不变，用一个发夹穿过你的头发 并把它系在帽子上。你的头发会留在原地，帽子也不会动。
 
 如果你有合适的工具，去樱桃和橄榄核会变得很容易(而且这样做比围着它们吃要愉快得多)。发夹可以 [毫不费力地戳穿](https://lifehacker.com/use-metal-hairpins-to-easily-pit-cherries-and-olives-5792793) 樱桃或橄榄，把核从另一边推出来。瞧啊。你现在可以享受你的小吃，减去窒息的危险。
 
-虽然我肯定你很宠爱你的猫，只给它们买最好的玩具和猫薄荷，但有时它们只是想玩你的编织地毯或奶瓶环。一个发夹 是一个便宜的玩具。将其中一个伸展成V字形，然后滑向你的猫，这样它们就可以尽情地用爪子抓来抓去了。(对于容易吃家居用品的猫，我不推荐这样；你的游戏可能很快就会变成一次紧急的兽医之旅。)
+虽然我肯定你很宠爱你的猫，只给它们买最好的玩具和猫薄荷，但有时它们只是想玩你的编织地毯或奶瓶环。一个发夹 是一个便宜的玩具。将其中一个伸展成 V 字形，然后滑向你的猫，这样它们就可以尽情地用爪子抓来抓去了。(对于容易吃家居用品的猫，我不推荐这样；你的游戏可能很快就会变成一次紧急的兽医之旅。)
 
 拉链拉环断裂是牛仔裤最讨厌的事情之一，尤其是当你外出时。谢天谢地，你可以在任何一家药店买到一包发夹，瞬间解决你的问题。在拉链拉头的环上挂一个发夹，在你回家换裤子之前，你会重新获得拉链的完全灵活性。
 

@@ -1,8 +1,8 @@
 # 如何正确冷冻多余的饼干，使它们不变质
 
-> 原文:[https://life hacker . com/how-to-right-freeze-your-extra-cookies-so-they-don-1847904548](https://lifehacker.com/how-to-properly-freeze-your-extra-cookies-so-they-dont-1847904548)
+> 原文：<https://lifehacker.com/how-to-properly-freeze-your-extra-cookies-so-they-dont-1847904548>
 
-作为一个经常做饭的人，我的冰箱是我厨房里非常重要的一部分。(我刚刚获得了一个和wow——好一个世界。)我的冰箱让我以合理的速度享受我的劳动成果。尽管我能在薯片饼干“变坏”之前吃掉两打 [薯片饼干](https://lifehacker.com/add-potato-chips-to-your-next-batch-of-cookie-dough-1847901658) ，但五分之四的医生认为薯片饼干对我来说是“坏”的。
+作为一个经常做饭的人，我的冰箱是我厨房里非常重要的一部分。(我刚刚获得了一个和 wow——好一个世界。)我的冰箱让我以合理的速度享受我的劳动成果。尽管我能在薯片饼干“变坏”之前吃掉两打 [薯片饼干](https://lifehacker.com/add-potato-chips-to-your-next-batch-of-cookie-dough-1847901658) ，但五分之四的医生认为薯片饼干对我来说是“坏”的。
 
 Watch
 
@@ -14,4 +14,4 @@ Watch
 
 除了让你的饼干不变质之外，冷冻它们还能让你提前进入节日烹饪季节，这个季节会比你想象的更快到来。装饰饼干将需要单独包装，但你可以冷冻一堆糖饼干，稍后再装饰。
 
-当你准备好吃一块饼干——或者与最后一分钟的同伴分享——你所要做的就是让它们在室温下放置半个小时，或者在350度的烤箱中加热几分钟。你也可以将它们放入微波炉中加热5-10秒，冷冻后用作冰淇淋三明治的基料，或者半冷冻着吃(这其实也不错)。
+当你准备好吃一块饼干——或者与最后一分钟的同伴分享——你所要做的就是让它们在室温下放置半个小时，或者在 350 度的烤箱中加热几分钟。你也可以将它们放入微波炉中加热 5-10 秒，冷冻后用作冰淇淋三明治的基料，或者半冷冻着吃(这其实也不错)。

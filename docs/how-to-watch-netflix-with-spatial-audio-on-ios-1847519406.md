@@ -1,27 +1,27 @@
-# 如何在iOS上用空间音频观看网飞
+# 如何在 iOS 上用空间音频观看网飞
 
-> 原文:[https://life hacker . com/how-to-watch-网飞与ios-1847519406](https://lifehacker.com/how-to-watch-netflix-with-spatial-audio-on-ios-1847519406)
+> 原文：<https://lifehacker.com/how-to-watch-netflix-with-spatial-audio-on-ios-1847519406>
 
-空间音频支持终于在网飞iOS应用中推出。该功能应该很快就会在所有运行iOS或iPadOS 14.6(或更高版本)的iPhone和iPad用户中推出。
+空间音频支持终于在网飞 iOS 应用中推出。该功能应该很快就会在所有运行 iOS 或 iPadOS 14.6(或更高版本)的 iPhone 和 iPad 用户中推出。
 
 Watch
 
-不幸的是，与其他支持多种播放设备的空间音频兼容应用程序不同，如苹果音乐 和苹果电视+，网飞只通过AirPods Pro或AirPods Max支持空间音频。将来可能会增加对更多播放设备的支持。苹果还计划在未来为Mac和Apple TV设备带来空间音频支持。
+不幸的是，与其他支持多种播放设备的空间音频兼容应用程序不同，如苹果音乐 和苹果电视+，网飞只通过 AirPods Pro 或 AirPods Max 支持空间音频。将来可能会增加对更多播放设备的支持。苹果还计划在未来为 Mac 和 Apple TV 设备带来空间音频支持。
 
-不过，目前来看，以下是如何通过AirPods Pro或AirPods Max在iPhone和iPad上观看5.1或杜比Atmos环绕声的网飞内容:
+不过，目前来看，以下是如何通过 AirPods Pro 或 AirPods Max 在 iPhone 和 iPad 上观看 5.1 或杜比 Atmos 环绕声的网飞内容:
 
-1.  将AirPods Pro或AirPods Max连接到iPhone或iPad。
-2.  打开网飞应用程序，找到带有环绕声混音的内容(如5.1环绕或杜比全景声)。
+1.  将 AirPods Pro 或 AirPods Max 连接到 iPhone 或 iPad。
+2.  打开网飞应用程序，找到带有环绕声混音的内容(如 5.1 环绕或杜比全景声)。
 3.  打开控制面板(从设备屏幕的右上角向下滑动)。
 4.  长按音量滑块打开音频选项。
 5.  点击空间音频图标以启用它。
 
-你也可以在iOS/iPadOS设置应用中的**设置>蓝牙下切换空间音频。**轻触蓝牙列表中设备名称旁边的**“I”**图标，然后向下滚动并轻触**“空间音频”**滑块。
+你也可以在 iOS/iPadOS 设置应用中的**设置>蓝牙下切换空间音频。**轻触蓝牙列表中设备名称旁边的**“I”**图标，然后向下滚动并轻触**“空间音频”**滑块。
 
 请注意，即使启用了该功能，也不是所有网飞内容都会在空间音频中播放；它只适用于带有某种形式的环绕声混合的电影和电视节目。
 
-然而，网飞的空间音频推出还包括对iOS 15的空间音频转换功能的抢先支持，该功能使用人工智能将立体声或单声道录制的内容转换为多声道音频。该功能理论上可以为只有立体声播放功能的旧电影和电视节目添加5.1环绕声。它还可以在其他兼容空间音频的应用程序上工作，如HBO Max、Disney+、Apple TV+和Apple Music。
+然而，网飞的空间音频推出还包括对 iOS 15 的空间音频转换功能的抢先支持，该功能使用人工智能将立体声或单声道录制的内容转换为多声道音频。该功能理论上可以为只有立体声播放功能的旧电影和电视节目添加 5.1 环绕声。它还可以在其他兼容空间音频的应用程序上工作，如 HBO Max、Disney+、Apple TV+和 Apple Music。
 
-当你使用支持的应用程序和播放设备时，强制空间音频转换选项会出现在iOS和iPadOS音频选项中，但只有在今年晚些时候安装完整版iOS 15、 [或试用公测版](https://lifehacker.com/how-to-install-ios-15-and-ipados-15-public-betas-1847209002) 后，它才会起作用。
+当你使用支持的应用程序和播放设备时，强制空间音频转换选项会出现在 iOS 和 iPadOS 音频选项中，但只有在今年晚些时候安装完整版 iOS 15、 [或试用公测版](https://lifehacker.com/how-to-install-ios-15-and-ipados-15-public-betas-1847209002) 后，它才会起作用。
 
 []

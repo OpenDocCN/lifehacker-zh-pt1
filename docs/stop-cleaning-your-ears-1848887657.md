@@ -1,6 +1,6 @@
 # 停止清理你的耳朵
 
-> 原文:[https://lifehacker.com/stop-cleaning-your-ears-1848887657](https://lifehacker.com/stop-cleaning-your-ears-1848887657)
+> 原文：<https://lifehacker.com/stop-cleaning-your-ears-1848887657>
 
 你很少需要自己清除耳垢。耳屎好！我知道这个。真的。然而，尽管我知道得更多，有时我还是忍不住想用棉签自己清理耳朵。如果你像我一样，偶尔过分尝试手动清理耳朵，你应该知道这些。
 

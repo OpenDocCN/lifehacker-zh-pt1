@@ -1,6 +1,6 @@
 # 什么是胫骨夹板，我如何摆脱他们？
 
-> 原文:[https://life hacker . com/what-is-shin-splits-and-how-do-I-get-off-them-1847690020](https://lifehacker.com/what-are-shin-splints-and-how-do-i-get-rid-of-them-1847690020)
+> 原文：<https://lifehacker.com/what-are-shin-splints-and-how-do-i-get-rid-of-them-1847690020>
 
 如果你曾经在开始跑步计划后小腿疼痛，或者如果当你增加里程或增加更激烈的运动时它们悄悄靠近你，你可能有胫骨夹板。这种伤害通常并不严重，但如果它不能迅速解决，就会令人沮丧。
 
@@ -12,7 +12,7 @@ Watch
 
 ## 胫骨夹板是什么原因造成的？
 
-胫骨夹板，尤其是被称为 [胫骨内侧应力综合征](https://www.choosept.com/symptomsconditionsdetail/physical-therapy-guide-to-shin-splints-medial-tibial-stress-syndrome-) 的形式，往往发生在做大量跑步和跳跃的人身上。它们往往发生在训练计划的开始，或者在你增加训练量或强度的时候。因此，一个刚刚开始5公里训练的人可能会有患上这种病的风险；一个刚加入新球队的篮球运动员也是如此，他的练习次数是以前的两倍。
+胫骨夹板，尤其是被称为 [胫骨内侧应力综合征](https://www.choosept.com/symptomsconditionsdetail/physical-therapy-guide-to-shin-splints-medial-tibial-stress-syndrome-) 的形式，往往发生在做大量跑步和跳跃的人身上。它们往往发生在训练计划的开始，或者在你增加训练量或强度的时候。因此，一个刚刚开始 5 公里训练的人可能会有患上这种病的风险；一个刚加入新球队的篮球运动员也是如此，他的练习次数是以前的两倍。
 
 对于跑步者来说，可能导致胫骨夹板的因素— 以及减轻这些风险的方法— 包括:
 
@@ -28,11 +28,11 @@ Watch
 
 减少跑步或跳跃的量可能会有帮助，尤其是如果你最近增加了跑步或跳跃的量。减少一点你的里程，也许用轻松跑代替一些爬山冲刺或速度训练。
 
-力量训练可能会有所帮助，而且它们是许多物理治疗师胫骨夹板康复方法的基础。其中 [一个被Gizmodo作家称之为【神奇的T2】](https://gizmodo.com/banish-shin-splints-forever-with-one-magical-exercise-5902699) 的练习就是把脚趾抬高抬高:
+力量训练可能会有所帮助，而且它们是许多物理治疗师胫骨夹板康复方法的基础。其中 [一个被 Gizmodo 作家称之为【神奇的 T2】](https://gizmodo.com/banish-shin-splints-forever-with-one-magical-exercise-5902699) 的练习就是把脚趾抬高抬高:
 
 *   站在台阶边缘(抓住栏杆)，脚后跟放在台阶上。
-*   尽可能降低你的脚趾，然后重复抬起它们30秒。
-*   然后屈膝成半蹲，再做30秒。
+*   尽可能降低你的脚趾，然后重复抬起它们 30 秒。
+*   然后屈膝成半蹲，再做 30 秒。
 
 你也可以不用台阶，只是站在平坦的地板上做这个练习。另一项锻炼脚趾抬高肌肉的运动很简单，就是 [踮起脚尖](https://www.triathlete.com/training/injury-prevention/how-to-prevent-shin-splints/) 走来走去。这些肌肉附着在你的胫骨前部，加强它们可能有助于消除胫骨疼痛。
 

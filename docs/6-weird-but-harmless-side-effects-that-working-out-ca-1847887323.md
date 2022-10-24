@@ -1,6 +1,6 @@
-# 锻炼会对你的身体产生6种奇怪(但无害)的副作用
+# 锻炼会对你的身体产生 6 种奇怪(但无害)的副作用
 
-> 原文:[https://life hacker . com/6-怪异但无害的副作用解决方案ca-1847887323](https://lifehacker.com/6-weird-but-harmless-side-effects-that-working-out-ca-1847887323)
+> 原文：<https://lifehacker.com/6-weird-but-harmless-side-effects-that-working-out-ca-1847887323>
 
 我们的身体是 [奇妙又怪异的](https://lifehacker.com/14-weird-facts-about-the-human-body-you-probably-never-1847829288) ，它对运动的反应是两者的混合。
 
@@ -18,7 +18,7 @@
 
 如果你发现自己在锻炼时放屁很多，要知道你并不孤单。 [运动引起的胀气](https://www.womenshealthmag.com/fitness/a19931870/farting-during-workouts/) (专家称之为“T3”)是由多种因素引起的——包括在锻炼过程中你一直在做的深呼吸导致的空气滞留在你的消化道内，以及运动加速消化，在这个过程中释放所有被压抑的气体。
 
-下一次在瑜伽课上，坐在你旁边的女士对你怒目而视的时候，继续微笑着回应，确信她会是下一个。毕竟，气体总会以某种方式释放出来，而down ward dog正是为此而量身定制的。
+下一次在瑜伽课上，坐在你旁边的女士对你怒目而视的时候，继续微笑着回应，确信她会是下一个。毕竟，气体总会以某种方式释放出来，而 down ward dog 正是为此而量身定制的。
 
 如果你在锻炼期间或之后感觉像花粉热，这很可能不是因为花粉计数，而是一种叫做 [运动诱发鼻炎](https://www.verywellhealth.com/exercise-induced-rhinitis-1191916) 的情况。鼻炎是一种医学疾病，会导致打喷嚏、流鼻涕、和鼻塞。它可以是过敏原引起的，也可以是运动等其他因素引起的。
 

@@ -1,10 +1,10 @@
-# 超级初学者的10个练习视频
+# 超级初学者的 10 个练习视频
 
-> 原文:[https://life hacker . com/10-超级初学者练习视频-1849094703](https://lifehacker.com/10-exercise-videos-for-super-beginners-1849094703)
+> 原文：<https://lifehacker.com/10-exercise-videos-for-super-beginners-1849094703>
 
 虽然许多初学者可以在进行过程中 [选择一个程序](https://lifehacker.com/why-you-need-a-lifting-program-1847476779) 和 [计算健身器械](https://lifehacker.com/10-of-the-most-common-gym-machines-and-how-to-use-them-1848417507) ，但对整个过程感到害怕也是完全正常的。特别是如果节目和视频似乎期望你的健康水平比你现在的水平高一两个等级，那就很难知道从哪里开始。
 
-为了省去你的麻烦，这里有10个练习视频，将为甚至初学者- e st初学者提供一个开始探索最常见的健身动作和技巧的地方。
+为了省去你的麻烦，这里有 10 个练习视频，将为甚至初学者- e st 初学者提供一个开始探索最常见的健身动作和技巧的地方。
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-0GsVJsS6474&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-0GsVJsS6474&start=0)
 
@@ -52,7 +52,7 @@
 
 <figcaption class="sc-1ptbguh-0 hxeMec caption">PULL-UPS FOR BEGINNERS | 5 Easy Tips to Perform YOUR FIRST PULLUP!</figcaption> 
 
-你准备好开始你的第一次引体向上了吗？如果答案是“不”也没关系 [这个视频](https://www.youtube.com/watch?v=jFmCrA6fo78) 一开始只是挂在吧台上——n没有把自己拉起来，辅助或其他方式，但只是晃来晃去。这有助于你的抓地力，并帮助你的肩膀和核心为下一步做好准备，这就是肩胛骨引体向上——你可以认为这是高级悬空。作为一个超级初学者，在进入 [之前，你可能会花一些时间在这些阶段，其他选项如负上拉](https://lifehacker.com/all-the-ways-to-make-pull-ups-easier-1821906936) ，但你会有一个很好的开始。
+你准备好开始你的第一次引体向上了吗？如果答案是“不”也没关系 [这个视频](https://www.youtube.com/watch?v=jFmCrA6fo78) 一开始只是挂在吧台上——n 没有把自己拉起来，辅助或其他方式，但只是晃来晃去。这有助于你的抓地力，并帮助你的肩膀和核心为下一步做好准备，这就是肩胛骨引体向上——你可以认为这是高级悬空。作为一个超级初学者，在进入 [之前，你可能会花一些时间在这些阶段，其他选项如负上拉](https://lifehacker.com/all-the-ways-to-make-pull-ups-easier-1821906936) ，但你会有一个很好的开始。
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-MSb37IAFgEA&start=9](https://lifehacker.com/embed/inset/iframe?id=youtube-video-MSb37IAFgEA&start=9)
 
@@ -64,4 +64,4 @@
 
 <figcaption class="sc-1ptbguh-0 hxeMec caption">15 Minute SHOULDER WORKOUT at Home or the Gym with Dumbbells</figcaption> 
 
-你真的可以用哑铃做任何事情，但是像这样的定时训练让你很容易就能开始。你可以选择任何你喜欢的重量，如果你完全是锻炼新手，你甚至可以空手做常规的，或者像水瓶一样非常轻的重量。(一个标准的500毫升水瓶重约一磅。)跟着走，根据需要休息。如果你到了终点，感觉太容易了，明天用更重的重量再做一次！
+你真的可以用哑铃做任何事情，但是像这样的定时训练让你很容易就能开始。你可以选择任何你喜欢的重量，如果你完全是锻炼新手，你甚至可以空手做常规的，或者像水瓶一样非常轻的重量。(一个标准的 500 毫升水瓶重约一磅。)跟着走，根据需要休息。如果你到了终点，感觉太容易了，明天用更重的重量再做一次！

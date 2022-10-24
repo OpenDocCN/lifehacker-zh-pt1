@@ -1,6 +1,6 @@
 # 总是点“太多”炸鸡
 
-> 原文:[https://life hacker . com/always-order-much-fried-chicken-1847528604](https://lifehacker.com/always-order-too-much-fried-chicken-1847528604)
+> 原文：<https://lifehacker.com/always-order-too-much-fried-chicken-1847528604>
 
 昨晚，我男朋友说了一句很愚蠢的话。“我们没必要点这么多炸鸡，”他傻乎乎地说。
 

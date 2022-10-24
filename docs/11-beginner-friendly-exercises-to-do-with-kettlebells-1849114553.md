@@ -1,8 +1,8 @@
-# 壶铃的11个初学者友好练习
+# 壶铃的 11 个初学者友好练习
 
-> 原文:[https://life hacker . com/11-初学者友好型壶铃练习-1849114553](https://lifehacker.com/11-beginner-friendly-exercises-to-do-with-kettlebells-1849114553)
+> 原文：<https://lifehacker.com/11-beginner-friendly-exercises-to-do-with-kettlebells-1849114553>
 
-想在日常生活中增加一些壶铃练习，但不知道从哪里开始？这里有11个基本上对初学者友好的动作，你可以用藏在你健身房角落里的壶铃或者你家里的铃来做。我们将从更容易理解的东西开始，并在列表的最后进入一些有用但稍微困难的步骤。
+想在日常生活中增加一些壶铃练习，但不知道从哪里开始？这里有 11 个基本上对初学者友好的动作，你可以用藏在你健身房角落里的壶铃或者你家里的铃来做。我们将从更容易理解的东西开始，并在列表的最后进入一些有用但稍微困难的步骤。
 
 对于这些动作中的任何一个，第一次尝试的时候使用一个轻壶铃。如果那太容易，试一个更重的，然后根据需要向上移动。这些动作中的许多都可以用哑铃或其他重物来完成，所以当你需要新的东西时，考虑一下这个列表——不管你的设备是什么。
 
@@ -28,13 +28,13 @@
 
 <figcaption class="sc-1ptbguh-0 hxeMec caption">Russian Kettlebell Swing</figcaption> 
 
-壶铃最大的好处是你可以摆动它们。有几种不同的挥杆方式，但这里有一个简单的开始:硬式挥杆(在Crossfit世界也称为“俄罗斯”挥杆)。从你前面一两步的铃开始，这样你可以把它拉向你，为你的第一次挥杆获得一些动力。再次强调，这是一个臀部动作，所以不要过度弯曲膝盖。
+壶铃最大的好处是你可以摆动它们。有几种不同的挥杆方式，但这里有一个简单的开始:硬式挥杆(在 Crossfit 世界也称为“俄罗斯”挥杆)。从你前面一两步的铃开始，这样你可以把它拉向你，为你的第一次挥杆获得一些动力。再次强调，这是一个臀部动作，所以不要过度弯曲膝盖。
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-7oJx6E9zUbA&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-7oJx6E9zUbA&start=0)
 
 <figcaption class="sc-1ptbguh-0 hxeMec caption">15 Farmer’s Carry Variations to BUILD RAW STRENGTH</figcaption> 
 
-如果你听说过farmer's carries，你可能会认为你知道我要说什么。但壶铃允许一堆不同的进位变化，值得做一个以上。除了在身体两侧放下两个铃的农夫背袋，你也可以只拿一个铃的手提箱背袋；前架携带，一个或两个铃铛在肩膀水平；头顶举，你用一只手或两只手把重物举过头顶。所有这些对你的核心都有好处，因为当你的腿在移动的时候，你必须保持你的上半身稳定和堆叠。
+如果你听说过 farmer's carries，你可能会认为你知道我要说什么。但壶铃允许一堆不同的进位变化，值得做一个以上。除了在身体两侧放下两个铃的农夫背袋，你也可以只拿一个铃的手提箱背袋；前架携带，一个或两个铃铛在肩膀水平；头顶举，你用一只手或两只手把重物举过头顶。所有这些对你的核心都有好处，因为当你的腿在移动的时候，你必须保持你的上半身稳定和堆叠。
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-VsxdNUc5Jb4&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-VsxdNUc5Jb4&start=0)
 
@@ -54,7 +54,7 @@
 
 <figcaption class="sc-1ptbguh-0 hxeMec caption">Bedrock Strength Demo: Kettlebell Kroc Row</figcaption> 
 
-一个被低估的壶铃移动是行。虽然你可以用壶铃做任何风格的哑铃划船，但它们特别适合Kroc划船，尤其是如果你能找到一个看起来很重的铃铛。Kroc row使用一些身体动作来获得动量，以“欺骗”铃铛。这使得它可以作为核心锻炼的两倍，同时让你可以承受比其他方式更重的重量——这最终会让你变得更强壮。
+一个被低估的壶铃移动是行。虽然你可以用壶铃做任何风格的哑铃划船，但它们特别适合 Kroc 划船，尤其是如果你能找到一个看起来很重的铃铛。Kroc row 使用一些身体动作来获得动量，以“欺骗”铃铛。这使得它可以作为核心锻炼的两倍，同时让你可以承受比其他方式更重的重量——这最终会让你变得更强壮。
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-KaBuOQuKz9k&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-KaBuOQuKz9k&start=0)
 

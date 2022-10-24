@@ -1,6 +1,6 @@
 # 如何让你的前门更安全
 
-> 原文:[https://life hacker . com/how-to-make-your-front-door-more-secure-1848871492](https://lifehacker.com/how-to-make-your-front-door-more-secure-1848871492)
+> 原文：<https://lifehacker.com/how-to-make-your-front-door-more-secure-1848871492>
 
 升级你家的安全系统不一定要涉及重大的翻新——首先，我不能像评估你的前门和做一些小的但关键的改变那样简单。有几件事你可以做，使你家的主要入口更安全。
 
@@ -16,7 +16,7 @@ Watch
 
 ## 添加质量良好的- 插销
 
-要添加或更换插销，最好的选择是1级或2级插销。这些评级由美国国家标准协会(T2)、美国国家标准协会(ANSI)、美国国家标准协会(T4)做出，通过对锁定插销进行各种测试，并根据它们能够承受的打击次数给它们评级。ANSI[1级](https://www.acehardware.com/departments/hardware/door-knobs-and-locks/keyed-deadbolts/5202510?store=16513) 锁是你能买到的最好的，而[2级](https://hdsupplysolutions.com/p/yale-grade-2-single-cylinder-deadbolt-satin-chrome-keyway-p886767) 锁一般被认为是住宅用途可以接受的。
+要添加或更换插销，最好的选择是 1 级或 2 级插销。这些评级由美国国家标准协会(T2)、美国国家标准协会(ANSI)、美国国家标准协会(T4)做出，通过对锁定插销进行各种测试，并根据它们能够承受的打击次数给它们评级。ANSI[1 级](https://www.acehardware.com/departments/hardware/door-knobs-and-locks/keyed-deadbolts/5202510?store=16513) 锁是你能买到的最好的，而[2 级](https://hdsupplysolutions.com/p/yale-grade-2-single-cylinder-deadbolt-satin-chrome-keyway-p886767) 锁一般被认为是住宅用途可以接受的。
 
 大多数门都有可以容纳插销的切口，但是如果你的没有，你需要一个孔锯钻头，一个足够大的桨状钻头，一个钻头，一个卷尺，一个角尺，一把小刀或锥子来标记你的孔的中心。你的插销套件会有一个模板，所以你还需要一些遮蔽胶带。按照你的门栓上的指示安装它，测量它与你的模板对齐。先钻锁芯的孔会有帮助，然后在门的侧面钻的孔。这样，就很容易看到有多深，使死栓孔，因为它会与你已经钻了一个锁芯。
 

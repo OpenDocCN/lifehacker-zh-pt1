@@ -1,6 +1,6 @@
 # “份量”和“份量”的区别(以及它的重要性)
 
-> 原文:[https://life hacker . com/the-difference-between-portion-size-and-serving-size-1848460388](https://lifehacker.com/the-difference-between-portion-size-and-serving-size-1848460388)
+> 原文：<https://lifehacker.com/the-difference-between-portion-size-and-serving-size-1848460388>
 
 你有没有在享用一套奥利奥时，有人决定附和这样一个事实，即*实际上*，一份只有三块饼干？我们总是听说“份量”、“分量”以及“分量控制”，但是它们*实际上是什么意思呢？有什么有意义的区别吗，或者它们最终都让你对你刚刚吃了多少饼干感到奇怪？* 
 
@@ -10,9 +10,9 @@ Watch
 
 ## **食用量:标签上有什么**
 
-份量是你在营养成分标签顶部看到的标准食物量。一包食物可以(而且经常)包含多份食物，一份的份量并不是告诉你一次应该吃多少。事实上，[FDA明确指出](https://www.fda.gov/food/new-nutrition-facts-label/serving-size-new-nutrition-facts-label) “根据法律，每份的份量必须基于人们通常消费的食物量，而不是他们*应该*消费多少。”
+份量是你在营养成分标签顶部看到的标准食物量。一包食物可以(而且经常)包含多份食物，一份的份量并不是告诉你一次应该吃多少。事实上，[FDA 明确指出](https://www.fda.gov/food/new-nutrition-facts-label/serving-size-new-nutrition-facts-label) “根据法律，每份的份量必须基于人们通常消费的食物量，而不是他们*应该*消费多少。”
 
-2016年，美国食品和药物管理局对许多营养成分标签进行了修改，以便人们在查看标签上的卡路里和营养成分时，食用量更接近他们的消费量。例如，冰淇淋的份量很久以前就被列为半杯，但现在实际上是三分之二杯。但是这是否意味着一杯冰淇淋的三分之二就是你“T2”应该吃的量呢？不完全是。
+2016 年，美国食品和药物管理局对许多营养成分标签进行了修改，以便人们在查看标签上的卡路里和营养成分时，食用量更接近他们的消费量。例如，冰淇淋的份量很久以前就被列为半杯，但现在实际上是三分之二杯。但是这是否意味着一杯冰淇淋的三分之二就是你“T2”应该吃的量呢？不完全是。
 
 ## **份量:你实际吃了多少**
 
@@ -22,14 +22,14 @@ Watch
 
 ## **为什么重要**
 
-IFIC的调查发现, 尽管每份食物的份量并不是为了推荐吃多少而设计的，但许多消费者仍然用它来达到这个目的。同样， [阿里·韦伯斯特](https://ific.org/staff_members/ali-webster-phd-rd/) 博士在 [健康热线](https://www.healthline.com/health-news/portion-size-and-serving-size-are-not-the-same-why-it-matters) 中说，“看起来许多人已经将这些信息内化为吃多少的建议，而事实并非如此。”
+IFIC 的调查发现, 尽管每份食物的份量并不是为了推荐吃多少而设计的，但许多消费者仍然用它来达到这个目的。同样， [阿里·韦伯斯特](https://ific.org/staff_members/ali-webster-phd-rd/) 博士在 [健康热线](https://www.healthline.com/health-news/portion-size-and-serving-size-are-not-the-same-why-it-matters) 中说，“看起来许多人已经将这些信息内化为吃多少的建议，而事实并非如此。”
 
 的确，了解每份食物的份量有助于你理解食物标签，这样你就可以根据你吃的份量来更准确地了解食物的营养成分。然而，由于各种原因，你的份量可以比一份的份量大得多，也可以小得多。
 
-这是一份和一份之间的区别发挥作用的一种方式:一份葡萄是半杯(大约16颗葡萄)。然而，如果你抓了两把，你的份量可能是满满一杯——两份。了解你的个人份量对于计算卡路里、跟踪宏指令或向你的医生报告你通常在饮食中摄入多少水果是必要的。
+这是一份和一份之间的区别发挥作用的一种方式:一份葡萄是半杯(大约 16 颗葡萄)。然而，如果你抓了两把，你的份量可能是满满一杯——两份。了解你的个人份量对于计算卡路里、跟踪宏指令或向你的医生报告你通常在饮食中摄入多少水果是必要的。
 
 ## **底线**
 
 虽然食物的份量对每个看营养成分标签的人来说都是一样的，但是份量取决于你的身体和你的需求。使用份量来了解食物的营养成分。然后，你的份量应该由个人因素决定，如饥饿暗示和健康目标。简而言之:上菜尺寸是批量生产的；份量大小因人而异。
 
-*[调查](https://foodinsight.org/consumer-survey-understanding-portion-and-serving-sizes/) 使用了2021年11月进行的1000名18岁及以上成年人的采访数据，并于2022年1月发表。
+*[调查](https://foodinsight.org/consumer-survey-understanding-portion-and-serving-sizes/) 使用了 2021 年 11 月进行的 1000 名 18 岁及以上成年人的采访数据，并于 2022 年 1 月发表。

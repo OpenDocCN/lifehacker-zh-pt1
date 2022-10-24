@@ -1,6 +1,6 @@
 # 现在如何帮助阿富汗人民
 
-> 原文:[https://life hacker . com/how-to-help-people-in-Afghanistan-right-now-1847503660](https://lifehacker.com/how-to-help-people-in-afghanistan-right-now-1847503660)
+> 原文：<https://lifehacker.com/how-to-help-people-in-afghanistan-right-now-1847503660>
 
 周日，在美国撤军、 [阿富汗军方](https://www.washingtonpost.com/world/2021/08/15/afghanistan-military-collapse-taliban/) 崩溃之后，塔利班控制了阿富汗首都喀布尔。许多阿富汗人现在处于危险之中，包括记者、外交官、为美国工作或援助美国的人，以及 [妇女和女孩](https://www.nytimes.com/2021/08/17/opinion/malala-afghanistan-taliban-women.html) 。你可能已经看过令人痛心的画面，阿富汗人不顾一切地想要逃离，以至于他们紧紧抓住一架从喀布尔机场起飞的喷气式飞机。
 

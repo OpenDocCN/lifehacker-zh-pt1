@@ -1,6 +1,6 @@
 # 如何让你的汽车电池比你想象的更耐用
 
-> 原文:[https://life hacker . com/how-to-make-your-car-battery-last-than you-think-1849137022](https://lifehacker.com/how-to-make-your-car-battery-last-longer-than-you-think-1849137022)
+> 原文：<https://lifehacker.com/how-to-make-your-car-battery-last-longer-than-you-think-1849137022>
 
 当谈到为汽车提供动力时，天然气得到了所有的关注(考虑到过去几个月的价格，这是可以理解的)。但是除了你的油量计，你还应该留意你的电池电量。电池 [在车辆中执行多种功能](https://www.lesschwab.com/article/how-your-auto-battery-works.html#:~:text=The%20first%20purpose%20of%20an,part%20of%20the%20starting%20system.)——包括提供你启动汽车所需的电力。
 

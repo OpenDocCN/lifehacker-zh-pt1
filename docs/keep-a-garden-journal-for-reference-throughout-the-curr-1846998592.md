@@ -1,8 +1,8 @@
 # 在当前和未来的生长季节保持一本园艺日志作为参考
 
-> 原文:[https://life hacker . com/keep-a-garden-journal-for-reference-through-the-curr-1846998592](https://lifehacker.com/keep-a-garden-journal-for-reference-throughout-the-curr-1846998592)
+> 原文：<https://lifehacker.com/keep-a-garden-journal-for-reference-throughout-the-curr-1846998592>
 
-当你想到园艺工具时，像手套、铲子和剪刀这样的东西可能会出现在你的脑海中。但事实证明，还有一样东西对你的花园非常有价值:一本日记。在 [一篇关于food 52](https://food52.com/blog/26192-garden-record-keeping?utm_source=salon&utm_medium=referral&utm_campaign=salonreferral)[园艺大师](https://ahsgardening.org/gardening-resources/master-gardeners/) 的文章中，纳迪亚·哈萨尼解释了原因。以下是需要了解的内容。
+当你想到园艺工具时，像手套、铲子和剪刀这样的东西可能会出现在你的脑海中。但事实证明，还有一样东西对你的花园非常有价值:一本日记。在 [一篇关于 food 52](https://food52.com/blog/26192-garden-record-keeping?utm_source=salon&utm_medium=referral&utm_campaign=salonreferral)[园艺大师](https://ahsgardening.org/gardening-resources/master-gardeners/) 的文章中，纳迪亚·哈萨尼解释了原因。以下是需要了解的内容。
 
 Watch
 
@@ -26,7 +26,7 @@ Watch
 
 这个比做地图简单一点。基本上，你要写下你种了什么，什么时候种的。哈萨尼写道，如果你从种子开始，情况尤其如此，“这样你就会知道你可以期待看到生长的时间框架，或者种子是否没有发芽，你应该重新播种。”
 
-还要记录你给花园施肥的日期，以及你使用的肥料种类。对任何害虫或疾病控制产品做同样的事情。“总的来说，太少比太多好，因为过量的肥料或化学物质会伤害你的植物，”Hassani说。
+还要记录你给花园施肥的日期，以及你使用的肥料种类。对任何害虫或疾病控制产品做同样的事情。“总的来说，太少比太多好，因为过量的肥料或化学物质会伤害你的植物，”Hassani 说。
 
 ### 其他有用信息
 

@@ -1,8 +1,8 @@
 # 使用谷歌的“奇美拉画师”网络应用程序，将你的涂鸦变成细节丰富的怪物
 
-> 原文:[https://life hacker . com/turn-your-doodles-into-detailed-monsters-with-Google-c-1845709673](https://lifehacker.com/turn-your-doodles-into-detailed-monsters-with-googles-c-1845709673)
+> 原文：<https://lifehacker.com/turn-your-doodles-into-detailed-monsters-with-googles-c-1845709673>
 
-我花了很多空闲时间画画，我的很多画碰巧都是关于怪物的。 [很好玩的爱好](https://lifehacker.com/try-doodling-when-youre-stuck-on-a-big-project-or-need-1837351952) ，轮到我DM a [桌面角色扮演环节](https://lifehacker.com/how-to-create-your-first-dungeons-dragons-character-1820441940) 的时候就派上用场了。然而，我知道有很多人希望他们能把潜伏在他们想象中的生物带入生活，但是他们不喜欢画画。如果这听起来像你，看看谷歌的 [奇美拉画师网络应用](https://storage.googleapis.com/chimera-painter/index.html) ，它使用人工智能根据简单的彩色编码涂鸦“画”出详细的怪物。
+我花了很多空闲时间画画，我的很多画碰巧都是关于怪物的。 [很好玩的爱好](https://lifehacker.com/try-doodling-when-youre-stuck-on-a-big-project-or-need-1837351952) ，轮到我 DM a [桌面角色扮演环节](https://lifehacker.com/how-to-create-your-first-dungeons-dragons-character-1820441940) 的时候就派上用场了。然而，我知道有很多人希望他们能把潜伏在他们想象中的生物带入生活，但是他们不喜欢画画。如果这听起来像你，看看谷歌的 [奇美拉画师网络应用](https://storage.googleapis.com/chimera-painter/index.html) ，它使用人工智能根据简单的彩色编码涂鸦“画”出详细的怪物。
 
 Watch
 
@@ -10,10 +10,10 @@ Watch
 
 至于画你的怪物，你将通过使用左侧菜单的给每个身体部位分配一种颜色开始。比如淡红色代表怪物的头部，绿色代表它的脖子，米色代表它的尾巴等等。当您准备好渲染您的绘图时，请点按“变换”该应用程序使用机器学习来根据你选择的色调将纹理、颜色和光照应用到你的色码图中。
 
-Chimera Painter可以在几乎所有的浏览器上运行，你只需要用鼠标或手指就能使用它——尽管它也支持外部绘图设备，比如Wacom平板电脑。这对我来说是个好消息，因为你可以从这篇文章的截图中看出，我不习惯用钢笔或铅笔以外的东西画画。
+Chimera Painter 可以在几乎所有的浏览器上运行，你只需要用鼠标或手指就能使用它——尽管它也支持外部绘图设备，比如 Wacom 平板电脑。这对我来说是个好消息，因为你可以从这篇文章的截图中看出，我不习惯用钢笔或铅笔以外的东西画画。
 
-不幸的是，我在iPad上没有这么幸运。页面加载到我的iPad Pro上，我可以用连接的Apple Pencil绘制，但这个怪物在Chrome或Safari中都无法渲染，“转换”按钮总是灰显。相反，在台式机和我的安卓手机上，所有东西都能很好地加载。
+不幸的是，我在 iPad 上没有这么幸运。页面加载到我的 iPad Pro 上，我可以用连接的 Apple Pencil 绘制，但这个怪物在 Chrome 或 Safari 中都无法渲染，“转换”按钮总是灰显。相反，在台式机和我的安卓手机上，所有东西都能很好地加载。
 
-我承认让一个人工智能为我画画需要一些时间来适应——特别是因为我已经习惯了自己渲染所有那些复杂的T2细节——但最终的结果看起来仍然很有趣。他们看起来有点像T4，但足够令人信服，以至于那些对自己的艺术技巧没有信心的人也能创造出一些令人生畏的怪物。
+我承认让一个人工智能为我画画需要一些时间来适应——特别是因为我已经习惯了自己渲染所有那些复杂的 T2 细节——但最终的结果看起来仍然很有趣。他们看起来有点像 T4，但足够令人信服，以至于那些对自己的艺术技巧没有信心的人也能创造出一些令人生畏的怪物。
 
-也就是说，如果我忽略了说这不是真正学习绘画的捷径，那我就是在给我的美术学位帮倒忙。有一个 [AI为你做一些困难的部分](https://lifehacker.com/use-augmented-reality-to-become-a-better-artist-with-th-1827789651) 很好，但是如果你自己做这些工作来呈现它们，你会得到更好的结果(并且发现更多的满足感)。好消息是，有大量的免费资源可以帮助你快速提高你的艺术技能。
+也就是说，如果我忽略了说这不是真正学习绘画的捷径，那我就是在给我的美术学位帮倒忙。有一个 [AI 为你做一些困难的部分](https://lifehacker.com/use-augmented-reality-to-become-a-better-artist-with-th-1827789651) 很好，但是如果你自己做这些工作来呈现它们，你会得到更好的结果(并且发现更多的满足感)。好消息是，有大量的免费资源可以帮助你快速提高你的艺术技能。

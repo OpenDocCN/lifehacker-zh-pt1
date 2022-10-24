@@ -1,8 +1,8 @@
 # 如何区分好的辅助生活设施和糟糕的设施
 
-> 原文:[https://life hacker . com/how-to-tell-a-good-assisted-living-facility-from-an-awf-1849169114](https://lifehacker.com/how-to-tell-a-good-assisted-living-facility-from-an-awf-1849169114)
+> 原文：<https://lifehacker.com/how-to-tell-a-good-assisted-living-facility-from-an-awf-1849169114>
 
-不管我们喜欢与否，我们都在变老。事实上，根据美国ce nsus、T5】全国整体老龄化 ，85岁以上的成年人人口估计在未来20-30年内增加两倍。所以毫不奇怪，这个国家有近一百万人居住在辅助生活设施中——随着这个国家继续老龄化，这个数字肯定会迅速增长。
+不管我们喜欢与否，我们都在变老。事实上，根据美国 ce nsus、T5】全国整体老龄化 ，85 岁以上的成年人人口估计在未来 20-30 年内增加两倍。所以毫不奇怪，这个国家有近一百万人居住在辅助生活设施中——随着这个国家继续老龄化，这个数字肯定会迅速增长。
 
 Watch
 

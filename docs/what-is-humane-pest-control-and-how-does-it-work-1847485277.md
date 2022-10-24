@@ -1,6 +1,6 @@
 # 什么是人性化的害虫控制，它是如何工作的？
 
-> 原文:[https://life hacker . com/what-is-humane-pest-control-and-how-it-work-1847485277](https://lifehacker.com/what-is-humane-pest-control-and-how-does-it-work-1847485277)
+> 原文：<https://lifehacker.com/what-is-humane-pest-control-and-how-does-it-work-1847485277>
 
 在一个完美的世界里，我们决定和谁——和什么——分享我们的家。不幸的是，现实生活并不总是这样，我们完全有可能时不时会遇到一些不受欢迎的室友。
 

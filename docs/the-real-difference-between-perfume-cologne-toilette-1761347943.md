@@ -1,6 +1,6 @@
 # 香水、古龙水和淡香水的区别
 
-> 原文:[https://life hacker . com/the-real-difference-between-香水-古龙-化妆品-1761347943](https://lifehacker.com/the-real-difference-between-perfume-cologne-toilette-1761347943)
+> 原文：<https://lifehacker.com/the-real-difference-between-perfume-cologne-toilette-1761347943>
 
 如果你曾经被困在机场的免税店里，或者逛过百货公司的化妆品区，你很可能已经浏览过一些香水了。如果你感到困惑，你并不孤单——香水有很多种形式，包括香水、古龙水和淡香水。那么有什么区别呢？
 
@@ -19,4 +19,4 @@ Watch
 
 ****香水 的完整介绍还提出了一些建议，解释了你在购买香水时会闻到的一些“味道”，并概述了各种香味在你皮肤上的持续时间。它还深入探讨了香水是如何定价的，以及为什么有些香水以极低的价格出售，而有些香水看起来贵得离谱。点击 [链接](https://www.realmenrealstyle.com/introduction-to-fragrance) 如果你想了解更多。尽管这个网址是针对男性的，但该指南包含了对每个人都有用的信息。****
 
-*****这个故事最初发表于2016年2月，更新于2021年10月29日。*****
+*****这个故事最初发表于 2016 年 2 月，更新于 2021 年 10 月 29 日。*****

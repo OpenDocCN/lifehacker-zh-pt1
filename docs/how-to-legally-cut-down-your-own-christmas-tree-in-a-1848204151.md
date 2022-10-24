@@ -1,6 +1,6 @@
 # 如何(合法地)在国家森林中砍倒自己的圣诞树
 
-> 原文:[https://life hacker . com/how-to-legal-down-your-own-a-1848204151](https://lifehacker.com/how-to-legally-cut-down-your-own-christmas-tree-in-a-1848204151)
+> 原文：<https://lifehacker.com/how-to-legally-cut-down-your-own-christmas-tree-in-a-1848204151>
 
 如果你打算把一棵活的常青树带回家庆祝节日(还没有这样做)，你可能会发现在通常的地方(如街角、空地和专用圣诞树农场)很难找到。但即使事实并非如此，今年你可能会有兴趣尝试一种新的树源。一个 [美国国家森林](https://www.recreation.gov/tree-permits) 听起来怎么样？
 
@@ -12,11 +12,11 @@ Watch
 
 在你拿起斧头、锯子或其他砍树工具之前，有一些关于这个程序的事情需要了解。首先，快速澄清一下:美国国家森林(由美国农业部林务局维护和经营) [与美国国家公园](https://www.nationalforests.org/blog/what-are-the-differences-between-national-parks-and-national-forests) 不同*。所以，不要走进国家公园去砍树。*
 
-*如果你不确定你想到的那组树实际上是不是国家森林， [访问Recreation.gov的](https://www.recreation.gov/tree-permits) 页面，输入你所在州的名称，或者你想到的森林名称。如果你所在的地区确实有一个国家森林，而且它是90%以上出售圣诞树许可证的其中之一(而且它们没有卖完)，你就在得到那棵树的路上了。*
+*如果你不确定你想到的那组树实际上是不是国家森林， [访问 Recreation.gov 的](https://www.recreation.gov/tree-permits) 页面，输入你所在州的名称，或者你想到的森林名称。如果你所在的地区确实有一个国家森林，而且它是 90%以上出售圣诞树许可证的其中之一(而且它们没有卖完)，你就在得到那棵树的路上了。*
 
 ## *如何获得许可证*
 
-*在国家森林 [砍伐圣诞树的许可证可以在网上](https://www.recreation.gov/tree-permits) 购买，或者在某些情况下，在森林办公室 购买 [，如果它在COVID关闭后重新开放。(如果你选择亲自购买，提前打电话确认一下办公室是否开门，他们是否还有许可证。)每个许可证](https://www.recreation.gov/articles/location-spotlight/cut-a-tree-for-the-holidays-from-your-national-forest/120) [的费用在5美元到20美元](https://www.fs.usda.gov/detail/r2/recreation/?cid=fseprd562604) 之间，取决于森林的位置。*
+*在国家森林 [砍伐圣诞树的许可证可以在网上](https://www.recreation.gov/tree-permits) 购买，或者在某些情况下，在森林办公室 购买 [，如果它在 COVID 关闭后重新开放。(如果你选择亲自购买，提前打电话确认一下办公室是否开门，他们是否还有许可证。)每个许可证](https://www.recreation.gov/articles/location-spotlight/cut-a-tree-for-the-holidays-from-your-national-forest/120) [的费用在 5 美元到 20 美元](https://www.fs.usda.gov/detail/r2/recreation/?cid=fseprd562604) 之间，取决于森林的位置。*
 
 *这应该是不言而喻的，但只能砍伐位于 [森林](https://www.recreation.gov/articles/location-spotlight/cut-a-tree-for-the-holidays-from-your-national-forest/120) 中指定和批准区域的树木——这不是一场混战。*
 

@@ -1,12 +1,12 @@
 # 在你的洗碗机里放一条毛巾
 
-> 原文:[https://life hacker . com/stick-a毛巾在你的洗碗机里-1849536897](https://lifehacker.com/stick-a-towel-in-your-dishwasher-1849536897)
+> 原文：<https://lifehacker.com/stick-a-towel-in-your-dishwasher-1849536897>
 
 拥有一台洗碗机是一个游戏改变者，即使它是一台微型洗碗机，减少劳动力和水的使用。除了空调之外，洗碗机是我有史以来最喜欢的独立发明，不包括像电和室内管道这样的大发明(这两者必然早于洗碗机的发明)。大多数洗碗机都很擅长洗碗，但不太擅长擦干盘子。
 
 Watch
 
-进入这个来自Babs的黑客，每个人都喜欢的抖音奶奶。我通常很喜欢Babs——尽管她有过 [的成功](https://lifehacker.com/this-is-how-you-fix-a-messy-summer-ice-cream-cone-1849025130) 和 [的失败](https://lifehacker.com/don-t-try-this-viral-dishwasher-hack-1849486687)——但这个洗碗策略是一个真正省时的技巧。在她去年的视频中(该视频后来再次出现，并第二次在网上疯传)，一旦碗碟“完成”(也就是说，在洗涤和干燥周期完成后)，巴布斯就会在洗碗机内悬挂一块毛巾布洗碗巾。她让它晾五分钟，然后打开洗衣机，露出真正干的盘子。
+进入这个来自 Babs 的黑客，每个人都喜欢的抖音奶奶。我通常很喜欢 Babs——尽管她有过 [的成功](https://lifehacker.com/this-is-how-you-fix-a-messy-summer-ice-cream-cone-1849025130) 和 [的失败](https://lifehacker.com/don-t-try-this-viral-dishwasher-hack-1849486687)——但这个洗碗策略是一个真正省时的技巧。在她去年的视频中(该视频后来再次出现，并第二次在网上疯传)，一旦碗碟“完成”(也就是说，在洗涤和干燥周期完成后)，巴布斯就会在洗碗机内悬挂一块毛巾布洗碗巾。她让它晾五分钟，然后打开洗衣机，露出真正干的盘子。
 
  [https://lifehacker.com/embed/inset/iframe?id=tiktok-6989316890128567558&autosize=1](https://lifehacker.com/embed/inset/iframe?id=tiktok-6989316890128567558&autosize=1) 
 

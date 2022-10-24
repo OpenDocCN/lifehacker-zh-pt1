@@ -1,19 +1,19 @@
-# 如何让你的Apple Watch充一次电就能用几天
+# 如何让你的 Apple Watch 充一次电就能用几天
 
-> 原文:[https://life hacker . com/how-to-make-your-apple-watch-last-on-one-1849533531](https://lifehacker.com/how-to-make-your-apple-watch-last-for-days-on-a-single-1849533531)
+> 原文：<https://lifehacker.com/how-to-make-your-apple-watch-last-for-days-on-a-single-1849533531>
 
-说到Apple Watch，“全天电池续航时间”是苹果的宣传口号——，但这个*真正的意思是*18小时的电池周期。如果你想一天把它推过，你需要坚持轻装上阵(而不是戴着它上床)。但是现在，带着 [watchOS 9](https://lifehacker.com/the-best-new-features-in-watchos-9-1849027953) ，苹果第一次向 w atch推出了新的低功耗模式。
+说到 Apple Watch，“全天电池续航时间”是苹果的宣传口号——，但这个*真正的意思是*18 小时的电池周期。如果你想一天把它推过，你需要坚持轻装上阵(而不是戴着它上床)。但是现在，带着 [watchOS 9](https://lifehacker.com/the-best-new-features-in-watchos-9-1849027953) ，苹果第一次向 w atch 推出了新的低功耗模式。
 
 Watch
 
-从Series 4开始的每一款Apple Watch都将能够访问该功能。苹果公司表示，在这种模式下， [你可以预期36小时的电池寿命](https://www.tomsguide.com/news/apple-watch-low-power-mode-how-it-works) ，基本上是典型Apple Watch使用时间的两倍。如果你有一个 [的苹果手表Ultra](https://lifehacker.com/you-don-t-need-the-apple-watch-ultra-1849510364?rev=1662643589266) ，这个数字会跳到60小时。实际上，如果你晚上不戴Apple Watch，你可以轻松地延长电池寿命几天。
+从 Series 4 开始的每一款 Apple Watch 都将能够访问该功能。苹果公司表示，在这种模式下， [你可以预期 36 小时的电池寿命](https://www.tomsguide.com/news/apple-watch-low-power-mode-how-it-works) ，基本上是典型 Apple Watch 使用时间的两倍。如果你有一个 [的苹果手表 Ultra](https://lifehacker.com/you-don-t-need-the-apple-watch-ultra-1849510364?rev=1662643589266) ，这个数字会跳到 60 小时。实际上，如果你晚上不戴 Apple Watch，你可以轻松地延长电池寿命几天。
 
-低功耗模式通过关闭持续显示、心率- 通知、背景心率- 监测、背景氧气- 水平监测和开始- 锻炼提醒等电池消耗功能来工作。当你的iPhone不在附近时，它也会关闭wifi和蜂窝连接，以及在Apple Watch上接受iPhone呼叫的功能。一般来说，电话和通知可能需要更长时间才能到达。
+低功耗模式通过关闭持续显示、心率- 通知、背景心率- 监测、背景氧气- 水平监测和开始- 锻炼提醒等电池消耗功能来工作。当你的 iPhone 不在附近时，它也会关闭 wifi 和蜂窝连接，以及在 Apple Watch 上接受 iPhone 呼叫的功能。一般来说，电话和通知可能需要更长时间才能到达。
 
 如果你认为为了延长电池寿命，这些牺牲都是值得的，你可以通过在表盘上滑动来访问控制中心。点击电池图标，然后点击“低功耗模式”选项旁边的开关。
 
 你会看到一个新的屏幕，它将解释所有将关闭的东西，以及两个选项:只需点击“**打开**按钮来启用低功耗模式，或者你可以使用“**打开**选项来启用它一天、两天或三天。启用后，您会在顶部状态栏中看到一个黄色圆圈。
 
-如果你觉得是锻炼耗尽了你的Apple Watch电池，有一个单独的功能可以在你开始锻炼时自动打开低功耗模式。进入**设置** > **健身程序** > **低功耗模式**启用该功能。
+如果你觉得是锻炼耗尽了你的 Apple Watch 电池，有一个单独的功能可以在你开始锻炼时自动打开低功耗模式。进入**设置** > **健身程序** > **低功耗模式**启用该功能。
 
-如果你没有启用低功耗模式，而你的手表电池电量下降到10%，你会看到一个弹出窗口，询问你是否要启用它；一旦充电到80%，低功率模式将自动禁用。
+如果你没有启用低功耗模式，而你的手表电池电量下降到 10%，你会看到一个弹出窗口，询问你是否要启用它；一旦充电到 80%，低功率模式将自动禁用。

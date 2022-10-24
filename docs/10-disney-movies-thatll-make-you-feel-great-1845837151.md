@@ -1,12 +1,12 @@
-# 10部迪士尼+电影会让你感觉很棒
+# 10 部迪士尼+电影会让你感觉很棒
 
-> 原文:[https://gizmodo . com/10-迪士尼-电影-让你感觉很棒-1845837151](https://gizmodo.com/10-disney-movies-thatll-make-you-feel-great-1845837151)
+> 原文：<https://gizmodo.com/10-disney-movies-thatll-make-you-feel-great-1845837151>
 
-[节假日](https://gizmodo.com/13-christmas-movie-elves-from-naughty-to-nice-1845908533) 寓意幸福。无论是在平常的一年里有机会与你的朋友和家人一起欢笑，还是在2020年尽可能安全健康，当我们到达任何一年的年底时，每个人都可以使用 [一点额外的快乐。电影绝对有助于这一点，但有时很难选择一个击中正确的按钮。我们是来帮忙的。](https://io9.gizmodo.com/5-nerdy-and-affordable-decoration-ideas-for-the-holid-1845793326)
+[节假日](https://gizmodo.com/13-christmas-movie-elves-from-naughty-to-nice-1845908533) 寓意幸福。无论是在平常的一年里有机会与你的朋友和家人一起欢笑，还是在 2020 年尽可能安全健康，当我们到达任何一年的年底时，每个人都可以使用 [一点额外的快乐。电影绝对有助于这一点，但有时很难选择一个击中正确的按钮。我们是来帮忙的。](https://io9.gizmodo.com/5-nerdy-and-affordable-decoration-ideas-for-the-holid-1845793326)
 
-当大多数人想到快乐电影时，他们会想到迪斯尼。看看那个！迪士尼有它的 [非常自己的流媒体服务](https://io9.gizmodo.com/disney-has-updated-disney-pluss-content-warning-for-old-1845407406) ，迪士尼+！然而， [虽然大多数迪士尼电影一般都是](https://gizmodo.com/the-a-z-guide-to-all-the-offbeat-disney-movies-you-nee-1843029080) “快乐”——因为有积极的决心和/或对家庭友好——但并不是所有的电影都必须“感觉良好”这需要一种特殊的魔法。以下是我们最喜欢的10部符合要求的电影，你现在就可以在Disney+上找到。这些保证会给你带来节日的快乐。
+当大多数人想到快乐电影时，他们会想到迪斯尼。看看那个！迪士尼有它的 [非常自己的流媒体服务](https://io9.gizmodo.com/disney-has-updated-disney-pluss-content-warning-for-old-1845407406) ，迪士尼+！然而， [虽然大多数迪士尼电影一般都是](https://gizmodo.com/the-a-z-guide-to-all-the-offbeat-disney-movies-you-nee-1843029080) “快乐”——因为有积极的决心和/或对家庭友好——但并不是所有的电影都必须“感觉良好”这需要一种特殊的魔法。以下是我们最喜欢的 10 部符合要求的电影，你现在就可以在 Disney+上找到。这些保证会给你带来节日的快乐。
 
-Disney+并不是寻找20世纪上半叶电影的最佳地点，但一部正在上映的经典电影是这部迷人的经典:1947年的原版*34街*上的奇迹，讲述了一个小女孩以最令人愉快的方式相信圣诞老人的存在。
+Disney+并不是寻找 20 世纪上半叶电影的最佳地点，但一部正在上映的经典电影是这部迷人的经典:1947 年的原版*34 街*上的奇迹，讲述了一个小女孩以最令人愉快的方式相信圣诞老人的存在。
 
 任何版本的 [*圣诞颂歌*](https://io9.gizmodo.com/7-non-traditional-versions-of-a-christmas-carol-to-warm-1840041401) 都很难出错——但加入一些布偶、歌曲和克尔·凯恩，你会带着喜悦的泪水结束这部电影。
 
@@ -28,7 +28,7 @@ Disney+并不是寻找20世纪上半叶电影的最佳地点，但一部正在�
 
 很少有人会反对《帝国反击战》*【星球大战】*电影。然而，就“感觉良好”而言？没有抱歉。为此，你需要在结尾取得某种胜利，而且足够精彩的是，第四集和第六集都提供了夸张的约翰·威廉姆斯配乐和大型派对。
 
-好吧，任何布偶电影都很难出错，但2016年的续集有一个最好的感觉良好的结局。该团伙赢回了他们的剧院，并有一个求婚和一个巨大的音乐号码设置在好莱坞中部。到处都是笑容。
+好吧，任何布偶电影都很难出错，但 2016 年的续集有一个最好的感觉良好的结局。该团伙赢回了他们的剧院，并有一个求婚和一个巨大的音乐号码设置在好莱坞中部。到处都是笑容。
 
 * * *
 
@@ -36,4 +36,4 @@ Disney+并不是寻找20世纪上半叶电影的最佳地点，但一部正在�
 
 * * *
 
-*要了解更多信息，请务必在我们的Instagram上关注我们@*[*io 9 dot com*](https://www.instagram.com/io9dotcom/)*。*
+*要了解更多信息，请务必在我们的 Instagram 上关注我们@*[*io 9 dot com*](https://www.instagram.com/io9dotcom/)*。*

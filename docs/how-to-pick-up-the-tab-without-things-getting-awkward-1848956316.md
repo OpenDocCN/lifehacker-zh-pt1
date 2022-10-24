@@ -1,6 +1,6 @@
 # 如何在不尴尬的情况下买单
 
-> 原文:[https://life hacker . com/how-to-pick-the-tab-without things-1848956316](https://lifehacker.com/how-to-pick-up-the-tab-without-things-getting-awkward-1848956316)
+> 原文：<https://lifehacker.com/how-to-pick-up-the-tab-without-things-getting-awkward-1848956316>
 
 当账单出现在晚餐结束时，比如和朋友或家人出去吃饭，事情会很快变得尴尬。也许你是一个成年人，但你不确定继续让父母为你买单是否合适。也许你是第一次约会，不想给人留下你是个吝啬鬼的印象——或者处理你“欠”刚刚给你买了饭的人一点东西的期望。朋友之间也会有压力:分摊账单，跟踪谁点了什么，还要记住你的一些朋友可能比你挣得少(或多得多)。
 

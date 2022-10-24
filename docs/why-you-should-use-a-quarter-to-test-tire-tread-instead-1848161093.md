@@ -1,12 +1,12 @@
-# 为什么你应该用25美分硬币而不是1美分硬币来测试轮胎胎面
+# 为什么你应该用 25 美分硬币而不是 1 美分硬币来测试轮胎胎面
 
-> 原文:[https://life hacker . com/why-you-should-use-a quarter-to-test-tire-tread-instead-1848161093](https://lifehacker.com/why-you-should-use-a-quarter-to-test-tire-tread-instead-1848161093)
+> 原文：<https://lifehacker.com/why-you-should-use-a-quarter-to-test-tire-tread-instead-1848161093>
 
 当你在学习如何驾驶时，你可能也学到了一些汽车保养的基本知识，比如如何给你的挡风玻璃刮水器补充液体或者检查你的油位。另一个常见的技巧是用一便士来检查轮胎的胎面。
 
 Watch
 
-但是和其他事情一样，这项简单测试的费用也在逐年上涨。现在，许多汽车专家建议用25美分代替1美分。在 [为TheDrive，](https://www.thedrive.com/cars-101/39190/how-to-check-tire-tread) 撰写的一篇文章中，Tony Markovich解释了如何做到这一点，以及为什么25美分硬币取代了1美分硬币成为了这一经典技巧。以下是需要了解的内容。
+但是和其他事情一样，这项简单测试的费用也在逐年上涨。现在，许多汽车专家建议用 25 美分代替 1 美分。在 [为 TheDrive，](https://www.thedrive.com/cars-101/39190/how-to-check-tire-tread) 撰写的一篇文章中，Tony Markovich 解释了如何做到这一点，以及为什么 25 美分硬币取代了 1 美分硬币成为了这一经典技巧。以下是需要了解的内容。
 
 ## 什么是轮胎胎面，为什么它很重要？
 
@@ -18,11 +18,11 @@ Watch
 
 鉴于轮胎胎面的重要性，司机被鼓励定期检查——传统上，这是用一便士来完成的( [米其林](https://www.michelinman.com/visualInspection.html) 至今仍认可这一规则)。
 
-基本上，你在其中一个脊上贴一枚倒扣的硬币作为轮胎的最低点，如果你能看到林肯的头顶，那么就该换轮胎了。马尔科维奇写道:“这条规则是在这样一种印象下运作的，即2/32英寸是可运行轮胎的极限。”
+基本上，你在其中一个脊上贴一枚倒扣的硬币作为轮胎的最低点，如果你能看到林肯的头顶，那么就该换轮胎了。马尔科维奇写道:“这条规则是在这样一种印象下运作的，即 2/32 英寸是可运行轮胎的极限。”
 
-与此同时，一些专家几十年来一直质疑这一规则，现在一些公司、组织和出版物——像 [AAA](https://newsroom.aaa.com/2018/06/tread-lightly-worn-tires-drivers-risk/) 和[the drive](https://www.thedrive.com/cars-101/39190/how-to-check-tire-tread)——现在建议用25美分代替1美分。
+与此同时，一些专家几十年来一直质疑这一规则，现在一些公司、组织和出版物——像 [AAA](https://newsroom.aaa.com/2018/06/tread-lightly-worn-tires-drivers-risk/) 和[the drive](https://www.thedrive.com/cars-101/39190/how-to-check-tire-tread)——现在建议用 25 美分代替 1 美分。
 
-“这条规则是在4/32英寸是安全极限的印象下运作的，”马尔科维奇说。“当涉及到轮胎安全时，我们更倾向于保持谨慎，所以我们使用四分之一测试。”
+“这条规则是在 4/32 英寸是安全极限的印象下运作的，”马尔科维奇说。“当涉及到轮胎安全时，我们更倾向于保持谨慎，所以我们使用四分之一测试。”
 
 ## 如何使用硬币检查轮胎胎面
 

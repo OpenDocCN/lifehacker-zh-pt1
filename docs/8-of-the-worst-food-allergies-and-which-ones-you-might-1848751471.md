@@ -1,6 +1,6 @@
-# 8种最严重的食物过敏(哪些你可能不必忍受)
+# 8 种最严重的食物过敏(哪些你可能不必忍受)
 
-> 原文:[https://life hacker . com/8-of-the-worth-food-allergies-and-the-one-you-may-1848751471](https://lifehacker.com/8-of-the-worst-food-allergies-and-which-ones-you-might-1848751471)
+> 原文：<https://lifehacker.com/8-of-the-worst-food-allergies-and-which-ones-you-might-1848751471>
 
 食物过敏糟透了，不管你是自己得了过敏症，还是你必须留意孩子或爱人，以确保他们不会吃错东西。它们可以在范围内的任何地方出现，从仅仅令人讨厌到威胁生命，有些是终生的，有些是暂时的。一些轻度过敏是可以控制的，甚至有新的治疗方法可以降低一些过敏的严重程度。
 
@@ -8,23 +8,23 @@
 
 花生过敏是最著名的食物过敏之一。有些人的反应可能会很严重，包括 [过敏反应](https://www.aaaai.org/conditions-treatments/allergies/anaphylaxis) ，这是一种全身反应，会让人无法呼吸，会导致血压下降和失去知觉。
 
-一些孩子长大后会不再对花生过敏(根据一些研究， [高达20%](https://www.anaphylaxis.org.uk/knowledgebase/outgrowing-food-allergy/) )，但许多孩子不会。儿科医生过去常常建议父母反对给幼儿喂花生，以避免引发过敏，但近年来，这一建议被逆转了: [及早引入花生似乎可以从一开始就保护儿童免于过敏](https://lifehacker.com/allergy-experts-now-recommend-introducing-peanut-produc-1790817324) 。(也就是说，如果你的家族中有人对花生过敏，请咨询你的医生。)
+一些孩子长大后会不再对花生过敏(根据一些研究， [高达 20%](https://www.anaphylaxis.org.uk/knowledgebase/outgrowing-food-allergy/) )，但许多孩子不会。儿科医生过去常常建议父母反对给幼儿喂花生，以避免引发过敏，但近年来，这一建议被逆转了: [及早引入花生似乎可以从一开始就保护儿童免于过敏](https://lifehacker.com/allergy-experts-now-recommend-introducing-peanut-produc-1790817324) 。(也就是说，如果你的家族中有人对花生过敏，请咨询你的医生。)
 
-还有一种FDA批准的花生过敏治疗方法，包括在医疗监督下给患者服用小剂量的花生(它以Palforzia的名称上市)。虽然不能治愈，但 [或许可以减轻某些人](https://lifehacker.com/what-parents-should-know-about-the-new-peanut-allergy-t-1841457297) 过敏的严重程度。
+还有一种 FDA 批准的花生过敏治疗方法，包括在医疗监督下给患者服用小剂量的花生(它以 Palforzia 的名称上市)。虽然不能治愈，但 [或许可以减轻某些人](https://lifehacker.com/what-parents-should-know-about-the-new-peanut-allergy-t-1841457297) 过敏的严重程度。
 
 树坚果过敏包括对核桃、山核桃、杏仁、榛子、开心果、腰果和其他非花生坚果过敏。(有趣的事实:花生生长在地下，它们与豆类的关系比坚果更密切。)
 
-有些孩子长大后也不再对树坚果过敏了——但同样，这并不常见，研究 [将这个数字放在9%到14%](https://www.anaphylaxis.org.uk/knowledgebase/outgrowing-food-allergy/) 之间。如果你对一种坚果过敏，那么你有50%的可能对至少另一种坚果过敏。
+有些孩子长大后也不再对树坚果过敏了——但同样，这并不常见，研究 [将这个数字放在 9%到 14%](https://www.anaphylaxis.org.uk/knowledgebase/outgrowing-food-allergy/) 之间。如果你对一种坚果过敏，那么你有 50%的可能对至少另一种坚果过敏。
 
 鸡蛋过敏不止一种。因为蛋黄和蛋白中有不同的蛋白质，所以可能对其中一种过敏而对另一种不过敏。(蛋清过敏比较常见。)
 
-长大后不再对鸡蛋过敏是很常见的；在一项研究中，66%的初学走路的孩子在5岁时已经长大成人。
+长大后不再对鸡蛋过敏是很常见的；在一项研究中，66%的初学走路的孩子在 5 岁时已经长大成人。
 
-即使你没有摆脱过敏，你仍然可以吃煮熟的鸡蛋。烹饪会改变鸡蛋中的蛋白质，[70%到80%对鸡蛋过敏的人能够吃完全煮熟的鸡蛋](https://www.foodallergyawareness.org/food-allergy-and-anaphylaxis/food-allergens/egg/) —f 或者例如烘焙食品中的。
+即使你没有摆脱过敏，你仍然可以吃煮熟的鸡蛋。烹饪会改变鸡蛋中的蛋白质，[70%到 80%对鸡蛋过敏的人能够吃完全煮熟的鸡蛋](https://www.foodallergyawareness.org/food-allergy-and-anaphylaxis/food-allergens/egg/) —f 或者例如烘焙食品中的。
 
-牛奶过敏在婴儿和幼儿中相当普遍，大约影响2-3%。需要说明的是，我们所说的过敏是对*牛奶*的过敏；这些孩子通常可以很好地处理母乳。
+牛奶过敏在婴儿和幼儿中相当普遍，大约影响 2-3%。需要说明的是，我们所说的过敏是对*牛奶*的过敏；这些孩子通常可以很好地处理母乳。
 
-对于牛奶过敏的婴儿来说，通常换另一种配方奶(如大豆配方奶)是解决的方法；如果他们是母乳喂养的，父母可能需要在饮食中避免牛奶。幸运的是，这是一种更常见的过敏反应。 [75%的牛奶过敏婴儿](https://www.foodallergy.org/living-food-allergies/food-allergy-essentials/common-allergens/) 在3岁时就不再过敏了。
+对于牛奶过敏的婴儿来说，通常换另一种配方奶(如大豆配方奶)是解决的方法；如果他们是母乳喂养的，父母可能需要在饮食中避免牛奶。幸运的是，这是一种更常见的过敏反应。 [75%的牛奶过敏婴儿](https://www.foodallergy.org/living-food-allergies/food-allergy-essentials/common-allergens/) 在 3 岁时就不再过敏了。
 
 有乳制品问题的成年人更可能是乳糖不耐受而不是过敏，但真正的乳制品过敏确实存在。一些对牛奶过敏的人可以在牛奶完全煮熟后食用，比如一些烘焙食品。
 
@@ -34,10 +34,10 @@
 
 有些人甚至会对烹饪贝类产生的蒸汽过敏，所以当这种情况发生时，你可能不想离开厨房。贝类过敏通常是终身的。
 
-小麦过敏是另一个经常被忽视的问题； [大约80%的人在5岁](https://www.allergypartners.com/allergy-myth-busters-kids-will-outgrow-food-allergies/)时这样做。
+小麦过敏是另一个经常被忽视的问题； [大约 80%的人在 5 岁](https://www.allergypartners.com/allergy-myth-busters-kids-will-outgrow-food-allergies/)时这样做。
 
 但是区分小麦过敏(对小麦中某些蛋白质的过敏反应)和其他两种情况是很重要的。乳糜泻是一种由谷蛋白引发的自身免疫性疾病，谷蛋白是小麦中的一种*特异性*蛋白质。非乳糜泻谷蛋白过敏是一种鲜为人知的疾病，人们在食用含谷蛋白的食物后会出现症状，尽管他们没有乳糜泻或小麦过敏。确切的原因尚不清楚。
 
-大豆过敏是另一种在儿童中最常见的过敏，通常会随着年龄的增长而消失。这可能包括对大豆配方奶粉、毛豆、酱油、豆腐和其他以大豆为原料的产品过敏。一半以上对大豆过敏的儿童在7岁时就不再对大豆过敏了 。
+大豆过敏是另一种在儿童中最常见的过敏，通常会随着年龄的增长而消失。这可能包括对大豆配方奶粉、毛豆、酱油、豆腐和其他以大豆为原料的产品过敏。一半以上对大豆过敏的儿童在 7 岁时就不再对大豆过敏了 。
 
-这是一种鲜为人知的过敏，因为它还不在美国必须标注的过敏原名单上(强制标注定于2023年开始)。)芝麻过敏尤其令人讨厌，因为芝麻产品的名称中并不总是有“芝麻”这个词(像芝麻酱，鹰嘴豆沙中使用的芝麻酱)，还因为芝麻有时会被包含在“香料”或“调味料”中芝麻过敏通常是终身的，尽管一些研究发现 [20%到30%的儿童可能会成长为](https://www.nih.gov/news-events/nih-research-matters/sesame-allergy-common-among-children-food-allergies#:~:text=Reactions%20to%20sesame%20can%20be,with%20sesame%20allergy%20outgrow%20it.) 。
+这是一种鲜为人知的过敏，因为它还不在美国必须标注的过敏原名单上(强制标注定于 2023 年开始)。)芝麻过敏尤其令人讨厌，因为芝麻产品的名称中并不总是有“芝麻”这个词(像芝麻酱，鹰嘴豆沙中使用的芝麻酱)，还因为芝麻有时会被包含在“香料”或“调味料”中芝麻过敏通常是终身的，尽管一些研究发现 [20%到 30%的儿童可能会成长为](https://www.nih.gov/news-events/nih-research-matters/sesame-allergy-common-among-children-food-allergies#:~:text=Reactions%20to%20sesame%20can%20be,with%20sesame%20allergy%20outgrow%20it.) 。

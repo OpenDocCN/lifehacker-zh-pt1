@@ -1,6 +1,6 @@
 # 用这些技巧充分利用你的吸尘器
 
-> 原文:[https://life hacker . com/get-the-most-out-of-your ' s vacuum-cleaner-with these-tric-1837217175](https://lifehacker.com/get-the-most-out-of-your-vacuum-cleaner-with-these-tric-1837217175)
+> 原文：<https://lifehacker.com/get-the-most-out-of-your-vacuum-cleaner-with-these-tric-1837217175>
 
 吸尘器真烂！或者说，当他们停止吮吸时，问题就出现了。
 
@@ -8,6 +8,6 @@
 
 但是等等！还有呢！
 
-如果你曾经觉得你的吸尘器太强大了，也有办法黑掉vac(商标Lifehacker.com，2019)来捡起你可能洒出的小物体，或者从键盘和插头等微小区域吸取灰尘。
+如果你曾经觉得你的吸尘器太强大了，也有办法黑掉 vac(商标 Lifehacker.com，2019)来捡起你可能洒出的小物体，或者从键盘和插头等微小区域吸取灰尘。
 
-*本文原载于2019年8月14日，更新于2021年7月15日。*
+*本文原载于 2019 年 8 月 14 日，更新于 2021 年 7 月 15 日。*

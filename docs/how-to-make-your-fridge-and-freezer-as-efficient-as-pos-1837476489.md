@@ -1,13 +1,13 @@
 # 如何让你的冰箱和冰柜尽可能高效
 
-> 原文:[https://life hacker . com/how-to-make-your ' s冰箱和冰柜as-pos-1837476489](https://lifehacker.com/how-to-make-your-fridge-and-freezer-as-efficient-as-pos-1837476489)
+> 原文：<https://lifehacker.com/how-to-make-your-fridge-and-freezer-as-efficient-as-pos-1837476489>
 
 *剧透*预警！这个视频会让你的食物不变质。
 
-太多时候，你的牛奶变质，而后面的LaCroix冻结，罐爆炸。
+太多时候，你的牛奶变质，而后面的 LaCroix 冻结，罐爆炸。
 
 因此，我们制作了一份视觉指南(如果你愿意，也可以是视频),介绍如何最有效地整理你的冰箱和冰柜。要记住的主要事情是，门是冰箱最温暖的部分，任何你需要用光的东西都应该放在前面容易看到的地方。
 
 哦，还有，对生肉汁要格外小心。
 
-*本文原载于2019年8月26日，更新于2021年7月22日。*
+*本文原载于 2019 年 8 月 26 日，更新于 2021 年 7 月 22 日。*

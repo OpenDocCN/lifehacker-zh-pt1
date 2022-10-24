@@ -1,6 +1,6 @@
 # 如何决定阻力带和哑铃
 
-> 原文:[https://life hacker . com/how-to-decision-resistance-band和哑铃-1845218911](https://lifehacker.com/how-to-decide-between-resistance-bands-and-dumbbells-1845218911)
+> 原文：<https://lifehacker.com/how-to-decide-between-resistance-bands-and-dumbbells-1845218911>
 
 阻力带和哑铃都非常适合在家里进行力量训练，因为它们不需要太多的存储空间，而且往往比杠铃和盘子的全套设备便宜得多。但它们各有利弊，下面就来说说如何选择吧。
 
@@ -8,7 +8,7 @@ Watch
 
 ### 阻力带可以提供更多的总重量
 
-如果你买足够结实的阻力带，它们会提供很多阻力。EliteFTS 的一对 [“强”带，会以122到275磅重量的力量拉动杠铃，取决于你把它们拉伸到什么程度。早在隔离之初，](https://www.elitefts.com/pro-strong-resistance-band.html) [教练Greg Nuckols告诉我们](https://vitals.lifehacker.com/how-to-plan-your-strength-training-when-the-future-is-u-1842649573) 一组乐队将是他在家里尽可能重的训练的选择。
+如果你买足够结实的阻力带，它们会提供很多阻力。EliteFTS 的一对 [“强”带，会以 122 到 275 磅重量的力量拉动杠铃，取决于你把它们拉伸到什么程度。早在隔离之初，](https://www.elitefts.com/pro-strong-resistance-band.html) [教练 Greg Nuckols 告诉我们](https://vitals.lifehacker.com/how-to-plan-your-strength-training-when-the-future-is-u-1842649573) 一组乐队将是他在家里尽可能重的训练的选择。
 
 ### 哑铃用途更广
 
@@ -36,7 +36,7 @@ Watch
 
 解决这个问题的方法是购买可调节的哑铃。你把盘子滑上滑下，或者把昂贵的牌子放回架子上，选择下一个重量。
 
-你仍然可以超越可调哑铃。一开始，40磅一套的廉价玩具可能对你来说很大，但是如果你很强壮的话，每只手20磅并不算多。“我总是可以买更多的小盘子，”你会对自己说，忘记检查哑铃柄有多少*空间*放小盘子。经常，不多。
+你仍然可以超越可调哑铃。一开始，40 磅一套的廉价玩具可能对你来说很大，但是如果你很强壮的话，每只手 20 磅并不算多。“我总是可以买更多的小盘子，”你会对自己说，忘记检查哑铃柄有多少*空间*放小盘子。经常，不多。
 
 * * *
 

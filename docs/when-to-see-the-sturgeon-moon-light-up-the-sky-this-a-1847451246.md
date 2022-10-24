@@ -1,6 +1,6 @@
 # 今年八月何时能看到“鲟鱼月”照亮天空
 
-> 原文:[https://life hacker . com/when-to-see-the-sturgeon-moon-light-up-the-sky-this-a-1847451246](https://lifehacker.com/when-to-see-the-sturgeon-moon-light-up-the-sky-this-a-1847451246)
+> 原文：<https://lifehacker.com/when-to-see-the-sturgeon-moon-light-up-the-sky-this-a-1847451246>
 
 当谈到满月时，你可能会想到的最后一件事是一条非常大的鱼，但是八月的满月将会改变这一点。这个月的满月也被称为鲟鱼月，这应该会让人想起大型水生脊椎动物在闪闪发光的水体表面下享受生活的画面。或者什么的。
 
@@ -8,7 +8,7 @@ Watch
 
 ## 八月的满月是什么时候？
 
-鲟鱼月亮2021年的首次亮相定于8月21日晚上揭晓。它将在美国东部时间8月22日晚上8点02分左右达到其辉煌的顶峰，根据农民年鉴，在日落时朝东南方向看将是你看到它耀眼和隐现的最佳选择。 ， [新月刚刚出现，](https://www.timeanddate.com/moon/phases/) 表示它在再次变小之前一定会变大。
+鲟鱼月亮 2021 年的首次亮相定于 8 月 21 日晚上揭晓。它将在美国东部时间 8 月 22 日晚上 8 点 02 分左右达到其辉煌的顶峰，根据农民年鉴，在日落时朝东南方向看将是你看到它耀眼和隐现的最佳选择。 ， [新月刚刚出现，](https://www.timeanddate.com/moon/phases/) 表示它在再次变小之前一定会变大。
 
 和所有其他满月一样，八月有一个象征这个季节的昵称。根据农民年鉴，它来自于本月通常捕获的大量肌肉发达的大鱼。
 

@@ -1,8 +1,8 @@
 # 如何保持坚果新鲜
 
-> 原文:[https://life hacker . com/how-to-keep-your-nuts-fresh-1849434560](https://lifehacker.com/how-to-keep-your-nuts-fresh-1849434560)
+> 原文：<https://lifehacker.com/how-to-keep-your-nuts-fresh-1849434560>
 
-像所有脂肪含量相当高的东西一样，坚果容易变质。酸败不会危及生命，变质的坚果不会让你生病，但它们在你嘴里确实很难吃，感觉很差。(我希望坚果在我的嘴里尝起来和感觉起来像T2的好东西。)
+像所有脂肪含量相当高的东西一样，坚果容易变质。酸败不会危及生命，变质的坚果不会让你生病，但它们在你嘴里确实很难吃，感觉很差。(我希望坚果在我的嘴里尝起来和感觉起来像 T2 的好东西。)
 
 Watch
 

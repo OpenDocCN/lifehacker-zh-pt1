@@ -1,6 +1,6 @@
 # 看门狗和看门狗的区别
 
-> 原文:[https://life hacker . com/the-difference-a-guard-dog-a-watch-dog-1849102832](https://lifehacker.com/the-difference-between-a-guard-dog-and-a-watch-dog-1849102832)
+> 原文：<https://lifehacker.com/the-difference-between-a-guard-dog-and-a-watch-dog-1849102832>
 
 除了提供陪伴，(一些)狗也是努力的工作者。例如，一些品种非常擅长放牧绵羊或牛，而其他品种则利用它们增强的嗅觉来嗅出药物或疾病。
 

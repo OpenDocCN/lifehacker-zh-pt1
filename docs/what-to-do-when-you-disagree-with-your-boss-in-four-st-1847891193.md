@@ -1,6 +1,6 @@
 # 当你不同意老板的意见时，分四步走
 
-> 原文:[https://life hacker . com/what-to-do what-what-do what-you-different-you-boss-in-four-ST-1847891193](https://lifehacker.com/what-to-do-when-you-disagree-with-your-boss-in-four-st-1847891193)
+> 原文：<https://lifehacker.com/what-to-do-when-you-disagree-with-your-boss-in-four-st-1847891193>
 
 在你的职业生涯中，总会有和老板意见相左的时候。其中一些分歧可能是次要的，比如不喜欢战略，而其他可能更严重，比如知道一个大项目注定要失败。如果你发现自己不同意老板的意见，你该怎么办？它视情况而定，但必然需要权衡一些选项。
 
@@ -24,7 +24,7 @@ Watch
 
 如果你发现自己处在一个你觉得提出你的担忧绝对重要的位置，有一些的方法可以做到巧妙。
 
-正如《HBR冲突处理指南》一书的作者艾米·加洛(Amy Gallo)[](https://www.amazon.com/HBR-Guide-Dealing-Conflict/dp/1633692159/ref=cm_cr_arp_d_product_top?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/what-to-do-when-you-disagree-with-your-boss-in-four-st-1847891193&asc_source=&tag=kinjalifehackerlink-20)*为《哈佛商业评论》撰稿，当考虑不同意你的老板时，重要的是要权衡直言不讳与不直言不讳的风险。*
+正如《HBR 冲突处理指南》一书的作者艾米·加洛(Amy Gallo)[](https://www.amazon.com/HBR-Guide-Dealing-Conflict/dp/1633692159/ref=cm_cr_arp_d_product_top?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/what-to-do-when-you-disagree-with-your-boss-in-four-st-1847891193&asc_source=&tag=kinjalifehackerlink-20)*为《哈佛商业评论》撰稿，当考虑不同意你的老板时，重要的是要权衡直言不讳与不直言不讳的风险。*
 
 *如果不说出来意味着项目可能会失败，这对每个人都不好，包括你的老板，可能值得冒这个险。你和你的老板可能不同意如何做一个项目，但是你们都希望它成功。*
 

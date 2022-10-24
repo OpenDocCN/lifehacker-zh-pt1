@@ -1,6 +1,6 @@
 # 随着年龄的增长，你如何避免变得愤世嫉俗？
 
-> 原文:[https://life hacker . com/how-do-you-keep-from-be-be-listening-as-you-age-1849002675](https://lifehacker.com/how-do-you-keep-from-becoming-cynical-as-you-get-older-1849002675)
+> 原文：<https://lifehacker.com/how-do-you-keep-from-becoming-cynical-as-you-get-older-1849002675>
 
 如果说我所认识的老年人有一个明确的特征，那就是不愿意承认挑战性信息的有效性，思想狭隘，认为自己的个人观点是绝对真理。
 

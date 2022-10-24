@@ -1,6 +1,6 @@
 # 如何审查你的房东——以及为什么你应该这样做
 
-> 原文:[https://life hacker . com/how-to-vet-your-landlord-and-why-you-should-1846639280](https://lifehacker.com/how-to-vet-your-landlord-and-why-you-should-1846639280)
+> 原文：<https://lifehacker.com/how-to-vet-your-landlord-and-why-you-should-1846639280>
 
 当你是一个租房者，它会看起来好像有无数的障碍要跳过，只是为了进入你真正想住的公寓。你必须向你未来的房东提供大量关于你的收入和工作经历的个人信息。有时他们会要求推荐信。T4:在大多数情况下，他们会对租约上的人进行背景调查。
 
@@ -20,7 +20,7 @@ Watch
 
 ### 查找财产和税收记录
 
-找到当地政府的财产记录数据库(像CITY + PROPERTY RECORDS这样的谷歌搜索应该可以找到你)，使用地址或房东的名字或LLC搜索你的租金。这将返回关于谁拥有该房产以及是否有任何留置权、罚款或法律诉讼的信息，比如正在进行的止赎。
+找到当地政府的财产记录数据库(像 CITY + PROPERTY RECORDS 这样的谷歌搜索应该可以找到你)，使用地址或房东的名字或 LLC 搜索你的租金。这将返回关于谁拥有该房产以及是否有任何留置权、罚款或法律诉讼的信息，比如正在进行的止赎。
 
 你还应该能够找到税务记录，这将显示你的信息，如财产价值，购买价格，所有权历史，以及未付的税款余额。这可能是一个单独的数据库或搜索取决于你住在哪里。
 
@@ -32,7 +32,7 @@ Watch
 
 ### 阅读评论
 
-如果公共记录中没有什么值得注意的东西，你可能会从以前的房客那里找到有用的信息。谷歌一下你的房东、物业管理公司或公寓楼名。像 [RateMyLandlord](https://www.ratemylandlord.com/landlords/) 、[who ' s Your房东](https://wyl.co/) 、 [OpenIgloo (NYC)](https://openigloo.com/) 这样的网站编制租客点评和评分。甚至像NextDoor这样的特定社区网站也能提供见解。
+如果公共记录中没有什么值得注意的东西，你可能会从以前的房客那里找到有用的信息。谷歌一下你的房东、物业管理公司或公寓楼名。像 [RateMyLandlord](https://www.ratemylandlord.com/landlords/) 、[who ' s Your 房东](https://wyl.co/) 、 [OpenIgloo (NYC)](https://openigloo.com/) 这样的网站编制租客点评和评分。甚至像 NextDoor 这样的特定社区网站也能提供见解。
 
 ### 与当前租户交谈
 

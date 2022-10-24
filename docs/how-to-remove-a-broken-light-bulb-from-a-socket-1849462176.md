@@ -1,6 +1,6 @@
 # 如何从插座中取出坏掉的灯泡
 
-> 原文:[https://life hacker . com/how-to-remove-a broken-bulb-a socket-1849462176](https://lifehacker.com/how-to-remove-a-broken-light-bulb-from-a-socket-1849462176)
+> 原文：<https://lifehacker.com/how-to-remove-a-broken-light-bulb-from-a-socket-1849462176>
 
 考虑到破碎的玻璃和电的结合，如果一个灯泡在仍拧在灯或其他灯具的插座上时就坏了，这种情况不能掉以轻心。
 

@@ -1,8 +1,8 @@
 # 如何订购温蒂热蜂蜜鸡肉饼干，使其味道更好
 
-> 原文:[https://the take out . com/wendys-hot-honey-chicken-biscuit-review-1848503049](https://thetakeout.com/wendys-hot-honey-chicken-biscuit-review-1848503049)
+> 原文：<https://thetakeout.com/wendys-hot-honey-chicken-biscuit-review-1848503049>
 
-我们正处于一个辛辣快餐的复兴时期。必胜客已经发布了 [一款辣情人披萨](https://thetakeout.com/pizza-hut-spicy-lovers-pizza-review-1848443034) ，Arby's推出了一对辣 [暗黑敢三明治](https://thetakeout.com/arbys-diablo-dare-sandwich-review-chicken-brisket-1848385641) ，而Taco Bell正在推出 [一款新的酷牧场Flamin ' Hot Doritos Locos Taco](https://thetakeout.com/taco-bell-flamin-hot-cool-ranch-doritos-locos-taco-1848492156)。热，热的趋势似乎正在全面上升，我一直很享受。很高兴看到快餐业终于意识到真正的辛辣食物是许多人所渴望的。现在， [**温迪的新的热蜂蜜鸡肉饼干**](https://www.prnewswire.com/news-releases/forged-in-flavor-wendys-new-hot-honey-duo-of-craft-sandwiches-delivers-sweet-sweet-heat-morning-noon-and-night-301473423.html) 是赶时髦的最新主菜。
+我们正处于一个辛辣快餐的复兴时期。必胜客已经发布了 [一款辣情人披萨](https://thetakeout.com/pizza-hut-spicy-lovers-pizza-review-1848443034) ，Arby's 推出了一对辣 [暗黑敢三明治](https://thetakeout.com/arbys-diablo-dare-sandwich-review-chicken-brisket-1848385641) ，而 Taco Bell 正在推出 [一款新的酷牧场 Flamin ' Hot Doritos Locos Taco](https://thetakeout.com/taco-bell-flamin-hot-cool-ranch-doritos-locos-taco-1848492156)。热，热的趋势似乎正在全面上升，我一直很享受。很高兴看到快餐业终于意识到真正的辛辣食物是许多人所渴望的。现在， [**温迪的新的热蜂蜜鸡肉饼干**](https://www.prnewswire.com/news-releases/forged-in-flavor-wendys-new-hot-honey-duo-of-craft-sandwiches-delivers-sweet-sweet-heat-morning-noon-and-night-301473423.html) 是赶时髦的最新主菜。
 
 Watch
 
@@ -10,7 +10,7 @@ Watch
 
 ## 温蒂热蜂蜜鸡肉饼干上有什么？
 
-[热蜂蜜鸡肉饼干](https://order.wendys.com/product/31383/hot-honey-chicken-biscuit) 是Wendy在两年来，首次亮相整个早餐菜单以来的第一款新早餐三明治。在早餐菜单上，我还没有找到我喜欢的任何东西，除了调味马铃薯条，我希望我可以点一整天。这种新的酪乳饼干配有酥脆的鸡肉片，上面还有大量的哈瓦那热蜂蜜酱——仅此而已。
+[热蜂蜜鸡肉饼干](https://order.wendys.com/product/31383/hot-honey-chicken-biscuit) 是 Wendy 在两年来，首次亮相整个早餐菜单以来的第一款新早餐三明治。在早餐菜单上，我还没有找到我喜欢的任何东西，除了调味马铃薯条，我希望我可以点一整天。这种新的酪乳饼干配有酥脆的鸡肉片，上面还有大量的哈瓦那热蜂蜜酱——仅此而已。
 
 像脆皮鸡本身一样，热蜂蜜多年来一直是一种流行配料。回到我在保利·吉的洛根广场工作的时候[迈克的热蜂蜜](https://mikeshothoney.com/) 是我们餐厅厨房的主食(坦白说，我认识迈克本人，因为我们用他的蜂蜜)。这是我们的招牌披萨之一“地狱男爵”的最后一道菜，这是一种用迈克的辣蜂蜜做的辣索普萨塔馅饼。我们用它来浇圣代冰淇淋，我用它来浇芥末调味汁，做了一个月的康尼岛馅饼。在家里，我把它放在炸鸡上面，用它来调味。你也确实可以 [自己做](https://thetakeout.com/recipe-hot-honey-sauce-homemade-spicy-honey-w-chilis-1846814730) 。
 

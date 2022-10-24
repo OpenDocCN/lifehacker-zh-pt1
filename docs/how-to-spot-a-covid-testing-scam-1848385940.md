@@ -1,12 +1,12 @@
-# 如何识别COVID测试骗局
+# 如何识别 COVID 测试骗局
 
-> 原文:[https://life hacker . com/how-to-spot-a-covid-testing-scam-1848385940](https://lifehacker.com/how-to-spot-a-covid-testing-scam-1848385940)
+> 原文：<https://lifehacker.com/how-to-spot-a-covid-testing-scam-1848385940>
 
-本周， [Better Business Bureau发布了关于COVID测试骗局泛滥的警告](https://www.bbb.org/article/scams/26355-scam-alert-getting-a-covid-19-test-make-sure-its-for-real) 。根据BBB的说法，假冒网站和janky亲自测试中心正在利用COVID测试作为借口，窃取人们的个人和保险信息和/或赚点小钱。这里有一些避免成为COVID测试的牺牲品的建议。
+本周， [Better Business Bureau 发布了关于 COVID 测试骗局泛滥的警告](https://www.bbb.org/article/scams/26355-scam-alert-getting-a-covid-19-test-make-sure-its-for-real) 。根据 BBB 的说法，假冒网站和 janky 亲自测试中心正在利用 COVID 测试作为借口，窃取人们的个人和保险信息和/或赚点小钱。这里有一些避免成为 COVID 测试的牺牲品的建议。
 
 Watch
 
-## 【COVID测试骗局如何运作
+## 【COVID 测试骗局如何运作
 
 据报道，骗子正在建立看起来合法的网站，这些网站似乎与当地药店或检测中心有关联。当你在谷歌上搜索一个测试中心时，其中一个可能会弹出来。
 
@@ -14,10 +14,10 @@ Watch
 
 在更简单的骗局中，消费者填写在线表格，通过提供个人信息甚至支付少量费用来预约，通常是在合法的检测中心。当他们到达沃尔格林或测试站点时，没有预约，因为站点是假的。
 
-## **如何识别和避免欺诈COVID测试**
+## **如何识别和避免欺诈 COVID 测试**
 
-*   **只使用官方网站预约:**在美国的药店和检测中心，每个人都可以获得免费的COVID检测。美国 S. 卫生与公众服务部网站提供了美国 S. 州和地区COVID检测提供者的 [数据库。您所在国家的网站可能也有考试中心列表，。你也可以向你的医务人员寻求建议。](https://www.hhs.gov/coronavirus/community-based-testing-sites/index.html)
-*   **避开收费的测试点:** COVID测试是免费的，无论你去测试点还是让 [政府给你邮寄测试](https://lifehacker.com/how-to-get-your-free-at-home-covid-tests-from-the-u-s-1848375992) 。根据商业改善局的说法，“如果有人坚持要你支付检测费用，特别是如果他们声称这将花费你数百美元，这是一个骗局。”不过，值得注意的是，有些合法的服务需要你为速度和便利付费，但这是一个危险信号，值得更深入的调查。
-*   **警惕相似的网站**:许多COVID诈骗依赖于看起来完全像合法网站的欺骗网站，所以要确保该网站是 [安全的](https://www.bbb.org/article/news-releases/18589-staying-safe-online-the-importance-of-secure-websites) ，并检查URL中的拼写错误或不合适的文本。
+*   **只使用官方网站预约:**在美国的药店和检测中心，每个人都可以获得免费的 COVID 检测。美国 S. 卫生与公众服务部网站提供了美国 S. 州和地区 COVID 检测提供者的 [数据库。您所在国家的网站可能也有考试中心列表，。你也可以向你的医务人员寻求建议。](https://www.hhs.gov/coronavirus/community-based-testing-sites/index.html)
+*   **避开收费的测试点:** COVID 测试是免费的，无论你去测试点还是让 [政府给你邮寄测试](https://lifehacker.com/how-to-get-your-free-at-home-covid-tests-from-the-u-s-1848375992) 。根据商业改善局的说法，“如果有人坚持要你支付检测费用，特别是如果他们声称这将花费你数百美元，这是一个骗局。”不过，值得注意的是，有些合法的服务需要你为速度和便利付费，但这是一个危险信号，值得更深入的调查。
+*   **警惕相似的网站**:许多 COVID 诈骗依赖于看起来完全像合法网站的欺骗网站，所以要确保该网站是 [安全的](https://www.bbb.org/article/news-releases/18589-staying-safe-online-the-importance-of-secure-websites) ，并检查 URL 中的拼写错误或不合适的文本。
 *   **警惕不请自来的电话和信息**:如果你收到了来自蓝色的的短信、电话或电子邮件，不要透露任何个人信息。合法的公司和医疗保健提供商一般不会未经允许就给人打电话。
-*   **阅读细则:**商业改善局建议你仔细阅读要求你签署的任何协议，并询问你的个人信息保存在哪里，哪个实验室正在处理结果。虽然总的来说这是个好建议，但我不明白为什么一个诈骗测试网站不会对你撒谎——b但是也许你会问一个他们无法回答的问题，从而揭露骗局。
+*   **阅读细则:**商业改善局建议你仔细阅读要求你签署的任何协议，并询问你的个人信息保存在哪里，哪个实验室正在处理结果。虽然总的来说这是个好建议，但我不明白为什么一个诈骗测试网站不会对你撒谎——b 但是也许你会问一个他们无法回答的问题，从而揭露骗局。

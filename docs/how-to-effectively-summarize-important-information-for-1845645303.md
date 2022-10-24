@@ -1,8 +1,8 @@
 # 如何有效地为老板总结重要信息
 
-> 原文:[https://life hacker . com/how-to-effective-summary-the-important-information for-1845645303](https://lifehacker.com/how-to-effectively-summarize-important-information-for-1845645303)
+> 原文：<https://lifehacker.com/how-to-effectively-summarize-important-information-for-1845645303>
 
-无论你是被要求就重要问题或数据向你的老板做简报，还是你只是需要以尊重他们(和你)时间的方式向他们传达一个复杂的想法，这会让你感觉好像被置于尴尬的境地。你脑中组织的con ise要点看不到，但是时间在流逝，结果你可能会吐出各种各样的句子，这些句子可能接近相关，也可能不相关。
+无论你是被要求就重要问题或数据向你的老板做简报，还是你只是需要以尊重他们(和你)时间的方式向他们传达一个复杂的想法，这会让你感觉好像被置于尴尬的境地。你脑中组织的 con ise 要点看不到，但是时间在流逝，结果你可能会吐出各种各样的句子，这些句子可能接近相关，也可能不相关。
 
 Watch
 

@@ -1,6 +1,6 @@
 # 在买车之前，先问这些保养问题
 
-> 原文:[https://life hacker . com/ask-these-maintenance-questions-before-ever-buying-a-ca-1849154999](https://lifehacker.com/ask-these-maintenance-questions-before-ever-buying-a-ca-1849154999)
+> 原文：<https://lifehacker.com/ask-these-maintenance-questions-before-ever-buying-a-ca-1849154999>
 
 买新车时要考虑的事情太多了——尤其是在油价高企、通货膨胀导致其他所有东西都变得更贵的时候。当你想象自己开着新车在城里兜风时，把它送去保养可能不是幻想的一部分。毕竟，这是一辆新车，理想情况下，它离开经销商时应该处于最佳状态。
 
@@ -21,7 +21,7 @@ Watch
 *   这是来自汽车制造商还是经销商的额外补贴？
 *   为了获得免费保养，您是否需要拜访特定的经销店或地点？
 
-如果你购买的东西附带了任何版本的免费(或打折)保养计划，在没有得到书面证明的情况下，不要购买(或至少离开经销店)，[CR专家强调](https://www.consumerreports.org/buying-a-car/questions-to-ask-before-you-buy-a-car-a6387933582/)——即使销售人员告诉你不要担心。
+如果你购买的东西附带了任何版本的免费(或打折)保养计划，在没有得到书面证明的情况下，不要购买(或至少离开经销店)，[CR 专家强调](https://www.consumerreports.org/buying-a-car/questions-to-ask-before-you-buy-a-car-a6387933582/)——即使销售人员告诉你不要担心。
 
 ## 关于维护的一般问题
 

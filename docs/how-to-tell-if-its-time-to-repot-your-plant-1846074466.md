@@ -1,6 +1,6 @@
 # 如何判断是时候举报你的工厂了
 
-> 原文:[https://life hacker . com/how-to-tell-if-it-to-repot-your-plant-1846074466](https://lifehacker.com/how-to-tell-if-its-time-to-repot-your-plant-1846074466)
+> 原文：<https://lifehacker.com/how-to-tell-if-its-time-to-repot-your-plant-1846074466>
 
 即使你在疫情之前不是一个植物人，你可能已经习惯了在你的地方周围有一些绿色植物——所以你至少有一些生物可以互动。部分 [活植物](https://lifehacker.com/get-a-houseplant-to-feel-more-in-control-of-your-life-1845973542) 的吸引力在于照顾某样东西，看着它成长。但是当它长得超过它原来的花盆或花盆时会发生什么呢？好吧，这个很简单:你报告。但是你怎么知道什么时候该给你的植物重新移植呢？以下是你需要知道的。
 

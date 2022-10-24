@@ -1,8 +1,8 @@
 # 如果晚霜损害了你的植物，该怎么办
 
-> 原文:[https://life hacker . com/what-do-if-a-late-frost-damages-your-plants-1846419593](https://lifehacker.com/what-to-do-if-a-late-frost-damages-your-plants-1846419593)
+> 原文：<https://lifehacker.com/what-to-do-if-a-late-frost-damages-your-plants-1846419593>
 
-在这个国家的许多地方，春天的天气变化无常。一天阳光明媚，气温60多度，第二天就下起了暴风雪。如果你决定利用那些美好的日子和 [准备或种植一个春天的花园](https://lifehacker.com/how-and-when-to-plant-a-spring-garden-1846388049) ，然后第二天早上醒来发现一层新鲜的霜覆盖着你的植物和/或幼苗，这可能是致命的。但这并不意味着你的花园完蛋了。以下是如何在晚霜过后拯救你的植物。
+在这个国家的许多地方，春天的天气变化无常。一天阳光明媚，气温 60 多度，第二天就下起了暴风雪。如果你决定利用那些美好的日子和 [准备或种植一个春天的花园](https://lifehacker.com/how-and-when-to-plant-a-spring-garden-1846388049) ，然后第二天早上醒来发现一层新鲜的霜覆盖着你的植物和/或幼苗，这可能是致命的。但这并不意味着你的花园完蛋了。以下是如何在晚霜过后拯救你的植物。
 
 Watch
 
@@ -18,7 +18,7 @@ Watch
 
 ### 继续修剪已经发芽的球茎叶子
 
-如果你在前一年秋天种植球茎植物，它们可能会在春天很早就冒出来，仍然有霜冻的风险。如果是这种情况，植物上的叶子被霜冻损坏了，戈斯说修剪它们是可以的。事实上，它们可能已经变成糊状了。但是，即使你发现郁金香上有软软的叶子，也没有必要和它们吻别。 [按Gos](https://www.houstonchronicle.com/neighborhood/moco/events/article/Master-Gardener-How-to-care-for-frost-damaged-16003259.php) s:
+如果你在前一年秋天种植球茎植物，它们可能会在春天很早就冒出来，仍然有霜冻的风险。如果是这种情况，植物上的叶子被霜冻损坏了，戈斯说修剪它们是可以的。事实上，它们可能已经变成糊状了。但是，即使你发现郁金香上有软软的叶子，也没有必要和它们吻别。 [按 Gos](https://www.houstonchronicle.com/neighborhood/moco/events/article/Master-Gardener-How-to-care-for-frost-damaged-16003259.php) s:
 
 > 如果球茎在地下已经有一段时间了，它们可能有足够深的根，所以即使叶子一旦被清除掉，它们也会长出新叶。花茎将独立于叶子发育。大多数球茎无论如何都需要经历一段寒冷的天气来刺激花茎的生长。只要花蕾还没有发芽，它们可能就不会有事。
 

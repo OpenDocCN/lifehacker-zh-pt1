@@ -1,6 +1,6 @@
 # 将两种粉红色利口酒混合到越橘冰镇器中
 
-> 原文:[https://life hacker . com/blend-two-pink-liquieurs-into-a-campberry-cooler-1847174411](https://lifehacker.com/blend-two-pink-liqueurs-into-a-campberry-cooler-1847174411)
+> 原文：<https://lifehacker.com/blend-two-pink-liqueurs-into-a-campberry-cooler-1847174411>
 
 几周前，我 [摘了一扁平的兜帽草莓](https://www.instagram.com/p/CP6PvvQBUH7/) 。头套是甜的，精致的，在你加工完之前就容易变坏。我用我通常的策略喝完我的浆果。
 
@@ -12,7 +12,7 @@ Watch
 
 这款鸡尾酒——我将其命名为“草莓冰酒”——从技术上来说只需要两种配料,但你*必须先做好草莓甜酒。(如果你找不到兜帽，不要担心——只需挑选你所在地区最甜的草莓。)按照这里的描述制作利口酒，但是在将伏特加倒在上面之前，将一大枝龙蒿和草莓一起捣碎。这个过程需要几天时间，但是非常值得。一旦你的利口酒被浸泡、过滤和增甜，你将需要:*
 
-*   1.5盎司金巴利
-*   1 1/2盎司草莓利口酒
+*   1.5 盎司金巴利
+*   1 1/2 盎司草莓利口酒
 
 将两种利口酒都加入到一个有大冰块的摇壶中，尽可能长时间用力摇。滤入小酒杯或碎冰。如果你需要一点酸味，可以配上柠檬片。

@@ -1,6 +1,6 @@
 # 如何找到自己的职业道路
 
-> 原文:[https://life hacker . com/top-10-ways-to-find-your-career-path-1628537579](https://lifehacker.com/top-10-ways-to-find-your-career-path-1628537579)
+> 原文：<https://lifehacker.com/top-10-ways-to-find-your-career-path-1628537579>
 
 从很小的时候开始，我们大多数人就被问及我们想成为什么样的人好像我们都应该有一个单一的职业目标，并为之奋斗终生。不幸的是，事情要比这复杂一点。与前几代人不同，许多人不会在高中和大学毕业后就开始工作，然后一直坚持到退休。我们被鼓励去寻找我们的——不管那意味着什么——并遵循它，b 但是你从哪里开始呢？这里有一些想法。
 
@@ -36,15 +36,15 @@ Watch
 
 我们都知道可供我们选择的热门职业——医生、律师、教师、计算机工程师、警官、店主等。如果你对典型的选择感到乏味，要知道还有成千上万个你可能没听说过的不寻常的工作——也许隐藏在 [劳动统计局的职业手册](http://www.bls.gov/ooh/) 中。
 
-MoneyWise列出了41份高薪梦想工作 (玩具创造者！神秘顾客。)，惊悚片 [集锦17更](https://www.thrillist.com/culture/jobs-that-seem-too-good-to-be-true-the-most-fun-jobs-in-the-world-how-much-do-video-game-testers-make) (豪华床测员？！)，并且Chron列出了 [几个其他的](http://work.chron.com/list-unusual-careers-11649.html) 。
+MoneyWise 列出了 41 份高薪梦想工作 (玩具创造者！神秘顾客。)，惊悚片 [集锦 17 更](https://www.thrillist.com/culture/jobs-that-seem-too-good-to-be-true-the-most-fun-jobs-in-the-world-how-much-do-video-game-testers-make) (豪华床测员？！)，并且 Chron 列出了 [几个其他的](http://work.chron.com/list-unusual-careers-11649.html) 。
 
 ### **询问其他人**
 
-也许发现一个新职业的最好方法是询问其他人的职业——假设你接触的人并不都在同一个领域工作。你的LinkedIn网络(或其他社交媒体网站，尤其是LinkedIn)可能是一个开始挖掘信息的好地方。此外，别忘了当地图书馆的参考馆员可以为你指明职业资源。
+也许发现一个新职业的最好方法是询问其他人的职业——假设你接触的人并不都在同一个领域工作。你的 LinkedIn 网络(或其他社交媒体网站，尤其是 LinkedIn)可能是一个开始挖掘信息的好地方。此外，别忘了当地图书馆的参考馆员可以为你指明职业资源。
 
-### **使用G+P+V公式**
+### **使用 G+P+V 公式**
 
-*最适合你的完美职业最有可能符合[G+P+V公式](http://lifehacker.com/know-your-career-path-with-the-g-p-v-formula-1610921593) ，代表天赋+激情+价值观。如上所述，考虑你的优势和激情，以及你的价值观——你的工作方式中有哪些是不容置疑的？*
+*最适合你的完美职业最有可能符合[G+P+V 公式](http://lifehacker.com/know-your-career-path-with-the-g-p-v-formula-1610921593) ，代表天赋+激情+价值观。如上所述，考虑你的优势和激情，以及你的价值观——你的工作方式中有哪些是不容置疑的？*
 
 ### ***制定职业规划***
 
@@ -56,4 +56,4 @@ MoneyWise列出了41份高薪梦想工作 (玩具创造者！神秘顾客。)，
 
 *最重要的是，记住 [你的职业是一场马拉松，而不是短跑](http://lifehacker.com/your-career-is-not-a-sprint-its-a-marathon-5950636) ，它可能是一条非常曲折的道路，把你所有的经历编织在一起，希望 [成为一份值得拥有的职业](http://lifehacker.com/how-to-build-a-career-worth-having-1043368189) 。*
 
-**这个故事最初发表于2014年8月，并于2021年2月4日更新，以符合Lifehacker风格指南。**
+**这个故事最初发表于 2014 年 8 月，并于 2021 年 2 月 4 日更新，以符合 Lifehacker 风格指南。**

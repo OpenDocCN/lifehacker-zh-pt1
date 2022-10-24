@@ -1,14 +1,14 @@
-# Lifehacker读者收到的11条最糟糕的“实用”建议
+# Lifehacker 读者收到的 11 条最糟糕的“实用”建议
 
-> 原文: [https://lifehacker.com/11条最糟糕的实用建议-lifehacker-1848951744](https://lifehacker.com/11-of-the-worst-pieces-of-practical-advice-lifehacker-1848951744)
+> 原文：<https://lifehacker.com/11-of-the-worst-pieces-of-practical-advice-lifehacker-1848951744>
 
-我最近请Lifehacker的读者分享了你收到过的最糟糕的建议。反生命黑客，如果你愿意的话。从职业建议，到个人理财，到你爱情生活的所有领域:有很多不好的建议。
+我最近请 Lifehacker 的读者分享了你收到过的最糟糕的建议。反生命黑客，如果你愿意的话。从职业建议，到个人理财，到你爱情生活的所有领域:有很多不好的建议。
 
 我通读了你的评论，分享了你收到的所有不明智的“智慧”，你的故事从荒谬到危险。我们都经历过痛苦灾难性的财务技巧、可悲过时的职业建议，以及关于婚姻的可悲智慧。(一个闪亮的例子:“*随便找个不喜欢的女生。一旦你结婚了，你无论如何都会恨她的。)出现了一些共同的主题:不要接受你祖父母的职业建议；不要和家人一起下海经商；不要听任何人的医学“建议”。*
 
-从你的评论、Reddit 的 [好人以及我自己的亲身经历中，这里有11个你最好忽略的糟糕建议的例子。如果你从这一切中吸取了一件东西，那就是你应该随时带着一粒盐(或者一大把盐)。](https://www.reddit.com/r/AskReddit/comments/ph4pax/what_was_the_worst_advice_you_have_ever_received/)
+从你的评论、Reddit 的 [好人以及我自己的亲身经历中，这里有 11 个你最好忽略的糟糕建议的例子。如果你从这一切中吸取了一件东西，那就是你应该随时带着一粒盐(或者一大把盐)。](https://www.reddit.com/r/AskReddit/comments/ph4pax/what_was_the_worst_advice_you_have_ever_received/)
 
-哦，做一个80年代握手坚定的白人。如今，当谈到找到并保住一份工作时，我们从老一辈那里听到的许多传统智慧已经变得无关紧要了。Lifehacker读者[**BouvOnTheMove**](https://kinja.com/movebouv)分享了一些完全不适用于当今职业环境的婴儿潮一代“智慧”的例子:
+哦，做一个 80 年代握手坚定的白人。如今，当谈到找到并保住一份工作时，我们从老一辈那里听到的许多传统智慧已经变得无关紧要了。Lifehacker 读者[**BouvOnTheMove**](https://kinja.com/movebouv)分享了一些完全不适用于当今职业环境的婴儿潮一代“智慧”的例子:
 
 *   "你为什么不打电话给一些地方，看看谁在招人？"
 *   "带着你的简历去那里，要求面试！"
@@ -23,13 +23,13 @@
 
 [TaborlinTheGreater](https://www.reddit.com/user/TaborlinTheGreater/)就是有这种同感的读者之一。对于我们大多数人来说，你必须自动选择家庭而不是朋友的想法是不正确的。如果你有一个有毒的家庭环境，你不应该听从建议，把他们放在真正支持你的朋友之前。如果你的家庭有很深的缺陷，找一个比你的血亲更像一个家庭的朋友社区。
 
-这一条来自读者 [**B为贝齐**](https://kinja.com/heartbeets) (以及我们之前报道过的 [没有大学学历怎么过](https://lifehacker.com/how-to-get-by-without-a-college-degree-and-when-you-ne-1120356954) ):
+这一条来自读者 [**B 为贝齐**](https://kinja.com/heartbeets) (以及我们之前报道过的 [没有大学学历怎么过](https://lifehacker.com/how-to-get-by-without-a-college-degree-and-when-you-ne-1120356954) ):
 
 “虽然大学很重要，但最终技能才是最重要的。要想在就业市场上成功，你必须以别人无法做到的方式提供价值。你必须拥有对雇主有价值的技能，你必须向公司展示你拥有这些技能。如果你在这两方面都不是很有上进心，大学是一个很好的训练场所。另一方面，如果你有能力在没有被告知的情况下弄脏你的手，你可能不需要正式的教育就能应付过去。只是不要指望这很容易。”
 
-Reddit用户[Worlds _ Best _ Coffee](https://www.reddit.com/user/Worlds_Best_Coffee/)分享了他们对听取这个购车建议的遗憾:“24岁时，我的父母每小时挣12美元，还租了一套公寓，说服我买了一辆全新的本田雅阁。他们向我保证,(购买全新的)是得到一辆车的“唯一途径”,因为二手车很快就会坏。这些款项是我每个月两笔薪水中的一整笔。”
+Reddit 用户[Worlds _ Best _ Coffee](https://www.reddit.com/user/Worlds_Best_Coffee/)分享了他们对听取这个购车建议的遗憾:“24 岁时，我的父母每小时挣 12 美元，还租了一套公寓，说服我买了一辆全新的本田雅阁。他们向我保证,(购买全新的)是得到一辆车的“唯一途径”,因为二手车很快就会坏。这些款项是我每个月两笔薪水中的一整笔。”
 
-redditor[grammaton 485](https://www.reddit.com/user/Grammaton485/)补充了他们在父亲坚持让他们现在买辆新车后告诉他们的话:“我现在有一辆已经付清贷款的车。我不欠任何钱或利息。零。没什么好偿还的。我的Rav4能让我从一个地方到达另一个地方，还有我需要的内部空间。换了一辆新车，我的新车会做完全一样的事情，*，但是*，我现在每个月要支付500美元。如果我有的足够了，为什么还要支付500美元五年？”
+redditor[grammaton 485](https://www.reddit.com/user/Grammaton485/)补充了他们在父亲坚持让他们现在买辆新车后告诉他们的话:“我现在有一辆已经付清贷款的车。我不欠任何钱或利息。零。没什么好偿还的。我的 Rav4 能让我从一个地方到达另一个地方，还有我需要的内部空间。换了一辆新车，我的新车会做完全一样的事情，*，但是*，我现在每个月要支付 500 美元。如果我有的足够了，为什么还要支付 500 美元五年？”
 
 尽管如此，如果你在市场上购买新车，这里有 [如何购买汽车，如果你绝对有必要在这个通货膨胀肆虐的地狱般的](https://lifehacker.com/how-to-buy-a-car-if-you-absolutely-have-to-in-this-infl-1848331100) 。
 
@@ -59,9 +59,9 @@ redditor[grammaton 485](https://www.reddit.com/user/Grammaton485/)补充了他�
 
 [Back2Bach](https://www.reddit.com/user/Back2Bach/) 分享有人曾经告诉他们，“作为一个*临时*措施，在一个拧入式保险丝盒电路中插入一个铜钱是可以的，直到可以获得替换保险丝。”显然，“那个危险的‘建议’差点因为电路过热引起一场火灾。”
 
-可以肯定地说，除非你是专家，否则任何关于DIY电气工程的建议都是灾难性的——或者至少是令人讨厌的电击。
+可以肯定地说，除非你是专家，否则任何关于 DIY 电气工程的建议都是灾难性的——或者至少是令人讨厌的电击。
 
-忽略恶霸是有一定道理的，就像我们之前讨论过的。与此同时，你们中的许多人认为“忽略它们”的建议是"彻头彻尾的扯淡"正如读者 [revchewie](https://www.reddit.com/user/revchewie/) 所分享的，“给我这个建议的成年人(当我还是个孩子的时候，在70年代)一定有比我更软弱的欺负者。因为是的，我的欺负者想要一个反应。他们会一直坚持下去，直到找到为止。"
+忽略恶霸是有一定道理的，就像我们之前讨论过的。与此同时，你们中的许多人认为“忽略它们”的建议是"彻头彻尾的扯淡"正如读者 [revchewie](https://www.reddit.com/user/revchewie/) 所分享的，“给我这个建议的成年人(当我还是个孩子的时候，在 70 年代)一定有比我更软弱的欺负者。因为是的，我的欺负者想要一个反应。他们会一直坚持下去，直到找到为止。"
 
 相反，考虑一下 [**乌鸦国会议员**](https://kinja.com/pocrow) 的这种方法:“我们的儿子在五年级时开始被人口头欺负，我们训练他每当有人开始和他说话时就翻白眼，说‘很酷的故事’。他们不到一周就放弃了。”
 
@@ -71,4 +71,4 @@ redditor[grammaton 485](https://www.reddit.com/user/Grammaton485/)补充了他�
 
 不幸的是，恶霸可能不会“放过你”你忽视他们的策略可能会导致欺负者升级他们的策略。考虑其他方式来表明你完全不怕他们的攻击——或者准备反击。
 
-最后，这个回顾性的指导来自读者 [**原子科学家**](https://kinja.com/AtomikSnowman) ，他说他们大约在2007年收到这个建议。就在 [一场重大房市崩盘之前](https://www.investopedia.com/articles/economics/09/subprime-market-2008.asp) 。从目前的情况来看，这个建议可能相当不明智。
+最后，这个回顾性的指导来自读者 [**原子科学家**](https://kinja.com/AtomikSnowman) ，他说他们大约在 2007 年收到这个建议。就在 [一场重大房市崩盘之前](https://www.investopedia.com/articles/economics/09/subprime-market-2008.asp) 。从目前的情况来看，这个建议可能相当不明智。

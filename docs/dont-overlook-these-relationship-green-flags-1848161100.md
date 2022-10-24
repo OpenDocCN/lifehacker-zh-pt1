@@ -1,6 +1,6 @@
 # 不要忽视这些关系绿旗
 
-> 原文:[https://life hacker . com/don ' t-overloop-these-relationship-green-flags-1848161100](https://lifehacker.com/dont-overlook-these-relationship-green-flags-1848161100)
+> 原文：<https://lifehacker.com/dont-overlook-these-relationship-green-flags-1848161100>
 
 当涉及到浪漫关系时——无论它们是牢固建立的，还是仍处于早期阶段——我们(理所当然地)习惯于关注和记录关于一个人的任何警告迹象，通常被称为“危险信号”
 

@@ -1,14 +1,14 @@
 # 如何弄碎软奶酪而不会弄得一团糟
 
-> 原文:[https://life hacker . com/how-to-crumble-soft-cheese-without-make-a-smeared-mes-1849176001](https://lifehacker.com/how-to-crumble-soft-cheese-without-making-a-smeared-mes-1849176001)
+> 原文：<https://lifehacker.com/how-to-crumble-soft-cheese-without-making-a-smeared-mes-1849176001>
 
 我认真对待楔形沙拉，尊重每一种配料。我通常不反对从商店里买一块培根或一桶预先弄碎的蓝纹奶酪，但当我做了一个楔子后，一切都变了。我烹饪并弄碎熏肉，从我的花园里摘一些细香葱，弄碎我从正规的奶酪柜台买的蓝奶酪。
 
 Watch
 
-合适的蓝纹奶酪——像羊乳酪、gorgonzola或cambozola——的问题是它不能很好地弄碎。它不断挤压和涂抹，在砧板上制造出一大堆垃圾。如果你更喜欢吃羊奶酪，你可能已经注意到当你弄碎一个美味的新鲜奶酪时会发生类似的事情。冷却会有帮助，但是冰箱只会变得很冷。为了帮助你的软奶酪碎掉而不是弄脏，你需要把冰箱也放进去。
+合适的蓝纹奶酪——像羊乳酪、gorgonzola 或 cambozola——的问题是它不能很好地弄碎。它不断挤压和涂抹，在砧板上制造出一大堆垃圾。如果你更喜欢吃羊奶酪，你可能已经注意到当你弄碎一个美味的新鲜奶酪时会发生类似的事情。冷却会有帮助，但是冰箱只会变得很冷。为了帮助你的软奶酪碎掉而不是弄脏，你需要把冰箱也放进去。
 
-这个小贴士来自于一位 [库克的《插图》](https://www.cooksillustrated.com/) 读者，发表在他们的印刷杂志7月/8月版上:
+这个小贴士来自于一位 [库克的《插图》](https://www.cooksillustrated.com/) 读者，发表在他们的印刷杂志 7 月/8 月版上:
 
 > 俄亥俄州洛矶河的西娜·莫纳汉在弄碎一大块山羊奶酪之前，先把包装放在冰箱里几分钟。坚硬的奶酪碎得很整齐，没有污迹。
 

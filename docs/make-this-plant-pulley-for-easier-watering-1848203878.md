@@ -1,6 +1,6 @@
 # 让这个植物滑轮更容易浇水
 
-> 原文:[https://life hacker . com/make-this-plant-pulley-for-easy-watering-1848203878](https://lifehacker.com/make-this-plant-pulley-for-easier-watering-1848203878)
+> 原文：<https://lifehacker.com/make-this-plant-pulley-for-easier-watering-1848203878>
 
 悬挂植物对你的家来说是一个很好的补充，但是给它们浇水可能是一件麻烦的事情——尤其是如果你的天花板很高的话。为了省事，你可以制作一个悬挂系统，让你可以轻松地将植物降低到浇水高度，然后再将它们升起来，不需要任何梯凳，也不会有水溅到地板上。查看 [这款抖音](https://www.tiktok.com/@thrift.more.waste.less/video/6982356456079232262) 看看它的运行，这里有更多关于如何构建自己的细节。
 

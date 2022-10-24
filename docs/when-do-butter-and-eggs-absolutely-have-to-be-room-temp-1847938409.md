@@ -1,12 +1,12 @@
 # 黄油和鸡蛋什么时候一定要室温？
 
-> 原文:[https://life hacker . com/when-do-butter-and-eggs-absolute-have-to-be-room-temp-1847938409](https://lifehacker.com/when-do-butter-and-eggs-absolutely-have-to-be-room-temp-1847938409)
+> 原文：<https://lifehacker.com/when-do-butter-and-eggs-absolutely-have-to-be-room-temp-1847938409>
 
 最成功的面包师最有条理，最少冲动，或者说他们至少学会了将冲动转化为其他追求。烘焙需要少量的深谋远虑、一点点计划和一点点耐心。烘焙要求某些原料在混合成面糊之前处于特定的温度，这是无法避免的。
 
 Watch
 
-当你看到一个食谱要求你的鸡蛋和黄油是室温的(大约65-70华氏度是理想的)，你应该注意了。虽然我有一个很大的“不要告诉我该做什么！”streak，这是一个你应该听(烘焙)权威人士的例子。但是知道为什么你应该做某事会让你更有可能去做，所以让我们开始吧。
+当你看到一个食谱要求你的鸡蛋和黄油是室温的(大约 65-70 华氏度是理想的)，你应该注意了。虽然我有一个很大的“不要告诉我该做什么！”streak，这是一个你应该听(烘焙)权威人士的例子。但是知道为什么你应该做某事会让你更有可能去做，所以让我们开始吧。
 
 ## 你不能奶油冷黄油
 

@@ -1,6 +1,6 @@
-# 你的2021春季动漫指南
+# 你的 2021 春季动漫指南
 
-> 原文:[https://kotaku.com/your-spring-2021-anime-guide-1846641063](https://kotaku.com/your-spring-2021-anime-guide-1846641063)
+> 原文：<https://kotaku.com/your-spring-2021-anime-guide-1846641063>
 
 春天在空气中！这只能说明一件事。实际上，这意味着几件事，但其中之一是新一季动漫的时间到了。
 
@@ -16,7 +16,7 @@ Watch
 
 **类型:**戏剧，学校，体育，生活片段
 
-首播日期:4月8日
+首播日期:4 月 8 日
 
 **在哪里观看:**
 
@@ -32,11 +32,11 @@ Watch
 
 **类型:**喜剧、体育、科幻
 
-首播日期:4月10日
+首播日期:4 月 10 日
 
 **观看地点:** [富尼玛尼安](https://www.funimation.com/)
 
-**一句话讲的是什么:**90年代动漫重启，*战斗运动员重启！*讲述了一个土豆农民参加星际田径锦标赛的故事。
+**一句话讲的是什么:**90 年代动漫重启，*战斗运动员重启！*讲述了一个土豆农民参加星际田径锦标赛的故事。
 
 * * *
 
@@ -48,7 +48,7 @@ Watch
 
 **类型:**戏剧，魔法少女，学校，生活片段
 
-首播日期:4月9日
+首播日期:4 月 9 日
 
 **观看地点:** [富尼玛尼安](https://www.funimation.com/)
 
@@ -64,7 +64,7 @@ Watch
 
 **流派:**体育
 
-首播日期:4月2日
+首播日期:4 月 2 日
 
 **在哪里观看:**
 
@@ -76,11 +76,11 @@ Watch
 
  [https://kotaku.com/embed/inset/iframe?id=youtube-video-O0MEPPLTtd0&start=0](https://kotaku.com/embed/inset/iframe?id=youtube-video-O0MEPPLTtd0&start=0) 
 
-工作室:Kinema Citrus | Kibuto Animaton |工作室Jemi
+工作室:Kinema Citrus | Kibuto Animaton |工作室 Jemi
 
 **流派:**冒险、卡牌战、剧情
 
-首映日期:4月3日
+首映日期:4 月 3 日
 
 **观看地点:** [松脆卷](https://www.crunchyroll.com/) ， [Funimation](https://www.funimation.com/)
 
@@ -92,11 +92,11 @@ Watch
 
  [https://kotaku.com/embed/inset/iframe?id=youtube-video-LXe0xozBEAI&start=0](https://kotaku.com/embed/inset/iframe?id=youtube-video-LXe0xozBEAI&start=0) 
 
-**工作室:** BN影业
+**工作室:** BN 影业
 
 **类型:**动作，剧情，历史
 
-首播日期:4月14日
+首播日期:4 月 14 日
 
 **在哪里观看:**
 
@@ -112,11 +112,11 @@ Watch
 
 **类型:**动作，喜剧，Ecchi，科幻
 
-首映日期:4月4日
+首映日期:4 月 4 日
 
 **观看地点:** [富尼玛尼安](https://www.funimation.com/)
 
-**一句话讲的是:**一个邪恶的组织发现探索一个外星球肯定比它看起来要困难，尤其是当我 ts的成员是古怪的时。
+**一句话讲的是:**一个邪恶的组织发现探索一个外星球肯定比它看起来要困难，尤其是当我 ts 的成员是古怪的时。
 
 * * *
 
@@ -128,7 +128,7 @@ Watch
 
 **流派:**喜剧，流派，浪漫喜剧
 
-首播日期:4月10日
+首播日期:4 月 10 日
 
 **在哪里观看:**
 
@@ -144,7 +144,7 @@ Watch
 
 **类型:**喜剧、奇幻
 
-首映日期:4月4日
+首映日期:4 月 4 日
 
 **观看地点:** [富尼玛尼安](https://www.funimation.com/)
 
@@ -160,7 +160,7 @@ Watch
 
 **流派:**动作、奇幻
 
-首映日期:4月4日
+首映日期:4 月 4 日
 
 **观看地点:**目前不提供
 
@@ -172,11 +172,11 @@ Watch
 
  [https://kotaku.com/embed/inset/iframe?id=youtube-video-QdxwFQBcxhk&start=0](https://kotaku.com/embed/inset/iframe?id=youtube-video-QdxwFQBcxhk&start=0) 
 
-**工作室:** A-1影业
+**工作室:** A-1 影业
 
 **流派:**机甲，战争
 
-首播日期:4月10日
+首播日期:4 月 10 日
 
 **在哪里观看:**
 
@@ -192,7 +192,7 @@ Watch
 
 **类型:**喜剧，生活片，学校
 
-首播日期:4月8日
+首播日期:4 月 8 日
 
 **在哪里观看:**
 
@@ -204,11 +204,11 @@ Watch
 
  [https://kotaku.com/embed/inset/iframe?id=youtube-video-ci2XSskC_wA&start=0](https://kotaku.com/embed/inset/iframe?id=youtube-video-ci2XSskC_wA&start=0) 
 
-**工作室:** TMS娱乐
+**工作室:** TMS 娱乐
 
 **类型:**喜剧、戏剧、超自然、生活片段
 
-首播日期:4月6日
+首播日期:4 月 6 日
 
 **观看地点:** [松脆卷](https://www.crunchyroll.com/) ， [Funimation](https://www.funimation.com/)
 
@@ -216,7 +216,7 @@ Watch
 
 * * *
 
-## 全潜:终极次世代全潜RPG比现实生活还要糟糕！
+## 全潜:终极次世代全潜 RPG 比现实生活还要糟糕！
 
  [https://kotaku.com/embed/inset/iframe?id=youtube-video-6TDRXYZ_K_c&start=0](https://kotaku.com/embed/inset/iframe?id=youtube-video-6TDRXYZ_K_c&start=0) 
 
@@ -224,7 +224,7 @@ Watch
 
 **类型:**喜剧、戏剧、奇幻
 
-首播日期:4月7日
+首播日期:4 月 7 日
 
 **观看地点:** [富尼玛尼安](https://www.funimation.com/)
 
@@ -252,11 +252,11 @@ Watch
 
  [https://kotaku.com/embed/inset/iframe?id=youtube-video-xVv3kouh4is&start=0](https://kotaku.com/embed/inset/iframe?id=youtube-video-xVv3kouh4is&start=0) 
 
-**工作室:**骨头x橘子
+**工作室:**骨头 x 橘子
 
 **类型:**动作、科幻
 
-首映日期:4月1日
+首映日期:4 月 1 日
 
 **观看地点:** [网飞](https://www.netflix.com/jp-en/title/80234811) (日)
 
@@ -272,7 +272,7 @@ Watch
 
 **类型:**喜剧
 
-首播日期:4月8日
+首播日期:4 月 8 日
 
 **观看地点:**网飞
 
@@ -288,7 +288,7 @@ Watch
 
 **类型:**戏剧，学校，生活片段，体育
 
-首映日期:4月4日
+首映日期:4 月 4 日
 
 **在哪里观看:**
 
@@ -304,7 +304,7 @@ Watch
 
 **类型:**喜剧，历史
 
-首映日期:4月1日
+首映日期:4 月 1 日
 
 **观看地点:** [富尼玛尼安](https://www.funimation.com/)
 
@@ -316,11 +316,11 @@ Watch
 
  [https://kotaku.com/embed/inset/iframe?id=youtube-video-8zZiwvF8IeY&start=0](https://kotaku.com/embed/inset/iframe?id=youtube-video-8zZiwvF8IeY&start=0) 
 
-**工作室:**9号项目
+**工作室:**9 号项目
 
 **类型:**喜剧、戏剧、生活片
 
-首播日期:4月5日
+首播日期:4 月 5 日
 
 **在哪里观看:**
 
@@ -336,11 +336,11 @@ Watch
 
 **类型:**喜剧，Ecchi，玄幻，后宫
 
-首播日期:4月8日
+首播日期:4 月 8 日
 
 **观看地点:** [富尼玛尼安](https://www.funimation.com/)
 
-**一句话讲的是什么:**一部动漫的第二季，讲述了一个年轻人被困在他最喜欢的RPG中，两个女性角色无意间成为他的奴隶。
+**一句话讲的是什么:**一部动漫的第二季，讲述了一个年轻人被困在他最喜欢的 RPG 中，两个女性角色无意间成为他的奴隶。
 
 * * *
 
@@ -352,11 +352,11 @@ Watch
 
 **类型:**动作、剧情、历史、超自然
 
-首播日期:4月6日
+首播日期:4 月 6 日
 
 **在哪里观看:**
 
-**一句话的内容:**故事发生在1931年，德川幕府统治仍在继续，一名年轻女子寻找杀害她家人的凶手。
+**一句话的内容:**故事发生在 1931 年，德川幕府统治仍在继续，一名年轻女子寻找杀害她家人的凶手。
 
 * * *
 
@@ -368,7 +368,7 @@ Watch
 
 **类型:**动作、剧情
 
-首映日期:4月4日
+首映日期:4 月 4 日
 
 **观看地点:** [富尼玛尼安](https://www.funimation.com/)
 
@@ -384,7 +384,7 @@ Watch
 
 **类型:**浪漫喜剧
 
-首播日期:4月5日
+首播日期:4 月 5 日
 
 **在哪里观看:**
 
@@ -400,7 +400,7 @@ Watch
 
 **类型:**喜剧、戏剧
 
-首映日期:4月4日
+首映日期:4 月 4 日
 
 **观看地点:**目前不提供
 
@@ -416,7 +416,7 @@ Watch
 
 **类型:**喜剧，学校，生活片段
 
-首播日期:4月2日
+首播日期:4 月 2 日
 
 **在哪里看** : [脆饼](https://www.crunchyroll.com/)
 
@@ -432,23 +432,23 @@ Watch
 
 **类型:**动作、剧情、历史、恐怖、超自然
 
-首播日期:4月5日
+首播日期:4 月 5 日
 
 **观看地点:** [富尼玛尼安](https://www.funimation.com/)
 
-**一句话讲的是什么:**故事发生在另一个1923年，日本政府成立了一个专案组来消灭吸血鬼，拯救我们所有人。
+**一句话讲的是什么:**故事发生在另一个 1923 年，日本政府成立了一个专案组来消灭吸血鬼，拯救我们所有人。
 
 * * *
 
-## 巨型机器人2:流浪者
+## 巨型机器人 2:流浪者
 
  [https://kotaku.com/embed/inset/iframe?id=youtube-video-hiJQ7F5mJKA&start=0](https://kotaku.com/embed/inset/iframe?id=youtube-video-hiJQ7F5mJKA&start=0) 
 
-**工作室:** TMS娱乐
+**工作室:** TMS 娱乐
 
 **流派:**戏剧、科幻、体育
 
-首映日期:4月4日
+首映日期:4 月 4 日
 
 **观看地点:** [富尼玛尼安](https://www.funimation.com/)
 
@@ -456,15 +456,15 @@ Watch
 
 * * *
 
-## 爱国者莫里亚蒂第2部分
+## 爱国者莫里亚蒂第 2 部分
 
  [https://kotaku.com/embed/inset/iframe?id=youtube-video-iJ8suvaCDyE&start=0](https://kotaku.com/embed/inset/iframe?id=youtube-video-iJ8suvaCDyE&start=0) 
 
-工作室:制作I.G
+工作室:制作 I.G
 
 **类型:**戏剧、犯罪、心理
 
-首映日期:4月4日
+首映日期:4 月 4 日
 
 **观看地点:** [富尼玛尼安](https://www.funimation.com/)
 
@@ -480,7 +480,7 @@ Watch
 
 **类型:**动作，学校，超级英雄
 
-首映日期:3月27日
+首映日期:3 月 27 日
 
 **观看地点:** [松脆卷](https://www.crunchyroll.com/) ， [Funimation](https://www.funimation.com/)
 
@@ -492,11 +492,11 @@ Watch
 
  [https://kotaku.com/embed/inset/iframe?id=youtube-video-b5HwWu05ok8&start=0](https://kotaku.com/embed/inset/iframe?id=youtube-video-b5HwWu05ok8&start=0) 
 
-工作室: OLM公司| P.I.C.S
+工作室: OLM 公司| P.I.C.S
 
 **类型:**喜剧，生活片段
 
-首播日期:4月5日
+首播日期:4 月 5 日
 
 **在哪里观看:**
 
@@ -512,7 +512,7 @@ Watch
 
 **流派:**喜剧，流派，浪漫喜剧
 
-首播日期:4月14日
+首播日期:4 月 14 日
 
 **在哪里观看:**
 
@@ -528,7 +528,7 @@ Watch
 
 **类型:**喜剧，悬疑
 
-首播日期:4月10日
+首播日期:4 月 10 日
 
 **观看地点:** [富尼玛尼安](https://www.funimation.com/)
 
@@ -544,7 +544,7 @@ Watch
 
 **类型:**冒险、奇幻、浪漫
 
-首播日期:4月6日
+首播日期:4 月 6 日
 
 **观看地点:** [富尼玛尼安](https://www.funimation.com/)
 
@@ -552,7 +552,7 @@ Watch
 
 * * *
 
-## SD高达世界英雄
+## SD 高达世界英雄
 
  [https://kotaku.com/embed/inset/iframe?id=youtube-video-VEonO7USbx8&start=0](https://kotaku.com/embed/inset/iframe?id=youtube-video-VEonO7USbx8&start=0) 
 
@@ -560,7 +560,7 @@ Watch
 
 **型:T1】动作、机器人、机器人**
 
-首播日期:4月8日
+首播日期:4 月 8 日
 
 **在哪里观看:**
 
@@ -572,11 +572,11 @@ Watch
 
  [https://kotaku.com/embed/inset/iframe?id=youtube-video-_A8VhXw35iU&start=0](https://kotaku.com/embed/inset/iframe?id=youtube-video-_A8VhXw35iU&start=0) 
 
-**工作室:**丽登影业x美国
+**工作室:**丽登影业 x 美国
 
 **类型:**冒险、动作、奇幻、学校
 
-首映日期:4月4日
+首映日期:4 月 4 日
 
 **在哪里观看:**
 
@@ -592,7 +592,7 @@ Watch
 
 **流派:**超自然
 
-首播日期:4月10日
+首播日期:4 月 10 日
 
 **观看地点:** [富尼玛尼安](https://www.funimation.com/)
 
@@ -608,7 +608,7 @@ Watch
 
 **类型:**动作、冒险、喜剧、超自然
 
-首映日期:4月1日
+首映日期:4 月 1 日
 
 **观看地点:**目前不提供
 
@@ -616,13 +616,13 @@ Watch
 
 * * *
 
-## 新干线Henkei Robo Shinkalion Z
+## 新干线 Henkei Robo Shinkalion Z
 
  [https://kotaku.com/embed/inset/iframe?id=youtube-video-rbPcrYklQp0&start=0](https://kotaku.com/embed/inset/iframe?id=youtube-video-rbPcrYklQp0&start=0) 
 
 **类型:**动作、冒险、科幻、变形机器人
 
-首播日期:4月9日
+首播日期:4 月 9 日
 
 **观看地点:**目前不提供
 
@@ -634,11 +634,11 @@ Watch
 
  [https://kotaku.com/embed/inset/iframe?id=youtube-video-OA--qFeK0qY&start=0](https://kotaku.com/embed/inset/iframe?id=youtube-video-OA--qFeK0qY&start=0) 
 
-**工作室:** 8位
+**工作室:** 8 位
 
 **类型:**冒险、喜剧、奇幻、生活片段
 
-首播日期:4月6日
+首播日期:4 月 6 日
 
 **在哪里观看:**
 
@@ -654,11 +654,11 @@ Watch
 
 **流派:**动作、冒险、机甲、机器人、学校、科幻
 
-首播日期:4月2日
+首播日期:4 月 2 日
 
 **观看地点:** [富尼玛尼安](https://www.funimation.com/)
 
-**一句话讲的是什么:**这是2018 *SSSS的后续。Gridman* ，里面有很酷的变形机器人，有趣的角色，还有来自Trigger的优秀动画。
+**一句话讲的是什么:**这是 2018 *SSSS 的后续。Gridman* ，里面有很酷的变形机器人，有趣的角色，还有来自 Trigger 的优秀动画。
 
 * * *
 
@@ -670,11 +670,11 @@ Watch
 
 **类型:**戏剧，生活片段
 
-首播日期:4月7日
+首播日期:4 月 7 日
 
 **观看地点:** [富尼玛尼安](https://www.funimation.com/)
 
-**一句话的内容:**一个女学生的生活发生了变化，她开始骑日本最具标志性的小型摩托车Super Cub，这看起来真的像是一个系列的本田广告。
+**一句话的内容:**一个女学生的生活发生了变化，她开始骑日本最具标志性的小型摩托车 Super Cub，这看起来真的像是一个系列的本田广告。
 
 * * *
 
@@ -686,7 +686,7 @@ Watch
 
 **流派:**戏剧、音乐
 
-首播日期:4月2日
+首播日期:4 月 2 日
 
 **在哪里观看:**
 
@@ -702,7 +702,7 @@ Watch
 
 **类型:**动作，学校，科幻
 
-首播日期:4月10日
+首播日期:4 月 10 日
 
 **在哪里观看:**
 
@@ -718,7 +718,7 @@ Watch
 
 **类型:**冒险，超自然
 
-首播日期:4月12日
+首播日期:4 月 12 日
 
 **在哪里观看:**
 
@@ -734,7 +734,7 @@ Watch
 
 **流派:**剧情、科幻
 
-首映日期:4月3日
+首映日期:4 月 3 日
 
 **观看地点:** [富尼玛尼安](https://www.funimation.com/)
 
@@ -746,11 +746,11 @@ Watch
 
  [https://kotaku.com/embed/inset/iframe?id=youtube-video-NxqfMRZfVTA&start=0](https://kotaku.com/embed/inset/iframe?id=youtube-video-NxqfMRZfVTA&start=0) 
 
-**工作室:** BN影业
+**工作室:** BN 影业
 
 **类型:**喜剧、奇幻
 
-首播日期:4月17日
+首播日期:4 月 17 日
 
 **在哪里观看:**
 
@@ -762,15 +762,15 @@ Watch
 
  [https://kotaku.com/embed/inset/iframe?id=youtube-video-2RDwMWOjqsc&start=0](https://kotaku.com/embed/inset/iframe?id=youtube-video-2RDwMWOjqsc&start=0) 
 
-**工作室:** DOMERICA × SHIN-EI动画
+**工作室:** DOMERICA × SHIN-EI 动画
 
 **类型:**冒险，超自然
 
-首播日期:4月8日
+首播日期:4 月 8 日
 
 **观看地点:** [富尼玛尼安](https://www.funimation.com/)
 
-**一句话讲的是什么:**时尚的Square Enix游戏现在是一部时尚的动漫。
+**一句话讲的是什么:**时尚的 Square Enix 游戏现在是一部时尚的动漫。
 
 * * *
 
@@ -782,7 +782,7 @@ Watch
 
 **类型:**动作、冒险、历史、超自然
 
-首播日期:4月29日
+首播日期:4 月 29 日
 
 **观看地点:** [网飞](https://www.netflix.com)
 
@@ -790,7 +790,7 @@ Watch
 
 * * *
 
-### Yokai手表
+### Yokai 手表
 
  [https://kotaku.com/embed/inset/iframe?id=youtube-video-IdAJYOSIfRs&start=0](https://kotaku.com/embed/inset/iframe?id=youtube-video-IdAJYOSIfRs&start=0) 
 
@@ -798,11 +798,11 @@ Watch
 
 **类型:**喜剧，超自然
 
-首播日期:4月9日
+首播日期:4 月 9 日
 
 **观看地点:**目前不提供
 
-**一句话讲的是什么:**新一季的Yokai Watch回来了，为了更多的动漫hijinks而重新开机。
+**一句话讲的是什么:**新一季的 Yokai Watch 回来了，为了更多的动漫 hijinks 而重新开机。
 
 * * *
 
@@ -814,7 +814,7 @@ Watch
 
 **类型:**喜剧、偶像、超自然
 
-首播日期:4月8日
+首播日期:4 月 8 日
 
 **观看地点:** [松脆卷](https://www.crunchyroll.com/) ， [Funimation](https://www.funimation.com/)
 

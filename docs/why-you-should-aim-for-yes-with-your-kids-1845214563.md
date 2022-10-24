@@ -1,6 +1,6 @@
 # 为什么你应该对你的孩子说“是”
 
-> 原文:[https://life hacker . com/why-you-should-aim-yes-with-your-kids-1845214563](https://lifehacker.com/why-you-should-aim-for-yes-with-your-kids-1845214563)
+> 原文：<https://lifehacker.com/why-you-should-aim-for-yes-with-your-kids-1845214563>
 
 孩子们在一天中听到很多“不”。不，你不能想熬夜多久就熬夜多久；不行，不戴头盔不能骑车；不，你不能推你妹妹。“不”很容易成为对任何新的或奇怪的请求的反射性回答，通常在你真正处理它之前(同样的方式，孩子们似乎也倾向于对 *us* 说“不”)。“不”通常需要我们花费更少的时间和精力。
 

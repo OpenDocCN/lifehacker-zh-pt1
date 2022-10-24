@@ -1,6 +1,6 @@
 # 如何免费回收任何费雪牌玩具
 
-> 原文:[https://life hacker . com/how-to-recycle-any-fisher-price-toy-for-free-1849042114](https://lifehacker.com/how-to-recycle-any-fisher-price-toy-for-free-1849042114)
+> 原文：<https://lifehacker.com/how-to-recycle-any-fisher-price-toy-for-free-1849042114>
 
 如果你有孩子，你可能会有太多的玩具。即使你买的不多，看起来还是会有源源不断的祖父母礼物、生日和圣诞礼物、糖果袋和邻居朋友送的旧玩具。这会造成一个非常拥挤、杂乱的游戏室。(还有厨房、家庭活动室和地下室...因为所有的玩具都不可避免的会迁移)。
 
@@ -8,10 +8,10 @@ Watch
 
 当你的小家伙们最终不再需要它们的时候(或者把它们扔进垃圾箱到不再有用的程度)，问题就变成了，*你会怎么处理它们？虽然向朋友、家人或当地慈善机构出售或捐赠二手玩具很容易，但对于那些被撞坏、损坏且无法安全捐赠的海盗船和收银机，你可以将它们扔进垃圾桶——这可能会带来不小的环境负罪感——或参加 [美泰“回放”计划](https://www2.mattel.com/en-us/playroom/playback) ，该计划旨在回收和再利用玩具中的材料，以用于未来的美泰产品。*
 
-当我们上一次 [写关于](https://lifehacker.com/recycling-your-old-toys-just-got-easier-1846911373) 的节目时，它只在美国和加拿大可用，并且只接受芭比、火柴盒和MEGA品牌。最近，它已经扩展到包括 [费雪](https://shop.mattel.com/pages/fisher-price) 产品，(包括Laugh & Learn、Little People和Imaginext品牌)，现在已经在法国、德国和英国上市。
+当我们上一次 [写关于](https://lifehacker.com/recycling-your-old-toys-just-got-easier-1846911373) 的节目时，它只在美国和加拿大可用，并且只接受芭比、火柴盒和 MEGA 品牌。最近，它已经扩展到包括 [费雪](https://shop.mattel.com/pages/fisher-price) 产品，(包括 Laugh & Learn、Little People 和 Imaginext 品牌)，现在已经在法国、德国和英国上市。
 
-该播放程序旨在帮助美泰公司实现其的企业目标，即到2030年，在其所有产品和包装中使用100%可回收、可循环或生物相塑料材料，该程序允许家庭 [轻松注册](https://www2.mattel.com/en-us/playroom/playback) 该程序，通过电子邮件接收预付运输标签。只需打印标签，取出玩具中的电池，将它们装箱(根据他们的 [常见问题](https://assets.contentstack.io/v3/assets/bltc12136c3b9f23503/bltc23dcc685588901f/629e8e468eeef9457276578a/M22_PLAY_BACK_FAQ_US_052422.pdf) ，在任何情况下，都不需要清洁或修理)，然后将它们放在当地的邮局。所有这些被斩首的肯娃娃和巨型积木将被送往该公司位于纽约东奥罗拉的加工点，开始它们的升级之旅。
+该播放程序旨在帮助美泰公司实现其的企业目标，即到 2030 年，在其所有产品和包装中使用 100%可回收、可循环或生物相塑料材料，该程序允许家庭 [轻松注册](https://www2.mattel.com/en-us/playroom/playback) 该程序，通过电子邮件接收预付运输标签。只需打印标签，取出玩具中的电池，将它们装箱(根据他们的 [常见问题](https://assets.contentstack.io/v3/assets/bltc12136c3b9f23503/bltc23dcc685588901f/629e8e468eeef9457276578a/M22_PLAY_BACK_FAQ_US_052422.pdf) ，在任何情况下，都不需要清洁或修理)，然后将它们放在当地的邮局。所有这些被斩首的肯娃娃和巨型积木将被送往该公司位于纽约东奥罗拉的加工点，开始它们的升级之旅。
 
-只要有可能，他们会回收旧玩具中仍然可用的材料，以便在新产品中重复使用。根据Mattel的说法，“对于不能作为新玩具回收成分的材料，我们要么将这些材料降循环成其他塑料产品，要么将它们从废物转化为能源。”
+只要有可能，他们会回收旧玩具中仍然可用的材料，以便在新产品中重复使用。根据 Mattel 的说法，“对于不能作为新玩具回收成分的材料，我们要么将这些材料降循环成其他塑料产品，要么将它们从废物转化为能源。”
 
 虽然还不清楚这到底意味着什么，但播放程序无疑解决了许多父母的一个痛点，他们希望尽自己所能，不管多小，让多余的塑料远离垃圾填埋场。

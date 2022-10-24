@@ -1,6 +1,6 @@
 # 如何清洗记忆棉枕头
 
-> 原文:[https://life hacker . com/how-to-wash-memory-foam-pillows-1849492367](https://lifehacker.com/how-to-wash-memory-foam-pillows-1849492367)
+> 原文：<https://lifehacker.com/how-to-wash-memory-foam-pillows-1849492367>
 
 你上次洗枕头是什么时候？不是你的枕套或保护套，而是真正的枕头？是啊，就是那些带着黄色污渍的。
 
@@ -16,7 +16,7 @@ Watch
 
 ### 先用吸尘器清理枕头
 
-第一步应该是用吸尘器清理你的记忆泡沫枕头(理想情况下，使用室内装潢附件)，不管你是否打算继续下面的步骤。这将有助于去除隐藏在泡沫中的死皮片和其他类型的灰尘和过敏原。Bedpillows.com的 [团队建议](https://bedpillows.com/blogs/learning-center/how-to-clean-memory-foam-pillow) 在每次换床单时用吸尘器清理你的记忆泡沫枕头(假设你每周换一次床单)。
+第一步应该是用吸尘器清理你的记忆泡沫枕头(理想情况下，使用室内装潢附件)，不管你是否打算继续下面的步骤。这将有助于去除隐藏在泡沫中的死皮片和其他类型的灰尘和过敏原。Bedpillows.com 的 [团队建议](https://bedpillows.com/blogs/learning-center/how-to-clean-memory-foam-pillow) 在每次换床单时用吸尘器清理你的记忆泡沫枕头(假设你每周换一次床单)。
 
 如果枕头产生了一种气味(这是有道理的，因为你每天晚上都会流汗和分泌其他分泌物)， [克尔建议](https://www.bhg.com/homekeeping/laundry-linens/tips-checklists/can-you-wash-memory-foam-pillows/) 在上面撒一些小苏打，让它静置一个小时，然后用室内装潢附件用吸尘器清理。她指出，枕头除臭可以根据需要进行，或者每一到三个月进行一次。
 
@@ -43,4 +43,4 @@ Watch
 
 ## 多久应该洗一次记忆棉枕头？
 
-根据克尔的说法，记忆泡沫枕头比传统枕头更能抵抗灰尘和其他过敏原，所以不需要经常清洗。她建议每6到12个月做一次。
+根据克尔的说法，记忆泡沫枕头比传统枕头更能抵抗灰尘和其他过敏原，所以不需要经常清洗。她建议每 6 到 12 个月做一次。

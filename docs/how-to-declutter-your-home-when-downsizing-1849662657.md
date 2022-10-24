@@ -1,6 +1,6 @@
 # 裁员时如何整理你的家
 
-> 原文:[https://life hacker . com/how-to-declutter-your-home-when-dimensioning-1849662657](https://lifehacker.com/how-to-declutter-your-home-when-downsizing-1849662657)
+> 原文：<https://lifehacker.com/how-to-declutter-your-home-when-downsizing-1849662657>
 
 当我们谈论“瘦身”时，它通常指的是一个人家的大小。例如，人们可能会在他们的孩子长大并搬出去后决定卖掉他们的大房子，因为他们不再需要那么大的居住空间了。其他人购买或租赁房子，最初看起来大小合适，但后来意识到太大了。
 

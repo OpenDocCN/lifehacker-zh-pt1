@@ -1,22 +1,22 @@
-# 如何承认黑人女性在2020年选举中的作用
+# 如何承认黑人女性在 2020 年选举中的作用
 
-> 原文:[https://life hacker . com/how-to-cognose-black-women-for-the-20-1845624619](https://lifehacker.com/how-to-acknowledge-black-women-for-their-role-in-the-20-1845624619)
+> 原文：<https://lifehacker.com/how-to-acknowledge-black-women-for-their-role-in-the-20-1845624619>
 
-如果总统选举对你有利，你可能正在享受关于Stace y Abrams和黑人女性在我们国家出现的方式的迷因、推文和帖子。这就好像佐治亚州的黑人妇女卷起袖子说，“该死，我什么都得做？”这部分是对的。这个国家的成功长期以来建立在黑人妇女的劳动基础上，她们一如既往地努力工作，争取她们应得的改变。
+如果总统选举对你有利，你可能正在享受关于 Stace y Abrams 和黑人女性在我们国家出现的方式的迷因、推文和帖子。这就好像佐治亚州的黑人妇女卷起袖子说，“该死，我什么都得做？”这部分是对的。这个国家的成功长期以来建立在黑人妇女的劳动基础上，她们一如既往地努力工作，争取她们应得的改变。
 
 Watch
 
 ### 格鲁吉亚发生了什么？
 
-2018年，斯泰西·艾布拉姆斯与亚历山大·奥卡西奥·科尔特斯(Alexandria Ocasio-Cortez)同时竞选佐治亚州州长。虽然她最终以55，000票之差输给了她的对手布莱恩·坎普，但一场大规模执行选民压制策略的在竞选中暴露无遗。
+2018 年，斯泰西·艾布拉姆斯与亚历山大·奥卡西奥·科尔特斯(Alexandria Ocasio-Cortez)同时竞选佐治亚州州长。虽然她最终以 55，000 票之差输给了她的对手布莱恩·坎普，但一场大规模执行选民压制策略的在竞选中暴露无遗。
 
-她本可以派律师去要求重新计票，但相反，艾布拉姆斯的回应是直接与受影响的人接触。艾布拉姆斯与她的组织和 [合作，登记了超过80万名新选民](https://fairfight.com/video-and-graphics-fair-fight-founder-stacey-abrams-discusses-state-of-the-race-in-georgia/) ，其中包括主要由有色人种组成的社区中的45万人。
+她本可以派律师去要求重新计票，但相反，艾布拉姆斯的回应是直接与受影响的人接触。艾布拉姆斯与她的组织和 [合作，登记了超过 80 万名新选民](https://fairfight.com/video-and-graphics-fair-fight-founder-stacey-abrams-discusses-state-of-the-race-in-georgia/) ，其中包括主要由有色人种组成的社区中的 45 万人。
 
-结果，民主党在佐治亚州 确立了领先优势，在上周的2020年选举中翻转了该州。
+结果，民主党在佐治亚州 确立了领先优势，在上周的 2020 年选举中翻转了该州。
 
 ### 支持佐治亚州黑人妇女的方法
 
-给予感谢和赞扬是很好的，但是有更多的方式来表彰斯泰西·艾布拉姆斯和其他黑人妇女为增加选民投票所做的辛勤工作。除了转发Instagram上的引用或转发发自内心的奉献之外，这里还有一些方法来纪念投票的女性。
+给予感谢和赞扬是很好的，但是有更多的方式来表彰斯泰西·艾布拉姆斯和其他黑人妇女为增加选民投票所做的辛勤工作。除了转发 Instagram 上的引用或转发发自内心的奉献之外，这里还有一些方法来纪念投票的女性。
 
 #### 向对抗选民压制的可信组织捐款
 
@@ -26,7 +26,7 @@ Watch
 
 #### 影响佐治亚州参议院决选
 
-放出消息说 [佐治亚州参议院决选](https://lifehacker.com/how-you-can-impact-the-georgia-senate-runoff-election-1845620812) 。虽然拜登是当选总统，但参议院席位仍然岌岌可危，格鲁吉亚人需要在1月5日再次投票。新18岁的人可以在12月7日 之前 [登记投票。他们可能无法在这次总统选举中投票，但1月5日的投票给了他们一个参与行动的机会。仔细阅读佐治亚州决选中的](https://georgia.gov/register-to-vote) [候选人，尽你所能支持他们。](https://apps.npr.org/elections20-interactive/?#/states/GA/S)
+放出消息说 [佐治亚州参议院决选](https://lifehacker.com/how-you-can-impact-the-georgia-senate-runoff-election-1845620812) 。虽然拜登是当选总统，但参议院席位仍然岌岌可危，格鲁吉亚人需要在 1 月 5 日再次投票。新 18 岁的人可以在 12 月 7 日 之前 [登记投票。他们可能无法在这次总统选举中投票，但 1 月 5 日的投票给了他们一个参与行动的机会。仔细阅读佐治亚州决选中的](https://georgia.gov/register-to-vote) [候选人，尽你所能支持他们。](https://apps.npr.org/elections20-interactive/?#/states/GA/S)
 
 #### 支持黑人女性拥有的企业
 

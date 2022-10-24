@@ -1,6 +1,6 @@
-# 冬天糟糕的时候和孩子一起做的7件事
+# 冬天糟糕的时候和孩子一起做的 7 件事
 
-> 原文:[https://life hacker . com/7-冬季最糟糕的时候和你的孩子一起做的活动-1846086678](https://lifehacker.com/7-activities-to-do-with-your-kids-when-wintertime-sucks-1846086678)
+> 原文：<https://lifehacker.com/7-activities-to-do-with-your-kids-when-wintertime-sucks-1846086678>
 
 随着冬天的节日部分安全地过去，但是一整个非节日的冬天仍然在前面，你可能想知道在接下来的几个月里你将如何与你的孩子度过这些日子。对于我们这些生活在寒冷地区的人来说，我们仍然有一月的剩余时间，整个二月，接下来是二月二号(我也听说这被称为“三月”)，以及四月——一个著名的百搭牌——带给我们的一切。
 
@@ -14,7 +14,7 @@
 
 接下来:你会喜欢的感官活动。
 
-Lifehacker的执行编辑Joel Cunningham在去年夏天我们的“ [快乐周](https://lifehacker.com/c/happier-week) ”中找到了快乐，他花时间和他的孩子一起做他们*都*喜欢的事情(而不是孩子们想再次做的任何无聊的事情)。他买了一个15块钱一批的 [这个东西](https://www.amazon.com/dp/B07FZW1GVF/ref=sspa_dk_detail_6?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/7-activities-to-do-with-your-kids-when-wintertime-sucks-1846086678&asc_source=&pd_rd_i=B07FZW1GVF&pd_rd_w=czEqm&pd_rd_wg=TlibC&pf_rd_p=48d372c1-f7e1-4b8b-9d02-4bd86f5158c5&pf_rd_r=M13JW0KHRKT1ENVB5SCZ&psc=1&tag=kinjalifehackerlink-20) ，然后 [邀请全家](https://lifehacker.com/do-something-actually-fun-with-your-kids-1844634445) 做上图的人物组合合集。
+Lifehacker 的执行编辑 Joel Cunningham 在去年夏天我们的“ [快乐周](https://lifehacker.com/c/happier-week) ”中找到了快乐，他花时间和他的孩子一起做他们*都*喜欢的事情(而不是孩子们想再次做的任何无聊的事情)。他买了一个 15 块钱一批的 [这个东西](https://www.amazon.com/dp/B07FZW1GVF/ref=sspa_dk_detail_6?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/7-activities-to-do-with-your-kids-when-wintertime-sucks-1846086678&asc_source=&pd_rd_i=B07FZW1GVF&pd_rd_w=czEqm&pd_rd_wg=TlibC&pf_rd_p=48d372c1-f7e1-4b8b-9d02-4bd86f5158c5&pf_rd_r=M13JW0KHRKT1ENVB5SCZ&psc=1&tag=kinjalifehackerlink-20) ，然后 [邀请全家](https://lifehacker.com/do-something-actually-fun-with-your-kids-1844634445) 做上图的人物组合合集。
 
 (提出建议或提供帮助)喂...让我们跳出来。
 
@@ -22,7 +22,7 @@ Lifehacker的执行编辑Joel Cunningham在去年夏天我们的“ [快乐周](
 
 如果这是一个打击，现在你需要超大的充气骰子。
 
-游戏很简单:你得到 [一包两个这样的家伙](https://www.amazon.com/13-Jumbo-Inflatable-Dice-Pack/dp/B071H3W3MZ/ref=sr_1_2_sspa?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/7-activities-to-do-with-your-kids-when-wintertime-sucks-1846086678&asc_source=&dchild=1&keywords=inflatable dice&psc=1&qid=1611088863&spLa=ZW5jcnlwdGVkUXVhbGlmaWVyPUExUjlKSDdVRDBYQzI1JmVuY3J5cHRlZElkPUEwMjgwMzIwMUZFV1pRVDNKT0w2QyZlbmNyeXB0ZWRBZElkPUEwODU1MTM1MkRKN0RDV01aOVE0VyZ3aWRnZXROYW1lPXNwX2F0ZiZhY3Rpb249Y2xpY2tSZWRpcmVjdCZkb05vdExvZ0NsaWNrPXRydWU=&sr=8-2-spons&tag=kinjalifehackerlink-20) 。你用一代表数字；然后你拿一支记号笔给另一个人，在每一边写上他们最喜欢的运动，比如蛙跳、兔子跳、高膝、踢屁股和爬山。 [他们翻滚](https://lifehacker.com/keep-your-kids-active-indoors-with-oversized-inflatable-1839984672) 他们必须做X个Y的练习。
+游戏很简单:你得到 [一包两个这样的家伙](https://www.amazon.com/13-Jumbo-Inflatable-Dice-Pack/dp/B071H3W3MZ/ref=sr_1_2_sspa?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/7-activities-to-do-with-your-kids-when-wintertime-sucks-1846086678&asc_source=&dchild=1&keywords=inflatable dice&psc=1&qid=1611088863&spLa=ZW5jcnlwdGVkUXVhbGlmaWVyPUExUjlKSDdVRDBYQzI1JmVuY3J5cHRlZElkPUEwMjgwMzIwMUZFV1pRVDNKT0w2QyZlbmNyeXB0ZWRBZElkPUEwODU1MTM1MkRKN0RDV01aOVE0VyZ3aWRnZXROYW1lPXNwX2F0ZiZhY3Rpb249Y2xpY2tSZWRpcmVjdCZkb05vdExvZ0NsaWNrPXRydWU=&sr=8-2-spons&tag=kinjalifehackerlink-20) 。你用一代表数字；然后你拿一支记号笔给另一个人，在每一边写上他们最喜欢的运动，比如蛙跳、兔子跳、高膝、踢屁股和爬山。 [他们翻滚](https://lifehacker.com/keep-your-kids-active-indoors-with-oversized-inflatable-1839984672) 他们必须做 X 个 Y 的练习。
 
 这很有趣，也很活跃，而且在一次身体活动中释放了他们一些被压抑的能量。
 

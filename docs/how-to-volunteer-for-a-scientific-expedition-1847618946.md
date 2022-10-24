@@ -1,8 +1,8 @@
 # 如何志愿参加科学考察
 
-> 原文:[https://life hacker . com/how-to-volunteer for a-scientific expedition-1847618946](https://lifehacker.com/how-to-volunteer-for-a-scientific-expedition-1847618946)
+> 原文：<https://lifehacker.com/how-to-volunteer-for-a-scientific-expedition-1847618946>
 
-经历了2020年，以及我们在2021年幸存下来的东西，促使许多人反思他们的生活、目标和优先事项。如果你是他们中的一员，并意识到你想(最终)看到更多的世界并开始志愿服务，有一种方法可以同时做到这两者:志愿参加科学研究考察。
+经历了 2020 年，以及我们在 2021 年幸存下来的东西，促使许多人反思他们的生活、目标和优先事项。如果你是他们中的一员，并意识到你想(最终)看到更多的世界并开始志愿服务，有一种方法可以同时做到这两者:志愿参加科学研究考察。
 
 Watch
 

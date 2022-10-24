@@ -1,6 +1,6 @@
 # 如何更好地打理自己的运动服
 
-> 原文:[https://life hacker . com/how-to-take-better-care-of-your-gym-ways-1846439405](https://lifehacker.com/how-to-take-better-care-of-your-gym-clothes-1846439405)
+> 原文：<https://lifehacker.com/how-to-take-better-care-of-your-gym-clothes-1846439405>
 
 当你脱掉汗湿的运动服时，你可能会想把它们和其他东西一起扔进洗衣房。但是高性能织物和任何有弹性的东西都得益于一些额外的关注。试试下面的建议，让它们保持香味，并持续更长时间。
 
@@ -28,7 +28,7 @@ Watch
 
 漂白剂会损害一些织物。检查你衣服上的标签；许多运动服都说不要漂白。
 
-织物柔软剂覆盖在织物的纤维上，使你的皮肤感觉更光滑，但也抑制了它们吸收水分的能力。 [排汗性能的档位应该不用织物柔软剂](https://www.outsideonline.com/1770886/will-fabric-softeners-destroy-performance-fabrics) 洗，羊毛物品 [像Smartwool袜子](https://www.smartwool.com/discover/how-to-wash-wool-socks.html) 也是如此。
+织物柔软剂覆盖在织物的纤维上，使你的皮肤感觉更光滑，但也抑制了它们吸收水分的能力。 [排汗性能的档位应该不用织物柔软剂](https://www.outsideonline.com/1770886/will-fabric-softeners-destroy-performance-fabrics) 洗，羊毛物品 [像 Smartwool 袜子](https://www.smartwool.com/discover/how-to-wash-wool-socks.html) 也是如此。
 
 ### 把它们挂起来晾干
 

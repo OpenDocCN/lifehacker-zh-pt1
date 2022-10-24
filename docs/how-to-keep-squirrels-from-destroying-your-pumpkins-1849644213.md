@@ -1,8 +1,8 @@
 # 如何防止松鼠破坏你的南瓜
 
-> 原文:[https://life hacker . com/how-to-keep-松鼠不要破坏你的南瓜-1849644213](https://lifehacker.com/how-to-keep-squirrels-from-destroying-your-pumpkins-1849644213)
+> 原文：<https://lifehacker.com/how-to-keep-squirrels-from-destroying-your-pumpkins-1849644213>
 
-现在你知道了雕刻南瓜的最佳时间，这样它们就不会在万圣节 前腐烂，是时候进入南瓜灯维护的下一个重要章节了:如何防止它们变成松鼠大屠杀，破坏你前廊精心策划的Pinterest氛围。有几种方法可以让邻居家的毛茸茸尾巴的啮齿动物远离你的葫芦——这里有几种最有效的方法。
+现在你知道了雕刻南瓜的最佳时间，这样它们就不会在万圣节 前腐烂，是时候进入南瓜灯维护的下一个重要章节了:如何防止它们变成松鼠大屠杀，破坏你前廊精心策划的 Pinterest 氛围。有几种方法可以让邻居家的毛茸茸尾巴的啮齿动物远离你的葫芦——这里有几种最有效的方法。
 
 Watch
 

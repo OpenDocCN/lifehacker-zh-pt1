@@ -1,14 +1,14 @@
 # 忽略这个过时的职业建议(以及该怎么做)
 
-> 原文:[https://life hacker . com/ignore-this-outside-career-advice-and-do-to-inst-1848693477](https://lifehacker.com/ignore-this-outdated-career-advice-and-what-to-do-inst-1848693477)
+> 原文：<https://lifehacker.com/ignore-this-outdated-career-advice-and-what-to-do-inst-1848693477>
 
-如今，当谈到找到并保住一份工作时，你在成长过程中学到的许多传统智慧都变得无关紧要了。忘记你必须将个人生活和职业生活完全分开的建议；在Instagram上关注你老板的流程是什么？
+如今，当谈到找到并保住一份工作时，你在成长过程中学到的许多传统智慧都变得无关紧要了。忘记你必须将个人生活和职业生活完全分开的建议；在 Instagram 上关注你老板的流程是什么？
 
 Watch
 
-我不太愿意参与婴儿潮一代与千禧一代以及职场中日益壮大的Z一代之间的代际斗争。(我故意漏掉了X世代，因为被忽视是X世代的全部。)不过，对于一个从报纸上的分类广告和一次坚定的握手开始职业生涯的人来说，很难接受专业建议。
+我不太愿意参与婴儿潮一代与千禧一代以及职场中日益壮大的 Z 一代之间的代际斗争。(我故意漏掉了 X 世代，因为被忽视是 X 世代的全部。)不过，对于一个从报纸上的分类广告和一次坚定的握手开始职业生涯的人来说，很难接受专业建议。
 
-那么，哪些职业建议经得起时间的考验，哪些需要搁置？托妮·弗兰纳，career sservices mat[flex jobs](https://streaklinks.com/A-QKjymODg6oE7SsPQAdGWfA/https%3A%2F%2Fwww.flexjobs.com%2F)和[Remote.co](http://remote.co./)的经理，告诉Lifehacker他们的职业教练团队不断看到的一些最过时的建议。
+那么，哪些职业建议经得起时间的考验，哪些需要搁置？托妮·弗兰纳，career sservices mat[flex jobs](https://streaklinks.com/A-QKjymODg6oE7SsPQAdGWfA/https%3A%2F%2Fwww.flexjobs.com%2F)和[Remote.co](http://remote.co./)的经理，告诉 Lifehacker 他们的职业教练团队不断看到的一些最过时的建议。
 
 ## 过时:总是用正式的语言写你的简历和求职信
 
@@ -20,11 +20,11 @@ Watch
 
 ## 过时:跳槽看起来很糟糕
 
-你可能听说过“跳槽”会毁了你的简历。虽然老一代人可以指望在同一家公司呆上几十年，但千禧一代和Z世代却没有这种保障。Frana说“呆在一份让你痛苦的工作中对你和雇主都没有任何好处。”
+你可能听说过“跳槽”会毁了你的简历。虽然老一代人可以指望在同一家公司呆上几十年，但千禧一代和 Z 世代却没有这种保障。Frana 说“呆在一份让你痛苦的工作中对你和雇主都没有任何好处。”
 
 ## **更新:让零工经济为你服务**
 
-如果你发现自己不适合，不要害怕重新开始找工作。据Frana和她的职业生涯教练团队称，“人们不再怀疑那些从一个工作岗位跳槽到另一个工作岗位的人，甚至是从一个职业岗位跳槽到另一个职业岗位的人。”如果你跳来跳去，确保你能在下一次面试中解释你的理由。更好的是，确保你能解释为什么你的工作范围会让你未来的雇主受益。
+如果你发现自己不适合，不要害怕重新开始找工作。据 Frana 和她的职业生涯教练团队称，“人们不再怀疑那些从一个工作岗位跳槽到另一个工作岗位的人，甚至是从一个职业岗位跳槽到另一个职业岗位的人。”如果你跳来跳去，确保你能在下一次面试中解释你的理由。更好的是，确保你能解释为什么你的工作范围会让你未来的雇主受益。
 
 ## 过时:当面试官问你的弱点时，给出一个优点
 
@@ -34,7 +34,7 @@ Watch
 
 ## **更新:诚实并准备改进**
 
-在求职面试中提出你的弱点听起来像是一场灾难，但你可以让它为你所用。Frana说“承认你有弱点，并意识到这一点，有助于向招聘经理展示你愿意审视自己擅长什么和不擅长什么。
+在求职面试中提出你的弱点听起来像是一场灾难，但你可以让它为你所用。Frana 说“承认你有弱点，并意识到这一点，有助于向招聘经理展示你愿意审视自己擅长什么和不擅长什么。
 
 当你准备面试时，花点时间想出一个众所周知的“最大弱点”问题的答案。你的回答应该诚实地承认一个弱点，然后立即采取你正在努力克服它的所有方法。
 
@@ -46,10 +46,10 @@ Watch
 
 只要你觉得舒服，通常可以通过社交媒体与同事互动。很明显，你在推特上发布对同事的恶意评论，或者在你说你生病时发布海滩照片，或者其他任何有损你作为员工的诚信的事情，都是越线行为。如果你在工作中因为这种在线行为而面临后果，不要感到震惊。否则，不要害怕喜欢你经理的推文。事实上，社交媒体可以帮助提醒你的团队，无论在工作场所内外，你都是一个多维度的人。
 
-## **Z世代仍应遵循的传统建议**
+## **Z 世代仍应遵循的传统建议**
 
-职业精神是永恒的，其中大部分可以归结为尊重。Z世代通常更敢于批评他们的工作场所(我认为这是一种积极的文化转变)，但仍然有保持文明的指导方针。
+职业精神是永恒的，其中大部分可以归结为尊重。Z 世代通常更敢于批评他们的工作场所(我认为这是一种积极的文化转变)，但仍然有保持文明的指导方针。
 
-例如，Frana提出了所谓的“ [”大辞职](https://hbr.org/2021/09/who-is-driving-the-great-resignation) ”，一些员工突然离开当前职位的趋势被称为“愤怒辞职”Frana说“即使你‘讨厌’你的老板或与你的雇主意见相左，也最好还是友好地离开——”弗兰纳接着说:“当你在找新工作时，尽你所能应对你的情况，集中精力制定一个 [职业搜索行动计划](https://streaklinks.com/A-QKjzH6epoNB9eAcwkz35nE/https%3A%2F%2Fwww.flexjobs.com%2Fblog%2Fpost%2Fusing-30-60-90-day-plans-in-your-job-search-v2%2F) 。走正道和 [尽可能表现得冷静优雅](https://streaklinks.com/A-QKjzDZGR2fXiMxQQKkmOma/https%3A%2F%2Fwww.flexjobs.com%2Fblog%2Fpost%2Fhow-to-quit-job-gracefully-webinar%2F) 真有可说的。”将你对上一份工作的不满转化为新工作的动力。
+例如，Frana 提出了所谓的“ [”大辞职](https://hbr.org/2021/09/who-is-driving-the-great-resignation) ”，一些员工突然离开当前职位的趋势被称为“愤怒辞职”Frana 说“即使你‘讨厌’你的老板或与你的雇主意见相左，也最好还是友好地离开——”弗兰纳接着说:“当你在找新工作时，尽你所能应对你的情况，集中精力制定一个 [职业搜索行动计划](https://streaklinks.com/A-QKjzH6epoNB9eAcwkz35nE/https%3A%2F%2Fwww.flexjobs.com%2Fblog%2Fpost%2Fusing-30-60-90-day-plans-in-your-job-search-v2%2F) 。走正道和 [尽可能表现得冷静优雅](https://streaklinks.com/A-QKjzDZGR2fXiMxQQKkmOma/https%3A%2F%2Fwww.flexjobs.com%2Fblog%2Fpost%2Fhow-to-quit-job-gracefully-webinar%2F) 真有可说的。”将你对上一份工作的不满转化为新工作的动力。
 
 最后，在过去的几年里，几代人一下子学会了很多远程工作的技巧和诀窍。如果你对新的远程工作的第一天感到紧张， [以下是你需要知道的关于展现最好一面的一切](https://lifehacker.com/everything-you-should-do-on-the-first-day-of-a-remote-j-1848666722) 。

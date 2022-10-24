@@ -1,6 +1,6 @@
 # 如何让园艺不毁了你的手
 
-> 原文:[https://life hacker . com/how-to-keep-to-keep-gardening-from-mind-your-hands-1848976829](https://lifehacker.com/how-to-keep-gardening-from-ruining-your-hands-1848976829)
+> 原文：<https://lifehacker.com/how-to-keep-gardening-from-ruining-your-hands-1848976829>
 
 当在你的花园或院子里工作时，你带着你会变得有点脏的期望进去——考虑到你可能正在和真正的泥土一起工作。你甚至可能有专门的鞋子或衣服在园艺时穿，你不担心会被泥土和污渍覆盖。但是你的手就不一样了。
 

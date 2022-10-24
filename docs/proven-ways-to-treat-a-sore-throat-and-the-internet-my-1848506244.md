@@ -1,6 +1,6 @@
 # 治疗喉咙痛的有效方法(以及实际上不起作用的互联网神话)
 
-> 原文:[https://life hacker . com/proven-ways-to-treat-a-care-throat-and-the-internet-my-1848506244](https://lifehacker.com/proven-ways-to-treat-a-sore-throat-and-the-internet-my-1848506244)
+> 原文：<https://lifehacker.com/proven-ways-to-treat-a-sore-throat-and-the-internet-my-1848506244>
 
 喉咙痛并不完全是世界末日，但当你有那种发痒、吞咽疼痛的感觉时，你肯定在寻找除了源源不断的止咳糖之外的缓解方法。你还能使用哪些有科学依据的家庭方法来缓解疼痛？
 
@@ -16,13 +16,13 @@ Watch
 
 以下是如何做到这一点:
 
-1.  将1/4至1/2茶匙食盐与8盎司温水混合。
+1.  将 1/4 至 1/2 茶匙食盐与 8 盎司温水混合。
 2.  搅拌直到盐溶解。
 3.  用它漱口几秒钟，然后吐出来。
 
 每天重复几次盐漱口以缓解症状。
 
-可选:加入1/4茶匙小苏打，可以 [进一步防止炎症](https://pubmed.ncbi.nlm.nih.gov/30409952/) 。
+可选:加入 1/4 茶匙小苏打，可以 [进一步防止炎症](https://pubmed.ncbi.nlm.nih.gov/30409952/) 。
 
 ## 蒸汽和湿度
 
@@ -72,7 +72,7 @@ Watch
 *   关节痛
 *   耳痛
 *   鲁莽的
-*   发烧高于101华氏度(38.3摄氏度)
+*   发烧高于 101 华氏度(38.3 摄氏度)
 *   唾液中有血或痰
 *   经常复发的喉咙痛
 *   你脖子上的肿块

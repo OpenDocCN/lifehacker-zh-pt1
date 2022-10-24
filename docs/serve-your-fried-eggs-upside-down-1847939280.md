@@ -1,6 +1,6 @@
 # 把你的煎蛋倒过来端上来
 
-> 原文:[https://life hacker . com/serve-your-煎蛋-倒立-1847939280](https://lifehacker.com/serve-your-fried-eggs-upside-down-1847939280)
+> 原文：<https://lifehacker.com/serve-your-fried-eggs-upside-down-1847939280>
 
 一个理想的煎蛋边缘和底部是脆的，蛋黄几乎没有凝固或松软，这取决于你的个人喜好。我喜欢用一些人认为是“T0”的太多黄油来煎我的通常，我会让黄油先变成棕色，然后加入鸡蛋。一旦边缘变脆，蛋白凝固，我会把鸡蛋放到一片吐司上。这对我来说是正常的早餐。
 

@@ -1,12 +1,12 @@
 # 如何对付职场恶霸
 
-> 原文:[https://life hacker . com/how-to-deal-a-work-bully-1847353554](https://lifehacker.com/how-to-deal-with-a-work-bully-1847353554)
+> 原文：<https://lifehacker.com/how-to-deal-with-a-work-bully-1847353554>
 
 你有职场恶霸吗？如果你做了，不要感到尴尬。不必要的刻薄和咄咄逼人的同龄人通常与高中联系在一起，但不要欺骗自己:外面也有残酷的成年人，你很容易就会和他们一起工作。
 
 Watch
 
-如果你有，肆无忌惮的人才和破坏HR的首席执行官兼首席兴奋官詹妮弗·麦克卢尔有一些建议。
+如果你有，肆无忌惮的人才和破坏 HR 的首席执行官兼首席兴奋官詹妮弗·麦克卢尔有一些建议。
 
 ## **你不是唯一一个与职场恶霸打交道的人**
 

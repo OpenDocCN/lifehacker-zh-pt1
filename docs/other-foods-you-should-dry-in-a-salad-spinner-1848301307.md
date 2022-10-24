@@ -1,6 +1,6 @@
 # 其他你应该在沙拉搅拌机中烘干的食物
 
-> 原文:[https://life hacker . com/other-foods-you-should-dry-in-a-a-salad-spinner-1848301307](https://lifehacker.com/other-foods-you-should-dry-in-a-salad-spinner-1848301307)
+> 原文：<https://lifehacker.com/other-foods-you-should-dry-in-a-salad-spinner-1848301307>
 
 离婚后我失去了我的沙拉搅拌器，几年来我一直拒绝更换它。我习惯为我的沙拉购买预洗的叶子，住在一个小工作室公寓里，所以一个庞大的专用于绿色蔬菜的干燥设备似乎不是必要的。
 

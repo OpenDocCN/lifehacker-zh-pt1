@@ -1,6 +1,6 @@
 # 如何保护你的皮肤微生物群，医生詹姆斯·汉布林
 
-> 原文:[https://life hacker . com/how-to-take-care-of-your-skin-microbiome-with-physicia-1845551403](https://lifehacker.com/how-to-take-care-of-your-skin-microbiome-with-physicia-1845551403)
+> 原文：<https://lifehacker.com/how-to-take-care-of-your-skin-microbiome-with-physicia-1845551403>
 
 本周，我们将在内科医生和《大西洋月刊》特约撰稿人詹姆斯·汉布林的帮助下，学习如何更好地护理我们的皮肤。收听詹姆斯向爱丽丝和乔丹解释为什么少洗实际上可能对你的皮肤更好，护肤品牌如何欺骗我们，以及围绕皮肤微生物群的新兴科学。
 
@@ -12,7 +12,7 @@ Watch
 
 T2】
 
-听听上面的升级或者在所有通常提供播客的地方找到我们，包括[Google Play](https://play.google.com/music/listen?u=0#/ps/Illldmn6f4jkwb32lslhae3laru)[Spotify](https://open.spotify.com/show/43qzAEOZ861D4aXaBXaRKj)[iHeartRadio](https://www.iheart.com/podcast/8-The-Upgrade-by-Lifehacker-28037794)和NPR一号。
+听听上面的升级或者在所有通常提供播客的地方找到我们，包括[Google Play](https://play.google.com/music/listen?u=0#/ps/Illldmn6f4jkwb32lslhae3laru)[Spotify](https://open.spotify.com/show/43qzAEOZ861D4aXaBXaRKj)[iHeartRadio](https://www.iheart.com/podcast/8-The-Upgrade-by-Lifehacker-28037794)和 NPR 一号。
 
 ## **本周集锦**
 
@@ -20,7 +20,7 @@ T2】
 
 皮肤微生物群:
 
-> 我们周围生活着数万亿的微生物。就像我们的内脏里有它们一样，它们不会在那里引起问题。你知道，如果冠状病毒在其中，是的，它肯定会引起问题，你想把它弄掉。但是大部分都是他们的正常。这是一个生态系统，本质上是我们的一部分。所以你能做的最好的事情就是希望优化它，让它对你有利...我们所知道的是，总是试图杀死它们并不是正确的方法....如果我们不每24小时进行一次精心制作的清洁仪式，我们就不会进化到排斥其他人。没错。所以看起来我们所做的是一堆真正的短期补救措施，而不是考虑如何从长远来看，创造一个对你有益的更健康的生物群落。
+> 我们周围生活着数万亿的微生物。就像我们的内脏里有它们一样，它们不会在那里引起问题。你知道，如果冠状病毒在其中，是的，它肯定会引起问题，你想把它弄掉。但是大部分都是他们的正常。这是一个生态系统，本质上是我们的一部分。所以你能做的最好的事情就是希望优化它，让它对你有利...我们所知道的是，总是试图杀死它们并不是正确的方法....如果我们不每 24 小时进行一次精心制作的清洁仪式，我们就不会进化到排斥其他人。没错。所以看起来我们所做的是一堆真正的短期补救措施，而不是考虑如何从长远来看，创造一个对你有益的更健康的生物群落。
 
 关于护肤品之间的差异(或缺乏差异):
 
@@ -32,7 +32,7 @@ T2】
 
 想了解更多关于皮肤健康的新科学，我们推荐听完整集！
 
-对未来的剧集有什么反馈或想法吗？想上节目吗？请拨打347-687-8109给我们留言，或者给upgrade@lifehacker.com发送语音备忘录。
+对未来的剧集有什么反馈或想法吗？想上节目吗？请拨打 347-687-8109 给我们留言，或者给 upgrade@lifehacker.com 发送语音备忘录。
 
 ### **一集文字记录**
 

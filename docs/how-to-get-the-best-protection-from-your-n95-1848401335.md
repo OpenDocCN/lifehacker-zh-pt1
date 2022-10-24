@@ -1,6 +1,6 @@
-# 如何获得N95的最佳保护
+# 如何获得 N95 的最佳保护
 
-> 原文:[https://life hacker . com/how-to-get-the-best-protection from-your-N95-1848401335](https://lifehacker.com/how-to-get-the-best-protection-from-your-n95-1848401335)
+> 原文：<https://lifehacker.com/how-to-get-the-best-protection-from-your-n95-1848401335>
 
 既然我们都知道 [布口罩再也不能用了](https://lifehacker.com/stop-wearing-cloth-masks-1848300414) ，希望你已经有了 [一些好的](https://lifehacker.com/how-to-buy-a-high-quality-mask-1846153740) —N95，KF94，或者类似的。但是如果不合适，或者戴错了，即使是最好的面具也不能保护你。因此，这里有一些从这些高质量的口罩中获得最佳保护的提示。
 

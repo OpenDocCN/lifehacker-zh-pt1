@@ -1,6 +1,6 @@
 # 根据亚里士多德的观点，如何选择最适合你的朋友
 
-> 原文:[https://life hacker . com/how-to-choose-the-best-kind of-you-accordin-1847193556](https://lifehacker.com/how-to-choose-the-best-kind-of-friend-for-you-accordin-1847193556)
+> 原文：<https://lifehacker.com/how-to-choose-the-best-kind-of-friend-for-you-accordin-1847193556>
 
 亚里斯多德对在现代仍然具有紧迫性的问题有着相当敏锐的洞察力:功利、快乐、和相互钦佩的朋友仍然存在，正如在一段关系中你可能遇到的各自类型的友谊一样。你可以通过现代心理学的镜头过滤亚里士多德的概念，更好地了解你的生活中有哪些类型的朋友，哪些最适合你实现关系的需求。
 
@@ -8,7 +8,7 @@ Watch
 
 ## 友谊有哪几种？
 
-一组德国心理学家在2013年对亚里士多德做了更好的研究，将各种类型的友谊分为四类 。学者Martina Miche、Oliver Huxhold和 Nan L. Stevens调查了近2000名年龄在40至85岁之间的成年人的关系，发现有四种不同的模式来定义成年人的友谊。
+一组德国心理学家在 2013 年对亚里士多德做了更好的研究，将各种类型的友谊分为四类 。学者 Martina Miche、Oliver Huxhold 和 Nan L. Stevens 调查了近 2000 名年龄在 40 至 85 岁之间的成年人的关系，发现有四种不同的模式来定义成年人的友谊。
 
 这些友谊的形式是:
 

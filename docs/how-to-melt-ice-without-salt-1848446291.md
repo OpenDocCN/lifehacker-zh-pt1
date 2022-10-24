@@ -1,6 +1,6 @@
 # 无盐如何融冰
 
-> 原文:[https://life hacker . com/how-to-融冰无盐-1848446291](https://lifehacker.com/how-to-melt-ice-without-salt-1848446291)
+> 原文：<https://lifehacker.com/how-to-melt-ice-without-salt-1848446291>
 
 任何一场冬季暴风雪过后，你都必须从被窝里爬出来，走到外面去打理你的人行道和/或车道。清除积雪是工作的一部分，但一旦白天太阳出来时其余的积雪开始融化——然后在晚上气温下降时再次冻结——你会发现自己有一些非常光滑的人行道。
 
@@ -10,7 +10,7 @@ Watch
 
 ## **外用酒精、洗洁精和热水**
 
-没有冰融化？没问题。这个 [DIY解决方案](https://www.rd.com/article/melt-ice-without-salt/) 不仅简单有效，而且是用你家里可能已经有的东西做的。以下是要做的事情:
+没有冰融化？没问题。这个 [DIY 解决方案](https://www.rd.com/article/melt-ice-without-salt/) 不仅简单有效，而且是用你家里可能已经有的东西做的。以下是要做的事情:
 
 1.  在桶里装满半加仑热水。
 2.  加入大约六滴洗碗皂和一杯外用酒精。
@@ -19,7 +19,7 @@ Watch
 
 ## 咖啡渣
 
-我们大力支持将咖啡渣[而不是t](https://lifehacker.com/use-coffee-grounds-to-eliminate-household-odors-1845653775) [废弃](https://lifehacker.com/give-ice-cream-a-caffeinated-kick-with-coffee-grounds-1844232307) ，这是另一个例子。那是因为咖啡渣含有氮，氮有助于降低冰的熔点。它们还有第二个功能:因为咖啡渣是深色的，它们比浅色的材料——如雪、冰和岩盐——吸收更多的阳光，这可能有助于加速融化过程。
+我们大力支持将咖啡渣[而不是 t](https://lifehacker.com/use-coffee-grounds-to-eliminate-household-odors-1845653775) [废弃](https://lifehacker.com/give-ice-cream-a-caffeinated-kick-with-coffee-grounds-1844232307) ，这是另一个例子。那是因为咖啡渣含有氮，氮有助于降低冰的熔点。它们还有第二个功能:因为咖啡渣是深色的，它们比浅色的材料——如雪、冰和岩盐——吸收更多的阳光，这可能有助于加速融化过程。
 
 ## 肥料
 

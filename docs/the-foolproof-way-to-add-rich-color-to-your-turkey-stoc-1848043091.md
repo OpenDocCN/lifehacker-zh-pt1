@@ -1,6 +1,6 @@
 # 给你的火鸡高汤添加丰富颜色的简单方法
 
-> 原文:[https://life hacker . com/the-safety-way-to-add-rich-color-to-your-turkey-stoc-1848043091](https://lifehacker.com/the-foolproof-way-to-add-rich-color-to-your-turkey-stoc-1848043091)
+> 原文：<https://lifehacker.com/the-foolproof-way-to-add-rich-color-to-your-turkey-stoc-1848043091>
 
 火鸡肉汁应该非常浓郁和美味，刚好够厚到覆盖一片火鸡，并且是棕色的。颜色并不总是表明味道，但白肉上的白色肉汁有问题。我喜欢我的肉汁有对比，特别是当作为一顿备受瞩目的饭的一部分时——，没有什么能像洋葱皮一样带来棕色。
 

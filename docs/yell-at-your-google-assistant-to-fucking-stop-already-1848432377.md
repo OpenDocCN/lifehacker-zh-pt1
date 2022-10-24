@@ -1,14 +1,14 @@
 # 对你的谷歌助手大喊，让他妈的“停止”
 
-> 原文:[https://life hacker . com/yell-at-your-Google-assistant-to-some-stop-already-1848432377](https://lifehacker.com/yell-at-your-google-assistant-to-fucking-stop-already-1848432377)
+> 原文：<https://lifehacker.com/yell-at-your-google-assistant-to-fucking-stop-already-1848432377>
 
-谷歌助手很棒，但有时也很烦人...就像当你想快速了解一些事情，但助理*坚持*详细阐述。其他时候，一些事情可能会错误地触发你的谷歌助手，迫使你做出你从未在第一时间要求的回应。无论在什么情况下，你都不想浪费时间在“嘿谷歌”或“好的谷歌”上你想告诉谷歌STFU。
+谷歌助手很棒，但有时也很烦人...就像当你想快速了解一些事情，但助理*坚持*详细阐述。其他时候，一些事情可能会错误地触发你的谷歌助手，迫使你做出你从未在第一时间要求的回应。无论在什么情况下，你都不想浪费时间在“嘿谷歌”或“好的谷歌”上你想告诉谷歌 STFU。
 
 Watch
 
-[我们之前在谷歌](https://www.xda-developers.com/shut-up-google-assistant-stop/) 上见过这种能力；该公司在2019年推出了一款更快的助手，随着Pixel 4的推出，我们可以通过一个“停止”来结束闹钟和计时器。这对谷歌助手来说是一个方便的进化，让与它的交互感觉更自然一些。尽管如此，到目前为止，闹钟和计时器是“停止”命令唯一起作用的时间。
+[我们之前在谷歌](https://www.xda-developers.com/shut-up-google-assistant-stop/) 上见过这种能力；该公司在 2019 年推出了一款更快的助手，随着 Pixel 4 的推出，我们可以通过一个“停止”来结束闹钟和计时器。这对谷歌助手来说是一个方便的进化，让与它的交互感觉更自然一些。尽管如此，到目前为止，闹钟和计时器是“停止”命令唯一起作用的时间。
 
-最后，谷歌最近更新了智能扬声器和显示屏，允许用户只需说“停止”就可以结束响应。没有必要在命令前加上“OK Google”或“嘿Google”如果你想让助理闭嘴，你可以直说。
+最后，谷歌最近更新了智能扬声器和显示屏，允许用户只需说“停止”就可以结束响应。没有必要在命令前加上“OK Google”或“嘿 Google”如果你想让助理闭嘴，你可以直说。
 
  [https://lifehacker.com/embed/inset/iframe?id=twitter-1486002169404874762&autosize=1](https://lifehacker.com/embed/inset/iframe?id=twitter-1486002169404874762&autosize=1) 
 
@@ -16,6 +16,6 @@ Watch
 
 然而，仅仅因为“停止”是你需要说的全部，并不意味着它必须是你说的唯一的事情。只要谷歌助手听到那个词，它就会闭嘴。所以，如果你感觉*激发了*，你可以对着你的智能扬声器大喊“*他妈的停下*”，或者别的什么。只要你强调“停止”，它就会停止说话。
 
-当然，当人工智能启示录开始时，他们会先来找你，我可能会在一个完全不同的环境中要求他们“他妈的停下来”。但是，在那之前，对着你的Nest Mini喊脏话来完成你的命令是非常有趣的。
+当然，当人工智能启示录开始时，他们会先来找你，我可能会在一个完全不同的环境中要求他们“他妈的停下来”。但是，在那之前，对着你的 Nest Mini 喊脏话来完成你的命令是非常有趣的。
 
-【 [XDA开发者](https://www.xda-developers.com/shut-up-google-assistant-stop/)
+【 [XDA 开发者](https://www.xda-developers.com/shut-up-google-assistant-stop/)

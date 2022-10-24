@@ -1,6 +1,6 @@
 # 今年复活节，不要再吃鸡蛋了
 
-> 原文:[https://life hacker . com/un-devil-your-eggs-this-Easter-1848778518](https://lifehacker.com/un-devil-your-eggs-this-easter-1848778518)
+> 原文：<https://lifehacker.com/un-devil-your-eggs-this-easter-1848778518>
 
 如果有一件事我不能忍受，那就是对魔鬼蛋的诽谤。它们是完美的掌上开胃菜。俗气但不花哨，小巧但实用，而且几乎可以无限定制。它们味道也很好。你可以用蛋黄酱、芥末和辣椒粉使它们变得简单，或者用熏肉、腌制蔬菜甚至鱼子酱来装饰它们。如果你真的想尝尝这种媚俗的东西，你可以用甜菜腌制鸡蛋，让它们呈现深红宝石色。
 
@@ -12,7 +12,7 @@ Watch
 
 未加调料的鸡蛋——或者解构后的加调料的鸡蛋——拥有加调料鸡蛋的所有美味成分，只是它们没有全部捣碎。作为主人，你的好处是它们很容易制作和供应，因为你的客人会组装。(未加调料的鸡蛋太容易扔在一起了，我经常把它们当早餐吃。)这使得它们非常适合复活节，这一天你可能会发现自己被其他事情分心和忙碌。(未加调料的鸡蛋也更尊重耶稣。这毕竟是他的一天。)
 
-取而代之的是捣碎，蛋黄保持完整，呈白色。然后一半涂上你选择的调味品——Kewpie蛋黄酱、 [、鸭油蛋黄酱](https://lifehacker.com/why-duck-fat-mayo-is-the-mayo-you-should-be-making-1821972304) 、全麦芥末、调制好的辣根、辣酱、 [黄油](https://lifehacker.com/i-am-begging-you-to-butter-your-hard-boiled-eggs-1841156203) 、辣椒酥——并加上你能想到的任何配料。腌菜、萝卜、切成两半的樱桃番茄、鱼子酱、新鲜香草、薯片、培根片、烤芦笋、细香葱、小腊鱼、熏鲑鱼、羊乳酪、[frico bits](https://lifehacker.com/you-should-fry-stuff-in-your-cheese-crisps-1847712396)——把它们都放在桌子上，放上盐、胡椒和辣椒粉，让客人们构想他们完美的鸡蛋口味。
+取而代之的是捣碎，蛋黄保持完整，呈白色。然后一半涂上你选择的调味品——Kewpie 蛋黄酱、 [、鸭油蛋黄酱](https://lifehacker.com/why-duck-fat-mayo-is-the-mayo-you-should-be-making-1821972304) 、全麦芥末、调制好的辣根、辣酱、 [黄油](https://lifehacker.com/i-am-begging-you-to-butter-your-hard-boiled-eggs-1841156203) 、辣椒酥——并加上你能想到的任何配料。腌菜、萝卜、切成两半的樱桃番茄、鱼子酱、新鲜香草、薯片、培根片、烤芦笋、细香葱、小腊鱼、熏鲑鱼、羊乳酪、[frico bits](https://lifehacker.com/you-should-fry-stuff-in-your-cheese-crisps-1847712396)——把它们都放在桌子上，放上盐、胡椒和辣椒粉，让客人们构想他们完美的鸡蛋口味。
 
 我不会告诉你如何做你的未煮熟的鸡蛋，因为试验新的组合是乐趣的一半，但是我确实有一些想法、建议和冲动
 

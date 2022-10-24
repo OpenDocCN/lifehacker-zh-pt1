@@ -1,8 +1,8 @@
 # 如何赢得一场房屋竞价战
 
-> 原文:[https://life hacker . com/how-to-win-a-home-bidding-war-1848235823](https://lifehacker.com/how-to-win-a-home-bidding-war-1848235823)
+> 原文：<https://lifehacker.com/how-to-win-a-home-bidding-war-1848235823>
 
-除非你已经在岩石下生活了18个月，否则你知道房地产市场是疯狂的。价格失控，需求失控，房产 [卖得比疫情开始前](https://www.nar.realtor/blogs/economists-outlook/buyer-competition-intensifies-4-offers-for-every-home-sold-in-february-2021) 更快，报价更多。如果你最近考虑过买房，或者尝试过，你可能已经感受到了这场竞争的压力。
+除非你已经在岩石下生活了 18 个月，否则你知道房地产市场是疯狂的。价格失控，需求失控，房产 [卖得比疫情开始前](https://www.nar.realtor/blogs/economists-outlook/buyer-competition-intensifies-4-offers-for-every-home-sold-in-february-2021) 更快，报价更多。如果你最近考虑过买房，或者尝试过，你可能已经感受到了这场竞争的压力。
 
 Watch
 
@@ -14,7 +14,7 @@ Watch
 
 不幸的是，在房地产市场上，金钱万能。如果你达到或超过要价和其他所有报价，你的报价将具有竞争力。同样，你能拿出的现金相对于融资越多，你的头寸就越有吸引力，因为卖家不必担心你的融资失败。
 
-另一个金融杠杆是升级条款。亚利桑那州 [Gluch集团](https://gluchgroup.com/) 的老板约翰·格鲁奇解释说:“如果有人出价超过你出价的60万美元，你将会以5000美元的优势击败第二高的人。你这样做，就不会被1000美元打败。”
+另一个金融杠杆是升级条款。亚利桑那州 [Gluch 集团](https://gluchgroup.com/) 的老板约翰·格鲁奇解释说:“如果有人出价超过你出价的 60 万美元，你将会以 5000 美元的优势击败第二高的人。你这样做，就不会被 1000 美元打败。”
 
 然而，一些房地产经纪人表示，如果有多个报价，卖家可能很难解析升级条款，所以最好从一开始就提出你的最佳报价。
 
@@ -22,7 +22,7 @@ Watch
 
 如果你的出价较低，但让卖家的生活更轻松，你可能会赢得那些愿意花更多钱的人。例如，同意卖家期望的截止日期，并允许他们在家里多呆一会儿，直到他们准备搬家，这可能比额外的现金更有价值。
 
-伊利诺伊州Keller Williams Realty Infinity风筝团队的所有者Amy Kite说:“人们不想要搬家两次的麻烦、费用或麻烦。”。"总是让你的代理询问对卖家来说什么是最重要的."
+伊利诺伊州 Keller Williams Realty Infinity 风筝团队的所有者 Amy Kite 说:“人们不想要搬家两次的麻烦、费用或麻烦。”。"总是让你的代理询问对卖家来说什么是最重要的."
 
 ## 放弃意外事件
 

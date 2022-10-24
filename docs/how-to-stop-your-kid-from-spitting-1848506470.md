@@ -1,6 +1,6 @@
 # 如何阻止你的孩子随地吐痰
 
-> 原文:[https://life hacker . com/how-to-stop-your-kid-from-spitting-1848506470](https://lifehacker.com/how-to-stop-your-kid-from-spitting-1848506470)
+> 原文：<https://lifehacker.com/how-to-stop-your-kid-from-spitting-1848506470>
 
 你有学龄前儿童或蹒跚学步的孩子吗？当你假装撞到墙上，说“blankely”而不是“T1”blanket，并偶尔向你的方向喷射他们自己的唾液时，他们会蹒跚学步并做出无法控制的可爱行为吗？哦，等等，最后一个其实并不可爱。
 

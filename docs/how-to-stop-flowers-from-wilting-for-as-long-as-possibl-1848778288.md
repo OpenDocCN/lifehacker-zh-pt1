@@ -1,8 +1,8 @@
 # 如何尽可能长时间地阻止花朵枯萎
 
-> 原文:[https://life hacker . com/how-to-stop-flowers-from-willing-in-possible-1848778288](https://lifehacker.com/how-to-stop-flowers-from-wilting-for-as-long-as-possibl-1848778288)
+> 原文：<https://lifehacker.com/how-to-stop-flowers-from-wilting-for-as-long-as-possibl-1848778288>
 
-收到一束花总是让我感到温暖。这对我来说是经常发生的事，因为我有很多很多的追求者。同时，养花也给我带来很多压力。毕竟一束花，很像爱情，转瞬即逝。枯萎是不可避免的——但不一定是立即的。如果护理得当，你的花束可以在 [前后持续7到12天](https://www.goodhousekeeping.com/uk/house-and-home/gardening-advice/a561997/how-to-help-cut-flowers-last-longer/) ，这取决于花的种类。
+收到一束花总是让我感到温暖。这对我来说是经常发生的事，因为我有很多很多的追求者。同时，养花也给我带来很多压力。毕竟一束花，很像爱情，转瞬即逝。枯萎是不可避免的——但不一定是立即的。如果护理得当，你的花束可以在 [前后持续 7 到 12 天](https://www.goodhousekeeping.com/uk/house-and-home/gardening-advice/a561997/how-to-help-cut-flowers-last-longer/) ，这取决于花的种类。
 
 Watch
 
@@ -20,7 +20,7 @@ Watch
 
 当你从花店回家时，尽量不要把花束放在阳光下或靠近任何加热器通风口太久。一旦你回到家，当你找到一个花瓶时，可以把花束放在冰箱里——只要确保你把它们放在远离风扇或通风口的地方，冷空气就会进入你的冰箱。
 
-同样，你花瓶里的水应该是微温的。 [据Teleflora博客](https://www.teleflora.com/blog/how-to-revive-wilting-in-floral-bouquets/#:~:text=Fresh%2Dcut%20flowers%20do%20not%20like%20extreme%20temperatures.&text=Keep%20the%20water%20lukewarm%20%E2%80%93%20you,flowers%20is%20around%2034%20degrees.) 报道，大多数花卉吸收温水的效率高于吸收冷水的效率(e 除外，包括球根花卉和紫丁香)。
+同样，你花瓶里的水应该是微温的。 [据 Teleflora 博客](https://www.teleflora.com/blog/how-to-revive-wilting-in-floral-bouquets/#:~:text=Fresh%2Dcut%20flowers%20do%20not%20like%20extreme%20temperatures.&text=Keep%20the%20water%20lukewarm%20%E2%80%93%20you,flowers%20is%20around%2034%20degrees.) 报道，大多数花卉吸收温水的效率高于吸收冷水的效率(e 除外，包括球根花卉和紫丁香)。
 
 把你的花瓶放在阴凉的地方。不要把花瓶放在阳光直射的地方，也不要放在暖气或空调的正前方。
 
@@ -28,8 +28,8 @@ Watch
 
 你修剪花茎的方式可以让它成功，也可以让它早逝。以下是理想花卉切割的要素:
 
-*   从每个茎上切下大约1到1.5英寸。
-*   尝试以45度角切割，以最大限度地增加茎干可以吸收的水量(根据皮埃蒙特园艺大师[)。](https://piedmontmastergardeners.org/article/how-to-keep-cut-flowers-fresh/)
+*   从每个茎上切下大约 1 到 1.5 英寸。
+*   尝试以 45 度角切割，以最大限度地增加茎干可以吸收的水量(根据皮埃蒙特园艺大师[)。](https://piedmontmastergardeners.org/article/how-to-keep-cut-flowers-fresh/)
 *   总是使用锋利的刀或剪刀来获得整齐的切口。
 *   每两到三天，或者每当你换水的时候，重新修剪茎干。
 *   如果你在自家花园里剪花，在一天中凉爽的时候剪，比如清晨或傍晚。
@@ -46,7 +46,7 @@ Watch
 
 ## 喂你的花
 
-如果你从花店买花，它们应该带有专门为切花配制的商业防腐剂。花卉食品含有营养物质和pH值平衡器，有助于您的花束尽可能长时间保存。如果你还没有购买鲜花食品包，这里有一个来自 [food52](https://food52.com/blog/22901-easy-diy-flowers-food-to-make-fresh-cut-bouquets-last-longer) 的DIY食谱:混合1夸脱水、1茶匙漂白剂、1茶匙醋和1汤匙糖。这种混合物在你的花束的花瓶寿命的早期最有帮助。
+如果你从花店买花，它们应该带有专门为切花配制的商业防腐剂。花卉食品含有营养物质和 pH 值平衡器，有助于您的花束尽可能长时间保存。如果你还没有购买鲜花食品包，这里有一个来自 [food52](https://food52.com/blog/22901-easy-diy-flowers-food-to-make-fresh-cut-bouquets-last-longer) 的 DIY 食谱:混合 1 夸脱水、1 茶匙漂白剂、1 茶匙醋和 1 汤匙糖。这种混合物在你的花束的花瓶寿命的早期最有帮助。
 
 ## 最后:你的香蕉会让你的花束老化得更快
 

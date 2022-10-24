@@ -1,8 +1,8 @@
 # 我如何和我讨厌的人分享空间？
 
-> 原文:[https://life hacker . com/how-do-I-share-space-with-someone-I-hate-1847165152](https://lifehacker.com/how-do-i-share-space-with-someone-i-hate-1847165152)
+> 原文：<https://lifehacker.com/how-do-i-share-space-with-someone-i-hate-1847165152>
 
-并非所有的建议都需要专业。有时候，你的问题值得一个除了一台电脑和一个良心什么都没有的家伙坦诚一点。你很幸运，我就是那个人。欢迎回到严厉的爱。**(如果你想征求我的意见，发邮件到sblum@lifehacker.com找我)**
+并非所有的建议都需要专业。有时候，你的问题值得一个除了一台电脑和一个良心什么都没有的家伙坦诚一点。你很幸运，我就是那个人。欢迎回到严厉的爱。**(如果你想征求我的意见，发邮件到 sblum@lifehacker.com 找我)**
 
 Watch
 

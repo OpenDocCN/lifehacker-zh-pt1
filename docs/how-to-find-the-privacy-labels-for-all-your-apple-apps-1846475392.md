@@ -1,14 +1,14 @@
 # 如何找到所有苹果应用的隐私标签
 
-> 原文:[https://life hacker . com/how-to-find-the-privacy-labels-for-all-your-apple-apps-1846475392](https://lifehacker.com/how-to-find-the-privacy-labels-for-all-your-apple-apps-1846475392)
+> 原文：<https://lifehacker.com/how-to-find-the-privacy-labels-for-all-your-apple-apps-1846475392>
 
-苹果现在强迫公司使用2020年12月推出的新隐私标签，如果他们打算继续在App Store上提供更新版本的应用程序。这也包括苹果自己的应用程序。
+苹果现在强迫公司使用 2020 年 12 月推出的新隐私标签，如果他们打算继续在 App Store 上提供更新版本的应用程序。这也包括苹果自己的应用程序。
 
 Watch
 
 如果你想检查苹果自己的数据收集政策，欢迎你浏览它的 [巨大的隐私概述](https://www.apple.com/privacy/) 。我如果你只是想了解苹果几个应用的数据收集政策，那么有一种更简单的方式来查看苹果自己应用的隐私标签，而不是去应用商店一个一个地查找每一个。
 
-相反，访问苹果隐私页面的“ [标签](https://www.apple.com/privacy/labels/) ”部分，你会看到苹果生产的所有东西在iOS、iPadOS、macOS、tvOS或watchOS上运行的每一个隐私标签。是的，这是一个相当庞大的列表——总共103条。(我数过了。)
+相反，访问苹果隐私页面的“ [标签](https://www.apple.com/privacy/labels/) ”部分，你会看到苹果生产的所有东西在 iOS、iPadOS、macOS、tvOS 或 watchOS 上运行的每一个隐私标签。是的，这是一个相当庞大的列表——总共 103 条。(我数过了。)
 
 在每个应用程序中，你会得到两个框中的一个:一个表示苹果正在从你那里收集数据*，但不会将其与你相关联，另一个表示苹果正在收集可以追溯到你的数据。*
 

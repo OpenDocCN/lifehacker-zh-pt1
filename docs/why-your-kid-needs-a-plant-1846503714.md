@@ -1,16 +1,16 @@
 # 为什么你的孩子需要一株植物
 
-> 原文:[https://life hacker . com/why-your-kid-need-a-plant-1846503714](https://lifehacker.com/why-your-kid-needs-a-plant-1846503714)
+> 原文：<https://lifehacker.com/why-your-kid-needs-a-plant-1846503714>
 
 如果疫情 期间的 [狗收养高峰有任何迹象的话，我们都受益于有东西可养——也许现在比以往任何时候都更受益。让他们负责照顾另一个生物是教育孩子责任感和同理心的好方法(也就是说，在你的帮助和指导下让它活下去)。但是如果欢迎一个新的毛茸茸的家庭成员进入你的家还不太可能，我们有另一种方法可以给我们的孩子一个养育的经历——用一种“宠物”植物。](https://www.washingtonpost.com/dc-md-va/2021/01/06/animal-shelters-coronavirus-pandemic/)
 
 Watch
 
-植物已经被证明能给它们的看护者带来大量的健康益处 :它们能减轻压力，增加幸福感，改善空气质量，甚至能让你更有效率。(另外，他们不会尿得满地都是。)这就是为什么宾夕法尼亚州东部的博主兼植物疗法倡导者维罗妮卡·摩尔(Veronica Moore 在她当地的学校带头发起了一个项目，将300种植物带给幼儿园到八年级的学生和老师。
+植物已经被证明能给它们的看护者带来大量的健康益处 :它们能减轻压力，增加幸福感，改善空气质量，甚至能让你更有效率。(另外，他们不会尿得满地都是。)这就是为什么宾夕法尼亚州东部的博主兼植物疗法倡导者维罗妮卡·摩尔(Veronica Moore 在她当地的学校带头发起了一个项目，将 300 种植物带给幼儿园到八年级的学生和老师。
 
 正如莫莉·比林斯基为 [*写的那样，早晨叫*](https://www.mcall.com/news/education/mc-nws-swain-school-plant-therapy-20210227-dro2zqj5a5bnvowvhgsnyx2p4u-story.html) *:*
 
-> 她解释说，植物对摩尔来说意义重大，在她的姐姐于2018年意外去世后，她将植物与传统疗法一起用作治疗工具。在新冠肺炎疫情造成的停产期间，她开始从当地卖家那里购买植物，并注意到4岁的女儿亨特也对它们非常感兴趣。
+> 她解释说，植物对摩尔来说意义重大，在她的姐姐于 2018 年意外去世后，她将植物与传统疗法一起用作治疗工具。在新冠肺炎疫情造成的停产期间，她开始从当地卖家那里购买植物，并注意到 4 岁的女儿亨特也对它们非常感兴趣。
 > 
 > “她很难见到她的朋友，不能去学校，真的有点过渡到‘我该做什么？’”摩尔说这对她来说也是一个艰难的转变。所以我们一起照顾我们的植物。"
 
@@ -32,4 +32,4 @@ Watch
 > 
 > [**捕蝇草**](https://www.gardeningknowhow.com/houseplants/venus-fly-trap/venus-fly-trap-care.htm) :食肉植物无论多大都很酷。稍微难照顾一点，这些对大一点的孩子比较好。
 
-与此同时，如果你想在Instagram上添加一点舒缓的植物疗法——我建议你这么做——摩尔在[@ brownskinplantmama](https://www.instagram.com/brownskinplantmama/)有一个专门介绍所有植物的账户。我也关注了@ [blackplantchick的](https://www.instagram.com/blackplantchick/) 账户几个月，它很可爱也很好，她的播客[blackplantchick Pod](https://www.blackplantchick.com/podcast-1)也是如此，如果你想了解更多关于植物护理的知识。
+与此同时，如果你想在 Instagram 上添加一点舒缓的植物疗法——我建议你这么做——摩尔在[@ brownskinplantmama](https://www.instagram.com/brownskinplantmama/)有一个专门介绍所有植物的账户。我也关注了@ [blackplantchick 的](https://www.instagram.com/blackplantchick/) 账户几个月，它很可爱也很好，她的播客[blackplantchick Pod](https://www.blackplantchick.com/podcast-1)也是如此，如果你想了解更多关于植物护理的知识。

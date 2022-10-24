@@ -1,6 +1,6 @@
 # 维生素大部分还是没用，即使它们是个性化的
 
-> 原文:[https://life hacker . com/vitamins-is-more-most-used-based-used-if-they-perso-1845173073](https://lifehacker.com/vitamins-are-still-mostly-useless-even-if-theyre-perso-1845173073)
+> 原文：<https://lifehacker.com/vitamins-are-still-mostly-useless-even-if-theyre-perso-1845173073>
 
 我所看到的对为什么“个性化”产品在最近几年蓬勃发展的最好解释是，我们喜欢听关于我们自己的故事。我个人认为占星术是愚蠢的，但我仍然会浏览一堆人马座迷因，直到我看到一个告诉我一些我想听的东西。毫不奇怪，这一趋势已经延伸到维生素。
 
@@ -8,7 +8,7 @@ Watch
 
 [正如我们在个性化蛋白粉](https://vitals.lifehacker.com/stop-filling-out-questionnaires-for-personalized-produc-1835100388) 中提到的，个性化的整个行当就是收集数据，向你出售一种你可以在其他任何地方买到的更便宜的基本产品。但是为了让你参加测试并为产品支付额外费用，公司必须让你相信这是专门为你设计的*。一家维生素公司过去常常发布广告，强调维生素通道是多么令人困惑，好像我们都只是在努力做一些基本的健康工作，需要有人来帮助我们解决我们需要哪些维生素这一令人困惑的难题。*
 
-*吸引力是真实的，但潜在的想法是扯淡。维生素补充剂是 [介于大多无用和完全无用](https://vitals.lifehacker.com/which-vitamins-do-you-really-need-1826433744) 之间。如果你定期吃水果、蔬菜和动物产品，几乎可以肯定你已经吃了所有的东西。也有一些例外，它们并不完全是秘密:纯素食者通常需要补充B12。怀孕或试图怀孕的人应该获得额外的叶酸，通常是在杂货店买一瓶产前维生素。(有几个营养素专家不同意； [也许我们都需要补充维生素D，或者也许我们很好](https://ods.od.nih.gov/factsheets/VitaminD-Consumer) 。)*
+*吸引力是真实的，但潜在的想法是扯淡。维生素补充剂是 [介于大多无用和完全无用](https://vitals.lifehacker.com/which-vitamins-do-you-really-need-1826433744) 之间。如果你定期吃水果、蔬菜和动物产品，几乎可以肯定你已经吃了所有的东西。也有一些例外，它们并不完全是秘密:纯素食者通常需要补充 B12。怀孕或试图怀孕的人应该获得额外的叶酸，通常是在杂货店买一瓶产前维生素。(有几个营养素专家不同意； [也许我们都需要补充维生素 D，或者也许我们很好](https://ods.od.nih.gov/factsheets/VitaminD-Consumer) 。)*
 
 *正如 [美国国立卫生研究院在他们关于膳食补充剂的页面](https://www.nccih.nih.gov/health/vitamins-and-minerals) 中指出的，几乎每个人都可以从食物中获得必要的维生素，你的时间和金钱花在改善饮食上比买药更好，即使这是一个巧妙的品牌算法为你挑选药片。记住，他们只会给你一些你本来可以在商店买的东西，基于一些非常基本的事实，比如你的年龄和性别。*
 

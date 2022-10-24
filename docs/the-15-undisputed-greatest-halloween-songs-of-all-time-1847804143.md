@@ -1,10 +1,10 @@
-# 有史以来最棒的15首万圣节歌曲
+# 有史以来最棒的 15 首万圣节歌曲
 
-> 原文:[https://life hacker . com/the-15-无可争议的-最伟大的-万圣节-有史以来的歌曲-1847804143](https://lifehacker.com/the-15-undisputed-greatest-halloween-songs-of-all-time-1847804143)
+> 原文：<https://lifehacker.com/the-15-undisputed-greatest-halloween-songs-of-all-time-1847804143>
 
 你可能不知道，除了食物和饮料，我还有其他兴趣，其中之一就是万圣节。糖果？服装？假血？不喜欢什么？我非常喜欢万圣节，我的朋友们都叫我“万圣节女王”这是最酷的节日，它值得拥有最酷的音乐。
 
-这就是为什么我——万圣节女王——为你策划了一个超级恐怖的列表，当你在墓地里走来走去的时候听听。它为每个人都准备了一些小东西，无论你是经典的吸血鬼、狼人或者外星爱好者。因此，在这里，他们没有特定的顺序:15个最好的幽灵季节歌曲，根据我，万圣节女王。
+这就是为什么我——万圣节女王——为你策划了一个超级恐怖的列表，当你在墓地里走来走去的时候听听。它为每个人都准备了一些小东西，无论你是经典的吸血鬼、狼人或者外星爱好者。因此，在这里，他们没有特定的顺序:15 个最好的幽灵季节歌曲，根据我，万圣节女王。
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-ggvKbYWzZTI&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-ggvKbYWzZTI&start=0) 
 

@@ -1,10 +1,10 @@
 # 如何通过建议的力量改变你的生活，科学记者埃里克·万斯
 
-> 原文:[https://life hacker . com/how-to-change-your-life-through-the-power of-the-suggest-1846035219](https://lifehacker.com/how-to-change-your-life-through-the-power-of-suggestion-1846035219)
+> 原文：<https://lifehacker.com/how-to-change-your-life-through-the-power-of-suggestion-1846035219>
 
 本周，在科学记者埃里克·万斯的帮助下，我们将学习如何利用催眠和安慰剂效应。例如，你知道吗，即使你*知道*你正在服用安慰剂，你仍然可以受益于安慰剂的使用？
 
-请听Erik解释这些心理现象背后的迷人科学原理——以及它们在对抗疼痛、抑郁、焦虑、等方面的潜在用途。
+请听 Erik 解释这些心理现象背后的迷人科学原理——以及它们在对抗疼痛、抑郁、焦虑、等方面的潜在用途。
 
 Watch
 
@@ -14,7 +14,7 @@ Watch
 
 T2】
 
-听听上面的升级或者在所有通常提供播客的地方找到我们，包括[Google Play](https://play.google.com/music/listen?u=0#/ps/Illldmn6f4jkwb32lslhae3laru)[Spotify](https://open.spotify.com/show/43qzAEOZ861D4aXaBXaRKj)[iHeartRadio](https://www.iheart.com/podcast/8-The-Upgrade-by-Lifehacker-28037794)和NPR一号。
+听听上面的升级或者在所有通常提供播客的地方找到我们，包括[Google Play](https://play.google.com/music/listen?u=0#/ps/Illldmn6f4jkwb32lslhae3laru)[Spotify](https://open.spotify.com/show/43qzAEOZ861D4aXaBXaRKj)[iHeartRadio](https://www.iheart.com/podcast/8-The-Upgrade-by-Lifehacker-28037794)和 NPR 一号。
 
 ## **本周集锦**
 
@@ -26,11 +26,11 @@ T2】
 
 关于为什么催眠研究应该得到更多的关注:
 
-> 在50年代，有一个人有这种病，叫做痤疮...正是这种污垢在你的皮肤上形成了看起来像鱼鳞一样的东西。他们真的，真的很不舒服，他们流血，他们很可怕。艾伯特·梅森医生实际上用催眠术几乎完全治愈了一个孩子。就像皮肤，就像它像蛇一样脱落。我们不知道这到底是怎么发生的，但有人应该研究一下。我们应该知道，就像有人应该致力于它。这是很难做到的，因为它的文化内涵。真的很可惜。
+> 在 50 年代，有一个人有这种病，叫做痤疮...正是这种污垢在你的皮肤上形成了看起来像鱼鳞一样的东西。他们真的，真的很不舒服，他们流血，他们很可怕。艾伯特·梅森医生实际上用催眠术几乎完全治愈了一个孩子。就像皮肤，就像它像蛇一样脱落。我们不知道这到底是怎么发生的，但有人应该研究一下。我们应该知道，就像有人应该致力于它。这是很难做到的，因为它的文化内涵。真的很可惜。
 
 要了解更多关于催眠和安慰剂效应的潜在用途，请听完整的一集。
 
-对未来的剧集有什么反馈或想法吗？想上节目吗？请拨打347-687-8109给我们留言，或者给upgrade@lifehacker.com发送语音备忘录。
+对未来的剧集有什么反馈或想法吗？想上节目吗？请拨打 347-687-8109 给我们留言，或者给 upgrade@lifehacker.com 发送语音备忘录。
 
 ### **一集文字记录**
 

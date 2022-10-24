@@ -1,18 +1,18 @@
 # 关于“健身”课程，请三思
 
-> 原文:[https://life hacker . com/think-twice-about-twork-out-classes-1846187203](https://lifehacker.com/think-twice-about-twerk-out-classes-1846187203)
+> 原文：<https://lifehacker.com/think-twice-about-twerk-out-classes-1846187203>
 
-从来不缺少时尚健身潮流——从TaeBo到Zumba到钢管舞，以及介于两者之间的一切。然而，一个更新的时尚是你可能要三思而行的:twerking，它已经从其非洲根源演变成一种日益增长的锻炼热潮。不幸的是，这种舞蹈风格越是融入主流，它就越有可能延续盗用黑人文化的历史，并赢得同情它的朋友们的厌恶和侧目。为了停止这种循环(或者至少更加清醒)，你可能想在付费参加虚拟健身班之前采取一些额外的措施。
+从来不缺少时尚健身潮流——从 TaeBo 到 Zumba 到钢管舞，以及介于两者之间的一切。然而，一个更新的时尚是你可能要三思而行的:twerking，它已经从其非洲根源演变成一种日益增长的锻炼热潮。不幸的是，这种舞蹈风格越是融入主流，它就越有可能延续盗用黑人文化的历史，并赢得同情它的朋友们的厌恶和侧目。为了停止这种循环(或者至少更加清醒)，你可能想在付费参加虚拟健身班之前采取一些额外的措施。
 
 Watch
 
 ### 知道一点你在做什么
 
-流行舞蹈在成为主流趋势之前，往往有着湮没的历史。Twerking就是其中之一，源于西非舞蹈，在这种舞蹈中，蹲着时臀部微小而孤立的动作通常被用作庆祝舞蹈。一旦“弹跳”音乐在新奥尔良流行起来，艺术家 [Big Freida在他们的视频](https://www.washingtonpost.com/news/morning-mix/wp/2014/06/12/everyones-taking-their-cues-from-big-freedia-queen-of-bounce-whats-next/) 中使用twerking，这种舞蹈的更现代化版本开始在美国形成。与此同时，哈林twerk团队开始发布一些技巧惊人的twerk视频，最终我们走到了今天。
+流行舞蹈在成为主流趋势之前，往往有着湮没的历史。Twerking 就是其中之一，源于西非舞蹈，在这种舞蹈中，蹲着时臀部微小而孤立的动作通常被用作庆祝舞蹈。一旦“弹跳”音乐在新奥尔良流行起来，艺术家 [Big Freida 在他们的视频](https://www.washingtonpost.com/news/morning-mix/wp/2014/06/12/everyones-taking-their-cues-from-big-freedia-queen-of-bounce-whats-next/) 中使用 twerking，这种舞蹈的更现代化版本开始在美国形成。与此同时，哈林 twerk 团队开始发布一些技巧惊人的 twerk 视频，最终我们走到了今天。
 
 ### 记住如何识别挪用
 
-文化挪用最好是 [定义为](https://www.verywellmind.com/what-is-cultural-appropriation-5070458) “以不尊重其原始含义、不认可其来源、或强化陈规定型观念或助长压迫的方式使用非主流文化的对象或元素。”当然，仅仅因为某件事与特定的文化联系在一起并不意味着你不能做或享受它，而是你如何接近它显示了你对这种艺术形式的尊重程度。你可以从twerking中得到锻炼，但在将其用作有氧运动之前，你也可以了解一下它的文化意义。 [非常明智的](https://www.verywellmind.com/what-is-cultural-appropriation-5070458) 有几个很好的问题可以帮助你判断你是在挪用还是真正对新事物感兴趣:
+文化挪用最好是 [定义为](https://www.verywellmind.com/what-is-cultural-appropriation-5070458) “以不尊重其原始含义、不认可其来源、或强化陈规定型观念或助长压迫的方式使用非主流文化的对象或元素。”当然，仅仅因为某件事与特定的文化联系在一起并不意味着你不能做或享受它，而是你如何接近它显示了你对这种艺术形式的尊重程度。你可以从 twerking 中得到锻炼，但在将其用作有氧运动之前，你也可以了解一下它的文化意义。 [非常明智的](https://www.verywellmind.com/what-is-cultural-appropriation-5070458) 有几个很好的问题可以帮助你判断你是在挪用还是真正对新事物感兴趣:
 
 *   你的目标是什么？
 *   你是在追随一种潮流还是在探索一种文化的历史？

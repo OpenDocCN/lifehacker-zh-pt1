@@ -1,6 +1,6 @@
 # 你应该每天刮舌头吗？
 
-> 原文:[https://life hacker . com/should-you-be-scraping your-tongue-every-1848442381](https://lifehacker.com/should-you-be-scraping-your-tongue-every-day-1848442381)
+> 原文：<https://lifehacker.com/should-you-be-scraping-your-tongue-every-day-1848442381>
 
 你可以使用牙线，早晚刷牙，每年清洗两次，在适当的时候使用漱口水。但是，你也在刮舌头吗？如果没有，你可以把这个步骤加入到你的日常生活中，把你的口腔卫生提升到一个新的水平。
 
@@ -8,7 +8,7 @@ Watch
 
 ## 什么是刮舌？
 
-尽管相对来说，刮舌术在西方牙齿护理中是一种新的疗法，但在印度传统医学(阿育吠陀)中已经使用了几个世纪。它是用一个简单的U形塑料或金属工具划过你的舌头 [来清除表面的细菌、食物颗粒和其他残渣](https://www.webmd.com/oral-health/tongue-scraping) 虽然，正如牙医[Jordan Davis](https://www.dentistryiq.com/dental-hygiene/patient-education/article/16360609/a-deeper-look-into-tongue-cleaning)博士所指出的，“在【美国】牙科界，舌头清洁是一种不被高度讨论或重视的做法，”但舌头卫生有很多好处。
+尽管相对来说，刮舌术在西方牙齿护理中是一种新的疗法，但在印度传统医学(阿育吠陀)中已经使用了几个世纪。它是用一个简单的 U 形塑料或金属工具划过你的舌头 [来清除表面的细菌、食物颗粒和其他残渣](https://www.webmd.com/oral-health/tongue-scraping) 虽然，正如牙医[Jordan Davis](https://www.dentistryiq.com/dental-hygiene/patient-education/article/16360609/a-deeper-look-into-tongue-cleaning)博士所指出的，“在【美国】牙科界，舌头清洁是一种不被高度讨论或重视的做法，”但舌头卫生有很多好处。
 
 ## 比刷舌头好一点吗？
 
@@ -20,12 +20,12 @@ Watch
 
 ## 刮舌有什么好处？
 
-*   **减少口臭**:迪弗吉奥在她的网站上写道 [牙牙少女](https://teethtalkgirl.com/videos/benefits-of-tongue-scraping) “那些小的、手指状的突起【乳头】被认为是导致口臭的细菌的90%的藏身之处。”
+*   **减少口臭**:迪弗吉奥在她的网站上写道 [牙牙少女](https://teethtalkgirl.com/videos/benefits-of-tongue-scraping) “那些小的、手指状的突起【乳头】被认为是导致口臭的细菌的 90%的藏身之处。”
 *   **改善味觉**:发表在 [临床牙周病学杂志](https://onlinelibrary.wiley.com/doi/abs/10.1111/j.0303-6979.2004.00507.x) 上的一项研究表明，刮舌两周“改善味觉”，使你的味蕾能够更好地分辨味道。
-*   **清除有害细菌:**这项发表在美国国家医学图书馆的研究显示，连续7天每天刮两次舌头会导致变异链球菌和乳酸杆菌——导致蛀牙和口臭的细菌——的“显著减少”。
+*   **清除有害细菌:**这项发表在美国国家医学图书馆的研究显示，连续 7 天每天刮两次舌头会导致变异链球菌和乳酸杆菌——导致蛀牙和口臭的细菌——的“显著减少”。
 
 *   **更好的整体口腔健康**:根据 [克里夫兰诊所](https://health.clevelandclinic.org/does-tongue-scraping-actually-work-and-should-i-be-doing-it/) 的说法，虽然你的舌头确实含有健康的细菌，但刷牙后留下的一些细菌是有害的，会导致“蛀牙和牙龈感染”刮舌可以最大限度地减少长时间暴露在细菌中，细菌会导致牙龈发炎和蛀牙。
 
 ## 你如何使用刮舌板？
 
-如果使用不当，刮舌器可能会无效，甚至疼痛。伸出舌头后，在不触发呕吐反射的情况下，尽可能将刮刀放在后面。使用*适度的*压力从后向前拖动刮舌板——不要刮得太用力。冲洗刮刀，重复这个过程2-3次，每天一次，以获得最佳效果。
+如果使用不当，刮舌器可能会无效，甚至疼痛。伸出舌头后，在不触发呕吐反射的情况下，尽可能将刮刀放在后面。使用*适度的*压力从后向前拖动刮舌板——不要刮得太用力。冲洗刮刀，重复这个过程 2-3 次，每天一次，以获得最佳效果。

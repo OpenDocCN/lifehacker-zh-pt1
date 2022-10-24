@@ -1,6 +1,6 @@
 # 一台台面洗碗机绝对值得
 
-> 原文:[https://life hacker . com/a-counter top-洗碗机-绝对物有所值1849368569](https://lifehacker.com/a-countertop-dishwasher-is-absolutely-worth-it-1849368569)
+> 原文：<https://lifehacker.com/a-countertop-dishwasher-is-absolutely-worth-it-1849368569>
 
 去年年底，我搬进了我人生中第一个没有洗碗机的公寓，我很快就意识到我珍贵的小洗碗系统不能胜任手头的任务。尽管如此，几个月来我还是顽固地拒绝购买一台台面洗碗机。我想，把一个电器永远放在水槽旁边，我能得到什么呢？
 

@@ -1,25 +1,25 @@
 # 不粘锅对你有害吗？
 
-> 原文:[https://life hacker . com/are-non-stick-pan-bad-for-you-1848907371](https://lifehacker.com/are-nonstick-pans-bad-for-you-1848907371)
+> 原文：<https://lifehacker.com/are-nonstick-pans-bad-for-you-1848907371>
 
 不粘锅是有用的厨房用品。我们的资深食品和饮料编辑克莱尔·罗弗 [不会做一个煎得太老的鸡蛋或者没有一个](https://lifehacker.com/you-need-a-nonstick-pan-but-it-doesnt-need-to-be-expen-1798677487) 的薄煎饼。但是需要担心涂层对身体不好吗？不完全是，但是知道如何正确处理不粘锅是很重要的。
 
 Watch
 
-令人担忧的涂层就是你可能知道的特氟隆(一种不粘品牌名称)。化学上，它是聚四氟乙烯，或PTFE。这种物质本身不会危害健康。它是惰性的，这意味着它不会与你的身体或其他任何东西发生化学反应。但是有一些相关的化学物质可能不太安全。
+令人担忧的涂层就是你可能知道的特氟隆(一种不粘品牌名称)。化学上，它是聚四氟乙烯，或 PTFE。这种物质本身不会危害健康。它是惰性的，这意味着它不会与你的身体或其他任何东西发生化学反应。但是有一些相关的化学物质可能不太安全。
 
 ## 不粘锅中使用的化学物质对健康有什么影响？
 
-当人们谈论不粘锅时，他们通常关心的化学物质是PFOA，或全氟辛酸。这在2000年初和更早的用于制造特氟隆涂层，到2013年完全淘汰。如果你吸入大量的上述烟雾，这种化学物质会导致所谓的“聚合物烟雾热”。不容易得熏热；案例报道包括 [产业工人](https://jamanetwork.com/journals/jama/article-abstract/654702) 和一名男子 [在午睡](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC4544973/) 时几乎烧掉了一个铁氟龙锅的整个涂层。烟雾热有类似流感的症状，但人们往往会在几个小时内康复。
+当人们谈论不粘锅时，他们通常关心的化学物质是 PFOA，或全氟辛酸。这在 2000 年初和更早的用于制造特氟隆涂层，到 2013 年完全淘汰。如果你吸入大量的上述烟雾，这种化学物质会导致所谓的“聚合物烟雾热”。不容易得熏热；案例报道包括 [产业工人](https://jamanetwork.com/journals/jama/article-abstract/654702) 和一名男子 [在午睡](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC4544973/) 时几乎烧掉了一个铁氟龙锅的整个涂层。烟雾热有类似流感的症状，但人们往往会在几个小时内康复。
 
-PFOA是全氟烷基和多氟烷基物质的一部分。这些被称为“永久化学品”，因为它们不会在环境中分解。PFA已经被用于各种工业制造中——不仅仅是锅——它们是 [无处不在](https://gizmodo.com/harmful-forever-chemicals-linger-in-the-air-of-homes-o-1847591056) ，包括在我们的 [饮用水](https://gizmodo.com/six-million-americans-have-this-toxic-chemical-in-their-1785025366) 。研究发现它们存在于的血液中， [引用美国疾病控制中心](https://www.cdc.gov/biomonitoring/PFOA_FactSheet.html) ，“几乎所有被测试的人”从环境角度来看，这显然是一个糟糕的情况。(一个小亮点:大约十年前化学物质被淘汰后，血液水平明显下降。)
+PFOA 是全氟烷基和多氟烷基物质的一部分。这些被称为“永久化学品”，因为它们不会在环境中分解。PFA 已经被用于各种工业制造中——不仅仅是锅——它们是 [无处不在](https://gizmodo.com/harmful-forever-chemicals-linger-in-the-air-of-homes-o-1847591056) ，包括在我们的 [饮用水](https://gizmodo.com/six-million-americans-have-this-toxic-chemical-in-their-1785025366) 。研究发现它们存在于的血液中， [引用美国疾病控制中心](https://www.cdc.gov/biomonitoring/PFOA_FactSheet.html) ，“几乎所有被测试的人”从环境角度来看，这显然是一个糟糕的情况。(一个小亮点:大约十年前化学物质被淘汰后，血液水平明显下降。)
 
-但是，具体来说，我们使用不粘锅会危及我们自己吗？大概不会。美国癌症协会 [报告](https://www.cancer.org/cancer/cancer-causes/chemicals/teflon-and-perfluorooctanoic-acid-pfoa.html) 称“棒状炊具上的n 不是PFOA暴露的重要来源”，并指出美国环境保护署和世界卫生组织都无法确定全氟辛烷磺酸是否对人类构成癌症风险。
+但是，具体来说，我们使用不粘锅会危及我们自己吗？大概不会。美国癌症协会 [报告](https://www.cancer.org/cancer/cancer-causes/chemicals/teflon-and-perfluorooctanoic-acid-pfoa.html) 称“棒状炊具上的 n 不是 PFOA 暴露的重要来源”，并指出美国环境保护署和世界卫生组织都无法确定全氟辛烷磺酸是否对人类构成癌症风险。
 
 ## 如何安全使用不粘锅
 
 这里的底线是，与不粘锅*中使用的化学物质*相关的一种化学物质*可能*对人类健康有害，但是到目前为止，我们还没有意识到在普通烹饪中使用它们会带来任何危险。也就是说，确保你的不粘锅不会过热是个好主意。
 
-虽然PFOA不再用于制造平底锅，但当聚四氟乙烯涂层分解时，它仍然可以产生，如果你将平底锅加热到正常烹饪温度以上，这种情况就会发生。下次你买不粘锅的时候看看标签，它可能会给出最高温度——通常在500华氏度左右。
+虽然 PFOA 不再用于制造平底锅，但当聚四氟乙烯涂层分解时，它仍然可以产生，如果你将平底锅加热到正常烹饪温度以上，这种情况就会发生。下次你买不粘锅的时候看看标签，它可能会给出最高温度——通常在 500 华氏度左右。
 
 这意味着你不应该预热一个空锅然后走开，你应该照顾好你的锅，避免刮伤涂层(这可能使它在受热时更容易释放化学物质)。不要用聚四氟乙烯涂层的锅在高温下烹饪也是一个好主意。如果你想用高温烤东西，铸铁或不锈钢锅是更好的选择。

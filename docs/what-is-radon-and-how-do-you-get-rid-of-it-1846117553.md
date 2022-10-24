@@ -1,6 +1,6 @@
 # 氡气是什么，你如何去除它？
 
-> 原文:[https://life hacker . com/what-is-radon-and-how-do-you-get-out-it-1846117553](https://lifehacker.com/what-is-radon-and-how-do-you-get-rid-of-it-1846117553)
+> 原文：<https://lifehacker.com/what-is-radon-and-how-do-you-get-rid-of-it-1846117553>
 
 如果你已经推迟了几个月(甚至几年)对你的房子进行氡测试，那么是时候把它(重新)放在你的待办事项清单上了。这是你知道你应该做的事情之一，但经常被推到一边，去做更令人兴奋的家庭项目，在那里你会发现立竿见影的变化——比如挂窗帘或粉刷房间。但是你可能会更喜欢这个房间和窗帘，因为你知道你不会受到氡的伤害。以下是如何测试，消除和防止氡。
 
@@ -18,13 +18,13 @@ Watch
 
 幸运的是，检测你家的氡含量很容易，也相对较快。你只需要在你当地的家装商店或者直接从公司的网站上拿一份 [Accu-Star](http://www.accustarlabs.com/) 认证的氡测试。
 
-在那里，你会看到短期和长期氡测试套件的选项。短期测试工具包测量两到七天的氡水平。如果这是你第一次在家里做氡测试， [从一个短期测试](https://www.health.state.mn.us/communities/environment/air/radon/radontestresults.html#:~:text=Short%20term%20%2D%20a%20short%20term,a%20minimum%20of%2090%20days.) 开始，这样会花更少的时间来发现你是否有氡问题。但在那之后，你可能会选择一个长期测试包，它可以测量至少90天的氡水平。
+在那里，你会看到短期和长期氡测试套件的选项。短期测试工具包测量两到七天的氡水平。如果这是你第一次在家里做氡测试， [从一个短期测试](https://www.health.state.mn.us/communities/environment/air/radon/radontestresults.html#:~:text=Short%20term%20%2D%20a%20short%20term,a%20minimum%20of%2090%20days.) 开始，这样会花更少的时间来发现你是否有氡问题。但在那之后，你可能会选择一个长期测试包，它可以测量至少 90 天的氡水平。
 
-在Accu-Star网站的上，测试费用从短期套件的25美元到长期套件的30美元不等。你也可以通过堪萨斯州立大学 的 [国家氡项目服务购买打折套件，其中](https://sosradon.org/test-kits) [售价](https://commerce.cashnet.com/cashnetg/selfserve/BrowseCatalog.aspx)15美元，短期套件15美元，长期套件25美元。
+在 Accu-Star 网站的上，测试费用从短期套件的 25 美元到长期套件的 30 美元不等。你也可以通过堪萨斯州立大学 的 [国家氡项目服务购买打折套件，其中](https://sosradon.org/test-kits) [售价](https://commerce.cashnet.com/cashnetg/selfserve/BrowseCatalog.aspx)15 美元，短期套件 15 美元，长期套件 25 美元。
 
 ### 如何去除氡
 
-如果你的氡测试结果表明你家里的气体含量很高——超过每升空气4皮居里(pCI/L)——那么是时候请专业人士了，因为这不再是一项DIY工作。联系您的 [州环保局办公室](https://www.epa.gov/home/epa-your-state) 获取您所在地区的合格缓解承包商名单。
+如果你的氡测试结果表明你家里的气体含量很高——超过每升空气 4 皮居里(pCI/L)——那么是时候请专业人士了，因为这不再是一项 DIY 工作。联系您的 [州环保局办公室](https://www.epa.gov/home/epa-your-state) 获取您所在地区的合格缓解承包商名单。
 
 娜塔莉·罗德里格兹在这座老房子 里告诉我们，他们是这样做的:
 

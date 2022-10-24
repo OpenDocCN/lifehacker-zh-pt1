@@ -1,6 +1,6 @@
 # 当心这些友谊的红旗
 
-> 原文:[https://life hacker . com/watch-out-for-these-friendship-red-flags-1848676641](https://lifehacker.com/watch-out-for-these-friendship-red-flags-1848676641)
+> 原文：<https://lifehacker.com/watch-out-for-these-friendship-red-flags-1848676641>
 
 当我们想到有毒的人和关系时，首先想到的往往是浪漫的伴侣、家庭成员和老板。但是朋友也可以归入这一类。无论是你认识多年的人——但你现在才意识到他是个控制欲很强的人——还是你最近才认识的人，我们认为是“朋友”的人实际上可能是我们生活中压力和痛苦的主要来源。
 

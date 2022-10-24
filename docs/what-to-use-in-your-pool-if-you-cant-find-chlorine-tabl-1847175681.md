@@ -1,22 +1,22 @@
 # 如果你找不到氯片，在泳池里用什么
 
-> 原文:[https://life hacker . com/what-to-use-in-your-pool-if-you-can-found-chlorin-tabl-1847175681](https://lifehacker.com/what-to-use-in-your-pool-if-you-cant-find-chlorine-tabl-1847175681)
+> 原文：<https://lifehacker.com/what-to-use-in-your-pool-if-you-cant-find-chlorine-tabl-1847175681>
 
 面具可能会脱落，镜头可能会进入武器，但我们仍能感受到新冠肺炎疫情对制造业和航运业的影响。除了像 [电器](https://www.bobvila.com/articles/appliance-shortage/)[木材](https://www.bobvila.com/slideshow/9-building-materials-with-the-biggest-pandemic-price-increase-and-what-that-means-for-diyers-578671) 之类的东西，游泳池用的氯药片也短缺。以下是发生这种情况的原因，以及你可以用什么来代替难以获得的平板电脑。
 
 Watch
 
-## 2021年为什么会出现氯荒？
+## 2021 年为什么会出现氯荒？
 
-那么，怎么会这样呢？你可能还记得，2020年对于家庭泳池来说意义重大。事实上，根据高盛 的 [数据，美国的建造数量比2019年增长了23%。换句话说，在2021年有很多泳池开始运行。](https://www.nytimes.com/2021/05/29/business/chlorine-shortage-us.html)
+那么，怎么会这样呢？你可能还记得，2020 年对于家庭泳池来说意义重大。事实上，根据高盛 的 [数据，美国的建造数量比 2019 年增长了 23%。换句话说，在 2021 年有很多泳池开始运行。](https://www.nytimes.com/2021/05/29/business/chlorine-shortage-us.html)
 
-最重要的是，2020年8月袭击路易斯安那州海岸的劳拉飓风的受害者之一是生物实验室工厂。这家制造厂生产了美国使用的大部分氯片剂，它在飓风引发的一场火灾中遭受了重大损失。根据萨凡纳·谢尔在 [发表的一篇关于BobVila.com](https://www.bobvila.com/articles/chlorine-shortage-tablet-substitutes/)的文章:“生物实验室工厂直到2022年才计划重新开始生产，所以这个行业在那之前应该会失去平衡。”
+最重要的是，2020 年 8 月袭击路易斯安那州海岸的劳拉飓风的受害者之一是生物实验室工厂。这家制造厂生产了美国使用的大部分氯片剂，它在飓风引发的一场火灾中遭受了重大损失。根据萨凡纳·谢尔在 [发表的一篇关于 BobVila.com](https://www.bobvila.com/articles/chlorine-shortage-tablet-substitutes/)的文章:“生物实验室工厂直到 2022 年才计划重新开始生产，所以这个行业在那之前应该会失去平衡。”
 
 ## 你可以用什么来代替氯片呢？
 
-随着2021年泳池季节的到来，2022年氯的预测看起来不是特别有希望，你可能正在寻找传统药片的替代品，以尽可能保持你的泳池清洁卫生。谢尔说，最好的办法是使用液氯。
+随着 2021 年泳池季节的到来，2022 年氯的预测看起来不是特别有希望，你可能正在寻找传统药片的替代品，以尽可能保持你的泳池清洁卫生。谢尔说，最好的办法是使用液氯。
 
-首先，缺点——首先，你会需要很多。具体来说，一加仑液氯相当于两片氯片。液氯也有可能影响泳池的pH值，所以她强调在整个游泳季节监控pH值是很重要的。
+首先，缺点——首先，你会需要很多。具体来说，一加仑液氯相当于两片氯片。液氯也有可能影响泳池的 pH 值，所以她强调在整个游泳季节监控 pH 值是很重要的。
 
 谢尔解释说，尽管储存本季(或下一季)所需的所有液氯可能很诱人，但这并不是一个好主意，因为它的保质期很短，几周后就会失去效力。为了帮助保持更长时间的新鲜，她建议将液氯储存在阴凉的地方。
 

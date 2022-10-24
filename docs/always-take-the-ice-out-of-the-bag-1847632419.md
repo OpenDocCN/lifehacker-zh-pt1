@@ -1,6 +1,6 @@
 # 总是把冰块从袋子里拿出来
 
-> 原文:[https://life hacker . com/always-take-the-ice-out-of-the-bag-1847632419](https://lifehacker.com/always-take-the-ice-out-of-the-bag-1847632419)
+> 原文：<https://lifehacker.com/always-take-the-ice-out-of-the-bag-1847632419>
 
 不管你的制冰系统有多丰富，你总会在某个时候需要拿一袋冰去参加聚会、会议或其他需要你为很多人提供冷饮的活动。而且，不管你是 [买好冰](https://lifehacker.com/you-can-buy-bags-of-the-good-ice-at-sonic-1838147632) ，还是标准的有裂纹的东西，有一件事你绝对不要做——，那就是把它储存在袋子里。
 

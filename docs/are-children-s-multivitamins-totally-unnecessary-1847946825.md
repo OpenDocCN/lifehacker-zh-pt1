@@ -1,8 +1,8 @@
 # 儿童复合维生素完全没有必要吗？
 
-> 原文:[https://life hacker . com/are-children-s-multi vitamins-total-needly-1847946825](https://lifehacker.com/are-children-s-multivitamins-totally-unnecessary-1847946825)
+> 原文：<https://lifehacker.com/are-children-s-multivitamins-totally-unnecessary-1847946825>
 
-如果你走在当地药店的过道上，你会看到一瓶又一瓶专门为儿童销售的复合维生素。这往往会给人一种普遍需要维生素的印象，但美国儿科学会(American Academy of Pediatrics)的建议是，饮食均衡的健康儿童不需要服用维生素——婴儿和儿童的维生素D[除外](https://www.healthychildren.org/English/healthy-living/nutrition/Pages/Vitamin-D-On-the-Double.aspx) 。相反，给健康的孩子服用多种维生素的风险是 [大剂量的维生素，如维生素A、C和D，可能是有毒的，](https://www.healthychildren.org/English/healthy-living/nutrition/Pages/Where-We-Stand-Vitamins.aspx) 导致恶心、皮疹和头痛等症状。
+如果你走在当地药店的过道上，你会看到一瓶又一瓶专门为儿童销售的复合维生素。这往往会给人一种普遍需要维生素的印象，但美国儿科学会(American Academy of Pediatrics)的建议是，饮食均衡的健康儿童不需要服用维生素——婴儿和儿童的维生素 D[除外](https://www.healthychildren.org/English/healthy-living/nutrition/Pages/Vitamin-D-On-the-Double.aspx) 。相反，给健康的孩子服用多种维生素的风险是 [大剂量的维生素，如维生素 A、C 和 D，可能是有毒的，](https://www.healthychildren.org/English/healthy-living/nutrition/Pages/Where-We-Stand-Vitamins.aspx) 导致恶心、皮疹和头痛等症状。
 
 Watch
 
@@ -26,13 +26,13 @@ Watch
 
 就其他限制性饮食而言，纯素食者和素食家庭需要注意他们的饮食，以确保他们获得足够的必要维生素和矿物质。如果没有，添加多种维生素或强化牛奶和谷物是个好主意。
 
-如果孩子对食物过敏或不耐受，如乳制品，也是如此，因为这意味着需要特别注意钙和维生素D的摄入。确保他们获得足够的食物的一个替代方法是给他们强化谷物或替代牛奶。不过，检查一下标签，确保这些都是添加进去的。
+如果孩子对食物过敏或不耐受，如乳制品，也是如此，因为这意味着需要特别注意钙和维生素 D 的摄入。确保他们获得足够的食物的一个替代方法是给他们强化谷物或替代牛奶。不过，检查一下标签，确保这些都是添加进去的。
 
 如果你的孩子出现了影响消化的问题，那就是你应该和你的儿科医生或家庭医生讨论是否需要复合维生素的时候了。
 
 ## 面临获取健康食品障碍的家庭可能也需要多种维生素
 
-另一个例外是，如果你的家庭在获得足够的健康食品方面面临障碍。尽管肯定有资源帮助家庭获得足够的健康食品，无论是社区组织还是政府援助项目，但严峻的现实是，这个国家近1400万儿童吃不饱 。
+另一个例外是，如果你的家庭在获得足够的健康食品方面面临障碍。尽管肯定有资源帮助家庭获得足够的健康食品，无论是社区组织还是政府援助项目，但严峻的现实是，这个国家近 1400 万儿童吃不饱 。
 
 医生们被教导要对可能的食品不安全进行更多的筛查，这样他们就可以提供帮助，但当涉及到家庭获得健康食品时，仍然存在一些系统性问题。“我们的首要任务是帮助人们健康，”孔帕尼奥洛说，这包括试图确定可能影响患者健康的其他社会因素。
 

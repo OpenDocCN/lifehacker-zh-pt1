@@ -1,14 +1,14 @@
-# 如果你需要从鬼魂和食尸鬼中解脱出来，你可以看11部无用的暴力电影
+# 如果你需要从鬼魂和食尸鬼中解脱出来，你可以看 11 部无用的暴力电影
 
-> 原文:[https://life hacker . com/11-trashy-violent-giallo-films-to-stream-if-you-need-a-1847911143](https://lifehacker.com/11-trashy-violent-giallo-films-to-stream-if-you-need-a-1847911143)
+> 原文：<https://lifehacker.com/11-trashy-violent-giallo-films-to-stream-if-you-need-a-1847911143>
 
 “外国”电影有着比主流美国电影更博学的名声——毕竟，看带字幕的电影意味着你在看电影的同时在阅读，而阅读是一个人能做的最聪明的事情。
 
-贾洛电影颠覆了这种预期。在意大利很少需要字幕——配音是意大利的一种艺术形式，意大利电影用意大利语配音非常普遍，即使它们是用意大利语拍摄的。这种亲配音的文化意味着大量的贾洛电影可以用英语配音，这使得如果你更喜欢在大麻或酒的陪伴下看你的恐怖片，他们会更容易消费。(有趣的事实:配音最初在20世纪30年代开始流行，当时法西斯墨索里尼试图“ [团结一个被方言](https://archive.macleans.ca/article/2007/6/25/dubbed-into-italian-thanks-to-mussolini) 分裂的国家”，让所有电影都用“标准意大利语”配音)
+贾洛电影颠覆了这种预期。在意大利很少需要字幕——配音是意大利的一种艺术形式，意大利电影用意大利语配音非常普遍，即使它们是用意大利语拍摄的。这种亲配音的文化意味着大量的贾洛电影可以用英语配音，这使得如果你更喜欢在大麻或酒的陪伴下看你的恐怖片，他们会更容易消费。(有趣的事实:配音最初在 20 世纪 30 年代开始流行，当时法西斯墨索里尼试图“ [团结一个被方言](https://archive.macleans.ca/article/2007/6/25/dubbed-into-italian-thanks-to-mussolini) 分裂的国家”，让所有电影都用“标准意大利语”配音)
 
 贾洛的电影也有点垃圾，我的意思是作为一种恭维。( [我爱邋遢。](https://lifehacker.com/17-golden-age-porn-flicks-you-should-enjoy-with-your-pa-1847727088?rev=1633724896338))“Giallo”的意思是“黄色”，这个名字是对廉价的黄色封面平装惊悚小说的致敬，这种类型深受其影响。吉亚利并不十分恐怖。他们对鬼魂和食尸鬼很少，对乳头、偏执和刀很重，几乎所有的恐惧——身体上和心理上的——都是男人强加给女人的。如果你喜欢露营，喜欢狂魔，喜欢谋杀悬疑，喜欢美女，你会喜欢吉亚利。(不过，不要太依赖美女，大多数美女都是被残忍杀害的。)
 
-以下是我欣赏过的11个吉亚利的列表，排名不分先后。我不能保证你最喜欢的电影会出现在那里——即使是最狂热的电影迷也很难就什么是giallo *达成一致，我不是电影迷。然而，我是这些美丽、质朴、偏执的电影的狂热观众，我建议在这个恐怖的季节观看它们，尤其是如果你需要从鬼魂和食尸鬼中解脱出来。如果你问我(一位知名女性)，针对女性的暴力远比超自然现象更可怕。*
+以下是我欣赏过的 11 个吉亚利的列表，排名不分先后。我不能保证你最喜欢的电影会出现在那里——即使是最狂热的电影迷也很难就什么是 giallo *达成一致，我不是电影迷。然而，我是这些美丽、质朴、偏执的电影的狂热观众，我建议在这个恐怖的季节观看它们，尤其是如果你需要从鬼魂和食尸鬼中解脱出来。如果你问我(一位知名女性)，针对女性的暴力远比超自然现象更可怕。*
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-OkUpGi2N8wo&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-OkUpGi2N8wo&start=0) 
 
@@ -16,11 +16,11 @@
 
 这部电影由安东尼·弗朗西奥沙 主演，饰演美国谋杀推理小说作家彼得·尼尔，他正在罗马宣传他的最新小说，当他收到一封粉丝来信，声称他的书激发了一场可怕的杀戮狂欢。
 
-除了性心理主题和大量的血液之外，Tenebrae 最有趣的事情之一是风景。这部电影是在罗马外景拍摄的，但它看起来一点也不像罗马。建筑是残酷的，街道大多是空的，整个城市感觉有点未来派，或者至少没有历史感。Argento在接受 *Cinefantastique* 采访时说，“ *Tenebrae* 发生在一个居住着更少人的世界，结果是其余的人更富裕，更不拥挤。发生了一些事情，但没有人记得，或想记得。”Argento专家Thomas Rostock似乎支持这种解释，并且 [说](https://en.wikipedia.org/wiki/Tenebrae_(film)) 这部电影“展示了一个从未有过的未来罗马，向这座城市展示了如果法西斯主义没有垮台它可能会是什么样子。”
+除了性心理主题和大量的血液之外，Tenebrae 最有趣的事情之一是风景。这部电影是在罗马外景拍摄的，但它看起来一点也不像罗马。建筑是残酷的，街道大多是空的，整个城市感觉有点未来派，或者至少没有历史感。Argento 在接受 *Cinefantastique* 采访时说，“ *Tenebrae* 发生在一个居住着更少人的世界，结果是其余的人更富裕，更不拥挤。发生了一些事情，但没有人记得，或想记得。”Argento 专家 Thomas Rostock 似乎支持这种解释，并且 [说](https://en.wikipedia.org/wiki/Tenebrae_(film)) 这部电影“展示了一个从未有过的未来罗马，向这座城市展示了如果法西斯主义没有垮台它可能会是什么样子。”
 
-哦，还有配乐——由合成音乐、前卫摇滚乐队Goblin作曲和演奏——该死的规则。
+哦，还有配乐——由合成音乐、前卫摇滚乐队 Goblin 作曲和演奏——该死的规则。
 
-**流媒体:亚马逊Prime，颤栗**
+**流媒体:亚马逊 Prime，颤栗**
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-hs7PHsWzvwE&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-hs7PHsWzvwE&start=0) 
 
@@ -30,7 +30,7 @@
 
 光是开场的场景就让入场费值了，入场费大概很低，看你有什么流媒体服务了。一个酷似玛丽莲·梦露的人在萨克斯上嚎啕大哭，一只巨大的猫头鹰在周围跳舞，许多人戴着许多假发——所有这些都发生在最初的五分钟内。
 
-**流媒体:亚马逊Prime、颤栗、苹果电视、Sling、Tubi**
+**流媒体:亚马逊 Prime、颤栗、苹果电视、Sling、Tubi**
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-09L5m39t01k&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-09L5m39t01k&start=0) 
 
@@ -40,7 +40,7 @@
 
 性心理主题是显而易见的，以今天的标准来看可能有点累，但看起来很有趣。躯干充满了美女做性感的事情和被谋杀做性感的事情，由真正紧张，可怕的时刻打断。
 
-**在亚马逊Prime、颤栗、苹果电视、YouTube、Tubi上播放**
+**在亚马逊 Prime、颤栗、苹果电视、YouTube、Tubi 上播放**
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-W0jO5IW2M7c&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-W0jO5IW2M7c&start=0) 
 
@@ -48,7 +48,7 @@
 
 这部电影讲述了一个喝醉了，辱骂，种族主义，过气的作家，奥利维耶罗(皮斯蒂利)，他饱受折磨的妻子，伊雷娜(斯特林堡)，和他的双性恋，狡猾的侄女，弗洛里亚纳(费内奇)，一起住在一个摇摇欲坠的豪宅里，每天晚上都是智力游戏之夜。你可能会认为这座宅邸里的事情从来都不太平，但是一旦奥利韦里奥的情妇被发现死亡，一切都变得混乱了。如果你习惯于把费内奇看做一个痛苦的、最终的女孩类型的角色，那么看她扮演冷静的、有心计的、性方面无拘无束的弗洛里亚纳将是一种享受，同性恋场景也是如此。
 
-**流媒体:亚马逊Prime，颤栗，苹果电视，Sling**
+**流媒体:亚马逊 Prime，颤栗，苹果电视，Sling**
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-cvt7BhFaavk&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-cvt7BhFaavk&start=0) 
 
@@ -56,27 +56,27 @@
 
 这部电影不是一部轻松的男女混合的性喜剧，正如预告片让你相信的那样。这是一场沉重(和粗暴)的男女同校性悲剧。所有常见的悲剧修辞都在那里:性饥渴的教授被性冷淡的妻子逼入性饥渴的学生的怀抱，可怕的性感秘密，以及许多年轻女性被砍伤。我不想透露太多:但是一些不好的事情确实发生在索朗吉身上。
 
-**流媒体:亚马逊Prime、颤栗、YouTube、Google Play**
+**流媒体:亚马逊 Prime、颤栗、YouTube、Google Play**
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-apdrNHcLUd8&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-apdrNHcLUd8&start=0) 
 
-Argento书呆子喜欢谈论他的“颜色的使用”，深红色给了他们足够多的讨论。这是一部美丽的电影，有很多红色(血)，也许是最好的例子之一，什么是贾洛电影。通过精神媒介的方式，有一个小的超自然因素，但它最终是一个充满偏执的谋杀之谜。
+Argento 书呆子喜欢谈论他的“颜色的使用”，深红色给了他们足够多的讨论。这是一部美丽的电影，有很多红色(血)，也许是最好的例子之一，什么是贾洛电影。通过精神媒介的方式，有一个小的超自然因素，但它最终是一个充满偏执的谋杀之谜。
 
 《深红》发行于这一流派的全盛时期，讲述了一位严肃的爵士音乐家试图解开一个由砍杀、儿童绘画、令人毛骨悚然的童谣歌曲和黑手套组成的复杂网络——这是一个经典的贾洛比喻！在目睹灵媒被谋杀后。
 
 这部电影有很多情节，很多细节，很多血腥，但比你在大多数贾利电影中看到的对受害者的同情更多，尤其是与富尔奇导演的电影相比(我们一会儿就会谈到那个家伙)。影评人金·纽曼在 [月度电影简报](https://www.worldcat.org/title/monthly-film-bulletin/oclc/819020007) 中写道，“让阿金托与 [【卢西奥·弗尔兹】](https://en.wikipedia.org/wiki/Lucio_Fulci) 等模仿者不同的是，他结合了真实的痛苦(谋杀就像人们所希望的那样令人厌恶，但镜头会在富尔西逗留的地方退缩)，”尽管这种影响很微妙，而且这些女人仍然死气沉沉。
 
-**流媒体:亚马逊Prime、颤栗、YouTube、Apple TV、Google Play、Tubi、Vudu**
+**流媒体:亚马逊 Prime、颤栗、YouTube、Apple TV、Google Play、Tubi、Vudu**
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-r5U7F0NJ1RQ&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-r5U7F0NJ1RQ&start=0) 
 
 卢西奥·弗尔兹，我的伙计，你不必这么辛苦。对我来说，这部电影和《深红》是同一个类型，这是很疯狂的，但不可否认的是，它们都是贾利的作品。*这位纽约开膛手*兴高采烈地将画面描绘到了荒谬的地步，一个扮演杀手的唐老鸭。许多人说这部电影没有艺术价值，但从来没有人说它无聊。
 
-《纽约开膛手》以纽约为背景，由英国演员杰克·赫德利饰演疲惫的T2，暴躁的上尉·弗雷德·威廉姆斯，他调查了当地模特的谋杀案(在她的手腐烂后)。一桩谋杀变成了两桩，威廉姆斯开始接到一个听起来“像只鸭子”的男人打来的嘲讽电话。
+《纽约开膛手》以纽约为背景，由英国演员杰克·赫德利饰演疲惫的 T2，暴躁的上尉·弗雷德·威廉姆斯，他调查了当地模特的谋杀案(在她的手腐烂后)。一桩谋杀变成了两桩，威廉姆斯开始接到一个听起来“像只鸭子”的男人打来的嘲讽电话。
 
 结局无论如何都不令人满意，但《纽约开膛手》这部从未完全未经审查的电影讲述的是一段充满侵略性、暴力和荒谬的旅程。富尔奇说这部电影是对希区柯克的致敬，这是非常大胆的，尽管我猜想两人都喜欢对受折磨妇女的虐待狂描述。
 
-在亚马逊Prime、颤栗、YouTube、Apple TV、Google Play、Tubi上播放
+在亚马逊 Prime、颤栗、YouTube、Apple TV、Google Play、Tubi 上播放
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-f3cMbPpZtIY&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-f3cMbPpZtIY&start=0) 
 
@@ -86,7 +86,7 @@ Argento书呆子喜欢谈论他的“颜色的使用”，深红色给了他们�
 
 当她试图告诉警察(以及任何愿意听她的人)她目睹的谋杀时，他们认为她的叙述是由于读了太多侦探小说而引起的歇斯底里发作。但是娜拉不能让事情就这样过去，在一位英俊的意大利医生的帮助下，她继续寻找凶手。(把“谋杀推理小说”换成“谋杀播客”，情节感觉非常现代。)
 
-**流媒体:亚马逊Prime，颤栗**
+**流媒体:亚马逊 Prime，颤栗**
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-yAY3V3FXLD0&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-yAY3V3FXLD0&start=0) 
 
@@ -94,7 +94,7 @@ Argento书呆子喜欢谈论他的“颜色的使用”，深红色给了他们�
 
 沃兹夫人的怪癖中充满了怀疑、内疚和偏执，这三者交织在一起，让你全神贯注，但又足够困惑。这部电影是令人满意的，没有剧透我不可能解释为什么，所以我不会。我只是告诉你要注意艾德薇姬·芬妮齐，她自己就是一个足够的理由。
 
-**流媒体:亚马逊Prime，颤栗**
+**流媒体:亚马逊 Prime，颤栗**
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-uNXpD6pn4s8&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-uNXpD6pn4s8&start=0) 
 
@@ -102,14 +102,14 @@ Argento书呆子喜欢谈论他的“颜色的使用”，深红色给了他们�
 
 与她在《罪恶之城》中的角色相似，费内奇饰演的詹妮弗正与性虐待的过去作斗争，但与《T2》中的《罪恶之城》不同的是，希尔顿饰演的安德里亚与《T4》中的詹妮弗一样偏执，并同样致力于寻找凶手。(如果不是嫌疑人他会那么感兴趣吗？可能不会，但我认为埃德温在这部电影中没有那么孤立是件好事。)
 
-**流媒体:亚马逊Prime，颤栗**
+**流媒体:亚马逊 Prime，颤栗**
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-YxuA7_8_RdE&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-YxuA7_8_RdE&start=0) 
 
-我实际上没有见过这个特别的巴瓦联合，这是奇怪的，当你考虑到鼻子的标题。(血和黑色服装是两个非常突出的giallo比喻，所以你知道你会遇到什么。)
+我实际上没有见过这个特别的巴瓦联合，这是奇怪的，当你考虑到鼻子的标题。(血和黑色服装是两个非常突出的 giallo 比喻，所以你知道你会遇到什么。)
 
-我之所以推荐这部电影，主要是因为我听到了关于它的好消息，但也因为我不想因为没有包括它而被迂腐的电影兄弟吼。(尽管我可能会因为没有把Argento的*那只长着水晶羽毛的鸟*包括在内而被吼，所以管它呢！)像大多数吉亚利作品一样，它讲述了美丽而淘气的女人因为美丽和淘气而被谋杀——这是女人同时被恨和爱的两件事。也很丰富多彩。这个周末我可能会看。
+我之所以推荐这部电影，主要是因为我听到了关于它的好消息，但也因为我不想因为没有包括它而被迂腐的电影兄弟吼。(尽管我可能会因为没有把 Argento 的*那只长着水晶羽毛的鸟*包括在内而被吼，所以管它呢！)像大多数吉亚利作品一样，它讲述了美丽而淘气的女人因为美丽和淘气而被谋杀——这是女人同时被恨和爱的两件事。也很丰富多彩。这个周末我可能会看。
 
-**流媒体:亚马逊Prime、苹果电视、Tubi**
+**流媒体:亚马逊 Prime、苹果电视、Tubi**
 
 **T2】**

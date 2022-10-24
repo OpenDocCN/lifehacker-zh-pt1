@@ -1,6 +1,6 @@
 # 如何让你的垃圾处理器不拉在你身上
 
-> 原文:[https://life hacker . com/how-to-keep-you-garbage-dispose-from-crapping-out-on-y-1848984851](https://lifehacker.com/how-to-keep-you-garbage-disposal-from-crapping-out-on-y-1848984851)
+> 原文：<https://lifehacker.com/how-to-keep-you-garbage-disposal-from-crapping-out-on-y-1848984851>
 
 垃圾处理器的工作是保持在视线之外，让食物垃圾消失。因此，当它正常工作时，很容易忘记它。这反过来又让人很难记住你的垃圾处理器是一个至少需要最低限度维护的设备。
 

@@ -1,12 +1,12 @@
 # 如何获得对你工作表现的反馈
 
-> 原文:[https://life hacker . com/how-to-take-feedback-about-your-job-performance-1845776432](https://lifehacker.com/how-to-take-feedback-about-your-job-performance-1845776432)
+> 原文：<https://lifehacker.com/how-to-take-feedback-about-your-job-performance-1845776432>
 
 接受批评是不容易的，尤其是当批评涉及到你的工作表现时。也许你已经尽了很大努力让你的上司开心，结果却没有达到期望；或者也许你处在一个对数百万人都有影响的位置上，不仅对你身边的人，而且对那些依靠你的决定来获得自身物质生存和利益的人都负有责任。
 
 Watch
 
-前国会议员、芝加哥市长拉姆·伊曼纽尔属于后一种阵营。伊曼纽尔在公共服务领域的职业生涯充满分歧， [因涉嫌压制与2014年芝加哥警察局残忍杀害一名黑人少年有关的](https://theintercept.com/2019/05/20/chicago-mayor-rahm-emanuel-failures/) 证据而受损，伊曼纽尔成功地跨越了党派分歧，因为他受到了许多自由派和保守派的唾骂。作为即将上任的乔·拜登政府的一部分， [伊曼纽尔可能重返白宫](https://www.cnn.com/2020/11/24/politics/rahm-emanuel-transportation-trade-representative/index.html) 的消息引发了许多左翼政客和书呆子的愤怒(伊曼纽尔曾在2008年至2010年间担任巴拉克·奥巴马的幕僚长)。
+前国会议员、芝加哥市长拉姆·伊曼纽尔属于后一种阵营。伊曼纽尔在公共服务领域的职业生涯充满分歧， [因涉嫌压制与 2014 年芝加哥警察局残忍杀害一名黑人少年有关的](https://theintercept.com/2019/05/20/chicago-mayor-rahm-emanuel-failures/) 证据而受损，伊曼纽尔成功地跨越了党派分歧，因为他受到了许多自由派和保守派的唾骂。作为即将上任的乔·拜登政府的一部分， [伊曼纽尔可能重返白宫](https://www.cnn.com/2020/11/24/politics/rahm-emanuel-transportation-trade-representative/index.html) 的消息引发了许多左翼政客和书呆子的愤怒(伊曼纽尔曾在 2008 年至 2010 年间担任巴拉克·奥巴马的幕僚长)。
 
 伊曼纽尔迄今为止对新的批评浪潮保持沉默，因为亚历山大·奥卡西奥-科尔特斯等知名人士坚持认为他不属于白宫。无论芝加哥最终走向何方，都有很多方法来回应这种与工作相关的批评，无论你是根深蒂固的政治圈内人士、服务业工作者，还是刚刚开始职业生涯的人。
 

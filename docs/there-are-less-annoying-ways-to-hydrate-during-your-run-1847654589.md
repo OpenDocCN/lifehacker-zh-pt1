@@ -1,8 +1,8 @@
 # 跑步时补充水分的方法不那么烦人
 
-> 原文:[https://life hacker . com/有一些不那么烦人的方法可以在跑步时补充水分1847654589](https://lifehacker.com/there-are-less-annoying-ways-to-hydrate-during-your-run-1847654589)
+> 原文：<https://lifehacker.com/there-are-less-annoying-ways-to-hydrate-during-your-run-1847654589>
 
-短距离慢跑不需要过多考虑水合作用，但是如果你跑长距离，你需要在锻炼结束前水合作用。(美国运动委员会 [建议每15到20分钟喝7-10盎司的水](https://www.acefitness.org/education-and-resources/lifestyle/blog/6675/healthy-hydration/) ，尽管如果你没有大量出汗，这可能有点过头了。)那么，当你在移动的时候，你从哪里得到这些水呢？
+短距离慢跑不需要过多考虑水合作用，但是如果你跑长距离，你需要在锻炼结束前水合作用。(美国运动委员会 [建议每 15 到 20 分钟喝 7-10 盎司的水](https://www.acefitness.org/education-and-resources/lifestyle/blog/6675/healthy-hydration/) ，尽管如果你没有大量出汗，这可能有点过头了。)那么，当你在移动的时候，你从哪里得到这些水呢？
 
 Watch
 
@@ -10,7 +10,7 @@ Watch
 
 ## 戴上补水包
 
-像 [骆驼肉](https://www.camelbak.com/recreation/shop/) 这样的补水包可能是解决这个问题的最佳方案。你穿着一个背包或背心，其中包括一个充满水的柔性塑料膀胱，一根软管连接到膀胱并充当吸管。你可以在跑步时喝一口水，因为容量比水瓶大(例如2升)，你也不需要担心再装满水。
+像 [骆驼肉](https://www.camelbak.com/recreation/shop/) 这样的补水包可能是解决这个问题的最佳方案。你穿着一个背包或背心，其中包括一个充满水的柔性塑料膀胱，一根软管连接到膀胱并充当吸管。你可以在跑步时喝一口水，因为容量比水瓶大(例如 2 升)，你也不需要担心再装满水。
 
 对于长时间远离水源的人来说，这是一个很好的选择，比如你要在树林里跑几个小时的小路或远足。一些包是极简主义的，只包括水囊，但其他人有口袋，甚至兼作完整的背包。
 

@@ -1,20 +1,20 @@
-# 关于人体的14个你可能从来不知道的奇怪事实
+# 关于人体的 14 个你可能从来不知道的奇怪事实
 
-> 原文:[https://life hacker . com/14-verged-facts-about-the-human-body-you-possible-never-1847829288](https://lifehacker.com/14-weird-facts-about-the-human-body-you-probably-never-1847829288)
+> 原文：<https://lifehacker.com/14-weird-facts-about-the-human-body-you-probably-never-1847829288>
 
-人体是世界上最奇怪的东西之一。我们充满了各种黏糊糊的液体，我们从单细胞开始，我们每个人的体内都有一个骨架。但怪异之处还不止于此:这里有14个你可能从未意识到的关于人体的奇怪事实。
+人体是世界上最奇怪的东西之一。我们充满了各种黏糊糊的液体，我们从单细胞开始，我们每个人的体内都有一个骨架。但怪异之处还不止于此:这里有 14 个你可能从未意识到的关于人体的奇怪事实。
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-bCO4OptXnbI&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-bCO4OptXnbI&start=0) 
 
-你可能听说过一个人有206块骨头。这是真的:大多数成年人大约有这个数字。反正你永远也不会知道你到底有多少，因为很多都是像你手指关节里籽骨一样的小骨头。
+你可能听说过一个人有 206 块骨头。这是真的:大多数成年人大约有这个数字。反正你永远也不会知道你到底有多少，因为很多都是像你手指关节里籽骨一样的小骨头。
 
-但是婴儿呢？他们有更多的时间。普通婴儿大约有300块骨头。这是因为成年人的许多骨头实际上是由软骨连接的多块独立的骨头。以头骨为例:婴儿的“软肋”只是一些尚未融合在一起的头盖骨之间的软骨。
+但是婴儿呢？他们有更多的时间。普通婴儿大约有 300 块骨头。这是因为成年人的许多骨头实际上是由软骨连接的多块独立的骨头。以头骨为例:婴儿的“软肋”只是一些尚未融合在一起的头盖骨之间的软骨。
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-tDdgplYZRPI&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-tDdgplYZRPI&start=0) 
 
 你认为像 [琵琶鱼](https://oceanbites.org/how-the-anglerfish-gets-its-light/) 这样的生物发光动物很酷吗？好消息是: [你也会发光](https://www.theguardian.com/science/blog/2009/jul/17/human-bioluminescence)，类似的过程叫做生物光子发射。我们细胞中的化学反应释放出微量的光，科学家们已经能够用超灵敏的相机捕捉到这些光。然而，你无法用肉眼看到这种辉光——它比我们能探测到的弱一千倍。
 
-*更新2021-10-11，10:42am:我们之前说过“你也是生物发光的”，但一位眼尖的读者指出，描述这一现象的研究人员说，它类似于生物发光，但并不相同。*
+*更新 2021-10-11，10:42am:我们之前说过“你也是生物发光的”，但一位眼尖的读者指出，描述这一现象的研究人员说，它类似于生物发光，但并不相同。*
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-J03A8BQCQC4&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-J03A8BQCQC4&start=0) 
 
@@ -48,7 +48,7 @@
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-PbHuZuB4FeY&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-PbHuZuB4FeY&start=0) 
 
-成年人平均每分钟眨眼10到15次。但婴儿不会: [研究只数他们每分钟眨眼一到三次](https://www.livescience.com/62988-why-babies-rarely-blink.html) 。我们不知道为什么——可能是因为他们盯着东西看的时间比成年人长，试图完全吸收。
+成年人平均每分钟眨眼 10 到 15 次。但婴儿不会: [研究只数他们每分钟眨眼一到三次](https://www.livescience.com/62988-why-babies-rarely-blink.html) 。我们不知道为什么——可能是因为他们盯着东西看的时间比成年人长，试图完全吸收。
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-fc0uvDI6TVQ&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-fc0uvDI6TVQ&start=0) 
 
@@ -56,7 +56,7 @@
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-mnYSMhR3jCI&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-mnYSMhR3jCI&start=0) 
 
-你可能认为自己与众不同，但是从基因上来说，所有人都非常相似。尽管你可能会描述一个不相关的人没有分享你的任何DNA，但事实是所有人都有大约99.9%的DNA是相同的。你和一个陌生人的所有区别，就在那另外的0.1%。我们发现，你和黑猩猩有98.8%的DNA是相同的。
+你可能认为自己与众不同，但是从基因上来说，所有人都非常相似。尽管你可能会描述一个不相关的人没有分享你的任何 DNA，但事实是所有人都有大约 99.9%的 DNA 是相同的。你和一个陌生人的所有区别，就在那另外的 0.1%。我们发现，你和黑猩猩有 98.8%的 DNA 是相同的。
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-Og5xAdC8EUI&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-Og5xAdC8EUI&start=0) 
 
@@ -66,9 +66,9 @@
 
 我们的身体制造了很多东西。多少钱？很多。
 
-*   你每天产生0.7升的唾液，比一瓶水还多。一年下来 [你可以装满一两个浴缸](https://whistlerdental.com/dentistry-science/fascinating-facts-about-saliva/) 。
-*   你每天放屁15到25次，总体积可多达 [1.8升](https://www.medicalnewstoday.com/articles/321866#why-do-we-fart)——足够装满一个小型聚会气球。
-*   你每天制造大约1.5升的粘液，但它并不都在你的鼻子里；粘液也存在于我们身体的其他部位，比如我们的肺。顺便问一下，你鼻子里产生的大部分东西是什么？ [你吞下它](https://www.vox.com/2015/2/11/8013065/mucus-snot-boogers) 。
+*   你每天产生 0.7 升的唾液，比一瓶水还多。一年下来 [你可以装满一两个浴缸](https://whistlerdental.com/dentistry-science/fascinating-facts-about-saliva/) 。
+*   你每天放屁 15 到 25 次，总体积可多达 [1.8 升](https://www.medicalnewstoday.com/articles/321866#why-do-we-fart)——足够装满一个小型聚会气球。
+*   你每天制造大约 1.5 升的粘液，但它并不都在你的鼻子里；粘液也存在于我们身体的其他部位，比如我们的肺。顺便问一下，你鼻子里产生的大部分东西是什么？ [你吞下它](https://www.vox.com/2015/2/11/8013065/mucus-snot-boogers) 。
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-3yIc3udorvI&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-3yIc3udorvI&start=0) 
 

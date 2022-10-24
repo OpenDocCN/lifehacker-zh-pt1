@@ -1,6 +1,6 @@
 # 我是如何学会停止嫉妒并最终继续我的生活的
 
-> 原文:[https://life hacker . com/how-I-learn-to-stop-be-so-gray-and-finally-get-1529920256](https://lifehacker.com/how-i-learned-to-stop-being-so-jealous-and-finally-get-1529920256)
+> 原文：<https://lifehacker.com/how-i-learned-to-stop-being-so-jealous-and-finally-get-1529920256>
 
 嫉妒和羡慕是我们许多人最常见的两种情绪，然而却是消极和无用的。很长一段时间，我让这两种破坏性的感觉压倒并毒害着我。这就是我最终控制他们的方法。
 
@@ -40,4 +40,4 @@ Watch
 
 以上所有这些都是为了提高自己，但它们也改变了我欣赏他人和与他人互动的方式。我还会时不时地嫉妒或羡慕吗？当然了。但随着我不断练习成为一个更好的人，我意识到我开始变绿，并能控制这些感觉，而不是让它们控制我。
 
-*本帖最初发表于2014年，更新于2020年12月29日，添加了新的标题照片，修改了死链，并使内容符合当前的Lifehacker风格。*
+*本帖最初发表于 2014 年，更新于 2020 年 12 月 29 日，添加了新的标题照片，修改了死链，并使内容符合当前的 Lifehacker 风格。*

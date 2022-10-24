@@ -1,6 +1,6 @@
 # 黄油炒番茄
 
-> 原文:[https://life hacker . com/saute-underhelming-tomatos-in-butter-1849367749](https://lifehacker.com/saute-underwhelming-tomatoes-in-butter-1849367749)
+> 原文：<https://lifehacker.com/saute-underwhelming-tomatoes-in-butter-1849367749>
 
 现在是八月，这意味着我现在应该有一个像样的西红柿三明治了，但波特兰的天气一团糟，我的花园一团糟，我的西红柿都没有成熟到可以做三明治的程度。
 
@@ -12,7 +12,7 @@ Watch
 
 挺好的。
 
-这也很容易。将你的西红柿 [切片，留下种子和凝胶](https://lifehacker.com/seeding-tomatoes-is-a-waste-of-time-and-flavor-1828862333) ，每四片加入大约1 1/2汤匙盐黄油到不粘锅里。将火调至中火，当黄油开始起泡和飞溅时，加入番茄片。每面至少煮五分钟，直到西红柿开始变形，你开始看到一些可爱的棕色小块聚集在锅周围。
+这也很容易。将你的西红柿 [切片，留下种子和凝胶](https://lifehacker.com/seeding-tomatoes-is-a-waste-of-time-and-flavor-1828862333) ，每四片加入大约 1 1/2 汤匙盐黄油到不粘锅里。将火调至中火，当黄油开始起泡和飞溅时，加入番茄片。每面至少煮五分钟，直到西红柿开始变形，你开始看到一些可爱的棕色小块聚集在锅周围。
 
 小心地将西红柿转移到盘子里，并在上面浇上西红柿黄油。用盐和胡椒调味，然后用硅胶或木制刮刀刮去棕色的小块，把这些东西涂在西红柿上。
 

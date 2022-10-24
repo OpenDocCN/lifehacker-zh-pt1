@@ -1,6 +1,6 @@
 # 无法更换下垂的床垫时，如何修复它
 
-> 原文:[https://life hacker . com/how-to-fix-a-sagging-when-replacing-it-not-an-1848289369](https://lifehacker.com/how-to-fix-a-sagging-mattress-when-replacing-it-isnt-an-1848289369)
+> 原文：<https://lifehacker.com/how-to-fix-a-sagging-mattress-when-replacing-it-isnt-an-1848289369>
 
 不管制造商想让你怎么想，买一个昂贵的高端床垫不会神奇地解决你所有的睡眠问题。然而，睡在中间凹陷或下陷的床垫上会让你晚上更难睡个安稳觉。
 

@@ -1,12 +1,12 @@
 # 如何发现你房子的结构损坏
 
-> 原文:[https://life hacker . com/how-to-spot-structural-damage-in-your-house-1847997961](https://lifehacker.com/how-to-spot-structural-damage-in-your-house-1847997961)
+> 原文：<https://lifehacker.com/how-to-spot-structural-damage-in-your-house-1847997961>
 
 当你家周围的东西看起来或感觉有点不对劲时，可能根本没什么可担心的，只是一些简单的事情，比如房子“稳定”或“呼吸”但是，另一方面，它也可能是一些看起来很小的事情，但却是一个更大问题的迹象。
 
 Watch
 
-在为BobVila.com撰写的一篇文章中，格伦达·泰勒提供了后一种情况的几个例子，以及在问题变得更糟之前可以做些什么来解决问题。以下是如何发现你房子潜在的结构损坏。
+在为 BobVila.com 撰写的一篇文章中，格伦达·泰勒提供了后一种情况的几个例子，以及在问题变得更糟之前可以做些什么来解决问题。以下是如何发现你房子潜在的结构损坏。
 
 ## 一扇门再也关不上了
 
@@ -26,4 +26,4 @@ Watch
 
 ## 木头或干墙上的一堆小洞
 
-如果你碰巧注意到在你家由木头或干墙制成的部分上有一组直径为1/8英寸或更小的小洞，这可不好。泰勒说，这些洞很有可能是飞白蚁啃咬出来的洞，也有可能是活跃的虫害迹象。考虑到潜在的严重结构损坏， [她说最好马上让](https://www.bobvila.com/slideshow/15-little-signs-your-house-has-a-big-problem-52099) 的灭虫员来检查。
+如果你碰巧注意到在你家由木头或干墙制成的部分上有一组直径为 1/8 英寸或更小的小洞，这可不好。泰勒说，这些洞很有可能是飞白蚁啃咬出来的洞，也有可能是活跃的虫害迹象。考虑到潜在的严重结构损坏， [她说最好马上让](https://www.bobvila.com/slideshow/15-little-signs-your-house-has-a-big-problem-52099) 的灭虫员来检查。

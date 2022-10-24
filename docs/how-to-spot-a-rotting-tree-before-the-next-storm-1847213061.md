@@ -1,6 +1,6 @@
 # 如何在下一次风暴到来之前找到路由树
 
-> 原文:[https://life hacker . com/how-to-spot-a-rotting-tree-before-the next storm-1847213061](https://lifehacker.com/how-to-spot-a-rotting-tree-before-the-next-storm-1847213061)
+> 原文：<https://lifehacker.com/how-to-spot-a-rotting-tree-before-the-next-storm-1847213061>
 
 恶劣天气事件发生后的第二天早上——无论是局部雷雨还是大飓风——人们小心翼翼地走出家门，查看损失情况。如果你住在有树的地方，很可能你会发现至少有几棵树已经不在了，不管是在你的房子里还是附近。
 
@@ -10,11 +10,11 @@ Watch
 
 ## 一棵树腐烂后会发生什么？
 
-通常情况下，在一棵树开始腐烂之前，它会受到某种程度的伤害——无论是在暴风雨中，被动物，还是在事故中，等等。—留下暴露的受损木材。据 [园艺专业](https://www.gardeningknowhow.com/ornamental/trees/tgen/what-is-wood-rot.htm) 的Tonya Barnett介绍，然后，包括真菌在内的各种不同的有机体进入，开始分解树内的木材，导致其变弱。真菌会向树的其他部分蔓延，留下腐烂的痕迹。
+通常情况下，在一棵树开始腐烂之前，它会受到某种程度的伤害——无论是在暴风雨中，被动物，还是在事故中，等等。—留下暴露的受损木材。据 [园艺专业](https://www.gardeningknowhow.com/ornamental/trees/tgen/what-is-wood-rot.htm) 的 Tonya Barnett 介绍，然后，包括真菌在内的各种不同的有机体进入，开始分解树内的木材，导致其变弱。真菌会向树的其他部分蔓延，留下腐烂的痕迹。
 
 ## 腐烂的树有什么迹象？
 
-首先要知道的是，有些树比其他树更容易腐烂；具体来说，像橡树这样的软木树种，马萨诸塞州斯普林菲尔德市的林务员亚历山大·谢尔曼 [告诉WWLP](https://www.wwlp.com/news/how-to-tell-if-tree-on-your-property-is-rotting/) 。
+首先要知道的是，有些树比其他树更容易腐烂；具体来说，像橡树这样的软木树种，马萨诸塞州斯普林菲尔德市的林务员亚历山大·谢尔曼 [告诉 WWLP](https://www.wwlp.com/news/how-to-tell-if-tree-on-your-property-is-rotting/) 。
 
 那么你应该寻找什么呢？下面是一些树木腐烂的迹象，由俄勒冈州波特兰市的 [谢尔曼](https://www.wwlp.com/news/how-to-tell-if-tree-on-your-property-is-rotting/) 以及 [树先生服务](https://mrtreeservices.com/blog/tree-rot-101/) 提供:
 

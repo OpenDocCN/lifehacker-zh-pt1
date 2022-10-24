@@ -1,6 +1,6 @@
 # 根据凯文·哈特的说法，跑步时应该考虑什么
 
-> 原文:[https://life hacker . com/what-to-think-when-you-run-on-Kevin-ha-1846128206](https://lifehacker.com/what-to-think-about-when-you-run-according-to-kevin-ha-1846128206)
+> 原文：<https://lifehacker.com/what-to-think-about-when-you-run-according-to-kevin-ha-1846128206>
 
 作为跑步者，我们经常对自己很苛刻。当你看表的时候，你可能会想:我太慢了。或者:*我的脚痛，我是不是开始起水泡了？*还是常年最爱:*天啊，我才半途而废*。但是[head](https://www.headspace.com/)的一组新的专注跑步曲目，由喜剧演员凯文·哈特主演，让我对我内心独白的思考有点不同——所以我和他在电话里谈论了当*他*跑步时他对的想法。
 
@@ -20,6 +20,6 @@ Watch
 
 ### **如果跑步感觉不自然也没关系**
 
-在《用心跑步》中，哈特讲述了如何学会热爱跑步，以及我们如何需要练习善待自己的技巧。我们之前在Lifehacker讨论过习惯跑步的身体方面——像 [这样的减缓你的速度](https://vitals.lifehacker.com/you-need-to-run-slower-1844984642) 并教会你的身体 [你不需要一直全力以赴](https://vitals.lifehacker.com/all-the-questions-youll-have-when-you-start-couch-to-5k-1830857969) 。但是也有一个心理学习曲线。
+在《用心跑步》中，哈特讲述了如何学会热爱跑步，以及我们如何需要练习善待自己的技巧。我们之前在 Lifehacker 讨论过习惯跑步的身体方面——像 [这样的减缓你的速度](https://vitals.lifehacker.com/you-need-to-run-slower-1844984642) 并教会你的身体 [你不需要一直全力以赴](https://vitals.lifehacker.com/all-the-questions-youll-have-when-you-start-couch-to-5k-1830857969) 。但是也有一个心理学习曲线。
 
 “我给任何人的最好建议是:慢慢来，”哈特说。如果你想享受跑步，那可能是你必须努力的事情。用小事情挑战自己，当你实现它的时候会有成就感。“这可能是有益的，因为这是你对你。你只会越做越好。”

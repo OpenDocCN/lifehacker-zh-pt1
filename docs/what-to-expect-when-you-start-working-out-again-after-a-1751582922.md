@@ -1,6 +1,6 @@
 # 疫情之后要多久才能恢复身材？
 
-> 原文:[https://life hacker . com/what-to-expect-when-when-you-start-out-after-a-1751582922](https://lifehacker.com/what-to-expect-when-you-start-working-out-again-after-a-1751582922)
+> 原文：<https://lifehacker.com/what-to-expect-when-you-start-working-out-again-after-a-1751582922>
 
 休息一段时间后，你终于要回到健身房了。无论你是在家锻炼保持了一点健康，还是完全忘记了锻炼，当你回到健身房时，你都有一些地方可以弥补。
 
@@ -20,7 +20,7 @@ Watch
 
 许多不同的身体系统会随着锻炼而改变，当你再次久坐不动时，它们又会变回来。当你身体健康时，你体内的血液量会增加，这是首先减少的事情之一。跑步者使用一种叫做 [VO2max](https://vitals.lifehacker.com/what-is-vo2max-1845077747) 的测量方法来衡量健康状况，这种方法大致与你发现自己呼吸困难的速度有关。
 
-即使休息两周，跑步者的最大摄氧量也会开始下降，你会比以前更快地喘不过气来。根据发表在*应用生理学杂志* 上的一项经典研究 [，两个月后，你会减掉大约15%的脂肪。如果你是一名多年的运动员，即使三个月后，你仍然比从未训练过的人过得好。但是这个](http://www.ncbi.nlm.nih.gov/pubmed/6511559) [并不适用于全新收益](http://www.ncbi.nlm.nih.gov/pubmed/10999420) ，就像你做了一个 [沙发转5k程序](https://vitals.lifehacker.com/all-the-questions-youll-have-when-you-start-couch-to-5k-1830857969) 然后直接回到沙发上。你将不得不重新开始。
+即使休息两周，跑步者的最大摄氧量也会开始下降，你会比以前更快地喘不过气来。根据发表在*应用生理学杂志* 上的一项经典研究 [，两个月后，你会减掉大约 15%的脂肪。如果你是一名多年的运动员，即使三个月后，你仍然比从未训练过的人过得好。但是这个](http://www.ncbi.nlm.nih.gov/pubmed/6511559) [并不适用于全新收益](http://www.ncbi.nlm.nih.gov/pubmed/10999420) ，就像你做了一个 [沙发转 5k 程序](https://vitals.lifehacker.com/all-the-questions-youll-have-when-you-start-couch-to-5k-1830857969) 然后直接回到沙发上。你将不得不重新开始。
 
 力量不会很快衰退。一个月后，你仍然会有大部分的力量和“力量”(那是你在快速运动中的力量，比如你做深蹲跳跃的能力)。一年后，你可能 [仍有当初获得](http://www.cdc.gov/nccdphp/sgr/pdf/chap3.pdf) 一半左右的实力。
 
@@ -29,7 +29,7 @@ Watch
 至于你失去了多少健康，没有一个公式能精确地告诉你；这些数字只是基于少数研究对象经历的指导。所以总结一下:
 
 *   如果你休息几周:你的有氧健身能力会有一点点下降，你的力量几乎没有损失。你很快就会恢复正常。
-*   如果你休息一年(但在那之前你的身材很好):你将失去至少15%的有氧健身能力，以及大约一半的力量。可能需要几个月的时间才能回到原来的位置。
+*   如果你休息一年(但在那之前你的身材很好):你将失去至少 15%的有氧健身能力，以及大约一半的力量。可能需要几个月的时间才能回到原来的位置。
 *   如果你休息了很多年(比如说，你是克林顿总统时期的大学运动员):假设你从零开始。你可能会比一个真正的新手更快地获得一些收益，但是让这成为一个惊喜吧。
 
 在你制定复出计划之前，重要的是要看看你为什么要休息，以及在此期间发生了什么。一个改变生活的全球疫情可能是大多数人阅读这篇文章的原因，但健身房的休息时间有各种各样的原因。
@@ -48,7 +48,7 @@ Watch
 
 这并不意味着你会在一两个星期后刷新你的个人最好成绩，但是你会一路走好。汤普森说，一个现实的时间表是在大约两个月内恢复正常。这对力量和有氧运动都适用。
 
-所以，如果你通常坐200磅的板凳，不要期望在你回来的第一天做超过100磅。如果你刚刚做了完整的俯卧撑，你可能不得不回到你的 [改良版](http://vitals.lifehacker.com/how-to-work-up-to-full-push-ups-without-starting-from-y-1718034181) 。
+所以，如果你通常坐 200 磅的板凳，不要期望在你回来的第一天做超过 100 磅。如果你刚刚做了完整的俯卧撑，你可能不得不回到你的 [改良版](http://vitals.lifehacker.com/how-to-work-up-to-full-push-ups-without-starting-from-y-1718034181) 。
 
 对于跑步这样的耐力运动，你还是要降低锻炼强度。汤普森建议首先步行，然后间歇慢跑，直到你能够以原来的速度慢跑完全锻炼。确切的距离并不重要。跑步者喜欢沉迷于里程数，经常引用[10%作为完美的周周增加](http://lifehacker.com/increase-your-running-mileage-in-10-blocks-to-decrease-480777743) 。不过，这只是一个经验法则，没有它 也有可能取得进展 [。汤普森同意这是武断的，他在一封电子邮件中写道:“10%法则没有科学(或医学)证据。”](http://vitals.lifehacker.com/ramp-up-running-mileage-safely-with-this-new-formula-1720627938)
 
@@ -60,8 +60,8 @@ Watch
 
 关键规则是*不要完全停下*。即使你不能进行常规锻炼，也要找一些你能做的事情。当天气不好时，固定自行车和跑步机是一个很容易去的地方，汤普森推荐 [划船机](https://vitals.lifehacker.com/how-to-do-intervals-on-a-rowing-machine-1838974151) 来改变一下节奏(似乎每个健身房的角落里都藏着一个)。其他选择可能包括 [快速锻炼](https://vitals.lifehacker.com/lets-revisit-the-seven-minute-workout-1843201042) (如果你的障碍是缺少时间)或 [锻炼，你可以在家里或酒店](https://vitals.lifehacker.com/how-i-went-from-weight-lifting-to-bodyweight-exercises-1747454329) 进行，如果使用设备或户外空间是个问题的话。
 
-这些迷你训练很有帮助，因为你可以通过短时间的高强度训练 来保持大部分的有氧健身。把你原本可能会做的60分钟跑步，缩减为20分钟的常规训练， [快速训练和所有的](http://vitals.lifehacker.com/how-to-add-speedwork-to-your-running-to-get-stronger-a-1695337461) 。对于力量训练，同样的想法也适用。你 [也许可以减少到每周只锻炼一次](http://www.cdc.gov/nccdphp/sgr/pdf/chap3.pdf) ，只要你继续像以前一样努力。如果你想 [在平衡上努力](https://vitals.lifehacker.com/challenge-your-balance-with-these-one-sided-exercises-1836728106) ，也有练习可以磨练这一点。
+这些迷你训练很有帮助，因为你可以通过短时间的高强度训练 来保持大部分的有氧健身。把你原本可能会做的 60 分钟跑步，缩减为 20 分钟的常规训练， [快速训练和所有的](http://vitals.lifehacker.com/how-to-add-speedwork-to-your-running-to-get-stronger-a-1695337461) 。对于力量训练，同样的想法也适用。你 [也许可以减少到每周只锻炼一次](http://www.cdc.gov/nccdphp/sgr/pdf/chap3.pdf) ，只要你继续像以前一样努力。如果你想 [在平衡上努力](https://vitals.lifehacker.com/challenge-your-balance-with-these-one-sided-exercises-1836728106) ，也有练习可以磨练这一点。
 
 如果你能在休息的时候坚持这些小活动，当你回到健身房的时候，你的身材会好很多。这样你就不会浪费你现在辛辛苦苦建立的健康。
 
-*这篇文章最初发表于2016年1月，并于2021年5月17日更新了更多信息，以符合Lifehacker风格指南。*
+*这篇文章最初发表于 2016 年 1 月，并于 2021 年 5 月 17 日更新了更多信息，以符合 Lifehacker 风格指南。*

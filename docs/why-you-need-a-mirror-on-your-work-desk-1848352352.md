@@ -1,8 +1,8 @@
 # 为什么你的办公桌上需要一面镜子
 
-> 原文:[https://life hacker . com/why-you-need-a-mirror-on-your-work-desk-1848352352](https://lifehacker.com/why-you-need-a-mirror-on-your-work-desk-1848352352)
+> 原文：<https://lifehacker.com/why-you-need-a-mirror-on-your-work-desk-1848352352>
 
-我已经在同一张桌子上工作了12年，但最近一两年出现了一个问题。你看，我的桌子背对着我家办公室的门，因为对面的墙上有一扇窗户，而凝视窗户是我创作过程中的一大部分。最近，我在我的设置中添加了一副 [降噪耳机](https://lifehacker.com/how-do-i-choose-the-best-noise-cancelling-headphones-511026873) ，它非常适合关闭干扰，例如，远处孩子的尖叫声。(我有三个孩子，他们经常尖叫。)
+我已经在同一张桌子上工作了 12 年，但最近一两年出现了一个问题。你看，我的桌子背对着我家办公室的门，因为对面的墙上有一扇窗户，而凝视窗户是我创作过程中的一大部分。最近，我在我的设置中添加了一副 [降噪耳机](https://lifehacker.com/how-do-i-choose-the-best-noise-cancelling-headphones-511026873) ，它非常适合关闭干扰，例如，远处孩子的尖叫声。(我有三个孩子，他们经常尖叫。)
 
 Watch
 
@@ -14,4 +14,4 @@ Watch
 
 朋友们，这已经改变了游戏规则。镜子指向我的门，所以任何时候有人靠近，我都可以在我的周边视觉中看到运动。如果我在开会，我甚至可以与入侵者进行眼神交流，并做出“现在不行”的动作，而不必在椅子上转圈。
 
-我的镜子是一面便宜的剃须镜，可能是从药店以不到5美元的价格买到的。它的背面有一个小支架，像一个相框。如果我还没有拥有它，我可能会挑选一些可爱的 [像这个](https://www.amazon.com/YEAKE-Magnification-Magnifying-Portable-Countertop/dp/B0831DLT6J/ref=sr_1_2?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/why-you-need-a-mirror-on-your-work-desk-1848352352&asc_source=&crid=1VN9WCTCUPQKH&keywords=shaving+mirror+with+stand&qid=1642088320&sprefix=shaving+mirror+with+stand,aps,45&sr=8-2&tag=kinjalifehackerlink-20&th=1) 。所以，帮你自己一个忙，在你的桌子上支起一面镜子，充分利用好耳机。
+我的镜子是一面便宜的剃须镜，可能是从药店以不到 5 美元的价格买到的。它的背面有一个小支架，像一个相框。如果我还没有拥有它，我可能会挑选一些可爱的 [像这个](https://www.amazon.com/YEAKE-Magnification-Magnifying-Portable-Countertop/dp/B0831DLT6J/ref=sr_1_2?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/why-you-need-a-mirror-on-your-work-desk-1848352352&asc_source=&crid=1VN9WCTCUPQKH&keywords=shaving+mirror+with+stand&qid=1642088320&sprefix=shaving+mirror+with+stand,aps,45&sr=8-2&tag=kinjalifehackerlink-20&th=1) 。所以，帮你自己一个忙，在你的桌子上支起一面镜子，充分利用好耳机。

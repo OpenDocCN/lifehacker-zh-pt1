@@ -1,17 +1,17 @@
 # 如何在不到一分钟的时间内制作简单的糖浆
 
-> 原文:[https://life hacker . com/how-to-make-simple-糖浆-in-less-one-minute-1847389720](https://lifehacker.com/how-to-make-simple-syrup-in-less-than-a-minute-1847389720)
+> 原文：<https://lifehacker.com/how-to-make-simple-syrup-in-less-than-a-minute-1847389720>
 
 当你想在家做鸡尾酒的时候，手边有简单的糖浆是很好的——但是当它只不过是糖和水的时候，从商店里买似乎有点浪费。不过，在炉子上制作自己的糖浆也有自己的缺点(也就是说，你必须等待它变热*和*冷却下来，这会进一步延迟鸡尾酒的制作)。幸运的是，我发现了一种更好、更快的在家自制糖浆的方法。
 
 Watch
 
-## 早上不到五分钟，T2就开始了，T4开始了
+## 早上不到五分钟，T2 就开始了，T4 开始了
 
 要在不到一分钟的时间内做出一批 [的简单糖浆，你需要做的就是:](https://www.thekitchn.com/simple-syrup-made-simpler-23201314)
 
-1.  将糖和水以1:1的比例混合放入玻璃罐中，然后盖上盖子。
-2.  用力摇晃混合物约20-30秒。
+1.  将糖和水以 1:1 的比例混合放入玻璃罐中，然后盖上盖子。
+2.  用力摇晃混合物约 20-30 秒。
 
 一旦你把混合物摇晃到糖大部分溶解的程度，让它在柜台上停留几分钟，这样一切都可以稳定下来。如果剩下一些讨厌的颗粒，你可以随时将 [放入微波炉几秒钟](https://lifehacker.com/how-to-make-just-enough-cocktail-syrup-1796553286) 以溶解剩余的糖。
 

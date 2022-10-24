@@ -1,6 +1,6 @@
 # 你应该和你的孩子玩这个“脏话字母表”游戏吗？
 
-> 原文:[https://life hacker . com/should-you-play-this-swear-word-alphabet-game-with-yo-1849012292](https://lifehacker.com/should-you-play-this-swear-word-alphabet-game-with-yo-1849012292)
+> 原文：<https://lifehacker.com/should-you-play-this-swear-word-alphabet-game-with-yo-1849012292>
 
 抖音的创造者和妈妈，正如她在简历中所说，一个似乎永无止境的金发少女、[【Fiddely _】【mom Jess】](https://www.tiktok.com/@fiddely_momjess)组成的“女孩帮”，发布了她和她的女儿们玩这个[坏单词字母游戏的视频有些人认为他们很搞笑，而有些人则认为她不负责任。](https://vm.tiktok.com/ZTdG4gRPj/?k=1)
 
@@ -8,7 +8,7 @@ Watch
 
 ## 什么是“坏单词字母表”游戏？
 
-在视频中，Jess说当孩子们心情不好时，她会和他们一起玩这些游戏来帮助他们感觉好一些。她说，这有助于他们在家里或车里的安全空间里“摆脱脏话”，而不是在学校说脏话。一些充满仇恨的词，比如n字，是完全禁止使用的，但是很多词，包括很多会在电影中获得R级的词，是公平的游戏。
+在视频中，Jess 说当孩子们心情不好时，她会和他们一起玩这些游戏来帮助他们感觉好一些。她说，这有助于他们在家里或车里的安全空间里“摆脱脏话”，而不是在学校说脏话。一些充满仇恨的词，比如 n 字，是完全禁止使用的，但是很多词，包括很多会在电影中获得 R 级的词，是公平的游戏。
 
 杰斯还说，她和她的孩子一起玩游戏，这样她可以学习最新的脏话术语，也可以检查她的孩子的理解能力。在 [这段视频](https://www.tiktok.com/@fiddely_momjess/video/7078644463777729834?is_copy_url=1&is_from_webapp=v1&lang=en) 中，当一个孩子使用“梦遗”这个术语时，杰西发现她的孩子确实知道这个术语，难道*不知道这个术语的意思，并说他们稍后会澄清这个意思。如果没有这款游戏，就不会有这样的对话。*
 

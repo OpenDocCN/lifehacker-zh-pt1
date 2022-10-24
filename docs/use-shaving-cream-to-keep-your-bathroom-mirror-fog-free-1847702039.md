@@ -1,6 +1,6 @@
 # 用剃须膏让你的浴室镜子不起雾
 
-> 原文:[https://life hacker . com/use-剃须膏保持你的浴室镜子无雾-1847702039](https://lifehacker.com/use-shaving-cream-to-keep-your-bathroom-mirror-fog-free-1847702039)
+> 原文：<https://lifehacker.com/use-shaving-cream-to-keep-your-bathroom-mirror-fog-free-1847702039>
 
 并不是每个人都幸运地生活在浴室里有强力排气扇的地方——或者根本没有排气扇。这意味着洗完澡后，你会感觉自己走进了一个蒸汽房，而不是自己的浴室。
 

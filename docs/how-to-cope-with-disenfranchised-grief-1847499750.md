@@ -1,6 +1,6 @@
 # 如何应对“被剥夺权利的悲伤”
 
-> 原文:[https://life hacker . com/how-to-应付-被剥夺-悲伤-1847499750](https://lifehacker.com/how-to-cope-with-disenfranchised-grief-1847499750)
+> 原文：<https://lifehacker.com/how-to-cope-with-disenfranchised-grief-1847499750>
 
 悲伤是对失去亲人的自然反应，从爱人的死亡到婚姻的破裂，突然的经济稳定，或者一段友谊的结束。悲伤时，人们往往会感受到一系列的情绪——从愤怒、内疚到悲伤——所有这些都是正常的，需要时间来解决。
 
@@ -8,9 +8,9 @@ Watch
 
 不管是什么原因，悲伤都是难以处理的。但是一种特殊类型的悲伤，被称为被剥夺权利的悲伤，可以被证明是一种需要克服的特殊挑战。也被称为隐藏的悲伤，被剥夺的悲伤是指被最小化、不被承认或被他人误解的损失，这可能导致人们在最需要支持的时候感到孤立和孤独。
 
-“相信别人能理解你的基本情绪会让悲伤变得不那么复杂，让你感觉不那么孤独，”艾米丽·西莫尼安说，她是一位拥有[prosper works执照的婚姻和家庭治疗师。](https://thriveworks.com/washington-dc-counseling/)T3】
+“相信别人能理解你的基本情绪会让悲伤变得不那么复杂，让你感觉不那么孤独，”艾米丽·西莫尼安说，她是一位拥有[prosper works 执照的婚姻和家庭治疗师。](https://thriveworks.com/washington-dc-counseling/)T3】
 
-[被剥夺的悲伤](https://www.healthline.com/health/mental-health/disenfranchised-grief) 的例子包括失去一段别人不知道存在的私人关系，比如一个LGBTQIA+的人，失去了一个伴侣，但在外面没有安全感；其他人认为“较小”的损失，如宠物死亡或健康问题；被耻辱所包围的损失，如不育或自杀死亡；免除哀悼，如前伴侣的死亡；或者是不符合社会规范的悲伤，比如表现出愤怒或投入工作。
+[被剥夺的悲伤](https://www.healthline.com/health/mental-health/disenfranchised-grief) 的例子包括失去一段别人不知道存在的私人关系，比如一个 LGBTQIA+的人，失去了一个伴侣，但在外面没有安全感；其他人认为“较小”的损失，如宠物死亡或健康问题；被耻辱所包围的损失，如不育或自杀死亡；免除哀悼，如前伴侣的死亡；或者是不符合社会规范的悲伤，比如表现出愤怒或投入工作。
 
 如果人们不理解或积极减少一个人的悲伤，那么处理这些情绪就会变得更加困难，甚至会导致一个人怀疑自己感情的有效性。
 

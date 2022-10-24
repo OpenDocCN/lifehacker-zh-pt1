@@ -1,16 +1,16 @@
 # 由于气候变化，如何看到罕见的“夜光”云
 
-> 原文:[https://life hacker . com/how-to-see-rare-night-shining-clouds-thanks-to-climate-1849119685](https://lifehacker.com/how-to-see-rare-night-shining-clouds-thanks-to-climate-1849119685)
+> 原文：<https://lifehacker.com/how-to-see-rare-night-shining-clouds-thanks-to-climate-1849119685>
 
-夜光云的时代正在来临。夜光云是历史上罕见的，美丽的闪闪发光的冰晶形成悬挂在高层大气中，过去几年只有在世界的北部才能看到。尽管它们已经稳定地向南蔓延了40年，所以今年可能是你从后院窥视这一独特现象的一年。
+夜光云的时代正在来临。夜光云是历史上罕见的，美丽的闪闪发光的冰晶形成悬挂在高层大气中，过去几年只有在世界的北部才能看到。尽管它们已经稳定地向南蔓延了 40 年，所以今年可能是你从后院窥视这一独特现象的一年。
 
 Watch
 
-虽然夜光云经常出现在高层大气中，但除非大气条件完全正确，否则它们通常是不可见的。传统上，观看这些旋转夜云的旺季是6月下旬至7月底，虽然它们过去只在美国阿拉斯加州和48个州的最北部地区可见，但全球变暖使“可见的nlc”在更多地方变得更加常见。耶。
+虽然夜光云经常出现在高层大气中，但除非大气条件完全正确，否则它们通常是不可见的。传统上，观看这些旋转夜云的旺季是 6 月下旬至 7 月底，虽然它们过去只在美国阿拉斯加州和 48 个州的最北部地区可见，但全球变暖使“可见的 nlc”在更多地方变得更加常见。耶。
 
 ## **夜光云是什么？**
 
-1885年首次观察到夜光云，或NLCs，是在距离地面47至53英里的空间边缘形成的冰云。它们通常以蓝色或白色漩涡的形式出现，只有在夏天最黑暗的时候才看得见。nlc在纬度50到60度之间最可见，但最近，它们变得越来越亮，并向南移动到洛杉矶，在洛杉矶 [人们报告说在2019年](https://www.severe-weather.eu/recent-events/historic-outbreak-of-noctilucent-clouds-over-europe-june-21st-2019/) 看到了它们。
+1885 年首次观察到夜光云，或 NLCs，是在距离地面 47 至 53 英里的空间边缘形成的冰云。它们通常以蓝色或白色漩涡的形式出现，只有在夏天最黑暗的时候才看得见。nlc 在纬度 50 到 60 度之间最可见，但最近，它们变得越来越亮，并向南移动到洛杉矶，在洛杉矶 [人们报告说在 2019 年](https://www.severe-weather.eu/recent-events/historic-outbreak-of-noctilucent-clouds-over-europe-june-21st-2019/) 看到了它们。
 
 ## 为什么现在夜光云更加明显？
 
@@ -24,8 +24,8 @@ Watch
 
 如果你幸运的话，你会在相对较低的地平线上看到几缕发光的白色或金色。如果你真的很幸运的话，那一缕一缕的云会变大并改变颜色，直到铁蓝色、金色和银色的漩涡、卷曲和巨浪遍布整个天空。
 
-我们现在正处于NLC的高峰期——从六月中旬到七月——但是哪些夜晚可能会出现这种现象不能提前几个小时预测。在过去，你不得不每天晚上都出去，但是世界各地的天空观测爱好者正在使用技术来共享NLC信息，并就这些难以捉摸的云形成的出现相互提醒。
+我们现在正处于 NLC 的高峰期——从六月中旬到七月——但是哪些夜晚可能会出现这种现象不能提前几个小时预测。在过去，你不得不每天晚上都出去，但是世界各地的天空观测爱好者正在使用技术来共享 NLC 信息，并就这些难以捉摸的云形成的出现相互提醒。
 
 ## **订阅这些社交媒体群，获取夜光云的最新消息**
 
-你东边的任何人都将首先看到NLCs，这种现象的粉丝们非常乐意提醒你它就要来了。你可以订阅 [夜光云警报twitter feed](https://twitter.com/hashtag/noctilucentclouds) ，用户上传事件的图片并发出消息；在脸书 上加入一个类似的群；或者在 [推特](https://twitter.com/hashtag/Noctilucentclouds?src=hashtag_click) 或者 [instagram](https://www.instagram.com/explore/tags/noctilucentclouds/?hl=en) 上关注#夜光号。我想当乌云出现的时候，所有这些信息都会变得疯狂。希望今年夏天我们都有机会去看看这个奇怪、奇妙的现象。
+你东边的任何人都将首先看到 NLCs，这种现象的粉丝们非常乐意提醒你它就要来了。你可以订阅 [夜光云警报 twitter feed](https://twitter.com/hashtag/noctilucentclouds) ，用户上传事件的图片并发出消息；在脸书 上加入一个类似的群；或者在 [推特](https://twitter.com/hashtag/Noctilucentclouds?src=hashtag_click) 或者 [instagram](https://www.instagram.com/explore/tags/noctilucentclouds/?hl=en) 上关注#夜光号。我想当乌云出现的时候，所有这些信息都会变得疯狂。希望今年夏天我们都有机会去看看这个奇怪、奇妙的现象。

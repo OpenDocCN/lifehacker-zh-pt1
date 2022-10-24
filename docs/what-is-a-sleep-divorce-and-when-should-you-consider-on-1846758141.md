@@ -1,6 +1,6 @@
 # 什么是“睡眠离婚”,什么时候应该考虑离婚？
 
-> 原文:[https://life hacker . com/what-a-sleep-离婚-你应该何时考虑1846758141](https://lifehacker.com/what-is-a-sleep-divorce-and-when-should-you-consider-on-1846758141)
+> 原文：<https://lifehacker.com/what-is-a-sleep-divorce-and-when-should-you-consider-on-1846758141>
 
 当你真正停下来想一想的时候，为了睡觉而和另一个人同床共枕是一个很糟糕的想法。当然，你可能会习惯睡在伴侣旁边，这样会感觉更安全，但是就睡眠质量和干扰而言，很难打败拥有自己的床。
 
@@ -16,7 +16,7 @@ Watch
 
 ### 何时考虑睡眠离婚
 
-如果睡眠中断或其他问题让你们的关系变得更糟，你和你的伴侣可能要讨论睡眠离婚。《纽约时报》*2019年的一篇 [文章深入探讨了睡眠离婚的概念，提出了一些为什么它可能是一些夫妇的可靠选择的原因。其中包括:](https://www.nytimes.com/2019/07/31/fashion/weddings/is-it-time-for-a-sleep-divorce.html)*
+如果睡眠中断或其他问题让你们的关系变得更糟，你和你的伴侣可能要讨论睡眠离婚。《纽约时报》*2019 年的一篇 [文章深入探讨了睡眠离婚的概念，提出了一些为什么它可能是一些夫妇的可靠选择的原因。其中包括:](https://www.nytimes.com/2019/07/31/fashion/weddings/is-it-time-for-a-sleep-divorce.html)*
 
 *   *按照不同的时间表睡觉*
 *   *打鼾和其他破坏性呼吸*

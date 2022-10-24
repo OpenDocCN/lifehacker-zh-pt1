@@ -1,12 +1,12 @@
 # 如何摆脱马斯克内
 
-> 原文:[https://lifehacker.com/how-to-get-rid-of-maskne-1845636529](https://lifehacker.com/how-to-get-rid-of-maskne-1845636529)
+> 原文：<https://lifehacker.com/how-to-get-rid-of-maskne-1845636529>
 
 成人痘痘烂透了。用面具盖住它就像在火山上安装一个帐篷。
 
 Watch
 
-最近在疫情期间脸上痤疮的增加被普遍称为“面具”对于许多人来说，长时间佩戴所需的面罩会导致覆盖区域出现瑕疵。对我来说，戴上几分钟的口罩给了我突破，让我再也不想离开我的房子。当去散步或跑步时，这个问题只会增加；布口罩下的汗水混合着温热的呼吸让一切变得更糟。FAAD医学博士[罗马林德一所大学](https://news.llu.edu/health-wellness/suffering-from-breakouts-under-your-mask-how-fight-maskne)的皮肤学家说:“口罩对皮肤施加热量、摩擦和闭塞，当与呼吸、说话或出汗的潮湿环境结合时，这是一个突破的秘诀。这不仅仅是关于虚荣心:cne是不舒服的，甚至是痛苦的。
+最近在疫情期间脸上痤疮的增加被普遍称为“面具”对于许多人来说，长时间佩戴所需的面罩会导致覆盖区域出现瑕疵。对我来说，戴上几分钟的口罩给了我突破，让我再也不想离开我的房子。当去散步或跑步时，这个问题只会增加；布口罩下的汗水混合着温热的呼吸让一切变得更糟。FAAD 医学博士[罗马林德一所大学](https://news.llu.edu/health-wellness/suffering-from-breakouts-under-your-mask-how-fight-maskne)的皮肤学家说:“口罩对皮肤施加热量、摩擦和闭塞，当与呼吸、说话或出汗的潮湿环境结合时，这是一个突破的秘诀。这不仅仅是关于虚荣心:cne 是不舒服的，甚至是痛苦的。
 
 以下是一些治疗和预防口罩的方法，这样我们就可以戴上口罩而不会感到不适或担心。
 
@@ -20,7 +20,7 @@ Watch
 
 ### 清洁你的脸
 
-戴口罩时清除脸上的细菌和油脂是很重要的。虽然找到合适的洁面乳真的只是一个旅程，但我发现使用玫瑰水洁面乳有效果。玫瑰水被称为 [舒缓皮肤刺激和减少发红](https://www.healthline.com/health/rose-water-benefits#soothes-sore-throats) 。胶束水也是一种温和且有效的洁面方式，无需肥皂和水。它更常用于卸妆，但它是一种去除污垢和污垢的好方法，不需要洗你的整张脸。使用面膜后，用胶束和/或玫瑰水快速擦拭面部，以阻止任何肿块的形成。尽量不要每次戴口罩都彻底洗脸。 [美国皮肤病学会](https://www.aad.org/public/everyday-care/skin-care-secrets/face/prevent-face-mask-skin-problems) 建议你“l限制每天洗两次澡，在出汗后洗。”特别是如果你不停地戴上和摘下面膜，这会开始剥夺你脸上的天然油脂，这将带来另一个问题。
+戴口罩时清除脸上的细菌和油脂是很重要的。虽然找到合适的洁面乳真的只是一个旅程，但我发现使用玫瑰水洁面乳有效果。玫瑰水被称为 [舒缓皮肤刺激和减少发红](https://www.healthline.com/health/rose-water-benefits#soothes-sore-throats) 。胶束水也是一种温和且有效的洁面方式，无需肥皂和水。它更常用于卸妆，但它是一种去除污垢和污垢的好方法，不需要洗你的整张脸。使用面膜后，用胶束和/或玫瑰水快速擦拭面部，以阻止任何肿块的形成。尽量不要每次戴口罩都彻底洗脸。 [美国皮肤病学会](https://www.aad.org/public/everyday-care/skin-care-secrets/face/prevent-face-mask-skin-problems) 建议你“l 限制每天洗两次澡，在出汗后洗。”特别是如果你不停地戴上和摘下面膜，这会开始剥夺你脸上的天然油脂，这将带来另一个问题。
 
 ### 不要忽略你的护肤程序
 

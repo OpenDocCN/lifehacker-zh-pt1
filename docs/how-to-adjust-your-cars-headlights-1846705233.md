@@ -1,6 +1,6 @@
 # 如何调整你汽车的前灯
 
-> 原文:[https://life hacker . com/how-to-adjust-your-cars-heads-1846705233](https://lifehacker.com/how-to-adjust-your-cars-headlights-1846705233)
+> 原文：<https://lifehacker.com/how-to-adjust-your-cars-headlights-1846705233>
 
 虽然我们可能不会像换油一样考虑这个问题，但确保你的车前灯被正确调整是日常维护的一个重要部分。当你在黑暗中开车时，一个(或两个)前灯指向错误的方向不仅会让你更难看清道路和周围的环境，也会给其他司机带来安全隐患。
 

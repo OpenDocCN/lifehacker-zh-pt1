@@ -1,6 +1,6 @@
 # 用橄榄汁做脏鸡蛋
 
-> 原文:[https://life hacker . com/make-dirty-eggs-with-olive-juice-1849362078](https://lifehacker.com/make-dirty-eggs-with-olive-juice-1849362078)
+> 原文：<https://lifehacker.com/make-dirty-eggs-with-olive-juice-1849362078>
 
 鸡蛋本身真的很淡，所以它们在很大程度上得益于添加的调味料，如一点辣椒酱、番茄酱或洋葱粉。我喜欢用许多 [酱汁和](https://lifehacker.com/elevate-the-humble-boiled-egg-with-flavorful-dips-1849348798) 蘸鸡蛋，但最近的一项发现让我在冰箱里囤积了看似空空的橄榄罐。用橄榄汁弄脏你的鸡蛋，让它们变得不可抗拒。
 

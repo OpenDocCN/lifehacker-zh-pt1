@@ -1,12 +1,12 @@
 # 如何挑选户外植物容器进行低维护园艺
 
-> 原文:[https://life hacker . com/how-to-pick-outdoor-plant-containers-for low-maintenance 1847084541](https://lifehacker.com/how-to-pick-outdoor-plant-containers-for-low-maintenanc-1847084541)
+> 原文：<https://lifehacker.com/how-to-pick-outdoor-plant-containers-for-low-maintenanc-1847084541>
 
 住在有充足户外空间的地方的人可能有空间扩展并建造一个地下花园——而不是像城市居民那样局限于种植者——但是容器中的园艺也有它自己的一些好处。事实上，如果你选择正确的植物(和正确的植物),它可以让你的花园和户外空间的维护费用相当低。
 
 Watch
 
-在Livingetc的一篇文章中，莎拉·威尔逊 分享了一些选择最好的(我们指的是最容易的)种植者的技巧，以下是需要知道的内容。
+在 Livingetc 的一篇文章中，莎拉·威尔逊 分享了一些选择最好的(我们指的是最容易的)种植者的技巧，以下是需要知道的内容。
 
 ### 做大
 

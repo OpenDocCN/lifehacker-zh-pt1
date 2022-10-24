@@ -1,12 +1,12 @@
-# 10个不用离开床就能做的最好的运动
+# 10 个不用离开床就能做的最好的运动
 
-> 原文: [https://lifehacker.com/10项不用下床就能做的最佳运动-1848258293](https://lifehacker.com/10-of-the-best-exercises-you-can-do-without-leaving-bed-1848258293)
+> 原文：<https://lifehacker.com/10-of-the-best-exercises-you-can-do-without-leaving-bed-1848258293>
 
-这些天有很多理由呆在床上。气温越来越低， [COVID病例再次上升](https://www.cnn.com/2021/12/16/health/us-coronavirus-thursday/index.html) 。如果你想待在被窝里，但又想适应某种运动，我们为你收集了一些不用起床就能做的运动。
+这些天有很多理由呆在床上。气温越来越低， [COVID 病例再次上升](https://www.cnn.com/2021/12/16/health/us-coronavirus-thursday/index.html) 。如果你想待在被窝里，但又想适应某种运动，我们为你收集了一些不用起床就能做的运动。
 
 如果你身体健康，这些床上运动可以成为你“聊胜于无”的一部分。否则，这些运动和伸展的主要好处是如果你因为某种原因需要呆在床上，比如你正在从疾病中恢复。在这种情况下，你也可以求助于理疗运动，像那些在 [这个工作表中的国民医疗服务体系(NHS)](https://www.swbh.nhs.uk/wp-content/uploads/2012/07/Bed-exercises-ML4816.pdf) 。
 
-Lifehacker的高级健康编辑指出了一些注意事项:Beth Skwarecki: 这些练习可能不会很顺利。例如，除非你的床垫非常结实，否则臀桥会导致你脖子周围的不适。另一方面，像抬腿这样的动作，理论上应该和在瑜伽垫上做的感觉非常接近。如果任何运动让你感到疼痛或不适，你应该立即停止。
+Lifehacker 的高级健康编辑指出了一些注意事项:Beth Skwarecki: 这些练习可能不会很顺利。例如，除非你的床垫非常结实，否则臀桥会导致你脖子周围的不适。另一方面，像抬腿这样的动作，理论上应该和在瑜伽垫上做的感觉非常接近。如果任何运动让你感到疼痛或不适，你应该立即停止。
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-drEiYK2li9Q&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-drEiYK2li9Q&start=0) 
 
@@ -52,7 +52,7 @@ Lifehacker的高级健康编辑指出了一些注意事项:Beth Skwarecki: 这�
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-Iwyvozckjak&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-Iwyvozckjak&start=0) 
 
-自行车紧缩是一项冠军ab运动，这是有原因的——常规的仰卧起坐在它面前会发抖。当做得正确时，自行车紧缩冲击你的上腹肌、下腹肌和斜肌。
+自行车紧缩是一项冠军 ab 运动，这是有原因的——常规的仰卧起坐在它面前会发抖。当做得正确时，自行车紧缩冲击你的上腹肌、下腹肌和斜肌。
 
 从孩童时期的非自愿健身班，到成年后的自愿健身时间，你可能会认为自己是自行车紧缩专家。尽管如此，还是要检查一下你的姿势，看看有没有常见的错误，比如拽你的脖子和快速完成动作。相反，你希望 [减速，这样你就可以专注于用你的腹肌](https://greatist.com/health/bicycle-crunch#mistakes-to-avoid) 来控制运动。为了使练习更难，放慢速度，保持紧缩姿势更长时间。
 
@@ -70,8 +70,8 @@ Lifehacker的高级健康编辑指出了一些注意事项:Beth Skwarecki: 这�
 
 假设你不睡在硬木地板上，床垫的不稳定性可能会增加支撑木板的难度。同时，在床上这样做的一个好处是你的前臂上有一层受欢迎的缓冲层。在经历了一次震撼人心的挑战后，你不是一直希望自己能舒服地躺在自己的床上吗？现在你可以了。
 
-*更多关于G/O Media合作伙伴床垫的信息。Lifehacker并不参与这些文章的创作，但可以通过其内容从购买中获得佣金:*
+*更多关于 G/O Media 合作伙伴床垫的信息。Lifehacker 并不参与这些文章的创作，但可以通过其内容从购买中获得佣金:*
 
 [最佳腰疼床垫](https://lifehacker.com/advisor/sleep/best-mattress-for-back-pain/)
 [最佳臀疼床垫](https://lifehacker.com/advisor/sleep/best-mattress-for-hip-pain/)
-[2022年最佳床垫](https://lifehacker.com/advisor/sleep/best-mattresses/)
+[2022 年最佳床垫](https://lifehacker.com/advisor/sleep/best-mattresses/)

@@ -1,6 +1,6 @@
 # 以介词结尾的句子真的需要警惕吗？
 
-> 原文:[https://life hacker . com/are-sentences-that-end-in-介词-really-something-1846788809](https://lifehacker.com/are-sentences-that-end-in-prepositions-really-something-1846788809)
+> 原文：<https://lifehacker.com/are-sentences-that-end-in-prepositions-really-something-1846788809>
 
 “正规的”英语充满了绊脚石，其中最主要的是以介词结尾的句子。比如这个问题:以介词结尾的句子真的是需要警惕的吗？
 
@@ -14,7 +14,7 @@ Watch
 
 > 一个词或一组词，如 *in，from，to，out*和代表的*，用在名词或代词前表示地点、位置、时间或方法。*
 
-这些是最常见的介词，也是我们想到这个词时通常会想到的。但是在英语中有超过100个这样的词，因为有许多方式来表达一个名词所使用的地点、位置、时间或方法。
+这些是最常见的介词，也是我们想到这个词时通常会想到的。但是在英语中有超过 100 个这样的词，因为有许多方式来表达一个名词所使用的地点、位置、时间或方法。
 
 ### 为什么这么复杂？
 

@@ -1,6 +1,6 @@
 # 如何选择、储存和食用葡萄
 
-> 原文:[https://life hacker . com/how-to-choose-store-and-eat-grapes-1845288290](https://lifehacker.com/how-to-choose-store-and-eat-grapes-1845288290)
+> 原文：<https://lifehacker.com/how-to-choose-store-and-eat-grapes-1845288290>
 
 对这个国家的大部分地区来说，现在是葡萄季节，一个被大大低估的水果季节。我们大多数人全年都能接触到葡萄，但秋天是它们真正炫耀的时候。无论你是品尝这个季节更不寻常的葡萄产品还是简单地享受一种标准的绿色鲜食葡萄，你都应该小心地采摘、清洗和储存它们，以最大限度地延长它们的寿命 和你吃它们的乐趣。
 
@@ -20,4 +20,4 @@ Watch
 
 ### 如何吃它们
 
-要品尝一颗葡萄，只需把它放进嘴里咀嚼。如果你想变得别致，你可以用少许盐将它们乳酸发酵，使 [成为气泡葡萄泡菜](https://skillet.lifehacker.com/pickle-grapes-for-a-surprisingly-good-time-1839061793) 。如果你错过了他们的最佳进食窗口并且他们开始 e 变得有点虚弱，不要烦恼(或者扔掉他们)。 [把它们冷冻起来](https://skillet.lifehacker.com/freeze-mushy-grapes-to-make-them-edible-again-1836999557) 可以让它们变得更结实，或者你可以 [把它们烤成](https://skillet.lifehacker.com/how-to-turn-mushy-grapes-into-a-fancy-cheese-accompanim-1819155001) 奶酪拼盘，或者 [用羊脖](https://skillet.lifehacker.com/sous-vide-your-lamb-with-grapes-1838948491) 腌制。如果你需要另一个有趣的与葡萄相关的活动，你可以试着看看你一次能吃多少，尽管说实话，这是一个你不应该玩的危险游戏。我的记录是23。)
+要品尝一颗葡萄，只需把它放进嘴里咀嚼。如果你想变得别致，你可以用少许盐将它们乳酸发酵，使 [成为气泡葡萄泡菜](https://skillet.lifehacker.com/pickle-grapes-for-a-surprisingly-good-time-1839061793) 。如果你错过了他们的最佳进食窗口并且他们开始 e 变得有点虚弱，不要烦恼(或者扔掉他们)。 [把它们冷冻起来](https://skillet.lifehacker.com/freeze-mushy-grapes-to-make-them-edible-again-1836999557) 可以让它们变得更结实，或者你可以 [把它们烤成](https://skillet.lifehacker.com/how-to-turn-mushy-grapes-into-a-fancy-cheese-accompanim-1819155001) 奶酪拼盘，或者 [用羊脖](https://skillet.lifehacker.com/sous-vide-your-lamb-with-grapes-1838948491) 腌制。如果你需要另一个有趣的与葡萄相关的活动，你可以试着看看你一次能吃多少，尽管说实话，这是一个你不应该玩的危险游戏。我的记录是 23。)

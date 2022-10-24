@@ -1,14 +1,14 @@
-# 2021年10条最佳锻炼礼仪建议
+# 2021 年 10 条最佳锻炼礼仪建议
 
-> 原文:[https://life hacker . com/10-20-1848175214](https://lifehacker.com/10-of-our-best-pieces-of-workout-etiquette-advice-of-20-1848175214)
+> 原文：<https://lifehacker.com/10-of-our-best-pieces-of-workout-etiquette-advice-of-20-1848175214>
 
-健身礼仪今年有了长足的进步。我们开始了2021年，由于疫情，大多数健身房仍然关闭。我们一起经历了它们逐渐重新开放的过程，以及随之而来的安全问题 的起伏。尽管如此，一些健身礼仪的租户是永恒的，比如处理不请自来的建议的艺术或者在跑步时如何礼貌地 [超过某人](https://lifehacker.com/how-to-pass-someone-the-right-way-when-youre-running-1847768591) 。我们Lifehacker认为，无论你的健身目标是什么，适当的形式也包括适当的礼仪。以下是我们从2021年开始的所有最佳建议，帮助你在锻炼中尽可能成为一个体面的人。
+健身礼仪今年有了长足的进步。我们开始了 2021 年，由于疫情，大多数健身房仍然关闭。我们一起经历了它们逐渐重新开放的过程，以及随之而来的安全问题 的起伏。尽管如此，一些健身礼仪的租户是永恒的，比如处理不请自来的建议的艺术或者在跑步时如何礼貌地 [超过某人](https://lifehacker.com/how-to-pass-someone-the-right-way-when-youre-running-1847768591) 。我们 Lifehacker 认为，无论你的健身目标是什么，适当的形式也包括适当的礼仪。以下是我们从 2021 年开始的所有最佳建议，帮助你在锻炼中尽可能成为一个体面的人。
 
 从表面上看，这是一个棘手的问题。然而，除了少数例外，答案几乎总是响亮的“永远不会”。尽管如此，有时你会觉得如果你不能用你的知识帮助一个健身伙伴，你可能会爆炸。我们深入研究了这一规则的几个例外以及 [为什么通常情况下](https://lifehacker.com/when-is-it-okay-to-tell-someone-theyre-doing-something-1837243590) 每个人都只关心自己的事情会更好的所有原因。
 
 好吧，有人没有看前面的幻灯片，他们带着不想要的评论来找你。你是做什么的？这个陌生人是一个随机的无名小卒，还是一个试图寻找新客户的私人教练？我们检查接受不请自来的建议是否安全，更重要的是，检查如何让人们管好自己的事情，让你一个人呆着 。
 
-向同伴挥手会不会很奇怪？*不*向其他跑步者挥手是不是很奇怪？你是否无意中使用了赛道上的“禁行车道”？作为一项体育活动，跑步已经够令人畏惧的了，而且跑步本身常常是一种巨大的安慰。现在你告诉我随之而来的是社交焦虑？ [感谢Reddit的r/running](https://www.reddit.com/r/running/comments/p9mnm0/what_are_some_unwritten_rules_of_running/) ，我们探索所有那些问题和更多的“ [不成文的规则”，你可能不知道，直到你打破它们](https://lifehacker.com/the-unwritten-rules-of-running-according-to-reddit-1847540740) 。
+向同伴挥手会不会很奇怪？*不*向其他跑步者挥手是不是很奇怪？你是否无意中使用了赛道上的“禁行车道”？作为一项体育活动，跑步已经够令人畏惧的了，而且跑步本身常常是一种巨大的安慰。现在你告诉我随之而来的是社交焦虑？ [感谢 Reddit 的 r/running](https://www.reddit.com/r/running/comments/p9mnm0/what_are_some_unwritten_rules_of_running/) ，我们探索所有那些问题和更多的“ [不成文的规则”，你可能不知道，直到你打破它们](https://lifehacker.com/the-unwritten-rules-of-running-according-to-reddit-1847540740) 。
 
 AMRAP？EMOM？*失败？*每个爱好都有它的行话，举重也不例外。事实上，举重运动员的语言可能会特别吓人，感觉像是新人的一个进入障碍。不要让健身房用语的混乱阻碍你。我们收集了一个与举重相关的词汇列表，这些词汇最容易让初学者感到困惑，所以 [用我们的健身房术语初学者指南](https://lifehacker.com/a-beginners-guide-to-gym-terminology-1846840529) 来自学吧。
 
@@ -22,4 +22,4 @@ AMRAP？EMOM？*失败？*每个爱好都有它的行话，举重也不例外。
 
 努力想看一眼你在健身房的倒影？虽然在镜子里检查自己的状态有很多好处，但你可能不需要和任何人打架就能获得一个好的视角。如果你厌倦了在镜子前等着轮到你训练， [以下是代替](https://lifehacker.com/how-to-lift-weights-without-mirrors-1846034648) 的方法。
 
-Lifehacker的高级健康编辑Beth Skwarecki为备受争议的健身房自拍提供了一个革命性的方法:冷静下来。别人的自拍不仅与你无关，而且拍一张照片还有很多好处，比如激励自己和他人，或者评估一段时间的进展。 [也许你想试试2022年的](https://lifehacker.com/gym-selfies-are-good-actually-1846792396) 自己。
+Lifehacker 的高级健康编辑 Beth Skwarecki 为备受争议的健身房自拍提供了一个革命性的方法:冷静下来。别人的自拍不仅与你无关，而且拍一张照片还有很多好处，比如激励自己和他人，或者评估一段时间的进展。 [也许你想试试 2022 年的](https://lifehacker.com/gym-selfies-are-good-actually-1846792396) 自己。

@@ -1,6 +1,6 @@
 # 清理每一片碎玻璃的最好方法
 
-> 原文:[https://life hacker . com/the-best-ways-to-clean-breaked-glass-1848844475](https://lifehacker.com/the-best-ways-to-clean-up-broken-glass-1848844475)
+> 原文：<https://lifehacker.com/the-best-ways-to-clean-up-broken-glass-1848844475>
 
 清理碎玻璃需要你彻底。为了足够彻底，有时你需要变得足智多谋。即使你手头有扫帚，你也可能想尝试不同的方法——要么扫帚无法在第一时间将它们捡起来，要么微小的碎片卡在扫帚毛里，给你的下一次清扫带来危险。
 

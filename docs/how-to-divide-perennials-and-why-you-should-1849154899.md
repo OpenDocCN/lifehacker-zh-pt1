@@ -1,6 +1,6 @@
 # 如何划分多年生植物，为什么你应该
 
-> 原文:[https://life hacker . com/how-to-divide-perennials-and-why-you-should-1849154899](https://lifehacker.com/how-to-divide-perennials-and-why-you-should-1849154899)
+> 原文：<https://lifehacker.com/how-to-divide-perennials-and-why-you-should-1849154899>
 
 多年生植物已经在人们的心中赢得了一席之地，他们喜欢周围有树叶，但不一定想每年都花时间去种植它。虽然多年生植物确实比它们的一年生亲戚需要更少的维护，但这并不意味着它们完全不管。
 
@@ -12,7 +12,7 @@ Watch
 
 ## 为什么你应该划分你的多年生植物
 
-事实上，虽然分割多年生植物确实给你留下了更多的植物，你可以添加到你花园或院子的其他部分(或者给aw ay 或卖给其他人)，它还有 [以及](https://extension.umn.edu/planting-and-growing-guides/dividing-perennials) 其他好处。最大的一个好处是它可以刺激植物的新生长——特别是如果它以前居住在一块已经变得过于拥挤的土地上。
+事实上，虽然分割多年生植物确实给你留下了更多的植物，你可以添加到你花园或院子的其他部分(或者给 aw ay 或卖给其他人)，它还有 [以及](https://extension.umn.edu/planting-and-growing-guides/dividing-perennials) 其他好处。最大的一个好处是它可以刺激植物的新生长——特别是如果它以前居住在一块已经变得过于拥挤的土地上。
 
 当植物都挤在一个小空间里时，它们不得不争夺养分和水分。此外，受限的气流使它们更容易生病。当你分割你的多年生植物时，它给了它们的根需要的空间，让它们能够生长和开花。
 

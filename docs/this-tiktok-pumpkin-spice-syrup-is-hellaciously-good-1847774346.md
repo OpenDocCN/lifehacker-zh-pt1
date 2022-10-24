@@ -1,12 +1,12 @@
 # 这种抖音南瓜香料糖浆非常好吃
 
-> 原文:[https://life hacker . com/this-tiktok-南瓜-香料-糖浆-好吃极了-1847774346](https://lifehacker.com/this-tiktok-pumpkin-spice-syrup-is-hellaciously-good-1847774346)
+> 原文：<https://lifehacker.com/this-tiktok-pumpkin-spice-syrup-is-hellaciously-good-1847774346>
 
-你可能已经注意到一种新的南瓜香料糖浆配方正在抖音流传。在@thethriftwitch发布的这个 [视频](https://www.tiktok.com/@thethriftwitch/video/6999003894697233669) 中，她将两杯红糖、一杯水、一汤匙南瓜派香料和一杯南瓜泥搅拌在一起，慢慢煨成浓稠的糖浆状混合物。
+你可能已经注意到一种新的南瓜香料糖浆配方正在抖音流传。在@thethriftwitch 发布的这个 [视频](https://www.tiktok.com/@thethriftwitch/video/6999003894697233669) 中，她将两杯红糖、一杯水、一汤匙南瓜派香料和一杯南瓜泥搅拌在一起，慢慢煨成浓稠的糖浆状混合物。
 
 Watch
 
-正如Kitchn [最近报道的](https://www.thekitchn.com/i-tried-the-homemade-pumpkin-spice-syrup-from-tiktok-23233847) ，虽然这是一个很好的配方，但你需要做一些修改，以达到你在视频中看到的浓稠的稠度——包括减少水量，等到最后再加入你的南瓜泥。否则，你会落得一塌糊涂。
+正如 Kitchn [最近报道的](https://www.thekitchn.com/i-tried-the-homemade-pumpkin-spice-syrup-from-tiktok-23233847) ，虽然这是一个很好的配方，但你需要做一些修改，以达到你在视频中看到的浓稠的稠度——包括减少水量，等到最后再加入你的南瓜泥。否则，你会落得一塌糊涂。
 
 ## **如何用正确的混合口味制作浓稠的糖浆**
 
@@ -18,15 +18,15 @@ Watch
 
 不管你喜欢哪种，都很好吃。我在早上的咖啡中混合了一些，在一满杯全脂牛奶咖啡中加入大约一汤匙。然后，在下午，我在我的杏仁牛奶冰咖啡里加了一些。他们都有适量的甜味，有足够的南瓜香料味道，使饮料令人满意。(想要最大化南瓜氛围吗？用 [南瓜籽奶](https://lifehacker.com/yes-you-can-make-pumpkin-seed-milk-and-its-pretty-goo-1847749594) 试试吧。)
 
-简而言之，这个配方产生了一种更微妙的南瓜香料咖啡，它提供了你所能要求的所有南瓜味道和香料。我对原版PSL的问题一直是它太甜了——而且他们过量使用了肉桂和肉豆蔻——我认为这是为了掩盖人造南瓜的味道。这种糖浆实现了味道的平衡，同时也很容易制作。
+简而言之，这个配方产生了一种更微妙的南瓜香料咖啡，它提供了你所能要求的所有南瓜味道和香料。我对原版 PSL 的问题一直是它太甜了——而且他们过量使用了肉桂和肉豆蔻——我认为这是为了掩盖人造南瓜的味道。这种糖浆实现了味道的平衡，同时也很容易制作。
 
 ## **配料**
 
 *   两杯红糖
-*   1杯水
-*   1汤匙南瓜派香料混合物
+*   1 杯水
+*   1 汤匙南瓜派香料混合物
 *   一杯南瓜泥
-*   1茶匙香草精(可选，但强烈推荐)
+*   1 茶匙香草精(可选，但强烈推荐)
 
 ## **指令**
 

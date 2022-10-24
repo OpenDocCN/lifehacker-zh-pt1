@@ -1,6 +1,6 @@
 # 混合玛格丽塔酒的三种新方法
 
-> 原文:[https://life hacker . com/three-fresh-ways-mix-up-your-margarita-1849348885](https://lifehacker.com/three-fresh-ways-to-mix-up-your-margarita-1849348885)
+> 原文：<https://lifehacker.com/three-fresh-ways-to-mix-up-your-margarita-1849348885>
 
 经典的教科书式玛格丽塔酒是一种完美的夏季饮品。它又酸又醉，而且足够甜——一种真正的 [不成功便成仁的鸡尾酒](https://lifehacker.com/this-classic-margarita-is-my-ride-or-die-cocktail-1847871540) ，如果曾经有过的话。但是我忍不住去摆弄东西，甚至是完美的东西，因为那是我的天性。我摆弄、调整、乱搞，因为上帝不允许我经历同样的事情两次(或者，更糟糕的是，感到无聊)。
 
@@ -14,19 +14,19 @@ Watch
 
 玛格丽塔酒上的盐边看起来很合适，但这不是给饮料调味的有效方法。夏季饮料中盐的味道很好——即使不是玛格斯 的 [饮料——但是在每一口之前都必须舔你的杯子是低效和有点愚蠢的。只需](https://lifehacker.com/you-should-salt-your-summer-beverages-1826136071) [为你的饮料调味](https://lifehacker.com/salt-your-cocktail-not-the-rim-of-the-glass-1827637510) 并将盐放入调酒器中。
 
-一杯健康的饮料通常是足够的，但你也可以用50克盐(食客建议Maldon)对200克沸水 的盐溶液 [来获得超级精确，所以你可以一滴一滴地添加它。你会得到盐边的所有好处，没有舔东西带来的尴尬。](https://www.eater.com/drinks/2016/4/20/11466792/cocktail-bartending-mixology-tricks-daiquiri-recipe)
+一杯健康的饮料通常是足够的，但你也可以用 50 克盐(食客建议 Maldon)对 200 克沸水 的盐溶液 [来获得超级精确，所以你可以一滴一滴地添加它。你会得到盐边的所有好处，没有舔东西带来的尴尬。](https://www.eater.com/drinks/2016/4/20/11466792/cocktail-bartending-mixology-tricks-daiquiri-recipe)
 
 ## 在那里旋转一些香料
 
 有些人喜欢吃辣的，我明白。将辣椒素和酒搭配在一起，既令人兴奋又危险。
 
-有几种方法可以给你的鸡尾酒加热。你可以将胡椒片搅碎放入摇壶中，你可以制作辣椒糖浆，或者你可以将墨西哥胡椒磨碎，然后在玻璃杯(或水罐)中的 周围旋转微型盘子 [。你会得到所有这些辛辣的芳香油，以及漂亮的墨西哥胡椒(或任何其他你想要的新鲜辣椒)，但你也可以轻松控制香料的含量。摩擦一点，摩擦很多，然后旋转——你就完成了。(只是一定要在光栅后洗手。peepers里没有辣椒油。)](https://lifehacker.com/the-easiest-way-to-add-heat-to-your-cocktail-1716405935)
+有几种方法可以给你的鸡尾酒加热。你可以将胡椒片搅碎放入摇壶中，你可以制作辣椒糖浆，或者你可以将墨西哥胡椒磨碎，然后在玻璃杯(或水罐)中的 周围旋转微型盘子 [。你会得到所有这些辛辣的芳香油，以及漂亮的墨西哥胡椒(或任何其他你想要的新鲜辣椒)，但你也可以轻松控制香料的含量。摩擦一点，摩擦很多，然后旋转——你就完成了。(只是一定要在光栅后洗手。peepers 里没有辣椒油。)](https://lifehacker.com/the-easiest-way-to-add-heat-to-your-cocktail-1716405935)
 
 ## 做一个简单的交换
 
 玛格丽塔酒是一种基本的酸味酒，没有太多的配料，通常是三四种。它们非常优化，但许多看似完美的安排通过一点点交换就重新焕发了活力。
 
-把龙舌兰酒换成T1是最明显的办法，但这是我通常在冬季使用的方法。为了更具夏日气息，我喜欢将 [与利口酒和柑橘](https://lifehacker.com/tweak-your-margarita-by-switching-up-the-liqueur-and-ci-1828084211) 混合，将君度酒换成Luxardo Maraschino利口酒，将酸橙汁换成柠檬。Luxardo有一种可爱的干，几乎是杏仁，樱桃的味道，这是我最喜欢的，但正如我之前提到的，你应该可以随意使用它:
+把龙舌兰酒换成 T1 是最明显的办法，但这是我通常在冬季使用的方法。为了更具夏日气息，我喜欢将 [与利口酒和柑橘](https://lifehacker.com/tweak-your-margarita-by-switching-up-the-liqueur-and-ci-1828084211) 混合，将君度酒换成 Luxardo Maraschino 利口酒，将酸橙汁换成柠檬。Luxardo 有一种可爱的干，几乎是杏仁，樱桃的味道，这是我最喜欢的，但正如我之前提到的，你应该可以随意使用它:
 
 > 你可以使用香蕉利口酒、柠檬酒(配以酸橙汁，具有双重柑橘功效)，甚至是水果白兰地。对于柑橘来说，酸橙从来都不是坏事，但柠檬、梅尔柠檬和葡萄柚(当搭配适当的利口酒时)都是令人愉快的。
 

@@ -1,8 +1,8 @@
 # 用这个免费的木偶戏班娱乐整个家庭
 
-> 原文:[https://life hacker . com/entertain-the-whole-family with this-free-puppet-class-1845946152](https://lifehacker.com/entertain-the-whole-family-with-this-free-puppetry-clas-1845946152)
+> 原文：<https://lifehacker.com/entertain-the-whole-family-with-this-free-puppetry-clas-1845946152>
 
-即使对于那些很少离开家的人来说，假期也是一个受欢迎的变化。与前几年不同的是，这可能不再是试图花每一分钟来弥补你失去的时间——鉴于自3月以来，我们与家人在一起的时间比我们想象的要多。
+即使对于那些很少离开家的人来说，假期也是一个受欢迎的变化。与前几年不同的是，这可能不再是试图花每一分钟来弥补你失去的时间——鉴于自 3 月以来，我们与家人在一起的时间比我们想象的要多。
 
 Watch
 
@@ -16,8 +16,8 @@ Watch
 
 ### 如何上网上木偶课
 
-这场老少皆宜的活动，叫做 [“银幕木偶戏”，我](http://www.movingimage.us/visit/calendar/2020/12/27/detail/puppetry-for-the-screen-with-brian-carson-silly-willy-friends) 从纽约皇后区 移动影像 [博物馆](http://www.movingimage.us/) [吉姆·汉森展](http://www.movingimage.us/exhibitions/2017/07/22/detail/the-jim-henson-exhibition/) 现场直播。课程在美国东部时间下午1点开始，将持续大约一个小时。
+这场老少皆宜的活动，叫做 [“银幕木偶戏”，我](http://www.movingimage.us/visit/calendar/2020/12/27/detail/puppetry-for-the-screen-with-brian-carson-silly-willy-friends) 从纽约皇后区 移动影像 [博物馆](http://www.movingimage.us/) [吉姆·汉森展](http://www.movingimage.us/exhibitions/2017/07/22/detail/the-jim-henson-exhibition/) 现场直播。课程在美国东部时间下午 1 点开始，将持续大约一个小时。
 
 布偶师和布偶设计师布莱恩·卡森 将带领大家学习，他的同事 [傻威利](https://www.instagram.com/SillyWillyClub/?hl=en) 和他们在这个行业的一些同事也会提供一些帮助。
 
-虽然从技术上来说，这个活动是免费的，但建议捐赠5美元(当你想到这一点时，这对于让你家里的人忙碌一个小时来说是一个非常小的代价)。 [RSVP](https://docs.google.com/forms/d/e/1FAIpQLSfcwKmMe0AbnkYLy_9YcdV5aUp57S18mzuM5WvS5mq0SCW66A/viewform) 此处参加。
+虽然从技术上来说，这个活动是免费的，但建议捐赠 5 美元(当你想到这一点时，这对于让你家里的人忙碌一个小时来说是一个非常小的代价)。 [RSVP](https://docs.google.com/forms/d/e/1FAIpQLSfcwKmMe0AbnkYLy_9YcdV5aUp57S18mzuM5WvS5mq0SCW66A/viewform) 此处参加。

@@ -1,6 +1,6 @@
 # 如何在不戳洞的情况下给蛋挞外壳加衬里
 
-> 原文:[https://life hacker . com/how-to-line-a-tart-shell-without-propping-holes-in-it-1848457762](https://lifehacker.com/how-to-line-a-tart-shell-without-poking-holes-in-it-1848457762)
+> 原文：<https://lifehacker.com/how-to-line-a-tart-shell-without-poking-holes-in-it-1848457762>
 
 果馅饼是美国甜点派的欧洲大姨妈。讲究，精致，低调，有点自命不凡，通常吹嘘成分丰富，一个微小的条子是你所需要的。你可以打赌，这种蛋挞的扇贝形外壳也非常柔软易碎。除了味道和质地之外，蛋挞的部分吸引力在于你可以跳过薄面皮不可或缺的麻烦——撕裂和破洞会导致东拼西凑的修正，或者更糟糕的是，重新卷起。但是馅饼锅有着锋利的金属边缘和笨拙的直角，这使得它很难在不撕开面团的情况下实现完美的形状。
 

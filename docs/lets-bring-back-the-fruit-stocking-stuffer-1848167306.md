@@ -1,6 +1,6 @@
 # 让我们把水果长筒袜带回来
 
-> 原文:[https://life hacker . com/let-bring-back-the-fruit-stocking-stuffer-1848167306](https://lifehacker.com/lets-bring-back-the-fruit-stocking-stuffer-1848167306)
+> 原文：<https://lifehacker.com/lets-bring-back-the-fruit-stocking-stuffer-1848167306>
 
 我小时候读过很多历史小说——大部分是《美国女孩玩偶》系列。我不知道他们现在是怎么做的，但在我那个年代，每个娃娃都有六本配套的书 (每本单独出售！)，而且所有的书都有几乎相同的标题——标题中唯一会因玩偶而异的部分是主角的名字。
 

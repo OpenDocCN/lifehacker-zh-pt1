@@ -1,6 +1,6 @@
 # 如何理解是用“既然”还是“因为”
 
-> 原文:[https://life hacker . com/how-to-make-sense-if-to-use-from-or-cause-1846667359](https://lifehacker.com/how-to-make-sense-of-whether-to-use-since-or-because-1846667359)
+> 原文：<https://lifehacker.com/how-to-make-sense-of-whether-to-use-since-or-because-1846667359>
 
 如果你曾经问过自己，更正确的说法是，“因为我感觉不舒服，所以我今天不应该去上班，”或者“因为我感觉不舒服，所以我今天不应该去上班”，你来对地方了。*因为*和*因为* 是那些 [对英语单词中的另一对，看起来像同义词](https://lifehacker.com/how-to-remember-when-to-use-further-versus-farther-1846649794) 、，但是我们已经感觉到(或者被告知)每一个都有一个适当的时间和地点来使用。
 

@@ -1,6 +1,6 @@
-# 我们2020年最好的家庭锻炼建议
+# 我们 2020 年最好的家庭锻炼建议
 
-> 原文:[https://life hacker . com/our-best-home-workout-of-advice-of-2020-1845957916](https://lifehacker.com/our-best-home-workout-advice-of-2020-1845957916)
+> 原文：<https://lifehacker.com/our-best-home-workout-advice-of-2020-1845957916>
 
 在家锻炼一直是一件很无聊的事情，但今年在家锻炼大放异彩。我们买了我们能买的设备，临时准备了我们不能买的设备，并学会了如何把我们的客厅或车道变成健身中心。以下是我们今年最好的健身建议。
 
@@ -8,13 +8,13 @@
 
 T2】
 
-啊，三月。当一切出于“极度谨慎”而关闭“两周”时，有那么一分钟，我们都相信了。我们给了你一个在家锻炼的快速入门 : G o在外面，找到视频，或者挖掘我们的极简锻炼想法的巨大档案。如果你的健身房刚刚再次关闭*，可能是时候重新审视一下了。*
+啊，三月。当一切出于“极度谨慎”而关闭“两周”时，有那么一分钟，我们都相信了。我们给了你一个在家锻炼的快速入门 : G o 在外面，找到视频，或者挖掘我们的极简锻炼想法的巨大档案。如果你的健身房刚刚再次关闭*，可能是时候重新审视一下了。*
 
  *在一级防范禁闭初期，我们和格雷格·努克尔斯讨论了如何处理所有这些脱轨的计划。 [休个淡季好，其实](https://lifehacker.com/how-to-plan-your-strength-training-when-the-future-is-u-1842649573) ，他告诉我们。如果你举重，你需要阅读他关于在没有重量的情况下获得足够阻力的建议，以及几个月后会发生什么。
 
 拳击手的力量和调节训练使用很少的设备，这使他们成为在家训练的完美灵感。拿一个计时器和一根跳绳，像拳击手 一样开始 [训练。](https://lifehacker.com/home-workouts-tips-from-a-boxing-coach-1842476036)
 
-在家锻炼的一个未被充分认识的乐趣是自己做，没有人打扰你。在这里 [我们为内向的](https://vitals.lifehacker.com/the-best-workout-videos-to-do-alone-1841673507) 突出了三个YouTube频道，有力量训练、轻度有氧运动和瑜伽选项。
+在家锻炼的一个未被充分认识的乐趣是自己做，没有人打扰你。在这里 [我们为内向的](https://vitals.lifehacker.com/the-best-workout-videos-to-do-alone-1841673507) 突出了三个 YouTube 频道，有力量训练、轻度有氧运动和瑜伽选项。
 
 准备好回归基础了吗？无论你是刚开始锻炼还是想休息一段时间后重新开始，这里有一个关于如何开始的基本入门。从小处着手，遵循计划，探索 ，直到你找到你真正喜欢的东西。
 
@@ -28,7 +28,7 @@ T2】
 
 你知道你需要举重和/或有氧运动器材，但是这里有几样东西可以让你在家里锻炼时感觉像健身房一样舒适。比如粉笔桶，结实的马棚垫，还有一些曲子。
 
-如果你错过了工作室，试试这些应用程序，它们会给你和健身班一样的团结感。Lifehacker的工作人员试用了Peloton、Studio.live、Nike Run Club和Aaptiv， [下面是我们对它们的看法](https://lifehacker.com/get-a-group-fitness-experience-on-your-own-with-these-a-1841700813) 。
+如果你错过了工作室，试试这些应用程序，它们会给你和健身班一样的团结感。Lifehacker 的工作人员试用了 Peloton、Studio.live、Nike Run Club 和 Aaptiv， [下面是我们对它们的看法](https://lifehacker.com/get-a-group-fitness-experience-on-your-own-with-these-a-1841700813) 。
 
 夏季举重带来了一系列挑战，冬季举重带来了另一系列挑战。以下是我在寒冷的户外 时的一些建议:如何穿衣，如何保持安全等等。
 

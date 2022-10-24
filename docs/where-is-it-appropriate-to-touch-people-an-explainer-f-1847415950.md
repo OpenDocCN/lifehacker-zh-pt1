@@ -1,6 +1,6 @@
 # 哪里适合摸人？老白人的解释者
 
-> 原文:[https://Jezebel . com/where-it-right-to-touch-people-an-explainer-f-1847415950](https://jezebel.com/where-is-it-appropriate-to-touch-people-an-explainer-f-1847415950)
+> 原文：<https://jezebel.com/where-is-it-appropriate-to-touch-people-an-explainer-f-1847415950>
 
 纽约州总检察长办公室的一份官方报告发现，安德鲁·科莫的确骚扰了许多对他提出指控的女性，这让纽约州州长大为光火。有益的是，他用一个视频 回应了调查结果，坦率地承认，是的，他确实经常以可能被解释为不恰当的方式触摸他遇到的似乎每个人。
 

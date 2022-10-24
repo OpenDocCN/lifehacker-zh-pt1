@@ -1,6 +1,6 @@
 # 在面试中回答“告诉我你犯过的一个错误”的最佳方式
 
-> 原文:[https://life hacker . com/the-best-way-to-answer-tell-me-a-mistake-you-maked-1848770251](https://lifehacker.com/the-best-way-to-answer-tell-me-about-a-mistake-you-made-1848770251)
+> 原文：<https://lifehacker.com/the-best-way-to-answer-tell-me-about-a-mistake-you-made-1848770251>
 
 大多数人在面试新工作时都不得不面对可怕的“告诉我你犯错误的一次”问题。虽然面试的全部目的是展示你最好的一面——没有人喜欢披露过去的工作失败——但只要提前做一点准备，你的回答实际上会对你有利。(你不想做的事情是即兴表演。)那么，回答这个问题的最佳方式是什么，可以提高你作为候选人的吸引力？
 

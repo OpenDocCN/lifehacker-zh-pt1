@@ -1,8 +1,8 @@
 # 接种疫苗还不能让餐馆外出变得安全
 
-> 原文:[https://life hacker . com/being-vaccine-sty-make-restaurant-outings-safe-ye-1846503497](https://lifehacker.com/being-vaccinated-doesnt-make-restaurant-outings-safe-ye-1846503497)
+> 原文：<https://lifehacker.com/being-vaccinated-doesnt-make-restaurant-outings-safe-ye-1846503497>
 
-如果你已经接种了疫苗，你可能会兴奋地去做一些你在过去一年中一直避免的事情。是的，y ou终于可以 [拜访一位未接种疫苗的朋友，而不必戴口罩](https://lifehacker.com/what-you-can-do-after-youre-vaccinated-according-to-th-1846430407) ，例如。但是请不要带那个朋友出去吃午饭。
+如果你已经接种了疫苗，你可能会兴奋地去做一些你在过去一年中一直避免的事情。是的，y ou 终于可以 [拜访一位未接种疫苗的朋友，而不必戴口罩](https://lifehacker.com/what-you-can-do-after-youre-vaccinated-according-to-th-1846430407) ，例如。但是请不要带那个朋友出去吃午饭。
 
 Watch
 

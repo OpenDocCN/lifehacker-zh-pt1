@@ -1,6 +1,6 @@
 # 如何识别和处理对成功的恐惧
 
-> 原文:[https://life hacker . com/how-to-identify-and-deal-a-fear-of-success-1846755688](https://lifehacker.com/how-to-identify-and-deal-with-a-fear-of-success-1846755688)
+> 原文：<https://lifehacker.com/how-to-identify-and-deal-with-a-fear-of-success-1846755688>
 
 害怕失败是有道理的。我们都曾在某个阶段经历过失败，意识到这并不好，并担心再次有那种感觉。但是我们的大脑很难取悦。因为除了 [对失败的恐惧](https://lifehacker.com/ask-yourself-the-right-questions-to-get-over-a-fear-of-1550574761) 之外，许多人还经历过对成功的恐惧。
 
@@ -10,13 +10,13 @@ Watch
 
 ### 什么是对成功的恐惧？
 
-首先，重要的是要记住，你并不害怕成功本身，而是害怕成功的后果。Kendra Cherry在 [一篇文章中为非常好的头脑](https://www.verywellmind.com/what-is-the-fear-of-success-5179184) 解释了这个概念:
+首先，重要的是要记住，你并不害怕成功本身，而是害怕成功的后果。Kendra Cherry 在 [一篇文章中为非常好的头脑](https://www.verywellmind.com/what-is-the-fear-of-success-5179184) 解释了这个概念:
 
 > 对成功的恐惧包括对成就的恐惧，常常到了人们会自我破坏的程度...因为对成功的期望通常基于这样一种想法，即实现目标意味着做出牺牲或忍受损失，所以人们可能会担心成功最终会让他们付出什么代价，这也许并不奇怪。
 
 ### 如何识别对成功的恐惧
 
-根据 [发表在*大学教育研究杂志上的一篇2018年文章*](https://doi.org/10.13189/ujer.2018.060619) ，对成功的恐惧可以采取以下任何形式:
+根据 [发表在*大学教育研究杂志上的一篇 2018 年文章*](https://doi.org/10.13189/ujer.2018.060619) ，对成功的恐惧可以采取以下任何形式:
 
 *   关心你的成功是否会改变你与生活中重要人物的关系
 *   对伴随你成功而来的新责任感到忧虑
@@ -31,7 +31,7 @@ Watch
 
 #### 重构负面信念
 
-不要以你现在的方式去思考成功(以一种让你紧张的方式)，重新定义你如何看待成就。这里Cherry再次解释:
+不要以你现在的方式去思考成功(以一种让你紧张的方式)，重新定义你如何看待成就。这里 Cherry 再次解释:
 
 > 开始关注一些你对成就的负面看法。
 > 

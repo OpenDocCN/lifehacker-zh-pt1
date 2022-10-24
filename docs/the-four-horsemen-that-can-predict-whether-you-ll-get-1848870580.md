@@ -1,6 +1,6 @@
 # 能预测你是否会离婚的“四骑士”
 
-> 原文:[https://life hacker . com/the-four-horsemen-that-can-predict-you-ll-get-1848870580](https://lifehacker.com/the-four-horsemen-that-can-predict-whether-you-ll-get-1848870580)
+> 原文：<https://lifehacker.com/the-four-horsemen-that-can-predict-whether-you-ll-get-1848870580>
 
 离婚是婚姻中没有人想去想的一个大“D”字——但我们都知道它会发生，即使是对那些关系曾经幸福而牢固的夫妇。如果你一直在婚姻关系中挣扎——或者在婚姻问题上，你只是一个宁愿主动而不愿被动的人——你可能想知道是否有什么可以帮助你和你的伴侣避免离婚。
 

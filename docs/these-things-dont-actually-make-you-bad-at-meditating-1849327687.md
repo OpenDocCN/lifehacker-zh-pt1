@@ -1,6 +1,6 @@
 # 这些事情实际上不会让你在冥想方面变得“糟糕”
 
-> 原文:[https://life hacker . com/these-things-not-actually-make-you bad-in-stating-1849327687](https://lifehacker.com/these-things-dont-actually-make-you-bad-at-meditating-1849327687)
+> 原文：<https://lifehacker.com/these-things-dont-actually-make-you-bad-at-meditating-1849327687>
 
 上周，我分享了自己学习如何从冥想 中受益的经历，尽管我觉得自己很不擅长冥想。但是是什么让一个人“不擅长”冥想呢？许多尝试冥想 的人感觉好像失败了。冥想中的许多“失败”实际上是完全正常的，是过程的一部分。它们只是“问题”,因为我们对冥想应该是什么都有这样的误解。当你在网上搜索冥想时，图像结果与其说鼓舞人心，不如说令人沮丧。例如，我很少在日出时盘腿坐在宁静的湖边。可悲的是。
 

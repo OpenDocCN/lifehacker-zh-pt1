@@ -1,10 +1,10 @@
 # 如果罗伊诉韦德案被推翻，你们州会发生什么
 
-> 原文:[https://life hacker . com/what-happens-in-your-state-if-roe-v-wade-is-overturned-1827297706](https://lifehacker.com/what-happens-in-your-state-if-roe-v-wade-is-overturned-1827297706)
+> 原文：<https://lifehacker.com/what-happens-in-your-state-if-roe-v-wade-is-overturned-1827297706>
 
-1973年，最高法院在Roe诉Wade一案中裁定德克萨斯州限制堕胎的法律违宪。如果这一决定被未来的最高法院案件推翻(反堕胎倡导者正在努力)，各州可以再次执行这样的法律。
+1973 年，最高法院在 Roe 诉 Wade 一案中裁定德克萨斯州限制堕胎的法律违宪。如果这一决定被未来的最高法院案件推翻(反堕胎倡导者正在努力)，各州可以再次执行这样的法律。
 
-尽管多年来 [法律学者一直争论](https://www.npr.org/sections/health-shots/2020/01/21/797102280/roe-v-wade-settled-law-or-bad-precedent-states-prep-for-an-overturn)*鱼子*是否有资格成为 【定居法】(这个术语是)的一种误称， 唐纳德·川普提名艾米·科尼·巴雷特填补因大法官露丝·巴德·金斯伯格去世而空出的最高法院席位，这既引发了人们对最高法院近50年来的裁决的担忧，也引发了一些人对最高法院的热切期待。 但是如果我真的改变了方向，会发生什么呢？
+尽管多年来 [法律学者一直争论](https://www.npr.org/sections/health-shots/2020/01/21/797102280/roe-v-wade-settled-law-or-bad-precedent-states-prep-for-an-overturn)*鱼子*是否有资格成为 【定居法】(这个术语是)的一种误称， 唐纳德·川普提名艾米·科尼·巴雷特填补因大法官露丝·巴德·金斯伯格去世而空出的最高法院席位，这既引发了人们对最高法院近 50 年来的裁决的担忧，也引发了一些人对最高法院的热切期待。 但是如果我真的改变了方向，会发生什么呢？
 
 Watch
 
@@ -15,6 +15,6 @@ Watch
 *   **拥有描述打算通过(更多)反堕胎法律的法律的州:**阿肯色州、堪萨斯州、肯塔基州、路易斯安那州、密苏里州、北达科他州和俄亥俄州。
 *   **拥有明确保护堕胎法律的州:**加利福尼亚州、康涅狄格州、特拉华州、夏威夷州、伊利诺伊州、缅因州、马里兰州、内华达州、纽约州、俄勒冈州、罗德岛州、华盛顿州和佛蒙特州。(它不是一个州，但华盛顿特区也通过了保护怀孕期间堕胎权利的法律。)
 
-当你观看最高法院的戏剧表演时(以及正在进行的确认Barrett进入法院的听证会，也考虑给你的州立法者打几个电话。
+当你观看最高法院的戏剧表演时(以及正在进行的确认 Barrett 进入法院的听证会，也考虑给你的州立法者打几个电话。
 
-*本文最初由Beth Skwarecki于2018年7月发表，并由Joel Cunningham于2020年10月更新，以反映随后几年州法律的变化，并提供有关Ruth Bader Ginsberg死亡和提名Amy库尼Barrett填补她在法院席位的额外背景。*
+*本文最初由 Beth Skwarecki 于 2018 年 7 月发表，并由 Joel Cunningham 于 2020 年 10 月更新，以反映随后几年州法律的变化，并提供有关 Ruth Bader Ginsberg 死亡和提名 Amy 库尼 Barrett 填补她在法院席位的额外背景。*

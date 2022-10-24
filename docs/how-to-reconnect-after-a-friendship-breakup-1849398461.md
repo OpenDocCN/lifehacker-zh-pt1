@@ -1,6 +1,6 @@
 # 友谊分手后如何重新联系
 
-> 原文:[https://life hacker . com/how-to-reconnect-after-a-friend-breakup-1849398461](https://lifehacker.com/how-to-reconnect-after-a-friendship-breakup-1849398461)
+> 原文：<https://lifehacker.com/how-to-reconnect-after-a-friendship-breakup-1849398461>
 
 也许比浪漫关系更重要的是，友谊对我们的健康和幸福至关重要。研究告诉我们，友谊的纽带可以帮助我们活得更长、更健康、更有趣。但是一段友谊可以有婚姻的所有起伏:我们会笑，会哭，有时还会分手。当这种情况发生时，我们很自然会想念以前的犯罪伙伴，并希望和解和修补关系。但是你怎么知道这段友谊是否可以挽回呢？
 

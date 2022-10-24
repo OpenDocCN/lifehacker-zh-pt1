@@ -1,6 +1,6 @@
 # 当你做饭时，有两件事你应该一直放在砧板上
 
-> 原文:[https://life hacker . com/two-things-you-should-keep-by-your-cut-board-1849470132](https://lifehacker.com/two-things-you-should-always-keep-by-your-cutting-board-1849470132)
+> 原文：<https://lifehacker.com/two-things-you-should-always-keep-by-your-cutting-board-1849470132>
 
 边走边清理被广泛认为是减少烹饪混乱的最好方法之一。吃完菜后把它们放进洗碗机，做的时候扔掉残羹剩饭，这样你就不用在吃完饭后做一堆繁琐的工作了，但我喜欢采取两个策略让它变得更简单。
 

@@ -1,6 +1,6 @@
 # 如何清洁你的电源插座而不杀死你自己
 
-> 原文:[https://life hacker . com/how-to-clean-you-with-kill-yo-1849568733](https://lifehacker.com/how-to-clean-your-electrical-outlets-without-killing-yo-1849568733)
+> 原文：<https://lifehacker.com/how-to-clean-your-electrical-outlets-without-killing-yo-1849568733>
 
 大多数人不一定会想到清洁电源插座，因为有触电的危险——但它们会像你家里的其他东西一样布满灰尘。灰尘会在表面堆积，阻碍电线接触，极端情况下甚至会引发火灾。为了保持你的插座外观和性能良好，他们应该每隔一段时间清洗一次。以下是如何做到没有触电的风险。
 

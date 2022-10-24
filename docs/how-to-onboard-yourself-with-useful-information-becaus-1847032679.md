@@ -1,8 +1,8 @@
 # 如何让自己掌握有用的信息，因为你的新工作不会
 
-> 原文:[https://life hacker . com/how-to-board-yourself-with-used-information-becaus-1847032679](https://lifehacker.com/how-to-onboard-yourself-with-useful-information-becaus-1847032679)
+> 原文：<https://lifehacker.com/how-to-onboard-yourself-with-useful-information-becaus-1847032679>
 
-公司对 [导师制度的厌恶是真正的](https://lifehacker.com/how-to-survive-a-sink-or-swim-work-atmosphere-1846495813) ，甚至到了一些新员工没有机会被适当地接纳的地步。事实是，许多人力资源手续是无用的— 或者至少被认为是无用的——无论是资源有限的创业公司还是选择将资源投入其他地方的b igger公司。
+公司对 [导师制度的厌恶是真正的](https://lifehacker.com/how-to-survive-a-sink-or-swim-work-atmosphere-1846495813) ，甚至到了一些新员工没有机会被适当地接纳的地步。事实是，许多人力资源手续是无用的— 或者至少被认为是无用的——无论是资源有限的创业公司还是选择将资源投入其他地方的 b igger 公司。
 
 Watch
 
@@ -14,11 +14,11 @@ Watch
 
 如果你的直接经理没有面试你，或者团队里有你还没有见过的更高级的同事，给他们发邮件，进一步表达你对这份工作的兴趣，如果感觉合适，就他们团队的工作向他们请教。
 
-正如 [Glassdoor所说的](https://www.glassdoor.com/blog/self-onboard/) ，“这种主动性可能看起来令人不安，但它可以让你脱颖而出，成为 [最佳候选人](https://www.glassdoor.com/blog/how-to-become-the-candidate-recruiters-cant-resist/) 。更重要的是，当你获得这个职位时，你会做好充分准备，立即投入工作。”
+正如 [Glassdoor 所说的](https://www.glassdoor.com/blog/self-onboard/) ，“这种主动性可能看起来令人不安，但它可以让你脱颖而出，成为 [最佳候选人](https://www.glassdoor.com/blog/how-to-become-the-candidate-recruiters-cant-resist/) 。更重要的是，当你获得这个职位时，你会做好充分准备，立即投入工作。”
 
 ## 了解谁在领导你的公司
 
-了解谁在经营公司，他们的职业背景，以及他们在职业生涯中做过什么是非常必要的。公司的CEO或总裁有没有许下月亮的历史？他们是那种在以牺牲公司文化来取悦股东的公司领导人吗？一旦一家公司获准上市，他们会洗手不干，然后转向下一个风险投资吗？
+了解谁在经营公司，他们的职业背景，以及他们在职业生涯中做过什么是非常必要的。公司的 CEO 或总裁有没有许下月亮的历史？他们是那种在以牺牲公司文化来取悦股东的公司领导人吗？一旦一家公司获准上市，他们会洗手不干，然后转向下一个风险投资吗？
 
 这些问题你可以通过谷歌搜索相关人员或者阅读他们之前领导过的公司来找到答案。工作场所的氛围通常是向下辐射的，所以知道谁在最高层发号施令是至关重要的。
 
@@ -28,4 +28,4 @@ Watch
 
 “人际关系网”这个词可能会引起抱怨，但是如果你没有通过人力资源部对事情有所了解，那就通过与同事的坦诚交谈来更好地了解。如前所述，你可以随时和同事谈论与工作相关的事情，但你可能会发现，你的许多同事会乐于谈论公司士气、你可能会遇到的头痛问题，以及人力资源经理通常不会透露的其他事情。
 
-当然，如果你不喜欢在寻找公司情报的过程中寻找多棵树，你可能会选择那些在Glassdoor这样的评论网站上就业满意度高的人，或者那些你从信任的朋友那里听到积极评价的人。
+当然，如果你不喜欢在寻找公司情报的过程中寻找多棵树，你可能会选择那些在 Glassdoor 这样的评论网站上就业满意度高的人，或者那些你从信任的朋友那里听到积极评价的人。

@@ -1,8 +1,8 @@
-# 没人听说过的10部最好的怪异(但很棒)的电影
+# 没人听说过的 10 部最好的怪异(但很棒)的电影
 
-> 原文:[https://life hacker . com/10-of-the-best-verged-but-awesome-movies-nobody-s-hear-1847683627](https://lifehacker.com/10-of-the-best-weird-but-awesome-movies-nobody-s-hear-1847683627)
+> 原文：<https://lifehacker.com/10-of-the-best-weird-but-awesome-movies-nobody-s-hear-1847683627>
 
-如果你和我一样，在第一次封锁的一个月左右，你用尽了你流媒体服务上所有有趣的主流电影。幸运的是，如果你稍微挖掘一下，在你的流媒体服务的土壤下，有一大堆难以置信的、鲜为人知的电影。所以，一旦你结束了在FBoy岛的狂欢，就去看看这些鲜为人知的电影吧。
+如果你和我一样，在第一次封锁的一个月左右，你用尽了你流媒体服务上所有有趣的主流电影。幸运的是，如果你稍微挖掘一下，在你的流媒体服务的土壤下，有一大堆难以置信的、鲜为人知的电影。所以，一旦你结束了在 FBoy 岛的狂欢，就去看看这些鲜为人知的电影吧。
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-ZiQYl3aHyVU&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-ZiQYl3aHyVU&start=0) 
 
@@ -12,7 +12,7 @@
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-KarWCgIw3Wk&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-KarWCgIw3Wk&start=0) 
 
-大卫·鲍依是一个偶像，但如果你对艺术电影感兴趣，或者是那种渴望观看全部Criterion系列的电影观众，你可能只熟悉这部尼古拉斯·罗格的电影。我第一次尝试看《T2》是在我15岁的时候，当时我正经历一个巨大的鲍伊阶段——圣大卫在《T4》[*的中心扮演孤独的外星人*](https://www.amazon.com/gp/video/detail/B07R1JP7NK/ref=atv_dl_rdr?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/10-of-the-best-weird-but-awesome-movies-nobody-s-hear-1847683627&asc_source=&autoplay=1&tag=kinjalifehackerlink-20) 【坠落地球的人】——但十几岁的我觉得它乏味又令人困惑，我很快就关掉了它。我很高兴地报告我错了。
+大卫·鲍依是一个偶像，但如果你对艺术电影感兴趣，或者是那种渴望观看全部 Criterion 系列的电影观众，你可能只熟悉这部尼古拉斯·罗格的电影。我第一次尝试看《T2》是在我 15 岁的时候，当时我正经历一个巨大的鲍伊阶段——圣大卫在《T4》[*的中心扮演孤独的外星人*](https://www.amazon.com/gp/video/detail/B07R1JP7NK/ref=atv_dl_rdr?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/10-of-the-best-weird-but-awesome-movies-nobody-s-hear-1847683627&asc_source=&autoplay=1&tag=kinjalifehackerlink-20) 【坠落地球的人】——但十几岁的我觉得它乏味又令人困惑，我很快就关掉了它。我很高兴地报告我错了。
 
 虽然它缺乏大多数科幻小说的特效和动作，但从(某种程度上)成人的角度来看，*《坠落地球的人》*是对腐败、异化和绝望本质的催眠和令人难忘的沉思。它让人想起电影时代，导演们冒着巨大的风险试图创造独特而永恒的艺术。*坠落到地球的人*并不总是成功，但它很接近，你真的还能要求一部免费播放的电影吗？
 
@@ -32,13 +32,13 @@
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-VVDxDXq1VEY&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-VVDxDXq1VEY&start=0) 
 
-食人、偏执狂和郊区腐败标志着这部罪恶的黑色喜剧，从童年的创伤和无助中挖掘恐怖和欢笑。父母的故事20世纪50年代，从众心理变得疯狂，这个故事提出了潜伏在每个孩子内心深处的问题:如果我的父母真的没有把我的最佳利益放在心上，那该怎么办？如果他们如此堕落，我们甚至没有他们所做的事情的名字呢？加上兰迪·奎德的精彩表演(谁能想到这家伙会如此擅长扮演白面包疯子？)和玛丽·贝丝·赫特，你有一个几乎没有人见过的经典。
+食人、偏执狂和郊区腐败标志着这部罪恶的黑色喜剧，从童年的创伤和无助中挖掘恐怖和欢笑。父母的故事 20 世纪 50 年代，从众心理变得疯狂，这个故事提出了潜伏在每个孩子内心深处的问题:如果我的父母真的没有把我的最佳利益放在心上，那该怎么办？如果他们如此堕落，我们甚至没有他们所做的事情的名字呢？加上兰迪·奎德的精彩表演(谁能想到这家伙会如此擅长扮演白面包疯子？)和玛丽·贝丝·赫特，你有一个几乎没有人见过的经典。
 
 **在哪里播放:**黄金视频
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-0Onmgwe5xi8&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-0Onmgwe5xi8&start=0) 
 
-如果你决定看《巧克力》(你应该这样做),不要理会影片前半小时的不连贯。你只需要知道这一点:Zen是一个患有自闭症样障碍的哑巴少女，她的童年是在看李小龙电影中度过的。当她的家人受到山口组恶棍的威胁时，Zen变得暴跳如雷，她从所有她看过的电影中收集了超人的战斗能力。
+如果你决定看《巧克力》(你应该这样做),不要理会影片前半小时的不连贯。你只需要知道这一点:Zen 是一个患有自闭症样障碍的哑巴少女，她的童年是在看李小龙电影中度过的。当她的家人受到山口组恶棍的威胁时，Zen 变得暴跳如雷，她从所有她看过的电影中收集了超人的战斗能力。
 
 亚宁“吉耶”维斯米斯塔南达是一个完美的动作电影明星，没有电脑特效，没有电线，没有废话的打斗场面是惊人的大胆和运动。这种场景在美国是不可能拍摄的，因为保险公司绝不会批准特技。如果你有一个强大的胃，留下来看电影后的特技-出岔子。哎哟。
 
@@ -60,12 +60,12 @@
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-Bcs3_b3VXSU&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-Bcs3_b3VXSU&start=0) 
 
-从第四阶段的海报艺术和前提来看，我期待一部典型的20世纪70年代自然疯狂的电影，变异的蚂蚁攻击，人们尖叫着跑来跑去，满身是昆虫。但是 [*四期*](https://www.hulu.com/movie/phase-iv-742d8fd2-145e-470e-97cc-a1e7cc3b92dc) 根本不是那么回事。据计算，2001年的“T8”比“蚂蚁帝国”或“蜂群”更接近库布里克的“感冒”。这个科学家与有知觉的蚁丘斗智斗勇的故事审视了思想的本质，集体主义与个人主义，以及人类面对外星智慧时的纯粹怪异。所有那些*和*变异的蚂蚁攻击，人们尖叫着跑来跑去，浑身是虫。完全双赢。
+从第四阶段的海报艺术和前提来看，我期待一部典型的 20 世纪 70 年代自然疯狂的电影，变异的蚂蚁攻击，人们尖叫着跑来跑去，满身是昆虫。但是 [*四期*](https://www.hulu.com/movie/phase-iv-742d8fd2-145e-470e-97cc-a1e7cc3b92dc) 根本不是那么回事。据计算，2001 年的“T8”比“蚂蚁帝国”或“蜂群”更接近库布里克的“感冒”。这个科学家与有知觉的蚁丘斗智斗勇的故事审视了思想的本质，集体主义与个人主义，以及人类面对外星智慧时的纯粹怪异。所有那些*和*变异的蚂蚁攻击，人们尖叫着跑来跑去，浑身是虫。完全双赢。
 
 **哪里看:** Hulu，派拉蒙+
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-BHhaIRevB-Y&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-BHhaIRevB-Y&start=0) 
 
-《爱情魔女》是一部电影爱好者的电影。编剧兼导演安妮·比勒使用中世纪服装、化妆、布景和技巧创作了一个华丽的彩色女权主义寓言，看起来像是1965年制作的。如果你喜欢穿着现代服装的邪恶女巫，半开玩笑的邪恶仪式，迷幻的疯狂场景，以及对男女关系的棘手问题的扭曲观察，看看爱情女巫*。会让你大吃一惊的，伙计。*
+《爱情魔女》是一部电影爱好者的电影。编剧兼导演安妮·比勒使用中世纪服装、化妆、布景和技巧创作了一个华丽的彩色女权主义寓言，看起来像是 1965 年制作的。如果你喜欢穿着现代服装的邪恶女巫，半开玩笑的邪恶仪式，迷幻的疯狂场景，以及对男女关系的棘手问题的扭曲观察，看看爱情女巫*。会让你大吃一惊的，伙计。*
 
 *观看地点:富博，AMC+*

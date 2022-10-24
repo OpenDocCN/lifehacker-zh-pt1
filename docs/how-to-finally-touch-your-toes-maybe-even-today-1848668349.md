@@ -1,6 +1,6 @@
 # 如何最终触摸到你的脚趾，也许就在今天
 
-> 原文:[https://life hacker . com/how-to-finally-touch-your-together-maybe-even-today-1848668349](https://lifehacker.com/how-to-finally-touch-your-toes-maybe-even-today-1848668349)
+> 原文：<https://lifehacker.com/how-to-finally-touch-your-toes-maybe-even-today-1848668349>
 
 我总是和灵活性有一种奇怪的关系。我的脚踝很容易弯曲，所以我可以深蹲来放松休息。我进入了奥运会举重项目，没有花一分钟担心我的肩膀活动能力。然而:我摸不到我的脚趾。或者至少我直到最近才知道。
 

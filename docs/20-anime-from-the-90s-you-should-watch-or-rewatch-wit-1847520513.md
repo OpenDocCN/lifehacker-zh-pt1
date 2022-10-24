@@ -1,14 +1,14 @@
-# 你应该和Evangelion一起看(或重新看)20部90年代的动画
+# 你应该和 Evangelion 一起看(或重新看)20 部 90 年代的动画
 
-> 原文:[https://life hacker . com/20-anime-from-the-90-you-should-watch-or-rewatch-wit-1847520513](https://lifehacker.com/20-anime-from-the-90s-you-should-watch-or-rewatch-wit-1847520513)
+> 原文：<https://lifehacker.com/20-anime-from-the-90s-you-should-watch-or-rewatch-wit-1847520513>
 
-霓虹创世纪福音战士“重建”系列的最后一部电影， [*福音战士:3.0 + 1.01曾几何时*](https://youtu.be/GZfuWMDEJpw) *，*最近登陆亚马逊Prime，为该系列的集中剂量机械动作和悲伤引入了新一代，并重新伤害了终于开始收拾残局继续前进的一代人。
+霓虹创世纪福音战士“重建”系列的最后一部电影， [*福音战士:3.0 + 1.01 曾几何时*](https://youtu.be/GZfuWMDEJpw) *，*最近登陆亚马逊 Prime，为该系列的集中剂量机械动作和悲伤引入了新一代，并重新伤害了终于开始收拾残局继续前进的一代人。
 
-90年代另一部主打篮球主题的动画《灌篮高手T2》也将于明年上映。鉴于这种90年代复兴的萌芽(以及还没有真正消失的剧集)，有必要重新审视一下这十年中巩固了这种类型对美国观众的控制的一些重要的、决定性的动漫系列。
+90 年代另一部主打篮球主题的动画《灌篮高手 T2》也将于明年上映。鉴于这种 90 年代复兴的萌芽(以及还没有真正消失的剧集)，有必要重新审视一下这十年中巩固了这种类型对美国观众的控制的一些重要的、决定性的动漫系列。
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-HYV5dMo6ejM&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-HYV5dMo6ejM&start=0) 
 
-最初的*龙珠*系列在80年代确实令人印象深刻(153集不算什么)，但我肯定我不是唯一一个在90年代被卷入成年悟空的冒险之后回到那些集的人。这是动画(或一般的电视)历史上最大的特许经营之一，但*龙珠Z* 仍然感觉像它的核心。
+最初的*龙珠*系列在 80 年代确实令人印象深刻(153 集不算什么)，但我肯定我不是唯一一个在 90 年代被卷入成年悟空的冒险之后回到那些集的人。这是动画(或一般的电视)历史上最大的特许经营之一，但*龙珠 Z* 仍然感觉像它的核心。
 
 **流向何处:** Funimation
 
@@ -32,7 +32,7 @@
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-jsbRuAElEnk&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-jsbRuAElEnk&start=0) 
 
-2011年的重新启动是坚实的，但1999年的OVA系列是其时代的定义性shūnen动画系列之一，具有令人惊讶的黑暗曲折。
+2011 年的重新启动是坚实的，但 1999 年的 OVA 系列是其时代的定义性 shūnen 动画系列之一，具有令人惊讶的黑暗曲折。
 
 **流媒体播放地点:** HBO Max、网飞、Hulu、Funimation
 
@@ -44,13 +44,13 @@
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-DvHqrQcIxoY&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-DvHqrQcIxoY&start=0) 
 
-20世纪90年代以体育为主题的动漫系列明年将会有一部新电影上映，所以现在重温这部帮助篮球在日本流行起来的系列电影绝对不是一个坏时机。
+20 世纪 90 年代以体育为主题的动漫系列明年将会有一部新电影上映，所以现在重温这部帮助篮球在日本流行起来的系列电影绝对不是一个坏时机。
 
 **流向哪里:**脆脆卷
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-C9oo-ZPB5oI&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-C9oo-ZPB5oI&start=0) 
 
-美国观众可能不会注意到这一点，直到它在21世纪初开始在美国播出，但没关系:龙与地下城式的动画是一个坚实的娱乐性的所有年龄的幻想。
+美国观众可能不会注意到这一点，直到它在 21 世纪初开始在美国播出，但没关系:龙与地下城式的动画是一个坚实的娱乐性的所有年龄的幻想。
 
 **流向哪里:** Hulu，Funimation
 
@@ -68,19 +68,19 @@
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-AtjinyUUh6w&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-AtjinyUUh6w&start=0) 
 
-一名少年罪犯成为了一名来世侦探，主要是为一些合法的shō nen风格的行动服务，这些行动建立了一个伟大的锦标赛弧。它还有一个不可思议的开场主题。
+一名少年罪犯成为了一名来世侦探，主要是为一些合法的 shō nen 风格的行动服务，这些行动建立了一个伟大的锦标赛弧。它还有一个不可思议的开场主题。
 
 **流向哪里:** Hulu，Funimation，Tubi
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-xVKfcv_yAL0&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-xVKfcv_yAL0&start=0) 
 
-《金属偶像之钥》讲述了一个年轻的机器人女孩的故事，她知道自己可以变成人类——但前提是她能交3万个朋友。在COVID时代，这听起来很可怕，但这部剧以令人印象深刻的复杂方式玩弄了身份和名声的概念。
+《金属偶像之钥》讲述了一个年轻的机器人女孩的故事，她知道自己可以变成人类——但前提是她能交 3 万个朋友。在 COVID 时代，这听起来很可怕，但这部剧以令人印象深刻的复杂方式玩弄了身份和名声的概念。
 
 **流向哪里:**克朗彻罗尔、亚洲拉什、图比
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-6xKWiCMKKJg&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-6xKWiCMKKJg&start=0) 
 
-也许重播1000多集的《神奇宝贝》并不完全可行，但你可能会在一周左右的时间里淘汰最初的《靛蓝联盟》系列——这些剧集开启了一个尚未失去任何动力的系列，也许值得回到最开始的地方。
+也许重播 1000 多集的《神奇宝贝》并不完全可行，但你可能会在一周左右的时间里淘汰最初的《靛蓝联盟》系列——这些剧集开启了一个尚未失去任何动力的系列，也许值得回到最开始的地方。
 
 **流向哪里:**网飞
 
@@ -92,13 +92,13 @@
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-t5y4nQ5Y1V8&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-t5y4nQ5Y1V8&start=0) 
 
-这个有点内容警告，因为情节是由一个最近自杀身亡的同学的电子邮件推动的。那封邮件促使主角Lain去追寻她死去的朋友，进入一个类似照片网络的世界。这个节目讲述了很多关于我们永远在线的文化，以及一些令人印象深刻的深思熟虑和噩梦般的图像。
+这个有点内容警告，因为情节是由一个最近自杀身亡的同学的电子邮件推动的。那封邮件促使主角 Lain 去追寻她死去的朋友，进入一个类似照片网络的世界。这个节目讲述了很多关于我们永远在线的文化，以及一些令人印象深刻的深思熟虑和噩梦般的图像。
 
 **流向何处:** Funimation
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-7UVsgMRW7jY&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-7UVsgMRW7jY&start=0) 
 
-在日本，这部受西方启发的电视剧(它的背景星球甚至被称为“硝烟”)在2000年代初移植到成人游泳节目时取得了巨大成功。虽然还有一部后来的电影，但这26集的系列结局相当确定，所以这是一次完整的经历。
+在日本，这部受西方启发的电视剧(它的背景星球甚至被称为“硝烟”)在 2000 年代初移植到成人游泳节目时取得了巨大成功。虽然还有一部后来的电影，但这 26 集的系列结局相当确定，所以这是一次完整的经历。
 
 **流向哪里:** Hulu，Funimation
 
@@ -122,4 +122,4 @@
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-vAg-jZgn_dk&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-vAg-jZgn_dk&start=0) 
 
-最后，但并非最不重要的是，这部电视剧启发了一部新电影和对90年代动画的全新审视。当青春期意味着驾驶巨型机甲防御神秘入侵者时，成年就是完全不同的事情了。是吗？少年“福音战士”飞行员所面临的心理创伤是深有关联的——在那些巨大的机甲战斗背后有着真实的情感。
+最后，但并非最不重要的是，这部电视剧启发了一部新电影和对 90 年代动画的全新审视。当青春期意味着驾驶巨型机甲防御神秘入侵者时，成年就是完全不同的事情了。是吗？少年“福音战士”飞行员所面临的心理创伤是深有关联的——在那些巨大的机甲战斗背后有着真实的情感。

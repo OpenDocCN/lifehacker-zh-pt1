@@ -1,6 +1,6 @@
 # 如何安全地去除衣服上的不干胶
 
-> 原文:[https://life hacker . com/how-to-safely-remove-sticker-glue-from-clothes-1846134157](https://lifehacker.com/how-to-safely-remove-sticker-glue-from-clothing-1846134157)
+> 原文：<https://lifehacker.com/how-to-safely-remove-sticker-glue-from-clothing-1846134157>
 
 这是从购买一件可爱的新上衣中吸取快乐的最快方法:你撕掉标有衣服尺寸的长标签，它会留下一个无情的粘性残留物，吸引棉绒和灰尘。接下来你知道的是，在你崭新的衬衫中间有一个变色的长方形。最有效的清除残留物的方法——包括洗甲水——有毁坏衣物的危险。在你让问题变得更糟之前，试试用这些自然的方法来去除那可笑的不干胶。
 
@@ -20,4 +20,4 @@ Watch
 
 ### 把衣服放进冰箱
 
-要去除合成纤维上的不干胶残留，将物品放入 [冰箱中45至90分钟](https://www.bhg.com/homekeeping/house-cleaning/tips/how-to-remove-sticker-residue-281474979530492/) 。当顽固的不干胶残留在布料上时，冷冻衣物尤其有用；冷冻后，它们会变硬，你可以把它们摘下来，或者用金属铲把它们刮掉。弄湿粘粘的地方，在剩下的残渣上涂上洗碗皂。用软刷擦洗，然后像平常一样清洗。
+要去除合成纤维上的不干胶残留，将物品放入 [冰箱中 45 至 90 分钟](https://www.bhg.com/homekeeping/house-cleaning/tips/how-to-remove-sticker-residue-281474979530492/) 。当顽固的不干胶残留在布料上时，冷冻衣物尤其有用；冷冻后，它们会变硬，你可以把它们摘下来，或者用金属铲把它们刮掉。弄湿粘粘的地方，在剩下的残渣上涂上洗碗皂。用软刷擦洗，然后像平常一样清洗。

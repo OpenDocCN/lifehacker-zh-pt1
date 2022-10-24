@@ -1,6 +1,6 @@
 # 如何防止肉在串肉扦上翻动
 
-> 原文:[https://life hacker . com/how-to-keep your-meats-from-flipping-around-on-skew-1848849185](https://lifehacker.com/how-to-keep-your-meats-from-flipping-around-on-the-skew-1848849185)
+> 原文：<https://lifehacker.com/how-to-keep-your-meats-from-flipping-around-on-the-skew-1848849185>
 
 吃烤肉是一种独特而优雅的享受。G 切细的、一口大小的牛肉、羊肉、鸡肉或海鲜片，串在串肉扦上:方便、美味，非常适合一手拿着，一手拿着鸡尾酒(或啤酒)。
 
@@ -14,6 +14,6 @@ Watch
 
 ## 或者用两根木扦
 
-如果你在下一次烤肉串之前没有时间点金属串，或者正在用别人的设备工作，你仍然可以使用两个圆形串来防止肉翻转。正如Reddit用户angelicusew在他们的Reddit帖子 中所描述的那样，这消除了单轴，使得当你旋转烤串时，你的肉不可能翻转。
+如果你在下一次烤肉串之前没有时间点金属串，或者正在用别人的设备工作，你仍然可以使用两个圆形串来防止肉翻转。正如 Reddit 用户 angelicusew 在他们的 Reddit 帖子 中所描述的那样，这消除了单轴，使得当你旋转烤串时，你的肉不可能翻转。
 
 这两种方法都可以让你的小肉块牢牢地固定在的位置，确保两面都被烤焦，这样就可以把肉烤成棕色，美味地挂在肉棒上。(因为没有人想要烤得不均匀、味道清淡的肉串。)

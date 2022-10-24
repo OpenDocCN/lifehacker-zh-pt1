@@ -1,6 +1,6 @@
 # 如何照顾高湿度室内植物而不杀死它们
 
-> 原文:[https://life hacker . com/how-to-care-for-high-moisture-house plants-without kill-1848271786](https://lifehacker.com/how-to-care-for-high-humidity-houseplants-without-killi-1848271786)
+> 原文：<https://lifehacker.com/how-to-care-for-high-humidity-houseplants-without-killi-1848271786>
 
 室内植物最棘手的一点是，你试图让不同的植物在同一种气候(你的家)中存活，而这些植物在不同的气候中都有生长。例如，你可能在一个房间里发现了一种原产于亚马逊雨林的蕨类植物和一种在亚利桑那州发现的仙人掌。除了多肉植物，即使不是起源于雨林的植物也喜欢潮湿。
 

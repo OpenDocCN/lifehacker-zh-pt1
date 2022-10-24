@@ -1,6 +1,6 @@
 # 如何识别“帮助”你安排疫苗接种的诈骗网站
 
-> 原文:[https://life hacker . com/how-to-recognize-scam-sites-that-help-you-schedule-1846555995](https://lifehacker.com/how-to-recognize-scam-sites-that-help-you-schedule-your-1846555995)
+> 原文：<https://lifehacker.com/how-to-recognize-scam-sites-that-help-you-schedule-your-1846555995>
 
 随着疫苗供应难以满足需求，被称为“疫苗猎人”的草根社交媒体团体在全国各地涌现，帮助人们寻找和预约。尽管这些团体很有帮助，但它们也成了骗子们最喜欢的新目标。以下是你保护自己的方法。
 

@@ -1,6 +1,6 @@
 # 如何在工作中善待他人(对自己)来对抗倦怠
 
-> 原文:[https://life hacker . com/how-be-kind-in-work-to-others-and-yourself-can-com-1849568597](https://lifehacker.com/how-being-kind-at-work-to-others-and-yourself-can-com-1849568597)
+> 原文：<https://lifehacker.com/how-being-kind-at-work-to-others-and-yourself-can-com-1849568597>
 
 工作倦怠有多种形式:对工作普遍缺乏热情，对同事冷嘲热讽，或者每天出现在一份让你过度劳累到筋疲力尽的工作中而产生的普遍疲劳。根据情况有多糟糕，解决方案可以是完全离开公司，也可以是想办法在工作和家庭之间建立更牢固的界限。然而，在做出重大改变之前，一些小小的改变可能会产生比你预期的更大的影响:正如 [的研究显示的那样](https://journals.aom.org/doi/full/10.5465/amj.2019.0493) ，对你自己或你的同事表示同情的小举动实际上有助于减少倦怠的感觉。
 
@@ -14,7 +14,7 @@ Watch
 
 恒的研究显示，在工作场所对他人善意的小举动可以帮助人们不那么愤世嫉俗，也可能帮助人们在工作中感觉更有效率。小善举的例子包括花点时间和同事打招呼，看看他们怎么样，在你给自己倒咖啡的时候给你的同桌倒杯咖啡，或者真诚地赞美一下。
 
-“做好事往往会让人感觉良好，”德克萨斯大学奥斯丁分校的教员 [艾米特·库马尔](https://www.mccombs.utexas.edu/faculty-and-research/faculty-directory/amit-kumar/) 说，他的研究重点是善良的影响。正如Kumar所指出的，善良的人往往对善良感觉良好，而接受善良的人也往往感觉良好， [在某种程度上，善良的人往往低估了](https://lifehacker.com/youre-underestimating-kindness-1849482186) 。“对善良的人来说看起来很小的事情，对接受的人来说却很重要，”库马尔说。
+“做好事往往会让人感觉良好，”德克萨斯大学奥斯丁分校的教员 [艾米特·库马尔](https://www.mccombs.utexas.edu/faculty-and-research/faculty-directory/amit-kumar/) 说，他的研究重点是善良的影响。正如 Kumar 所指出的，善良的人往往对善良感觉良好，而接受善良的人也往往感觉良好， [在某种程度上，善良的人往往低估了](https://lifehacker.com/youre-underestimating-kindness-1849482186) 。“对善良的人来说看起来很小的事情，对接受的人来说却很重要，”库马尔说。
 
 ## 自怜的行为也很重要
 

@@ -1,6 +1,6 @@
 # “人体工程学”比你想象的更加个性化
 
-> 原文:[https://life hacker . com/ergonomics-is-more-personality-than-you-think-1848655842](https://lifehacker.com/ergonomics-is-more-personalized-than-you-think-1848655842)
+> 原文：<https://lifehacker.com/ergonomics-is-more-personalized-than-you-think-1848655842>
 
 美国是世界上最繁忙的国家之一:我们工作时间更长，休假更少，压力比其他任何一个工业化国家都大。花在工作上的时间是有代价的。如果你曾经在办公桌前工作了一整天后站起来，因为背部痉挛而退缩，或者经历过腕管综合症带来的剧痛和奇怪的麻木，你知道你的工作环境对你的健康有直接影响。如果你开始寻找改善环境和影响的方法，你肯定会遇到“人体工程学”这个词例如，如果你告诉某人你的背不舒服，肯定会有人建议你买一把“符合人体工程学”的办公椅。
 

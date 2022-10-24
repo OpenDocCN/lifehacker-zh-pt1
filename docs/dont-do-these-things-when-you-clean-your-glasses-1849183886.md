@@ -1,8 +1,8 @@
 # 当你擦眼镜的时候不要做这些事情
 
-> 原文:[https://life hacker . com/don-do-things-when-you-clean-your-glasses-1849183886](https://lifehacker.com/dont-do-these-things-when-you-clean-your-glasses-1849183886)
+> 原文：<https://lifehacker.com/dont-do-these-things-when-you-clean-your-glasses-1849183886>
 
-在很大程度上，人们戴眼镜是为了改善视力。他们经历了整个“A和B哪个更好？”例行与他们的验光师，以找到正确的处方，挑选框架，最终被告知进入多个特殊涂层...然后用他们的衬衫底部清洗弄脏的镜片。
+在很大程度上，人们戴眼镜是为了改善视力。他们经历了整个“A 和 B 哪个更好？”例行与他们的验光师，以找到正确的处方，挑选框架，最终被告知进入多个特殊涂层...然后用他们的衬衫底部清洗弄脏的镜片。
 
 Watch
 

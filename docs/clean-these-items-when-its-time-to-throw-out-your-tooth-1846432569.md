@@ -1,8 +1,8 @@
 # 当你该扔掉牙刷的时候，清理这些东西
 
-> 原文:[https://life hacker . com/clean-these-items-when-the-time-to-throw-out-your-tooth-1846432569](https://lifehacker.com/clean-these-items-when-its-time-to-throw-out-your-tooth-1846432569)
+> 原文：<https://lifehacker.com/clean-these-items-when-its-time-to-throw-out-your-tooth-1846432569>
 
-据极光牙科集团称，普通牙刷持续三个月。90天后，如果你关心你的口腔卫生，你应该换一个新的。但是不要扔掉旧刷子——或者至少不要马上扔掉。首先，用它来擦洗家里那些不太容易清洁的地方。这里有五种方法可以让你的旧牙刷在被送去垃圾填埋场之前得到很好的利用。
+据极光牙科集团称，普通牙刷持续三个月。90 天后，如果你关心你的口腔卫生，你应该换一个新的。但是不要扔掉旧刷子——或者至少不要马上扔掉。首先，用它来擦洗家里那些不太容易清洁的地方。这里有五种方法可以让你的旧牙刷在被送去垃圾填埋场之前得到很好的利用。
 
 Watch
 
@@ -26,7 +26,7 @@ Watch
 
 ### 把它用在你的家庭办公室
 
-[《纽约邮报》](https://nypost.com/2018/08/30/half-of-us-workers-dont-feel-like-they-can-take-a-real-lunch-break/) 报道称，30%的美国人边工作边吃午餐。现在我们的办公椅也是我们的沙发和扶手椅，它们很容易在午餐时间发生事故。我试过在喷雾瓶中使用OxiClean，并用海绵擦洗，但没有什么能像牙刷的小头部那样瞄准污渍。
+[《纽约邮报》](https://nypost.com/2018/08/30/half-of-us-workers-dont-feel-like-they-can-take-a-real-lunch-break/) 报道称，30%的美国人边工作边吃午餐。现在我们的办公椅也是我们的沙发和扶手椅，它们很容易在午餐时间发生事故。我试过在喷雾瓶中使用 OxiClean，并用海绵擦洗，但没有什么能像牙刷的小头部那样瞄准污渍。
 
 你也可以用牙刷轻轻清洁你的电脑键盘，比棉签更快进入键盘，比传统的掸子更有效。
 

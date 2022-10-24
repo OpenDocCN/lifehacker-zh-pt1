@@ -1,6 +1,6 @@
 # 什么是“多巴胺着装”，它真的能让你更快乐吗？
 
-> 原文:[https://life hacker . com/what-is-dopamine-dressing-and-can-it-true-make-you-h-1848708672](https://lifehacker.com/what-is-dopamine-dressing-and-can-it-really-make-you-h-1848708672)
+> 原文：<https://lifehacker.com/what-is-dopamine-dressing-and-can-it-really-make-you-h-1848708672>
 
 无论你是否对早上穿的颜色有太多的考虑，你都可能意识到某些颜色的衣服所带来的一些文化意义。例如，在许多西方文化中，穿黑色传统上是一种标志，表明 [一个人正在服丧](https://www.metmuseum.org/art/collection/search/155840#:~:text=Black%20mourning%20dress%20reached%20its,a%20loved%20one%20or%20monarch.) (或至少参加葬礼、守灵或追悼会)。与此同时， [红色被认为是“权力色”，](https://news.artnet.com/art-world/rob-desalle-natural-history-of-color-1869513) 穿红色被认为是向自己和他人传达一个信息，即你是一个值得重视的人。
 

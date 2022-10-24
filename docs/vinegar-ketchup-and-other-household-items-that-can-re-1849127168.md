@@ -1,6 +1,6 @@
 # 醋、番茄酱和其他可以去除工具锈迹的家居用品
 
-> 原文:[https://life hacker . com/醋-番茄酱-和其他家庭用品-可以-re-1849127168](https://lifehacker.com/vinegar-ketchup-and-other-household-items-that-can-re-1849127168)
+> 原文：<https://lifehacker.com/vinegar-ketchup-and-other-household-items-that-can-re-1849127168>
 
 虽然我们可能会尽最大努力保持我们的工具清洁和干燥，但它们仍可能会生锈。当你的预防方法失败时，常识可能是扔掉损坏的工具，有时这是不可避免的。但是在你扔掉你的金属工具之前，有一些东西你可以试着回收它们，这样可以节省你的替换成本。
 

@@ -1,8 +1,8 @@
 # 不要做出这些注定要“健康”的决定(以及要争取什么)
 
-> 原文:[https://life hacker . com/don-make-thes-destroyed-health-resolutions-and-what-to-1848216356](https://lifehacker.com/dont-make-these-doomed-health-resolutions-and-what-to-1848216356)
+> 原文：<https://lifehacker.com/dont-make-these-doomed-health-resolutions-and-what-to-1848216356>
 
-幸运的是，2021年就要过去了，当我们展望明年等待我们的光明未来时(那时我们所有的问题肯定都会得到解决)，我们很容易制定一些重大的决心，让我们在2022年后成为一个更好的人。糟糕的是，最常见的决心是那些从一开始就注定要失败的。
+幸运的是，2021 年就要过去了，当我们展望明年等待我们的光明未来时(那时我们所有的问题肯定都会得到解决)，我们很容易制定一些重大的决心，让我们在 2022 年后成为一个更好的人。糟糕的是，最常见的决心是那些从一开始就注定要失败的。
 
 Watch
 
@@ -12,13 +12,13 @@ Watch
 
 戒掉糖(或咖啡因，或像甜点或咖啡这样的特定食物)是一个人可以暂时做的事情。我们都知道有人一周或一个月不吃糖。但归根结底，甜点是生活的一部分，糖不是真正的魔鬼，饮食中有一些灵活性是好事，以免你 [屈服于围绕食物的不健康想法和行为](https://lifehacker.com/how-diets-like-whole30-can-lead-to-eating-disorders-1823093555) 。
 
-试试这个，而不是T1:世界卫生组织 [建议将添加糖限制在总热量的10%](https://www.ages.at/en/topics/nutrition/who-sugar-recommendations/)。如果你能做到这一点没有问题，他们说，甚至更好地将糖降低到5%的热量。这仍然让你有足够的机会吃一些甜的东西，同时保持你饮食的整体平衡。
+试试这个，而不是 T1:世界卫生组织 [建议将添加糖限制在总热量的 10%](https://www.ages.at/en/topics/nutrition/who-sugar-recommendations/)。如果你能做到这一点没有问题，他们说，甚至更好地将糖降低到 5%的热量。这仍然让你有足够的机会吃一些甜的东西，同时保持你饮食的整体平衡。
 
-## 减掉X磅
+## 减掉 X 磅
 
 减肥不一定是每个人的健康目标。即使你是出于身体健康的原因，沉迷于体重秤上的数字并不总是对你的精神健康有好处。所以，如果你真的想或需要减肥，你可能应该采取一种更深思熟虑的方法，而不是简单地在体重秤上选择一个数字，牺牲一切来达到目的。
 
-试试这个吧:考虑一下即使你不减肥，什么会让你更健康。 [每周锻炼150分钟](https://lifehacker.com/the-new-exercise-guidelines-are-even-easier-to-meet-1830380875) ？ [多吃纤维、蔬菜和蛋白质](https://lifehacker.com/how-to-eat-healthier-without-tracking-calories-1847759847) ？你可以在减肥的同时做这些事情，甚至可以代替减肥。这样，无论你最终是否达到目标体重，你都将保持健康。
+试试这个吧:考虑一下即使你不减肥，什么会让你更健康。 [每周锻炼 150 分钟](https://lifehacker.com/the-new-exercise-guidelines-are-even-easier-to-meet-1830380875) ？ [多吃纤维、蔬菜和蛋白质](https://lifehacker.com/how-to-eat-healthier-without-tracking-calories-1847759847) ？你可以在减肥的同时做这些事情，甚至可以代替减肥。这样，无论你最终是否达到目标体重，你都将保持健康。
 
 ## 做一项你讨厌的运动
 

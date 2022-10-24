@@ -1,8 +1,8 @@
 # 如果，假设，你真的想尽快搬到加拿大呢
 
-> 原文:[https://life hacker . com/what-if-hypothetic-you-want-to-can-1849114954](https://lifehacker.com/what-if-hypothetically-you-really-want-to-move-to-can-1849114954)
+> 原文：<https://lifehacker.com/what-if-hypothetically-you-really-want-to-move-to-can-1849114954>
 
-出于某种原因，G oogle搜索 [【如何移居加拿大】的频率在上周](https://www.axios.com/2022/06/25/after-the-ruling-americans-ask-google-how-to-move-to-canada) 飙升了550%。也许贾斯廷·特鲁多一定宣布了一项新的吸引游客的营销活动或什么的？
+出于某种原因，G oogle 搜索 [【如何移居加拿大】的频率在上周](https://www.axios.com/2022/06/25/after-the-ruling-americans-ask-google-how-to-move-to-canada) 飙升了 550%。也许贾斯廷·特鲁多一定宣布了一项新的吸引游客的营销活动或什么的？
 
 Watch
 
@@ -16,7 +16,7 @@ Watch
 
 加拿大政府为各种来加拿大的游客(从周末去蒙特利尔玩一玩的游客到想要寻找新生活的想出国的人)设计了一个简单易用的工具 [。这个工具让你回答一些基本问题，比如你是谁，你是干什么的，你到底想从加拿大得到什么。](https://www.canada.ca/en/immigration-refugees-citizenship/services/come-canada-tool.html) 
 
-加拿大有100多个移民和签证项目，但总的来说，这个国家不希望任何一个老闷闷不乐的人搬进来，把这个地方搞得臭气熏天。像美国一样，加拿大只欢迎/允许某些种类的移民，所以要找到北方逃跑路线的第一步是检查你是否是加拿大想要的那种人。
+加拿大有 100 多个移民和签证项目，但总的来说，这个国家不希望任何一个老闷闷不乐的人搬进来，把这个地方搞得臭气熏天。像美国一样，加拿大只欢迎/允许某些种类的移民，所以要找到北方逃跑路线的第一步是检查你是否是加拿大想要的那种人。
 
 ## 谁被允许居住在加拿大？
 
@@ -42,7 +42,7 @@ Watch
 
 ## **成为加拿大永久居民需要多少钱，需要多长时间？**
 
-通过快速入境项目成为加拿大公民 需要花费[【1500美元】到【2000美元】不等，通常需要六个月左右。但是时间框架没有保证:由于某种神秘的原因，突然出现的应用程序过剩可能会降低整个系统的速度。](https://www.thrillist.com/travel/nation/how-to-move-to-canada) 
+通过快速入境项目成为加拿大公民 需要花费[【1500 美元】到【2000 美元】不等，通常需要六个月左右。但是时间框架没有保证:由于某种神秘的原因，突然出现的应用程序过剩可能会降低整个系统的速度。](https://www.thrillist.com/travel/nation/how-to-move-to-canada) 
 
 ## **通过省提名计划进入加拿大**
 

@@ -1,6 +1,6 @@
 # 如何使用谷歌地图寻找更新鲜的空气
 
-> 原文:[https://life hacker . com/how-to-use-Google-maps-to-find-fresher-air-1849050091](https://lifehacker.com/how-to-use-google-maps-to-find-fresher-air-1849050091)
+> 原文：<https://lifehacker.com/how-to-use-google-maps-to-find-fresher-air-1849050091>
 
 你周围的空气质量对你的生活质量有很大的影响。除了对健康的长期影响，糟糕的空气质量会让你做任何事情都更加困难——尤其是对那些有呼吸系统疾病的人。
 
@@ -10,7 +10,7 @@ Watch
 
 ## 如何使用谷歌地图查看空气质量
 
-谷歌地图上的 [空气质量层](https://blog.google/products/search/get-some-fresh-air-outdoors-with-google/) (安卓和iOS上都有)提供了你所在地区的情况信息，使用的数据来源包括 [环境保护局](https://www.airnow.gov/) 。
+谷歌地图上的 [空气质量层](https://blog.google/products/search/get-some-fresh-air-outdoors-with-google/) (安卓和 iOS 上都有)提供了你所在地区的情况信息，使用的数据来源包括 [环境保护局](https://www.airnow.gov/) 。
 
 您可以点击屏幕右上角的按钮，然后选择“空气质量”，将空气质量图层添加到地图中它包括空气质量指数(AQI)——衡量空气呼吸健康与否的指标——加上户外活动指南和最后一次更新信息的时间。
 
@@ -18,6 +18,6 @@ Watch
 
 即使你不住在这个国家容易发生野火的地区，正如我们去年夏天了解到的那样，西海岸火灾产生的烟雾会扩散到东海岸，导致空气质量异常糟糕。
 
-为了密切关注与火灾相关的情况，您可以在谷歌地图 中打开 [wildfire图层，该图层使用来自美国国家跨机构消防中心(NIFC)的信息提供您所在地区正在发生的火灾的详细信息。](https://blog.google/products/maps/search-on-maps-2021/)
+为了密切关注与火灾相关的情况，您可以在谷歌地图 中打开 [wildfire 图层，该图层使用来自美国国家跨机构消防中心(NIFC)的信息提供您所在地区正在发生的火灾的详细信息。](https://blog.google/products/maps/search-on-maps-2021/)
 
 另一个选择是使用谷歌地图中的搜索功能来查找“我附近的野火”，这将带来空气质量和其他有关火灾的信息。在接下来的几个月里，谷歌还将把美国国家海洋和大气管理局(NOAA)的烟雾数据添加到他们的空气质量信息中。

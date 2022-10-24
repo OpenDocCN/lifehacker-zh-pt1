@@ -1,6 +1,6 @@
 # 你应该在室内植物中放海绵
 
-> 原文:[https://life hacker . com/you-should-put-sponges-in-your-house plants-1847498471](https://lifehacker.com/you-should-put-sponges-in-your-houseplants-1847498471)
+> 原文：<https://lifehacker.com/you-should-put-sponges-in-your-houseplants-1847498471>
 
 某些植物，如 [杜鹃花和](http://www.plantsgalore.com/care/disease/Diseases-root-rot-phytophthora.htm)杜鹃花喜欢潮湿，但它们*不喜欢*长时间静止的水。在给植物充分补水和淹没它们的根部之间有一个微妙的平衡，这会导致疾病。但是你可以防止根部腐烂，让你的植物保持更长时间的湿润——你只需要一些海绵。
 

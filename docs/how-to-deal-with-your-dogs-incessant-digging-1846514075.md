@@ -1,6 +1,6 @@
 # 如何处理你的狗不停地挖
 
-> 原文:[https://life hacker . com/how-to-deal-with-your-dogs-continuous-digging-1846514075](https://lifehacker.com/how-to-deal-with-your-dogs-incessant-digging-1846514075)
+> 原文：<https://lifehacker.com/how-to-deal-with-your-dogs-incessant-digging-1846514075>
 
 一只喜欢挖掘的狗会很快毁掉你的院子。随着天气越来越暖和，院子也在春天的清单上做了改进，下面是如何修补这些洞(以及一些从一开始就阻止你的狗挖洞的想法)。
 

@@ -1,14 +1,14 @@
 # 什么是微剂量，它有作用吗？
 
-> 原文:[https://life hacker . com/what-is-microdosing-and-do-it-work-1846530561](https://lifehacker.com/what-is-microdosing-and-does-it-work-1846530561)
+> 原文：<https://lifehacker.com/what-is-microdosing-and-does-it-work-1846530561>
 
 微剂量——服用少量通常是迷幻药的行为——在某一类人中很受欢迎，他们寻求比咖啡因和时间管理等标准生活技巧所能提供的更多的生产力。这是否有效还不得而知，但是 [的一项新研究](https://elifesciences.org/articles/62878) 表明，这种被吹嘘的好处可能一直要归功于安慰剂效应。
 
 Watch
 
-所涉及的药物，通常是LSD或裸盖菇，在大多数地方都是非法的，因此讨论如何微剂量的社区通常是地下的，非官方的，充满了轶事而不是数据。 [这幅2018年的《T2》](https://www.thecut.com/2018/05/microdosing-guide-and-explainer.html)详细描述了这一现象。
+所涉及的药物，通常是 LSD 或裸盖菇，在大多数地方都是非法的，因此讨论如何微剂量的社区通常是地下的，非官方的，充满了轶事而不是数据。 [这幅 2018 年的《T2》](https://www.thecut.com/2018/05/microdosing-guide-and-explainer.html)详细描述了这一现象。
 
-然而，基本的想法是，通过服用极少量的致幻剂——通常是娱乐剂量的10%或更少——你不会感到兴奋，,但你会感到*某种东西*。一个 [reddit指南](https://www.reddit.com/r/microdosing/comments/jopryk/you_shouldnt_feel_anything/) 描述了一些常见的好处，如感觉专注、有创造力、“开放”、平静、警觉、富有同情心、感激或处于心流状态。
+然而，基本的想法是，通过服用极少量的致幻剂——通常是娱乐剂量的 10%或更少——你不会感到兴奋，,但你会感到*某种东西*。一个 [reddit 指南](https://www.reddit.com/r/microdosing/comments/jopryk/you_shouldnt_feel_anything/) 描述了一些常见的好处，如感觉专注、有创造力、“开放”、平静、警觉、富有同情心、感激或处于心流状态。
 
 有了如此微妙的好处，个人可能无法知道他们的经历是来自药物还是他们自己期望的表现。换句话说，这可能是安慰剂效应。
 

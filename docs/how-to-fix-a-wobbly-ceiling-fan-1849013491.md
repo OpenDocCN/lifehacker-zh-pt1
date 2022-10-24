@@ -1,6 +1,6 @@
 # 如何修理摇晃的吊扇
 
-> 原文:[https://life hacker . com/how-to-fix-a wobbly-吊扇-1849013491](https://lifehacker.com/how-to-fix-a-wobbly-ceiling-fan-1849013491)
+> 原文：<https://lifehacker.com/how-to-fix-a-wobbly-ceiling-fan-1849013491>
 
 吊扇对于夏季保持凉爽至关重要，尤其是对于没有空调的家庭。但是如果你的手机不稳定，它可能会成为焦虑的来源，让你流汗，让你失去戴手机的初衷。
 
@@ -12,7 +12,7 @@ Watch
 
 ## 是什么导致你的吊扇摇晃？
 
-虽然对于吊扇来说，有点摇晃( [到1/8英寸](https://www.homedepot.com/c/ah/how-to-balance-a-ceiling-fan/9ba683603be9fa5395fab90decacea4) )是正常的，但你会想看看比这更大的东西。中的一些[最常见的原因包括](https://www.bhg.com/home-improvement/advice/maintenance-repair/how-to-balance-ceiling-fan/) :
+虽然对于吊扇来说，有点摇晃( [到 1/8 英寸](https://www.homedepot.com/c/ah/how-to-balance-a-ceiling-fan/9ba683603be9fa5395fab90decacea4) )是正常的，但你会想看看比这更大的东西。中的一些[最常见的原因包括](https://www.bhg.com/home-improvement/advice/maintenance-repair/how-to-balance-ceiling-fan/) :
 
 *   叶片变脏、损坏或扭曲
 *   风扇的硬件和/或其他部件松动
@@ -26,7 +26,7 @@ Watch
 
 ### 清洁风扇
 
-如果你不熟悉这个过程，这篇2021年12月Lifehacker的文章 将带你了解它。有时候——如果你的吊扇非常脏——彻底清洁它可以阻止它晃动。但是如果没有发生，就进入下一步。
+如果你不熟悉这个过程，这篇 2021 年 12 月 Lifehacker 的文章 将带你了解它。有时候——如果你的吊扇非常脏——彻底清洁它可以阻止它晃动。但是如果没有发生，就进入下一步。
 
 ### 检查天花板支架
 

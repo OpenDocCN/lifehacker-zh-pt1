@@ -1,6 +1,6 @@
 # 只用两种原料制作这种美味的柑橘糖浆
 
-> 原文:[https://life hacker . com/make-this-delicious-citrus-糖浆with just-two-ingredie-1848715089](https://lifehacker.com/make-this-delicious-citrus-syrup-with-just-two-ingredie-1848715089)
+> 原文：<https://lifehacker.com/make-this-delicious-citrus-syrup-with-just-two-ingredie-1848715089>
 
 柑橘季节即将结束，我对此感到沮丧。我已经狼吞虎咽地吃了几个星期的相扑柑橘，试图尽可能多的将充满活力、扑鼻的甜味塞进嘴里，直到今年颠簸的水果消失。
 
@@ -10,7 +10,7 @@ Watch
 
 显然，我更喜欢后一种方法。
 
-收集你的果皮，用y形削皮器(或 [奶酪切片机](https://lifehacker.com/how-to-slice-a-strip-of-citrus-without-risking-life-and-1848686991) )尽可能多地将它们从髓(里面白色的部分)中去除。髓会让你的糖浆有苦味，所以尽量避免加入厚厚的一层。
+收集你的果皮，用 y 形削皮器(或 [奶酪切片机](https://lifehacker.com/how-to-slice-a-strip-of-citrus-without-risking-life-and-1848686991) )尽可能多地将它们从髓(里面白色的部分)中去除。髓会让你的糖浆有苦味，所以尽量避免加入厚厚的一层。
 
 你可以做一点糖浆或者很多糖浆，取决于你有多少皮。如果你想做很多糖浆，把你的果皮藏在冰箱里，直到你有足够的量。几个柑橘类水果会给你几汤匙的糖浆，这取决于它们能提供多少热情。
 

@@ -1,16 +1,16 @@
 # 说真的，马上扔掉这些召回的狗粮品牌
 
-> 原文:[https://life hacker . com/serious-get-off-thingly-thingly-thingly-thingly-through-thingly-thingly-through-these-brands-of-called-of-dog-food-1847520341](https://lifehacker.com/seriously-get-rid-of-these-recalled-brands-of-dog-food-1847520341)
+> 原文：<https://lifehacker.com/seriously-get-rid-of-these-recalled-brands-of-dog-food-1847520341>
 
 你的狗不能用语言表达他们的感受，这意味着你知道他们生病的唯一方法是通过观察身体症状。但是当涉及到食物中毒时，除了不得不在几次混乱后清理之外，你的狗总有可能会出现长期问题——或者直到为时已晚，你才知道有什么事情不对劲。
 
 Watch
 
-中西部宠物食品公司 [在召回六种干狗粮混合物后，于今年一月](https://lifehacker.com/watch-out-this-toxic-kibble-has-killed-over-70-dogs-1846050934) 受到抨击，怀疑其含有一种叫做黄曲霉素的有毒致癌物质。当时，食品药品监督管理局怀疑受污染的食品导致了70多只狗的死亡和大约80只狗的患病。
+中西部宠物食品公司 [在召回六种干狗粮混合物后，于今年一月](https://lifehacker.com/watch-out-this-toxic-kibble-has-killed-over-70-dogs-1846050934) 受到抨击，怀疑其含有一种叫做黄曲霉素的有毒致癌物质。当时，食品药品监督管理局怀疑受污染的食品导致了 70 多只狗的死亡和大约 80 只狗的患病。
 
-三月份又有一次召回 被认为受沙门氏菌污染的10种猫粮和狗粮。现在，美国食品和药物管理局发出警告，中西部宠物食品公司 [已经“严重违反”](https://www.npr.org/2021/08/18/1029067086/dogs-poisoned-fda-midwestern-per-foods-recalled) 食品安全条例，其中可能已经导致130多只狗死亡，220多只患病。
+三月份又有一次召回 被认为受沙门氏菌污染的 10 种猫粮和狗粮。现在，美国食品和药物管理局发出警告，中西部宠物食品公司 [已经“严重违反”](https://www.npr.org/2021/08/18/1029067086/dogs-poisoned-fda-midwestern-per-foods-recalled) 食品安全条例，其中可能已经导致 130 多只狗死亡，220 多只患病。
 
-底线:D立即彻底清除任何受影响的中西部宠物食品。鉴于越来越多的证据表明该公司的安全措施不佳，你可能想在未来完全避开这家公司的宠物食品。
+底线:D 立即彻底清除任何受影响的中西部宠物食品。鉴于越来越多的证据表明该公司的安全措施不佳，你可能想在未来完全避开这家公司的宠物食品。
 
 ## 中西部宠物食品包括哪些 品牌？
 
@@ -19,7 +19,7 @@ Watch
 *   天生整体
 *   不明确的
 *   冒险
-*   为Pac而战
+*   为 Pac 而战
 *   有益健康
 *   犬的
 *   早春系列
@@ -27,12 +27,12 @@ Watch
 *   顶点
 *   努恩更好
 
-寻找任何含有上述名称的产品，包括像Sportmix Wholesomes这样的混合产品。
+寻找任何含有上述名称的产品，包括像 Sportmix Wholesomes 这样的混合产品。
 
 ## 哪些**中西部宠物食品**品牌已经被召回？
 
-三月份的沙门氏菌召回适用于CanineX、earth born wholesale、Venture、Unrefined、Sportmix Wholesomes、Pro Pac、Pro Pac Ultimates、Sportstrail、Sportmix、和Meridian品牌，批号为**“EXP AUG/02/22/M1/L #**(你可以在食品袋的背面找到这个)。这些食品是该公司在伊利诺伊州蒙茅斯生产的。植物。
+三月份的沙门氏菌召回适用于 CanineX、earth born wholesale、Venture、Unrefined、Sportmix Wholesomes、Pro Pac、Pro Pac Ultimates、Sportstrail、Sportmix、和 Meridian 品牌，批号为**“EXP AUG/02/22/M1/L #**(你可以在食品袋的背面找到这个)。这些食品是该公司在伊利诺伊州蒙茅斯生产的。植物。
 
-1月份的召回适用于俄克拉荷马州切克沙运营工厂生产的所有玉米基产品，这些产品将于2022年7月2日或之前到期。那是很多宠物食品。此次召回的批次代码为**“EXP03/03/22/05/L # #/B # # #/HH:MM”**。
+1 月份的召回适用于俄克拉荷马州切克沙运营工厂生产的所有玉米基产品，这些产品将于 2022 年 7 月 2 日或之前到期。那是很多宠物食品。此次召回的批次代码为**“EXP03/03/22/05/L # #/B # # #/HH:MM”**。
 
-请注意，FDA的调查结果是在对四家工厂进行检查后公布的，这意味着这个问题甚至可能比当前召回所显示的问题更大。扔掉宠物食品(以野生动物不会进入的方式处理)，清洗和消毒它接触过的所有东西。你的狗会感谢你的。
+请注意，FDA 的调查结果是在对四家工厂进行检查后公布的，这意味着这个问题甚至可能比当前召回所显示的问题更大。扔掉宠物食品(以野生动物不会进入的方式处理)，清洗和消毒它接触过的所有东西。你的狗会感谢你的。

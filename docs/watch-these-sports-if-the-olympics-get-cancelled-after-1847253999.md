@@ -1,8 +1,8 @@
 # 如果奥运会最终被取消，看看这些运动吧
 
-> 原文:[https://life hacker . com/watch-these-sports-if-the-Olympics-get-cancel-after-1847253999](https://lifehacker.com/watch-these-sports-if-the-olympics-get-cancelled-after-1847253999)
+> 原文：<https://lifehacker.com/watch-these-sports-if-the-olympics-get-cancelled-after-1847253999>
 
-随着新冠肺炎在东京东山再起，奥运会目前正在分崩离析，包括周四来自日本奥林匹克大臣丸川玉代的声明，奥运会 [将在没有粉丝的情况下进行。如果观看世界上最负盛名的体育比赛在荒芜的场地举行听起来太令人沮丧，请注意:7月份世界各地有许多体育赛事，它们不会像毫无生气的奥运会那样令人沮丧。](https://www.bbc.com/news/world-asia-57760883)
+随着新冠肺炎在东京东山再起，奥运会目前正在分崩离析，包括周四来自日本奥林匹克大臣丸川玉代的声明，奥运会 [将在没有粉丝的情况下进行。如果观看世界上最负盛名的体育比赛在荒芜的场地举行听起来太令人沮丧，请注意:7 月份世界各地有许多体育赛事，它们不会像毫无生气的奥运会那样令人沮丧。](https://www.bbc.com/news/world-asia-57760883)
 
 Watch
 
@@ -12,31 +12,31 @@ P 你的夏季计划的艺术包括坐在空调房里看体育比赛，并且你
 
 尽管严峻的前景给奥运会蒙上了一层阴影，但体育界仍有许多事情吸引着你的注意力。首先，有橄榄球、足球、赛车、高尔夫球，还有传统的夏季棒球。
 
-## 这个夏天怎么看r ugby
+## 这个夏天怎么看 r ugby
 
 如果你喜欢另一种足球(或者至少是一种有点类似于我们所说的足球的运动)，今年夏天你可以去看看橄榄球联盟。
 
-*   **英国&爱尔兰雄狮2021年南非橄榄球巡回赛** [将于整个7月在会员模式](https://www.peacocktv.com/sports/rugby#:~:text=To%20stream%20rugby%20in%20your,demand%2C%20and%20commercial%2Dfree.) 进行直播。
+*   **英国&爱尔兰雄狮 2021 年南非橄榄球巡回赛** [将于整个 7 月在会员模式](https://www.peacocktv.com/sports/rugby#:~:text=To%20stream%20rugby%20in%20your,demand%2C%20and%20commercial%2Dfree.) 进行直播。
 
-## 这个夏天怎么看s occer
+## 这个夏天怎么看 s occer
 
 足球造就了体育戏剧，有些人可能会认为它破坏了奥运会的体育戏剧。幸运的是，你仍然有时间观看两场主要的国际锦标赛决赛。至于其他事件，请记住，你可能不得不保持奇数时间，因为它们正在世界各地发生。
 
-*   欧洲足球锦标赛决赛:英国和意大利的比赛将于7月11日(周日)进行，ESPN将进行电视直播。您也可以通过ESPN应用程序和ESPN Plus进行流媒体播放。
-*   **美洲杯决赛:**巴西和阿根廷在7月10日周六争夺南美荣耀，你可以在FOX，FS1，FS2上观看。你也可以在富波电视上流式传输。
-*   2021年佛罗里达杯:欧洲俱乐部在异国土地上的季前友谊赛。请看7月25日 -28日ESPN 2上国际米兰、埃弗顿、和阿森纳的对决。你也可以在富波电视上流式传输。
+*   欧洲足球锦标赛决赛:英国和意大利的比赛将于 7 月 11 日(周日)进行，ESPN 将进行电视直播。您也可以通过 ESPN 应用程序和 ESPN Plus 进行流媒体播放。
+*   **美洲杯决赛:**巴西和阿根廷在 7 月 10 日周六争夺南美荣耀，你可以在 FOX，FS1，FS2 上观看。你也可以在富波电视上流式传输。
+*   2021 年佛罗里达杯:欧洲俱乐部在异国土地上的季前友谊赛。请看 7 月 25 日 -28 日 ESPN 2 上国际米兰、埃弗顿、和阿森纳的对决。你也可以在富波电视上流式传输。
 
 ## 这个夏天怎么看赛车
 
-*   世界汽车拉力锦标赛:WRC将于7月15日至18日在爱沙尼亚举行，你可以在[【WRC.com】](https://www.wrc.com/en/wrcplus/all-live/)或 [红牛电视台](https://www.redbull.com/us-en/event-series/fia-world-rally-championship) 上直播。
-*   **Adrian Flux英国FIM赛车场大奖赛:**你可以通过订阅 在 [MotorTrend上点播观看这场摩托车越野赛。](https://www.motortrendondemand.com/)
-*   F1英国大奖赛:你可以在7月18日的ESPN和ESPN体育频道上观看这场比赛。
-*   **2021年国际汽联世界拉力越野锦标赛:**7月23-24日从巴塞罗纳观看这场拉力汽车赛， [通过WRC网站直播(带订阅)](https://www.fiaworldrallycross.com/world-rx/rx-plus/all-live/) 。
+*   世界汽车拉力锦标赛:WRC 将于 7 月 15 日至 18 日在爱沙尼亚举行，你可以在[【WRC.com】](https://www.wrc.com/en/wrcplus/all-live/)或 [红牛电视台](https://www.redbull.com/us-en/event-series/fia-world-rally-championship) 上直播。
+*   **Adrian Flux 英国 FIM 赛车场大奖赛:**你可以通过订阅 在 [MotorTrend 上点播观看这场摩托车越野赛。](https://www.motortrendondemand.com/)
+*   F1 英国大奖赛:你可以在 7 月 18 日的 ESPN 和 ESPN 体育频道上观看这场比赛。
+*   **2021 年国际汽联世界拉力越野锦标赛:**7 月 23-24 日从巴塞罗纳观看这场拉力汽车赛， [通过 WRC 网站直播(带订阅)](https://www.fiaworldrallycross.com/world-rx/rx-plus/all-live/) 。
 
 ## 这个夏天怎么看高尔夫
 
-*   **公开赛(英国公开赛):**这项重大赛事将于7月16日 -20日在NBC和高尔夫频道播出。孔雀和NBC体育频道提供直播。
+*   **公开赛(英国公开赛):**这项重大赛事将于 7 月 16 日 -20 日在 NBC 和高尔夫频道播出。孔雀和 NBC 体育频道提供直播。
 
 ## 美国职业棒球大联盟
 
-还有整个夏天都在上演的美国职业棒球大联盟的真实奇观。如果你在收看节目时没有切断电源线，可以查看一下当地的有线电视列表，或者在MLB.com、ESPN、富波电视、YouTube TV等网站上观看。
+还有整个夏天都在上演的美国职业棒球大联盟的真实奇观。如果你在收看节目时没有切断电源线，可以查看一下当地的有线电视列表，或者在 MLB.com、ESPN、富波电视、YouTube TV 等网站上观看。

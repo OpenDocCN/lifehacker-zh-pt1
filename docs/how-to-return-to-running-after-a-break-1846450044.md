@@ -1,6 +1,6 @@
 # 休息后如何恢复跑步
 
-> 原文:[https://life hacker . com/how-to-return-to-running-after-a-break-1846450044](https://lifehacker.com/how-to-return-to-running-after-a-break-1846450044)
+> 原文：<https://lifehacker.com/how-to-return-to-running-after-a-break-1846450044>
 
 又是春天了，如果你一直在感叹一个多雪的冬天，道路可能正在向你招手。为什么不掸掉跑鞋上的灰尘，在春天的鲜花和不再伤害你的脸的新鲜空气中慢跑呢？哦，对了。因为已经有一段时间了，你可能不太确定从哪里开始。
 
@@ -10,9 +10,9 @@ Watch
 
 听着，仅仅因为你去年秋天每个周末都能跑五英里，并不意味着你今天就能跑完。或者，即使你能做到，如果没有一个适当的提升，养成这样的习惯可能并不明智。
 
-好消息是，你将比真正的T2初学者更快地度过这些开始阶段。你休息的时间越短，这就越容易。但是即使你的最后一次跑步是几年前，你的前景也很好。
+好消息是，你将比真正的 T2 初学者更快地度过这些开始阶段。你休息的时间越短，这就越容易。但是即使你的最后一次跑步是几年前，你的前景也很好。
 
-也就是说，重要的是要记住有氧健身不是跑步健身。如果你能做45分钟的舞蹈录像或自行车锻炼，那么你的心脏和肺可能需要45分钟的慢跑。太好了。但是跑步给你的骨骼、肌腱和足部肌肉提供了独特的压力，你需要在复出的早期阶段将你的跑步限制在 [以防止受伤](https://lifehacker.com/how-to-avoid-injuries-as-a-beginning-runner-1833906254) 。如果你觉得跑步时间太短，现在可以用其他训练来补充。
+也就是说，重要的是要记住有氧健身不是跑步健身。如果你能做 45 分钟的舞蹈录像或自行车锻炼，那么你的心脏和肺可能需要 45 分钟的慢跑。太好了。但是跑步给你的骨骼、肌腱和足部肌肉提供了独特的压力，你需要在复出的早期阶段将你的跑步限制在 [以防止受伤](https://lifehacker.com/how-to-avoid-injuries-as-a-beginning-runner-1833906254) 。如果你觉得跑步时间太短，现在可以用其他训练来补充。
 
 ### 绘制航线
 
@@ -20,9 +20,9 @@ Watch
 
 这里有一些建议，按(我的)偏好排列:
 
-*   练习 [直觉跑](https://lifehacker.com/try-intuitive-running-to-exercise-without-overthinking-1845749324) 每周三次短跑(每次20分钟开始比较好)。
-*   从halhigdon.com抢一个方案，像这个 [新手基地建设方案](https://www.halhigdon.com/training-programs/base-training/novice-base-training/) 。
-*   或者和经典的 [沙发一起去5K](https://lifehacker.com/all-the-questions-youll-have-when-you-start-couch-to-5k-1830857969) 。如果你以前做过这个程序，重复它可能会感到安慰。
+*   练习 [直觉跑](https://lifehacker.com/try-intuitive-running-to-exercise-without-overthinking-1845749324) 每周三次短跑(每次 20 分钟开始比较好)。
+*   从 halhigdon.com 抢一个方案，像这个 [新手基地建设方案](https://www.halhigdon.com/training-programs/base-training/novice-base-training/) 。
+*   或者和经典的 [沙发一起去 5K](https://lifehacker.com/all-the-questions-youll-have-when-you-start-couch-to-5k-1830857969) 。如果你以前做过这个程序，重复它可能会感到安慰。
 
 ### 检查你的装备
 

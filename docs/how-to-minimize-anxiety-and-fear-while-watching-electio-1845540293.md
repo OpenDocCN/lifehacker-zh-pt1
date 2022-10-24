@@ -1,8 +1,8 @@
 # 如何在观看选举日报道时减少焦虑
 
-> 原文:[https://life hacker . com/how-to-minimize-anxiety-and-fear-while-watching-electio-1845540293](https://lifehacker.com/how-to-minimize-anxiety-and-fear-while-watching-electio-1845540293)
+> 原文：<https://lifehacker.com/how-to-minimize-anxiety-and-fear-while-watching-electio-1845540293>
 
-让我们先澄清一下:11月3日，星期二，我们将揭晓2020年总统选举的获胜者，这是 [极不可能的](https://www.cnn.com/2020/10/30/politics/donald-trump-joe-biden-election-day/index.html) 。2016年， [美联社称这场比赛在美国东部时间凌晨2点29分](https://blog.ap.org/behind-the-news/calling-the-presidential-race-state-by-state) 。在像今年这样的情况下，许多人选择通过邮件投票(每个州都有自己的规则，规定何时开始处理和统计选票)，我们肯定需要更多的时间。但是，如果没有发现选举当晚谁获胜的悬念，人们还会收看选举之夜的报道吗？
+让我们先澄清一下:11 月 3 日，星期二，我们将揭晓 2020 年总统选举的获胜者，这是 [极不可能的](https://www.cnn.com/2020/10/30/politics/donald-trump-joe-biden-election-day/index.html) 。2016 年， [美联社称这场比赛在美国东部时间凌晨 2 点 29 分](https://blog.ap.org/behind-the-news/calling-the-presidential-race-state-by-state) 。在像今年这样的情况下，许多人选择通过邮件投票(每个州都有自己的规则，规定何时开始处理和统计选票)，我们肯定需要更多的时间。但是，如果没有发现选举当晚谁获胜的悬念，人们还会收看选举之夜的报道吗？
 
 Watch
 
@@ -16,8 +16,8 @@ Watch
 
 如果你读过我们过去几个月的选举报道，你可能会熟悉这样一个事实，即许多投票政策和法律都是在州一级制定的。这意味着一些州会比其他州更快得到结果。
 
-根据劳特的说法，佛罗里达州和北卡罗来纳州预计在11月3日晚上有结果，而宾夕法尼亚州和密歇根州可能要到周五才会有结果。即便如此，鉴于 [总统一再拒绝同意](https://www.nytimes.com/2020/09/23/us/politics/trump-power-transfer-2020-election.html) 在他失败的情况下和平移交权力，即使我们有了“结果”，那也绝对不意味着我们会知道谁将在2021年1月就职。
+根据劳特的说法，佛罗里达州和北卡罗来纳州预计在 11 月 3 日晚上有结果，而宾夕法尼亚州和密歇根州可能要到周五才会有结果。即便如此，鉴于 [总统一再拒绝同意](https://www.nytimes.com/2020/09/23/us/politics/trump-power-transfer-2020-election.html) 在他失败的情况下和平移交权力，即使我们有了“结果”，那也绝对不意味着我们会知道谁将在 2021 年 1 月就职。
 
 ### 出口民调不是结果
 
-经过四年对这个夜晚的等待，很难不关注投票后民意调查，但这正是劳特推荐的T2 T3。“出口民调可以为理解选举提供一个很好的工具，但早期的结果只是部分的，而且往往具有误导性——问问约翰·克里就知道了，他在2004年的早期出口民调中大幅领先，但随着更多数据的到来，这种领先优势消失了，”他写道。
+经过四年对这个夜晚的等待，很难不关注投票后民意调查，但这正是劳特推荐的 T2 T3。“出口民调可以为理解选举提供一个很好的工具，但早期的结果只是部分的，而且往往具有误导性——问问约翰·克里就知道了，他在 2004 年的早期出口民调中大幅领先，但随着更多数据的到来，这种领先优势消失了，”他写道。

@@ -1,14 +1,14 @@
 # 为什么是时候买一张新床垫了
 
-> 原文:[https://life hacker . com/why-it-s-possible-time-to-buy-a-new-matrix-1848371505](https://lifehacker.com/why-it-s-probably-time-to-buy-a-new-mattress-1848371505)
+> 原文：<https://lifehacker.com/why-it-s-probably-time-to-buy-a-new-mattress-1848371505>
 
-考虑到我们一生中有36年的时间(要么睡觉，要么看电视，要么试图*入睡)，我们的床垫很重要。但是由于它们又大又贵，而且被太多的亚麻布遮住了，我们什么时候应该更换它们并不总是显而易见的(考虑到投资，这不是我们经常做的事情)。睡在破旧的床垫上是不舒服、睡眠质量差和潜在的令人讨厌的过敏的原因，所以这里有一些迹象表明你应该买一张新的。* 
+考虑到我们一生中有 36 年的时间(要么睡觉，要么看电视，要么试图*入睡)，我们的床垫很重要。但是由于它们又大又贵，而且被太多的亚麻布遮住了，我们什么时候应该更换它们并不总是显而易见的(考虑到投资，这不是我们经常做的事情)。睡在破旧的床垫上是不舒服、睡眠质量差和潜在的令人讨厌的过敏的原因，所以这里有一些迹象表明你应该买一张新的。* 
 
 Watch
 
 ## 你的床垫已经超过八年了
 
-最简单的衡量标准是时间: [普通床垫可以使用七到十年](https://www.sleepfoundation.org/mattress-information/how-long-should-a-mattress-last#:~:text=Most%20mattresses%20should%20last%20between,all%20influence%20a%20bed's%20longevity.) 。虽然它不会在10年后急剧分解，而且许多床垫都有15年或20年的保修期，但这并不意味着你应该保留它那么久。(保修涵盖某些零件；这不是安慰的承诺。)
+最简单的衡量标准是时间: [普通床垫可以使用七到十年](https://www.sleepfoundation.org/mattress-information/how-long-should-a-mattress-last#:~:text=Most%20mattresses%20should%20last%20between,all%20influence%20a%20bed's%20longevity.) 。虽然它不会在 10 年后急剧分解，而且许多床垫都有 15 年或 20 年的保修期，但这并不意味着你应该保留它那么久。(保修涵盖某些零件；这不是安慰的承诺。)
 
 像其他任何东西一样，床垫材料(线圈、泡沫和弹簧)会随着时间的推移而降解，使它们对我们的体重和身体运动的支撑力明显下降。此外，床垫寿命取决于适当的护理，包括、定期和 [旋转](https://lifehacker.com/how-to-fix-a-sagging-mattress-when-replacing-it-isnt-an-1848289369) 。日常维护上的懈怠会导致你的床垫寿命缩短。
 
@@ -24,7 +24,7 @@ Watch
 
 ## 它又响又嘎吱作响
 
-如果每次翻车时听起来都像吱吱作响的交响乐，那一定是哪里出了问题。首先，确定是床垫还是弹簧床座是罪魁祸首。如果你有内置弹簧或混合床垫，首先将它从弹簧盒中取出，然后在上面滚动测试噪音。如果它发出吱吱声，根据 [睡眠基础](https://www.sleepfoundation.org/mattress-information/how-to-fix-a-squeaky-bed) 的说法，金属弹簧有问题。如果你有一个全泡沫床垫，噪音只能来自弹簧盒，这*可以*用 [这些DIY修复](https://www.sleepfoundation.org/mattress-information/how-to-fix-a-squeaky-bed) 修复。如果这些都不起作用，是时候去找一个新的弹簧床垫了(但谢天谢地不是整个床垫)。
+如果每次翻车时听起来都像吱吱作响的交响乐，那一定是哪里出了问题。首先，确定是床垫还是弹簧床座是罪魁祸首。如果你有内置弹簧或混合床垫，首先将它从弹簧盒中取出，然后在上面滚动测试噪音。如果它发出吱吱声，根据 [睡眠基础](https://www.sleepfoundation.org/mattress-information/how-to-fix-a-squeaky-bed) 的说法，金属弹簧有问题。如果你有一个全泡沫床垫，噪音只能来自弹簧盒，这*可以*用 [这些 DIY 修复](https://www.sleepfoundation.org/mattress-information/how-to-fix-a-squeaky-bed) 修复。如果这些都不起作用，是时候去找一个新的弹簧床垫了(但谢天谢地不是整个床垫)。
 
 如果你能感觉到地基或弹簧在戳你，游戏就结束了。去最近的床垫供应商那里。
 
@@ -44,11 +44,11 @@ Watch
 
 每晚难以入睡(排除压力或失眠等其他因素)也是一个危险信号。I‌f:如果你怀疑你的床垫需要更换，在一张更新的床上呆上一两个晚上，看看会有什么不同。
 
-*关于G/O Media合作伙伴床垫的更多信息:*
+*关于 G/O Media 合作伙伴床垫的更多信息:*
 
-*-*[*2022年最佳床垫*](https://lifehacker.com/advisor/best-mattresses/)
+*-*[*2022 年最佳床垫*](https://lifehacker.com/advisor/best-mattresses/)
 *-*[*B*](https://lifehacker.com/advisor/best-mattress-for-back-sleepers/)[*最适合仰卧者的床垫*](https://lifehacker.com/advisor/best-mattress-for-back-sleepers/)
 *-*[*最适合侧卧者的床垫*](https://lifehacker.com/advisor/best-mattress-for-side-sleepers/)
 *-*
 
-Lifehacker并不参与这些文章的创作，但可能会从购买其内容中获得佣金。
+Lifehacker 并不参与这些文章的创作，但可能会从购买其内容中获得佣金。

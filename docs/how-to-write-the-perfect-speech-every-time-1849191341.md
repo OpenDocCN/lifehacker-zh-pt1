@@ -1,8 +1,8 @@
 # 如何写出每次都完美的演讲稿
 
-> 原文:[https://life hacker . com/how-to-write-the-perfect-speech-every-time-1849191341](https://lifehacker.com/how-to-write-the-perfect-speech-every-time-1849191341)
+> 原文：<https://lifehacker.com/how-to-write-the-perfect-speech-every-time-1849191341>
 
-[发表伟大演讲的关键](https://lifehacker.com/how-to-give-a-great-speech-1835908227) 其实就是写一篇伟大的演讲。所有与演讲相关的建议都集中在我们的集体(并且完全理性) [对公开演讲的恐惧](https://lifehacker.com/how-to-ace-public-speaking-1839289746) 。如果我告诉你，当你知道文章无懈可击、精彩绝伦时，发表演讲会容易得多，你会怎么想？欢迎来到我的TED演讲。
+[发表伟大演讲的关键](https://lifehacker.com/how-to-give-a-great-speech-1835908227) 其实就是写一篇伟大的演讲。所有与演讲相关的建议都集中在我们的集体(并且完全理性) [对公开演讲的恐惧](https://lifehacker.com/how-to-ace-public-speaking-1839289746) 。如果我告诉你，当你知道文章无懈可击、精彩绝伦时，发表演讲会容易得多，你会怎么想？欢迎来到我的 TED 演讲。
 
 Watch
 
@@ -38,7 +38,7 @@ Watch
 
 按时间顺序写。信息应该按照事情发生的顺序传达给观众，除非你故意隐瞒细节
 
-使用视觉隐喻。找到能唤起某种视觉的语言，而不是用抽象或理论的术语说话。迪安提到了 [柯南·奥布莱恩对哈佛2000届](https://www.youtube.com/watch?v=2pnnWp1lNps) 学生的演讲，作为一个有趣的例子，说明了如何利用特殊性来描绘一幅图画。这不仅能抓住听众的注意力，还能确保他们记住你说的话。
+使用视觉隐喻。找到能唤起某种视觉的语言，而不是用抽象或理论的术语说话。迪安提到了 [柯南·奥布莱恩对哈佛 2000 届](https://www.youtube.com/watch?v=2pnnWp1lNps) 学生的演讲，作为一个有趣的例子，说明了如何利用特殊性来描绘一幅图画。这不仅能抓住听众的注意力，还能确保他们记住你说的话。
 
 为你的听众量身定做你的演讲。记住你的听众是谁，用细节来具体地和他们说话。 [埃里克·施努雷](https://bluetoad.com/publication/?i=412996&article_id=2798149&view=articleBrowser&ver=html5) ， [*的作者政治演讲稿撰写人的伙伴*](https://us.sagepub.com/en-us/nam/the-political-speechwriters-companion/book257507) 称这些时刻为“howdahells”，比如“*他们到底是怎么知道的？如果你能找到一些特定的话题，让你的特定听众产生共鸣，这会让你在人群中更受欢迎。*
 

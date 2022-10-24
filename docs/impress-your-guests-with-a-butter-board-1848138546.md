@@ -1,6 +1,6 @@
 # 用黄油板给你的客人留下深刻印象
 
-> 原文:[https://life hacker . com/impress-your-guests-with a butter-board-1848138546](https://lifehacker.com/impress-your-guests-with-a-butter-board-1848138546)
+> 原文：<https://lifehacker.com/impress-your-guests-with-a-butter-board-1848138546>
 
 餐盘上的食物非常受欢迎，也许比以往任何时候都受欢迎。在这个万维网上搜索“放牧桌”，你会发现许多非常大的熟食店和奶酪板的照片，还有许多坚持认为它们是“大熟食店”而不是“T2”的博客。“放牧桌是一个不同的新概念，不像你以前见过的任何木板。(它们也是*而不是*自助餐。自助餐*丑*放牧桌*美*。)
 
@@ -16,7 +16,7 @@ Watch
 
 ## 如何制作黄油飞行
 
-首先抓几个花哨的“普通”黄油——我称之为“ [”零食黄油](https://lifehacker.com/you-need-two-types-of-butter-in-your-kitchen-1837837122) ”。几个来自不同地区的盐腌的、培养的标本就可以了。( [这个](https://wellspentmarket.com/product/beurre-de-baratte) 是我目前最喜欢的零食黄油，如果你在寻找建议的话。)然后，抓一些便宜的棍子做你的复合黄油。欢迎你在你的板子上添加任意多的butters，但是我认为两个“普通”和三个复合构成了一个有趣和吸引人的板子。
+首先抓几个花哨的“普通”黄油——我称之为“ [”零食黄油](https://lifehacker.com/you-need-two-types-of-butter-in-your-kitchen-1837837122) ”。几个来自不同地区的盐腌的、培养的标本就可以了。( [这个](https://wellspentmarket.com/product/beurre-de-baratte) 是我目前最喜欢的零食黄油，如果你在寻找建议的话。)然后，抓一些便宜的棍子做你的复合黄油。欢迎你在你的板子上添加任意多的 butters，但是我认为两个“普通”和三个复合构成了一个有趣和吸引人的板子。
 
 如果你以前从未做过复合黄油，不要担心，这很容易。取一些室温黄油，和其他不是黄油的东西混合。我个人比较喜欢的有 [鸭油黄油](https://lifehacker.com/this-compound-butter-is-basically-duck-frosting-1838492514)[鸡油黄油](https://lifehacker.com/combine-butter-and-chicken-fat-for-the-tastiest-spread-1786120847)[培根黄油](https://lifehacker.com/make-bacon-butter-and-put-it-on-everything-1825658580)[布里干酪](https://lifehacker.com/brie-butter-is-the-best-compound-butter-1833264190)[酸奶黄油](https://lifehacker.com/why-you-should-add-a-little-yogurt-to-your-butter-1832877504)[黑蒜黄油](https://lifehacker.com/how-to-make-black-garlic-butter-1833065260) ，不过你可以 [自己发明](https://lifehacker.com/how-to-make-steakhouse-butter-at-home-1847102251) 。
 

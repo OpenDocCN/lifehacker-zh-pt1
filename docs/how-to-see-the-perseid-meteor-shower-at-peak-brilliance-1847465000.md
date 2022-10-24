@@ -1,8 +1,8 @@
 # 如何在本周看到辉煌顶峰的英仙座流星雨
 
-> 原文:[https://life hacker . com/how-to-see-the-perseid-meteor-shower-at-peak-brilliance-1847465000](https://lifehacker.com/how-to-see-the-perseid-meteor-shower-at-peak-brilliance-1847465000)
+> 原文：<https://lifehacker.com/how-to-see-the-perseid-meteor-shower-at-peak-brilliance-1847465000>
 
-今晚，或者明天凌晨，你将能够看到的最佳[英仙座流星雨](https://lifehacker.com/how-to-watch-the-perseid-meteor-shower-rain-over-us-thi-1847281069?rev=1626195641506)的。这个夏天最棒、持续时间最长的天体奇观将在8月11日至13日达到顶峰，在为期六周的流星雨中，它会以比其他任何时候都更快的速度带着尖叫的岩石穿过天空。
+今晚，或者明天凌晨，你将能够看到的最佳[英仙座流星雨](https://lifehacker.com/how-to-watch-the-perseid-meteor-shower-rain-over-us-thi-1847281069?rev=1626195641506)的。这个夏天最棒、持续时间最长的天体奇观将在 8 月 11 日至 13 日达到顶峰，在为期六周的流星雨中，它会以比其他任何时候都更快的速度带着尖叫的岩石穿过天空。
 
 Watch
 
@@ -10,15 +10,15 @@ Watch
 
 ## 英仙座是什么？
 
-正如Lifehacker提到的 在夏初，英仙座流星雨是这个季节一年一度的视觉盛宴，这是一个为期六周的燃烧岩石队列，紧随彗星 109P/Swift-Tuttle之后，该彗星每133年绕太阳运行一次。我们很幸运能捕捉到雨燕的残骸，因为它是一个半径为16英里的庞然大物。鉴于其巨大的体积，流星体从较大的岩石上分离出来，形成了英仙座流星体，使得观星者在夏季的大部分时间里都呆在天空中。
+正如 Lifehacker 提到的 在夏初，英仙座流星雨是这个季节一年一度的视觉盛宴，这是一个为期六周的燃烧岩石队列，紧随彗星 109P/Swift-Tuttle 之后，该彗星每 133 年绕太阳运行一次。我们很幸运能捕捉到雨燕的残骸，因为它是一个半径为 16 英里的庞然大物。鉴于其巨大的体积，流星体从较大的岩石上分离出来，形成了英仙座流星体，使得观星者在夏季的大部分时间里都呆在天空中。
 
-这场流星雨以其光芒四射的星座英仙座命名，英仙座是以希腊半神命名的，他因杀死怪物美杜莎和 [而闻名，因此在他死后在群星中有了一个家。在一个典型的夜晚，每小时会有60块石头呼啸着穿过宇宙。在流星雨的高峰期，每小时大约有100颗可见的时候，这个数字会上升。](https://www.globeatnight.org/mythology/perseus#:~:text=Perseus%20was%20a%20demi%2Dgod,had%20a%20beautiful%20daughter%2C%20Andromeda.)
+这场流星雨以其光芒四射的星座英仙座命名，英仙座是以希腊半神命名的，他因杀死怪物美杜莎和 [而闻名，因此在他死后在群星中有了一个家。在一个典型的夜晚，每小时会有 60 块石头呼啸着穿过宇宙。在流星雨的高峰期，每小时大约有 100 颗可见的时候，这个数字会上升。](https://www.globeatnight.org/mythology/perseus#:~:text=Perseus%20was%20a%20demi%2Dgod,had%20a%20beautiful%20daughter%2C%20Andromeda.)
 
 ## 如何看英仙座流星雨
 
 和所有的流星雨一样，确保你在一个没有光污染的区域是很重要的。你想要黑暗的天空，如果可能的话，一个好的单独的地方来观看表演。如果你在一个没有很多建筑的地区，这就容易多了，因为摩天大楼和街灯会破坏你看到英仙座顶峰的机会。
 
-重要的是，你会想从午夜到黎明在户外冒险， [如EarthSky所说](https://earthsky.org/astronomy-essentials/everything-you-need-to-know-perseid-meteor-shower/) 。这份《太空与科学》杂志详细介绍了一些捕捉英仙座流星雨的最佳实践:
+重要的是，你会想从午夜到黎明在户外冒险， [如 EarthSky 所说](https://earthsky.org/astronomy-essentials/everything-you-need-to-know-perseid-meteor-shower/) 。这份《太空与科学》杂志详细介绍了一些捕捉英仙座流星雨的最佳实践:
 
 > [午夜和黎明之间]你所站的那部分地球将会进入太空中的流星群。所以你会看到更多的流星。天亮前，他们会从头顶上落下来。请注意，英仙座流星将在午夜至深夜从北纬开始飞行。在赤道以南，英仙座流星雨在午夜时分开始划过天空。
 

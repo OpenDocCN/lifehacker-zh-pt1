@@ -1,6 +1,6 @@
 # 用钻头、挂钩和干燥纸优化你的垃圾桶
 
-> 原文:[https://life hacker . com/optimize-your-trash-can-with-a-drill-command-hooks-an-1834821255](https://lifehacker.com/optimize-your-trash-can-with-a-drill-command-hooks-an-1834821255)
+> 原文：<https://lifehacker.com/optimize-your-trash-can-with-a-drill-command-hooks-an-1834821255>
 
 我们的垃圾桶都有同样的问题:袋子掉进去了，你不能把袋子拉出来，气味难闻，等等。
 
@@ -8,4 +8,4 @@
 
 现在要是有一种更简单的方法把它拿到路边就好了。
 
-*本文原载于2019年5月20日，更新于2020年5月19日。*
+*本文原载于 2019 年 5 月 20 日，更新于 2020 年 5 月 19 日。*

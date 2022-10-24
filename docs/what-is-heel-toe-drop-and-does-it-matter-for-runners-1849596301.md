@@ -1,6 +1,6 @@
 # 什么是脚跟脚趾下垂，这对跑步者有影响吗？
 
-> 原文:[https://life hacker . com/what ' s-heel-toe-drop-and-it-matter-for-runners-1849596301](https://lifehacker.com/what-is-heel-toe-drop-and-does-it-matter-for-runners-1849596301)
+> 原文：<https://lifehacker.com/what-is-heel-toe-drop-and-does-it-matter-for-runners-1849596301>
 
 我们之前写过为什么人们 [不应该过度考虑他们的跑鞋](https://lifehacker.com/why-youre-overthinking-your-running-shoes-according-to-1849458897) 。与此同时，了解你的身体并找到合适的鞋子会让系好鞋带去跑步和待在家里变得不同。
 
@@ -14,8 +14,8 @@ Watch
 
 下面是一些的具体例子来自 [跑仓](https://www.runningwarehouse.com/learningcenter/gear_guides/footwear/heel-toe-drop.html)；stat 也可以在大多数其他跑鞋资源中找到:
 
-*   高跟趾落差(超过7毫米)最适合先着地的跑步者、跟腱有问题的跑步者或经常穿高跟鞋的跑步者。
-*   脚跟-脚趾的低落差(从0到6毫米)最适合脚中间或前部着地的跑步者。
+*   高跟趾落差(超过 7 毫米)最适合先着地的跑步者、跟腱有问题的跑步者或经常穿高跟鞋的跑步者。
+*   脚跟-脚趾的低落差(从 0 到 6 毫米)最适合脚中间或前部着地的跑步者。
 
 如果没有列出，你可以通过查看鞋子描述中的堆叠高度数字和从鞋跟数字中减去前脚掌数字来自己计算鞋跟-脚趾落差。
 

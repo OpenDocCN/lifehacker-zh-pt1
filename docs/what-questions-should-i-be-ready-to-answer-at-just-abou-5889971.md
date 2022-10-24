@@ -1,6 +1,6 @@
 # 准备好在任何工作面试中回答这些问题
 
-> 原文:[https://life hacker . com/what-questions-I-should-to-ready-to-answer-at-just-abou-5889971](https://lifehacker.com/what-questions-should-i-be-ready-to-answer-at-just-abou-5889971)
+> 原文：<https://lifehacker.com/what-questions-should-i-be-ready-to-answer-at-just-abou-5889971>
 
 大多数工作面试都有一系列常见的问题，还有一些特定于工作和公司文化的问题。虽然许多常见的问题似乎很容易回答，但在你去面试之前，最好了解并预演一下你的答案。准备是关键，即使是像“你为什么想为我们工作”这样简单的问题让我们来看看一些常见的问题以及回答这些问题的最佳方法。
 
@@ -16,13 +16,13 @@ Watch
 
 这是一个较难回答的问题，因为它表达了一些不同的想法:他们想知道你对公司了解多少，为什么你认为你的技能适合这份工作，以及你认为你能给团队带来什么。
 
-这里的经验法则是准备好一些关于公司的研究。面试官是在试探你，以确保你了解公司的历史、一般惯例和一般的办公风格。求职网站Monster.com[建议你用你所知道的一切直接回答这个问题](http://career-advice.monster.com/job-interview/interview-questions/why-do-you-want-to-work-here/article.aspx)——例如，“根据我所做的研究，你的公司很擅长(无论它做什么)，我相信我的背景、历史和职业道德会很适合这里。”
+这里的经验法则是准备好一些关于公司的研究。面试官是在试探你，以确保你了解公司的历史、一般惯例和一般的办公风格。求职网站 Monster.com[建议你用你所知道的一切直接回答这个问题](http://career-advice.monster.com/job-interview/interview-questions/why-do-you-want-to-work-here/article.aspx)——例如，“根据我所做的研究，你的公司很擅长(无论它做什么)，我相信我的背景、历史和职业道德会很适合这里。”
 
 ### “你的优点和缺点是什么？”
 
 求职面试中最可怕的两个问题通常会接踵而至，即“你的优势是什么？”以及“你的弱点是什么？”都很难回答。对于优势，选择一项你拥有的可以直接应用到工作中的技能。例如，如果你申请的是一家医院的档案管理员，就要提到你非常擅长处理细节，可以一次跟踪很多事情。直接根据你最初申请的职位描述来调整你的优势。
 
-我们已经讨论了问题 [“你最大的缺点是什么？”](https://lifehacker.com/how-to-answer-what-is-your-greatest-weakness-5888646) 几乎不可能正确回答，但正如我们指出的，这更多的是一种情境上的弱点，而不是个人的。回答这个与工作直接相关的问题。例如，如果你申请同样的文件管理员工作，但是你不能举起超过50磅的东西，提及这一点。基本上，把这个问题想象成对你有好处，而不是阻碍。对你来说，这是一个试水工作以确保你能胜任的机会。
+我们已经讨论了问题 [“你最大的缺点是什么？”](https://lifehacker.com/how-to-answer-what-is-your-greatest-weakness-5888646) 几乎不可能正确回答，但正如我们指出的，这更多的是一种情境上的弱点，而不是个人的。回答这个与工作直接相关的问题。例如，如果你申请同样的文件管理员工作，但是你不能举起超过 50 磅的东西，提及这一点。基本上，把这个问题想象成对你有好处，而不是阻碍。对你来说，这是一个试水工作以确保你能胜任的机会。
 
 另一种方法是用一个实际的弱点来回答问题，然后详细说明你是如何努力改正它的。假设你回答说你在工作中很难保持办公桌整洁。接着说，“我最近一直在使用一些新的组织方法来保持我的桌子整洁有序。”
 
@@ -42,9 +42,9 @@ Watch
 
 ### “告诉我你在过去的工作中解决的一个问题”
 
-在你去参加面试之前，确保你已经在脑海中列出了过去工作中的一些成就。 [我们之前已经提到过](https://lifehacker.com/learn-about-and-prepare-for-a-behavioral-job-interview-5578508) 思考回答这类问题的最佳方式是运用STAR方法来制定你的答案:
+在你去参加面试之前，确保你已经在脑海中列出了过去工作中的一些成就。 [我们之前已经提到过](https://lifehacker.com/learn-about-and-prepare-for-a-behavioral-job-interview-5578508) 思考回答这类问题的最佳方式是运用 STAR 方法来制定你的答案:
 
-> 1.问你所处的情况或T2的情况
+> 1.问你所处的情况或 T2 的情况
 > 
 > 2.你采取的一项行动
 > 
@@ -58,4 +58,4 @@ Watch
 
 为以上问题做好准备，你会在大多数工作面试中做得更好。 [为每个问题准备一套原话](https://lifehacker.com/develop-a-list-of-sound-bites-for-a-more-effective-jo-5820128) ，这样你就可以快速准确地回答它们，而不用在记忆中摸索。如果他们问任何你感到不舒服的问题， [也知道你如何应对这些问题](http://lifehacker.com/how-do-i-deal-with-interview-questions-i-d-rather-not-a-5886514) 。
 
-这个故事最初发表于2012年3月，并于2021年1月19日更新，以符合Lifehacker风格指南。
+这个故事最初发表于 2012 年 3 月，并于 2021 年 1 月 19 日更新，以符合 Lifehacker 风格指南。

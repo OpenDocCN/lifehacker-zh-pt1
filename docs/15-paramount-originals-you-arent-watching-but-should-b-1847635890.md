@@ -1,10 +1,10 @@
-# 15部派拉蒙+原版电影，你没有看，但应该看
+# 15 部派拉蒙+原版电影，你没有看，但应该看
 
-> 原文:[https://life hacker . com/15-paramount-originals-you-parent-watching-but-should-b-1847635890](https://lifehacker.com/15-paramount-originals-you-arent-watching-but-should-b-1847635890)
+> 原文：<https://lifehacker.com/15-paramount-originals-you-arent-watching-but-should-b-1847635890>
 
-这是一个危险的时刻，派拉蒙+(最初是“CBS All Access”)感觉有点像流媒体战争中绝望的事后想法——维亚康姆CBS庞大的节目库的垃圾场。对于streamer来说，现在还为时尚早，但凭借克里斯汀·巴伦斯基和索尼夸·马丁·格林(如果曾经有过一个成功的组合的话)的实力，派拉蒙已经开始将自己打造为一个小型发电站。
+这是一个危险的时刻，派拉蒙+(最初是“CBS All Access”)感觉有点像流媒体战争中绝望的事后想法——维亚康姆 CBS 庞大的节目库的垃圾场。对于 streamer 来说，现在还为时尚早，但凭借克里斯汀·巴伦斯基和索尼夸·马丁·格林(如果曾经有过一个成功的组合的话)的实力，派拉蒙已经开始将自己打造为一个小型发电站。
 
-尤其是《星际迷航》,本周正在庆祝它的55周年纪念日。经过一段休耕期，尤其是在电视上，这个系列的未来可能从未如此光明。它最初的节目并不都是成功的，他们最大的成功是从CBS家族的其他网络继承来的，但他们管理了一些时髦的项目和一些高端的声望节目，这些节目已经将Paramount+变成了人们实际上为之付费的东西。
+尤其是《星际迷航》,本周正在庆祝它的 55 周年纪念日。经过一段休耕期，尤其是在电视上，这个系列的未来可能从未如此光明。它最初的节目并不都是成功的，他们最大的成功是从 CBS 家族的其他网络继承来的，但他们管理了一些时髦的项目和一些高端的声望节目，这些节目已经将 Paramount+变成了人们实际上为之付费的东西。
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-rOxueFRI_Jc&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-rOxueFRI_Jc&start=0) 
 
@@ -12,7 +12,7 @@
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-list-nZvNERqDwgE%2FPLGwZKkKxJCieesYiUjmOjj-e9rFnWx3sL&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-list-nZvNERqDwgE%2FPLGwZKkKxJCieesYiUjmOjj-e9rFnWx3sL&start=0) 
 
-截至最近的第六季，《全明星飙车》(Drag Race All Stars)已经在其第三个网络上播出，但它们都属于ViacomCBS家族，因此这些举措与其说是为了给这部剧寻找观众，不如说是为了将现有观众带到新的地方。将这一衍生产品(这是演出后的节目， *Untucked* )独家引入派拉蒙+可能是streamer的一个明智之举，特别是考虑到它涉及到拥有内置粉丝群的老牌女王。
+截至最近的第六季，《全明星飙车》(Drag Race All Stars)已经在其第三个网络上播出，但它们都属于 ViacomCBS 家族，因此这些举措与其说是为了给这部剧寻找观众，不如说是为了将现有观众带到新的地方。将这一衍生产品(这是演出后的节目， *Untucked* )独家引入派拉蒙+可能是 streamer 的一个明智之举，特别是考虑到它涉及到拥有内置粉丝群的老牌女王。
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-l--4gu4CQBM&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-l--4gu4CQBM&start=0) 
 
@@ -20,15 +20,15 @@
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-6XVl7NH_lCM&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-6XVl7NH_lCM&start=0) 
 
-两名怀疑论者和一名正在学习成为牧师的男子代表天主教会调查有关超自然活动的报道。如果你觉得这听起来有点像X档案...嗯，你没错，但这也不是件坏事。*邪恶*比它的精神前身更倾向于超自然的恐怖元素，已经更新了第三季。
+两名怀疑论者和一名正在学习成为牧师的男子代表天主教会调查有关超自然活动的报道。如果你觉得这听起来有点像 X 档案...嗯，你没错，但这也不是件坏事。*邪恶*比它的精神前身更倾向于超自然的恐怖元素，已经更新了第三季。
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-7NKVThOGLXc&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-7NKVThOGLXc&start=0) 
 
-在这个漫无目的(但基本上是失败的)的电视复兴世界里， *iCarly* 在其短暂的生命中取得了罕见的成功(几个月前刚刚首播)。也许这是有道理的:最初的Nickelodeon节目在由青少年主演的病毒式网络连续剧方面有点超前。《复兴号》重聚了大部分原班人马，并设法保持了与原版相似的基调，同时允许其角色成长，并进入一个点击竞争更加激烈的世界。
+在这个漫无目的(但基本上是失败的)的电视复兴世界里， *iCarly* 在其短暂的生命中取得了罕见的成功(几个月前刚刚首播)。也许这是有道理的:最初的 Nickelodeon 节目在由青少年主演的病毒式网络连续剧方面有点超前。《复兴号》重聚了大部分原班人马，并设法保持了与原版相似的基调，同时允许其角色成长，并进入一个点击竞争更加激烈的世界。
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-list-70dm3WzNuss%2FPLufIO1FTWFz-gZM3t-MmW5J7p2U6yYoQU&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-list-70dm3WzNuss%2FPLufIO1FTWFz-gZM3t-MmW5J7p2U6yYoQU&start=0) 
 
-正如派拉蒙+是重建*星际迷航*(至少在电视上)的房子一样，迷航也是流媒体早期节目的核心(早在CBS All Access的时候)。一方的失败几乎肯定会拖垮另一方。但我们现在的情况是:派拉蒙正在成长，而《星际迷航》现在有两部真人演出，至少还有一部正在进行中，还有两部动画片。除了更彻底的连载故事之外，*探索*为这个系列带来了新的多样性水平，这个系列似乎停留在60年代进步的表现水平上，但已经开始感觉倒退——特别是考虑到在这部剧之前完全缺乏同性恋表现。第四季将于今年晚些时候推出。
+正如派拉蒙+是重建*星际迷航*(至少在电视上)的房子一样，迷航也是流媒体早期节目的核心(早在 CBS All Access 的时候)。一方的失败几乎肯定会拖垮另一方。但我们现在的情况是:派拉蒙正在成长，而《星际迷航》现在有两部真人演出，至少还有一部正在进行中，还有两部动画片。除了更彻底的连载故事之外，*探索*为这个系列带来了新的多样性水平，这个系列似乎停留在 60 年代进步的表现水平上，但已经开始感觉倒退——特别是考虑到在这部剧之前完全缺乏同性恋表现。第四季将于今年晚些时候推出。
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-FySrgrKJguE&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-FySrgrKJguE&start=0) 
 
@@ -40,7 +40,7 @@
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-F5a2J2T4vkY&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-F5a2J2T4vkY&start=0) 
 
-光是《docuseries》的第一季，就跨越了在德克萨斯州斯特朗镇(Strawn)参加橄榄球冠军赛的年轻人两年半的生活。该镇有676人，普通高中毕业班只有十几个人。它触及了典型的弱势体育节目的所有按钮，但设置添加了足够多的味道，使它非常迷人。该剧去年续订了第二季，尽管COVID让我们无法猜测何时会看到新的剧集。
+光是《docuseries》的第一季，就跨越了在德克萨斯州斯特朗镇(Strawn)参加橄榄球冠军赛的年轻人两年半的生活。该镇有 676 人，普通高中毕业班只有十几个人。它触及了典型的弱势体育节目的所有按钮，但设置添加了足够多的味道，使它非常迷人。该剧去年续订了第二季，尽管 COVID 让我们无法猜测何时会看到新的剧集。
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-29_gA_GDGvE&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-29_gA_GDGvE&start=0) 
 
@@ -48,7 +48,7 @@
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-WWUtppO-4QE&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-WWUtppO-4QE&start=0) 
 
-这里有一个小主题:在登陆派拉蒙+之前，节目在广阔的ViacomCBS多元宇宙中被拖来拖去，好像他们在等待着看它是否会起飞。这就是《更年轻的T1》的故事，它在TVLand播出了整整六季，然后在流媒体世界结束了它的运行。这部电视剧来自达伦·思达(*《贝弗利山庄》，90210* ，*《梅尔罗斯广场》*，*《欲望都市》*)，由苏珊·福斯特主演，她饰演一名40多岁的离婚女性，试图重新开始她的出版生涯...假装自己是一个20多岁的有前途的女人。
+这里有一个小主题:在登陆派拉蒙+之前，节目在广阔的 ViacomCBS 多元宇宙中被拖来拖去，好像他们在等待着看它是否会起飞。这就是《更年轻的 T1》的故事，它在 TVLand 播出了整整六季，然后在流媒体世界结束了它的运行。这部电视剧来自达伦·思达(*《贝弗利山庄》，90210* ，*《梅尔罗斯广场》*，*《欲望都市》*)，由苏珊·福斯特主演，她饰演一名 40 多岁的离婚女性，试图重新开始她的出版生涯...假装自己是一个 20 多岁的有前途的女人。
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-AabT2IgJDt4&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-AabT2IgJDt4&start=0) 
 
@@ -64,4 +64,4 @@
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-rFYNqmKdaoI&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-rFYNqmKdaoI&start=0) 
 
-马克·切利(*《绝望的主妇》*)创作了这个非常非常黑暗的喜剧系列，它的名字清楚地表明了前提:这是一个有理由杀人的女人的故事。第一季发生在三个时间段，三个主要角色由一个单独的家联系在一起，而更强大的第二季坚持在1949年的洛杉矶。这是一个华丽的摄影和美味的肥皂系列与谋杀的想法。
+马克·切利(*《绝望的主妇》*)创作了这个非常非常黑暗的喜剧系列，它的名字清楚地表明了前提:这是一个有理由杀人的女人的故事。第一季发生在三个时间段，三个主要角色由一个单独的家联系在一起，而更强大的第二季坚持在 1949 年的洛杉矶。这是一个华丽的摄影和美味的肥皂系列与谋杀的想法。

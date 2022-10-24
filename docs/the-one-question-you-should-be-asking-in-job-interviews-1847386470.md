@@ -1,6 +1,6 @@
 # 你现在应该在求职面试中问的一个问题是
 
-> 原文:[https://life hacker . com/the-one-question-you-be-asked-asked-in-job-visiting-1847386470](https://lifehacker.com/the-one-question-you-should-be-asking-in-job-interviews-1847386470)
+> 原文：<https://lifehacker.com/the-one-question-you-should-be-asking-in-job-interviews-1847386470>
 
 尽管疫情经久不衰，各公司都在吸引员工回到办公室，即使随着新冠肺炎的 [病例在全国部分地区](https://covid.cdc.gov/covid-data-tracker/) 激增以及接种 [疫苗的努力在很大程度上陷入停滞](https://www.theguardian.com/world/2021/jul/26/us-vaccine-effort-nuance-covid-coronavirus) 。尽管如此，在一年多的远程工作后，回到办公室的整个转变对企业界的任何人来说都是一个大问题，充满了似乎缺乏足够答案的问题。
 
@@ -10,7 +10,7 @@ Watch
 
 ## 求职面试中最重要的问题
 
-这就是为什么，现在问未来雇主最重要的问题是:“你打算如何处理你重返办公室的事情？”这是一个至关重要的问题，它能让你对一份工作产生兴趣，也能让你失去兴趣。来自营销人员 [的一条有用的Twitter帖子艾米丽·科尔曼](https://twitter.com/editoremilye/status/1420467625587482624) 解释了如果公司的重返办公室政策与你的预期不一致，积极的求职面试会突然急转直下。
+这就是为什么，现在问未来雇主最重要的问题是:“你打算如何处理你重返办公室的事情？”这是一个至关重要的问题，它能让你对一份工作产生兴趣，也能让你失去兴趣。来自营销人员 [的一条有用的 Twitter 帖子艾米丽·科尔曼](https://twitter.com/editoremilye/status/1420467625587482624) 解释了如果公司的重返办公室政策与你的预期不一致，积极的求职面试会突然急转直下。
 
  [https://lifehacker.com/embed/inset/iframe?id=twitter-1420467625587482624&autosize=1](https://lifehacker.com/embed/inset/iframe?id=twitter-1420467625587482624&autosize=1) 
 

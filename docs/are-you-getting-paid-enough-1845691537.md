@@ -1,8 +1,8 @@
 # 你得到足够的报酬吗？
 
-> 原文:[https://life hacker . com/you-get-payed-1845691537](https://lifehacker.com/are-you-getting-paid-enough-1845691537)
+> 原文：<https://lifehacker.com/are-you-getting-paid-enough-1845691537>
 
-疫情会议之前的一项调查显示，近一半的美国人 [认为他们的工资过低](https://www.prnewswire.com/news-releases/are-you-underpaid-survey-released-with-robert-half-2019-salary-guides-finds-46-percent-of-workers-feel-shortchanged-300702967.html) ，COVID使情况变得更糟，因为近三分之一的美国人失业或被减薪，根据Redfin。你觉得工资低吗？这里有一些关于如何提出加薪的建议。 
+疫情会议之前的一项调查显示，近一半的美国人 [认为他们的工资过低](https://www.prnewswire.com/news-releases/are-you-underpaid-survey-released-with-robert-half-2019-salary-guides-finds-46-percent-of-workers-feel-shortchanged-300702967.html) ，COVID 使情况变得更糟，因为近三分之一的美国人失业或被减薪，根据 Redfin。你觉得工资低吗？这里有一些关于如何提出加薪的建议。 
 
 Watch
 
@@ -34,4 +34,4 @@ Watch
 
 如果你的加薪被拒绝，保持冷静和专业，询问他们的原因(如果是因为“预算原因”，你可以尝试协商额外的休假时间或其他福利)。如果你和你的雇主没有任何进展，你可能想找一份不同的工作。尽管这可能令人失望，但你为证明加薪的合理性而做的跑腿工作至少会让你在劳动力市场上领先一步。
 
-关于协商加薪的更多信息，请查看这个 [Lifehacker帖子](https://lifehacker.com/how-to-negotiate-your-salary-1566202988) 。
+关于协商加薪的更多信息，请查看这个 [Lifehacker 帖子](https://lifehacker.com/how-to-negotiate-your-salary-1566202988) 。

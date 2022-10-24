@@ -1,6 +1,6 @@
 # 防止大蒜发芽的最简单方法
 
-> 原文:[https://life hacker . com/the-easy-way-to-keep your-大蒜免于喷出-1846781031](https://lifehacker.com/the-easiest-way-to-keep-your-garlic-from-spouting-1846781031)
+> 原文：<https://lifehacker.com/the-easiest-way-to-keep-your-garlic-from-spouting-1846781031>
 
 似乎无论我在哪里买大蒜，至少有一半的大蒜总是处于发芽的边缘。随着胚芽(中间的小芽)老化变绿，它变得苦涩，虽然我有能力去除它，但这是我想避免的额外一步。幸运的是，冷冻大蒜可以阻止细菌滋生。
 

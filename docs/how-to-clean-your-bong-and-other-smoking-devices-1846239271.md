@@ -1,6 +1,6 @@
 # 如何清洁你的烟枪(和其他吸烟装置)
 
-> 原文:[https://life hacker . com/how-to-clean-your-bong-and-other-smoking-devices-1846239271](https://lifehacker.com/how-to-clean-your-bong-and-other-smoking-devices-1846239271)
+> 原文：<https://lifehacker.com/how-to-clean-your-bong-and-other-smoking-devices-1846239271>
 
 如果你定期点燃水管，很快你的随身吸烟装置就会变得潮湿。你用来过滤烟的自来水会把你的烟枪或起泡器变成一个带露水的洞穴，除非你定期清空烟枪并深度清洗。
 
@@ -10,9 +10,9 @@ Watch
 
 ### 为什么你应该清洗水管
 
-Bongs是最大的玻璃管，因此也是最脏的。你吸入的东西必须经过干净的水过滤。像任何死水一样，奉水可以滋生霉菌和真菌(镰孢菌，一种倾向于在潮湿环境中繁殖的粉红色真菌，喜欢在奉渗滤器中和周围生长， [根据Herb.co](https://herb.co/learn/sick-dirty-bong-water/))。
+Bongs 是最大的玻璃管，因此也是最脏的。你吸入的东西必须经过干净的水过滤。像任何死水一样，奉水可以滋生霉菌和真菌(镰孢菌，一种倾向于在潮湿环境中繁殖的粉红色真菌，喜欢在奉渗滤器中和周围生长， [根据 Herb.co](https://herb.co/learn/sick-dirty-bong-water/))。
 
-不用说，不惜一切代价将霉菌从你的吸烟习惯中分离出来。根据美国疾病控制与预防中心 的说法，接触霉菌会导致“鼻塞、喘息、眼睛或皮肤发红或发痒、 [”，尽管有些人比其他人更容易出现这些症状。CDC指出，还有一些更罕见的情况，如过敏性肺炎，由于过度暴露于“细菌、真菌、有机粉尘和化学物质等致敏物质”，可能会导致类似肺炎的症状，如发烧、咳嗽和发冷。](https://www.cdc.gov/mold/faqs.htm)
+不用说，不惜一切代价将霉菌从你的吸烟习惯中分离出来。根据美国疾病控制与预防中心 的说法，接触霉菌会导致“鼻塞、喘息、眼睛或皮肤发红或发痒、 [”，尽管有些人比其他人更容易出现这些症状。CDC 指出，还有一些更罕见的情况，如过敏性肺炎，由于过度暴露于“细菌、真菌、有机粉尘和化学物质等致敏物质”，可能会导致类似肺炎的症状，如发烧、咳嗽和发冷。](https://www.cdc.gov/mold/faqs.htm)
 
 总的来说，使用常识:如果你的水管底部的水是不透明的，浑浊的，你很可能在下一次治疗前没有清理干净。
 
@@ -23,7 +23,7 @@ Bongs是最大的玻璃管，因此也是最脏的。你吸入的东西必须经
 为了清洁您的烟斗或起泡器，请遵循以下指南:
 
 *   取下吸管和碗，将它们完全浸入装满酒精的塑料袋中。
-*   确保你的烟斗是空的，然后倒入酒精和岩盐。 [Weedmaps推荐](https://weedmaps.com/learn/products-and-how-to-consume/how-to-clean-a-bong) 每种使用大约1/4杯，但是数量会随着你的块的大小而变化，所以大致明智。
+*   确保你的烟斗是空的，然后倒入酒精和岩盐。 [Weedmaps 推荐](https://weedmaps.com/learn/products-and-how-to-consume/how-to-clean-a-bong) 每种使用大约 1/4 杯，但是数量会随着你的块的大小而变化，所以大致明智。
 *   一旦酒精和盐沉淀下来，用力摇晃你的烟斗，直到大量的树脂散开。很明显，你必须塞住所有的洞，这样就不会有黏糊糊的水漏出；你可以用任何合适的东西来做这件事，或者用你的手(戴着橡胶手套)。
 *   摇晃时，要用双手，因为这是一块玻璃，你不想让它飞起来。
 *   把所有东西都举起来，包括下面和碗。
@@ -34,24 +34,24 @@ Bongs是最大的玻璃管，因此也是最脏的。你吸入的东西必须经
 
 正如[weed maps](https://weedmaps.com/news/2019/01/4-simple-ways-to-keep-your-pipe-bubbler-rig-or-bong-clean/)所解释的那样，你只需要几样供应品(尽管你确实有让你的厨房瞬间变臭的风险)。以下是要做的事情:
 
-*   将2杯水和2杯苹果醋放入调味汁锅中。
+*   将 2 杯水和 2 杯苹果醋放入调味汁锅中。
 *   烧开，然后文火煨。
-*   将水管放入锅中，煨一个小时。(Weedmaps指出，在将水管放入水中之前，请确保水管处于室温，因为冷水管可能会破裂)。
+*   将水管放入锅中，煨一个小时。(Weedmaps 指出，在将水管放入水中之前，请确保水管处于室温，因为冷水管可能会破裂)。
 *   用钳子取下管子(可能滚烫),放在毛巾上晾干。
 
 ### 如何清洁你的蒸汽罐
 
-如果你偏爱现代除草技术，你可以用一支蒸汽笔来消耗四氢大麻酚。不管你用的是地沟油还是普通的电子烟汁，学习这些设备比T2要复杂一点，但不会太多。
+如果你偏爱现代除草技术，你可以用一支蒸汽笔来消耗四氢大麻酚。不管你用的是地沟油还是普通的电子烟汁，学习这些设备比 T2 要复杂一点，但不会太多。
 
-让我们首先从如何清洁vape笔的水箱开始，在这个视频中，由 [Veppo Vape商店](https://www.youtube.com/watch?v=1pP_wo1g4Xs) 蒸馏:
+让我们首先从如何清洁 vape 笔的水箱开始，在这个视频中，由 [Veppo Vape 商店](https://www.youtube.com/watch?v=1pP_wo1g4Xs) 蒸馏:
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-1pP_wo1g4Xs&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-1pP_wo1g4Xs&start=0) 
 
-*   首先，你要完全拆卸设备，这意味着从电池和线圈中取出vape罐。
+*   首先，你要完全拆卸设备，这意味着从电池和线圈中取出 vape 罐。
 *   确保没有多余的电子果汁从设备中滴出。
 *   将水箱浸没在温暖的肥皂水中，但必须确保水箱能够承受除普通水以外的任何东西(用户手册通常会告诉你)。
 *   用棉签或棉签清洁电池、线圈和嘴片。
-*   将水箱从温水中取出，放在纸巾上10-15分钟。
-*   建议你每2-3周做一次，或者当你改变果汁口味的时候。
+*   将水箱从温水中取出，放在纸巾上 10-15 分钟。
+*   建议你每 2-3 周做一次，或者当你改变果汁口味的时候。
 
-B 在 [延长你的设备线圈的健康](https://www.vaporesso.com/blog/how-to-clean-a-vape-coil#section-three) 和补充你的电子烟水平之间，m 维持电子烟或其他vaping设备是一个 [宇宙本身](https://vaping.com/blog/guides/how-to-clean-a-vape-device-the-newbie-guide/) 。但是如果你了解你的设备的基本结构和它是如何工作的，清洁它会成为一种习惯——这是你放松大麻的又一步。
+B 在 [延长你的设备线圈的健康](https://www.vaporesso.com/blog/how-to-clean-a-vape-coil#section-three) 和补充你的电子烟水平之间，m 维持电子烟或其他 vaping 设备是一个 [宇宙本身](https://vaping.com/blog/guides/how-to-clean-a-vape-device-the-newbie-guide/) 。但是如果你了解你的设备的基本结构和它是如何工作的，清洁它会成为一种习惯——这是你放松大麻的又一步。

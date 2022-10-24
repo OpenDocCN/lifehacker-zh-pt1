@@ -1,8 +1,8 @@
-# 11款你从来不知道自己需要的最好的无脑手机游戏
+# 11 款你从来不知道自己需要的最好的无脑手机游戏
 
-> 原文:[https://life hacker . com/11-of-the-best-mind-mobile-games-you-unknow-you-1847504307](https://lifehacker.com/11-of-the-best-mindless-mobile-games-you-never-knew-you-1847504307)
+> 原文：<https://lifehacker.com/11-of-the-best-mindless-mobile-games-you-never-knew-you-1847504307>
 
-当然，我们的手机或平板电脑拥有复杂游戏体验的硬件，但手机游戏真正的甜蜜点是无需动脑的一分钟游戏体验。当你在牙医诊所的候诊室辛苦工作时，或者当凌晨1点钟你仍然无法入睡时，你会被这种事情吸引。但是如果你陷入了愤怒的小鸟的窠臼，需要一些新鲜的选择，这里有11款以上的无脑手机游戏，可以用分散自己的注意力，而不会陷得太深。
+当然，我们的手机或平板电脑拥有复杂游戏体验的硬件，但手机游戏真正的甜蜜点是无需动脑的一分钟游戏体验。当你在牙医诊所的候诊室辛苦工作时，或者当凌晨 1 点钟你仍然无法入睡时，你会被这种事情吸引。但是如果你陷入了愤怒的小鸟的窠臼，需要一些新鲜的选择，这里有 11 款以上的无脑手机游戏，可以用分散自己的注意力，而不会陷得太深。
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-Z2V-1NxAWFc&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-Z2V-1NxAWFc&start=0) 
 
@@ -18,7 +18,7 @@
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-2sj2iQyBTQs&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-2sj2iQyBTQs&start=0) 
 
-神奇宝贝 *围棋*可能没有2016年轰动全国时的庞大玩家群，但仍有大量训练者四处走动，捕捉' mon。当你有几分钟空闲时间，想买一两只皮卡丘— 的时候，这是一个很棒的游戏。另外，它会奖励你出去走走，看看你邻居的新事物。甚至还有一个社交元素，这样你就可以和来自世界各地的教练进行互动。
+神奇宝贝 *围棋*可能没有 2016 年轰动全国时的庞大玩家群，但仍有大量训练者四处走动，捕捉' mon。当你有几分钟空闲时间，想买一两只皮卡丘— 的时候，这是一个很棒的游戏。另外，它会奖励你出去走走，看看你邻居的新事物。甚至还有一个社交元素，这样你就可以和来自世界各地的教练进行互动。
 
 **上可用**[**iOS**](https://apps.apple.com/us/app/pok%C3%A9mon-go/id1094591345)**和**[**Google Play**](https://play.google.com/store/apps/details?id=com.nianticlabs.pokemongo&hl=en_US&gl=US)**。**
 
@@ -36,7 +36,7 @@
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-cRdMnFCChz4&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-cRdMnFCChz4&start=0) 
 
-不管我下载了多少华而不实的新游戏，我最终发现自己回到了卑微的单人纸牌游戏。这是一场完美的比赛——完全引人入胜，赢得如此令人满意。有数不清的S olitaire应用程序，从非常简单的免费应用程序到复杂、华丽的古老纸牌游戏变体。我喜欢*单人纸牌城*，因为它提供了大量的游戏类型，广告不是特别打扰，而且它看起来和玩起来都很棒。
+不管我下载了多少华而不实的新游戏，我最终发现自己回到了卑微的单人纸牌游戏。这是一场完美的比赛——完全引人入胜，赢得如此令人满意。有数不清的 S olitaire 应用程序，从非常简单的免费应用程序到复杂、华丽的古老纸牌游戏变体。我喜欢*单人纸牌城*，因为它提供了大量的游戏类型，广告不是特别打扰，而且它看起来和玩起来都很棒。
 
 **上可用**[**iOS**](https://apps.apple.com/us/app/solitaire-city/id1145718202)**和**[**Google Play**](https://play.google.com/store/apps/details?id=com.digitalsmoke.solitairecity&hl=en_US&gl=US)**。**
 
@@ -46,13 +46,13 @@
 
 **上可用**[**iOS**](https://apps.apple.com/us/app/donut-county/id1292099839)**和**[**Google Play**](https://play.google.com/store/apps/details?id=com.annapurnainteractive.DonutCounty&hl=en_US&gl=US)**。**
 
-《纽约时报》的“真实” 填字游戏更多的是在慵懒的周日花几个小时测试你的大脑，而报纸的“迷你”填字游戏是日常琐事，只需要一两分钟就能解决。如果你喜欢文字游戏，但又不想深入超级，下载 Times的填字游戏app。每日字谜是免费的，但是订阅可以让你获得过去几十年的minis、以及全尺寸 Times 字谜的全部档案。
+《纽约时报》的“真实” 填字游戏更多的是在慵懒的周日花几个小时测试你的大脑，而报纸的“迷你”填字游戏是日常琐事，只需要一两分钟就能解决。如果你喜欢文字游戏，但又不想深入超级，下载 Times 的填字游戏 app。每日字谜是免费的，但是订阅可以让你获得过去几十年的 minis、以及全尺寸 Times 字谜的全部档案。
 
 **上可用**[**iOS**](https://apps.apple.com/us/app/new-york-times-crossword/id307569751)**和**[**Google Play**](https://play.google.com/store/apps/details?id=com.nytimes.crossword&hl=en_US&gl=US)**。**
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-uvGBL5m8j78&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-uvGBL5m8j78&start=0) 
 
-这是我见过的最蠢的游戏，但我不能停止玩它。在*紧身裤里，*你是一个试图走在街上的看起来很傻的家伙或傻瓜。在屏幕上轻点一下就等于迈出一步，就这么简单。但是*很难避免踩到会绊倒你的裂缝*和*TNT一些混蛋一直在人行道上离开。就像它的精神前辈 *Flappy Bird* 和*Crossy Road*,*Pants*在理论上很简单，但完全令人上瘾，并且难以掌握。* 
+这是我见过的最蠢的游戏，但我不能停止玩它。在*紧身裤里，*你是一个试图走在街上的看起来很傻的家伙或傻瓜。在屏幕上轻点一下就等于迈出一步，就这么简单。但是*很难避免踩到会绊倒你的裂缝*和*TNT 一些混蛋一直在人行道上离开。就像它的精神前辈 *Flappy Bird* 和*Crossy Road*,*Pants*在理论上很简单，但完全令人上瘾，并且难以掌握。* 
 
 **上可用**[**iOS**](https://apps.apple.com/us/app/steppy-pants/id1094138419)**和**[**Google Play**](https://play.google.com/store/apps/details?id=com.sgames.steppypants&hl=en_US&gl=US)**。**
 
@@ -64,6 +64,6 @@
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-h2120CinNB4&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-h2120CinNB4&start=0) 
 
-如果你是一个“跳出框框”的思考者，正在寻找真正独特的东西，这款美丽、极简的益智游戏适合你。它的几十个挑战中的每一个都为他们的解决方案提供了间接的视觉线索，每个谜题都可以在不触摸屏幕的情况下解决 *—* 这是一个令人惊讶地难以理解的游戏机制。你将使用你的iPhone的麦克风，扬声器控制，基本上除了触摸屏的每一个功能，在这个创新的，独一无二的游戏中前进。
+如果你是一个“跳出框框”的思考者，正在寻找真正独特的东西，这款美丽、极简的益智游戏适合你。它的几十个挑战中的每一个都为他们的解决方案提供了间接的视觉线索，每个谜题都可以在不触摸屏幕的情况下解决 *—* 这是一个令人惊讶地难以理解的游戏机制。你将使用你的 iPhone 的麦克风，扬声器控制，基本上除了触摸屏的每一个功能，在这个创新的，独一无二的游戏中前进。
 
 **可用上**[**iOS**](https://apps.apple.com/us/app/blackbox/id962969578)**。**

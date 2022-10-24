@@ -1,6 +1,6 @@
 # 为什么你应该切圣代樱桃
 
-> 原文:[https://life hacker . com/why-you-should-chop-your-Sunda-cherries-1849024945](https://lifehacker.com/why-you-should-chop-your-sundae-cherries-1849024945)
+> 原文：<https://lifehacker.com/why-you-should-chop-your-sundae-cherries-1849024945>
 
 圣代冰淇淋上一颗鲜艳的红樱桃是一种标志性的视觉享受，充满怀旧之情。可惜也是走错了。在你的圣代上放一颗樱桃意味着你只能吃一颗樱桃，我拒绝这种想法(对我，对你，对世界)。你的圣代需要多个樱桃，这些樱桃应该切碎。
 

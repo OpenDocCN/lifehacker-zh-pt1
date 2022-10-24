@@ -1,8 +1,8 @@
 # 如何打开你的汽车方向盘
 
-> 原文:[https://life hacker . com/how-to-unlock-your-cars-steering-wheel-1846115328](https://lifehacker.com/how-to-unlock-your-cars-steering-wheel-1846115328)
+> 原文：<https://lifehacker.com/how-to-unlock-your-cars-steering-wheel-1846115328>
 
-也许你熟悉你的汽车的每一个细节和功能，并为知道你的机器能做的每一件事而自豪。或者也许它只是一个让你从A到B的东西，每次你进去，你都把钥匙插在点火装置上，转动它，然后期待最好的结果(除非你有一个通过按下按钮开始的东西，但那是一个不同的故事)。
+也许你熟悉你的汽车的每一个细节和功能，并为知道你的机器能做的每一件事而自豪。或者也许它只是一个让你从 A 到 B 的东西，每次你进去，你都把钥匙插在点火装置上，转动它，然后期待最好的结果(除非你有一个通过按下按钮开始的东西，但那是一个不同的故事)。
 
 Watch
 
@@ -30,4 +30,4 @@ Watch
 > 4.  Shake the key until it turns.
 > 5.  Open the car and everything will be done.
 
-然而，他也指出，如果你在将钥匙插入和拔出点火装置时遇到问题，那很可能是灰尘和污垢 [随着时间的推移进入点火室](https://www.thedrive.com/cars-101/38564/how-to-unlock-steering-wheel) 并使其变粘或冻结。在这种情况下，马尔科维奇建议使用Tri-Flow润滑油或三合一干式润滑油，而不是WD-40或石墨。
+然而，他也指出，如果你在将钥匙插入和拔出点火装置时遇到问题，那很可能是灰尘和污垢 [随着时间的推移进入点火室](https://www.thedrive.com/cars-101/38564/how-to-unlock-steering-wheel) 并使其变粘或冻结。在这种情况下，马尔科维奇建议使用 Tri-Flow 润滑油或三合一干式润滑油，而不是 WD-40 或石墨。

@@ -1,6 +1,6 @@
 # 如何在你的花坛和花园中使用护根物
 
-> 原文:[https://life hacker . com/how-to-use-mulch-in-your flower beds-and-garden-1847133377](https://lifehacker.com/how-to-use-mulch-in-your-flowerbeds-and-garden-1847133377)
+> 原文：<https://lifehacker.com/how-to-use-mulch-in-your-flowerbeds-and-garden-1847133377>
 
 如果你阅读了很多园艺指导文章，包括本网站上的文章，你可能已经注意到护根物出现了很多。它有能力帮助你的植物保持水分，并防止杂草滋生，这使得护根物成为一种受欢迎的(尽管有臭味)园艺用品。
 
@@ -16,10 +16,10 @@ Watch
 
 ### 使用多少覆盖物
 
-兰达奇说，理想情况下，你应该在花坛上均匀地铺上两到四英寸厚的覆盖物。“如果使用更好的覆盖物，用1/2英寸或更少，应用2英寸深，”他 [告诉井+好](https://www.wellandgood.com/how-to-mulch-garden/) 。"如果你使用像松块这样的覆盖物，覆盖3-4英寸深."
+兰达奇说，理想情况下，你应该在花坛上均匀地铺上两到四英寸厚的覆盖物。“如果使用更好的覆盖物，用 1/2 英寸或更少，应用 2 英寸深，”他 [告诉井+好](https://www.wellandgood.com/how-to-mulch-garden/) 。"如果你使用像松块这样的覆盖物，覆盖 3-4 英寸深."
 
 ### 铺地膜
 
 你也必须注意你在哪里放护根物。按 [井+好](https://www.wellandgood.com/how-to-mulch-garden/) :
 
-> 兰达奇说，不要在任何植物、花、树或灌木的茎干周围直接覆盖。相反，把你的护根物推到离一年生和多年生植物茎4英寸远的地方，离树木和灌木至少6英寸远，以避免压迫植物结构。
+> 兰达奇说，不要在任何植物、花、树或灌木的茎干周围直接覆盖。相反，把你的护根物推到离一年生和多年生植物茎 4 英寸远的地方，离树木和灌木至少 6 英寸远，以避免压迫植物结构。

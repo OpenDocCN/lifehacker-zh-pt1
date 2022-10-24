@@ -1,12 +1,12 @@
-# 根据Reddit，在你的生活中支持跑步者的最好方式
+# 根据 Reddit，在你的生活中支持跑步者的最好方式
 
-> 原文:[https://life hacker . com/the-best-ways-to-support-the-runner-in-your life-accor-1849674299](https://lifehacker.com/the-best-ways-to-support-the-runner-in-your-life-accor-1849674299)
+> 原文：<https://lifehacker.com/the-best-ways-to-support-the-runner-in-your-life-accor-1849674299>
 
 跑步是一项令人满足的爱好，但也可能是一项艰巨的任务。如果你不跑步，你可能意识不到你的伴侣或密友每次出门都面临着情绪的大起大落(从兴高采烈到无聊透顶)，或者他们的消遣真的对他们的身体有影响——[脚趾甲擦伤，有人吗？](https://lifehacker.com/what-to-do-when-running-gives-you-black-toenails-1846812018)
 
 Watch
 
-不过，有一点是清楚的，那就是他们正在努力工作，他们可能会感谢家里的一些支持。所以这里有一些来自r/running sub上的Redditors的 [建议](https://www.reddit.com/r/running/comments/y4ugze/supporting_a_runner/?utm_source=share&utm_medium=ios_app&utm_name=iossmf) 。
+不过，有一点是清楚的，那就是他们正在努力工作，他们可能会感谢家里的一些支持。所以这里有一些来自 r/running sub 上的 Redditors 的 [建议](https://www.reddit.com/r/running/comments/y4ugze/supporting_a_runner/?utm_source=share&utm_medium=ios_app&utm_name=iossmf) 。
 
 ## 听他们抱怨
 
@@ -18,7 +18,7 @@ Watch
 
 ## 让他们睡吧
 
-跑了很多英里的跑步者需要大量的睡眠。这通常意味着早睡，尤其是如果他们早起跑步的话。正如一位redditor指出的:
+跑了很多英里的跑步者需要大量的睡眠。这通常意味着早睡，尤其是如果他们早起跑步的话。正如一位 redditor 指出的:
 
 > 听到丈夫鼓励的话语，而不是“加油，再来一集！”或者类似的请求，让我晚上陪着他，都意义重大！！
 
@@ -40,7 +40,7 @@ Watch
 
 ## 给予按摩
 
-除了午睡，跑步者还喜欢其他形式的自我护理。如果你能为他们画一个浴池，那太好了；一个redditor提到他们的伴侣会在寒冷的冬天在壁炉里生火。
+除了午睡，跑步者还喜欢其他形式的自我护理。如果你能为他们画一个浴池，那太好了；一个 redditor 提到他们的伴侣会在寒冷的冬天在壁炉里生火。
 
 但是到目前为止，这个部门最受欢迎的是按摩。了解你的跑步者喜欢什么，但通常喜欢足部和小腿的按摩。
 
@@ -61,6 +61,6 @@ Watch
 
 大多数跑步者都喜欢在终点线和跑道上得到支持。(例外的是那些少数几个为“自己”时间奔跑的怪人，他们甚至希望这种时间延续到比赛日；不要在终点给你的跑步者惊喜，除非你确定他们喜欢那样。)
 
-对于短距离比赛，如5公里，比赛日支持意味着带他们到起跑线，确保他们带好所有的东西，在他们跑步时拿着他们的夹克或钱包，在他们回到终点线时在那里大喊大叫。然后参考按摩、驾驶和小睡的建议。
+对于短距离比赛，如 5 公里，比赛日支持意味着带他们到起跑线，确保他们带好所有的东西，在他们跑步时拿着他们的夹克或钱包，在他们回到终点线时在那里大喊大叫。然后参考按摩、驾驶和小睡的建议。
 
-对于更长的比赛，比如马拉松或半程马拉松，提前计划，看看你能在赛道上出现多少个地方。使用一辆自行车或者战略性地使用地铁可以帮助你方便快捷地从一个地方到达另一个地方；通过了解跑步者的配速和开始时间，或者仅通过在跟踪应用程序中查看跑步者的位置(如谷歌地图或Strava的 [Beacon](https://lifehacker.com/why-you-should-turn-on-stravas-beacon-feature-when-you-1847599486) 功能)来找到跑步者。如果你能举起一个 [滑稽的手势](https://lifehacker.com/how-to-be-the-marathon-spectator-runners-love-1834001745) 让他们在苦难中开怀大笑，那是最好的。
+对于更长的比赛，比如马拉松或半程马拉松，提前计划，看看你能在赛道上出现多少个地方。使用一辆自行车或者战略性地使用地铁可以帮助你方便快捷地从一个地方到达另一个地方；通过了解跑步者的配速和开始时间，或者仅通过在跟踪应用程序中查看跑步者的位置(如谷歌地图或 Strava 的 [Beacon](https://lifehacker.com/why-you-should-turn-on-stravas-beacon-feature-when-you-1847599486) 功能)来找到跑步者。如果你能举起一个 [滑稽的手势](https://lifehacker.com/how-to-be-the-marathon-spectator-runners-love-1834001745) 让他们在苦难中开怀大笑，那是最好的。

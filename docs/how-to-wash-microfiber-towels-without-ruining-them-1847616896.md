@@ -1,6 +1,6 @@
 # 如何洗超细纤维毛巾而不损坏它们
 
-> 原文:[https://life hacker . com/how-to-wash-超细纤维毛巾-不破坏它们-1847616896](https://lifehacker.com/how-to-wash-microfiber-towels-without-ruining-them-1847616896)
+> 原文：<https://lifehacker.com/how-to-wash-microfiber-towels-without-ruining-them-1847616896>
 
 它们可能看起来像任何其他毛巾或抹布，但那些由微纤维制成的毛巾或抹布会带来一些负担。首先，一些人讨厌——我们的意思是， [真正的*鄙视*](https://www.racked.com/2017/12/26/16807370/microfiber-microfleece-gross-touch)——他们皮肤上超细纤维的感觉。如果你属于这一类，你并不孤单，你感觉到的那种奇怪的阻碍感并不在你的大脑中。
 
@@ -16,13 +16,13 @@ Watch
 
 在你做任何其他事情之前，好好摇一摇毛巾(无论是在外面还是在垃圾袋里)，以去除现有的污垢和灰尘，这样就不会在你洗毛巾的时候重新分布到毛巾上， [厨房的希夫拉·康比特建议](https://www.thekitchn.com/how-to-clean-microfiber-cloths-23027950) 。
 
-在我们开始之前还有一件事:根据Combiths的说法，我们应该在每次使用后清洗超细纤维毛巾。为什么？她在[中解释道:“衣物纤维中的污垢会刮伤并损坏你接下来要清洁的任何东西的表面。”。](https://www.thekitchn.com/how-to-clean-microfiber-cloths-23027950)
+在我们开始之前还有一件事:根据 Combiths 的说法，我们应该在每次使用后清洗超细纤维毛巾。为什么？她在[中解释道:“衣物纤维中的污垢会刮伤并损坏你接下来要清洁的任何东西的表面。”。](https://www.thekitchn.com/how-to-clean-microfiber-cloths-23027950)
 
 ## 超细纤维毛巾怎么洗
 
 你有两种选择:要么用洗衣机洗，要么用手洗。如果你选择洗衣机，只使用一点点洗涤剂，并确保它不含任何添加剂，如软化剂或香料。事实上， [根据](https://www.thekitchn.com/how-to-clean-microfiber-cloths-23027950) 的说法，完全跳过洗涤剂是可能的。
 
-手洗的时候就是这样。Combiths写道，如果你只是将毛巾用于轻度清洁，如抛光或除尘，你可以将它们放在温水容器中(不含洗涤剂)，用力擦拭，让污垢和灰尘有机会脱落，挤出多余的水，然后悬挂晾干。
+手洗的时候就是这样。Combiths 写道，如果你只是将毛巾用于轻度清洁，如抛光或除尘，你可以将它们放在温水容器中(不含洗涤剂)，用力擦拭，让污垢和灰尘有机会脱落，挤出多余的水，然后悬挂晾干。
 
 ## **如何烘干超细纤维毛巾**
 

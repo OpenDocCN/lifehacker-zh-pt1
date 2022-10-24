@@ -1,18 +1,18 @@
 # 心理学家伊迪丝·埃格尔博士告诉我们如何从精神监狱中挣脱出来
 
-> 原文:[https://life hacker . com/how-to-break-free-from your ' s mental-pulsions-with-psycho-1845275910](https://lifehacker.com/how-to-break-free-from-your-mental-prisons-with-psycho-1845275910)
+> 原文：<https://lifehacker.com/how-to-break-free-from-your-mental-prisons-with-psycho-1845275910>
 
-本周，在心理学家兼大屠杀幸存者伊迪丝·埃格尔博士的帮助下，我们正在从受害者、恐惧和绝望的精神监狱中挣脱出来。请听Eger博士与Jordan和Alice谈论我们的想法如何创造我们的感觉，以及如何改变你的想法语言可以让你对生活更加负责。
+本周，在心理学家兼大屠杀幸存者伊迪丝·埃格尔博士的帮助下，我们正在从受害者、恐惧和绝望的精神监狱中挣脱出来。请听 Eger 博士与 Jordan 和 Alice 谈论我们的想法如何创造我们的感觉，以及如何改变你的想法语言可以让你对生活更加负责。
 
 Watch
 
-埃格尔博士是《纽约时报》畅销书 [*【选择:拥抱可能*](https://www.amazon.com/Choice-Dr-Edith-Eva-Eger/dp/1501130781?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-break-free-from-your-mental-prisons-with-psycho-1845275910&asc_source=&tag=kinjalifehackerlink-20) 的作者，这是她关于幸存的奥斯威辛集中营的回忆录。她的新书《礼物:拯救你生命的12课》是她应对生活中最复杂挑战的指南。
+埃格尔博士是《纽约时报》畅销书 [*【选择:拥抱可能*](https://www.amazon.com/Choice-Dr-Edith-Eva-Eger/dp/1501130781?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-break-free-from-your-mental-prisons-with-psycho-1845275910&asc_source=&tag=kinjalifehackerlink-20) 的作者，这是她关于幸存的奥斯威辛集中营的回忆录。她的新书《礼物:拯救你生命的 12 课》是她应对生活中最复杂挑战的指南。
 
 [https://art19.com/shows/96bf1671-b079-4f44-b7d2-e95d655de263/episodes/034b07fd-9d94-4faf-8c4c-42f3445191f9/embed](https://art19.com/shows/96bf1671-b079-4f44-b7d2-e95d655de263/episodes/034b07fd-9d94-4faf-8c4c-42f3445191f9/embed)
 
 T2】
 
-听听上面的升级或者在所有通常提供播客的地方找到我们，包括[Google Play](https://play.google.com/music/listen?u=0#/ps/Illldmn6f4jkwb32lslhae3laru)[Spotify](https://open.spotify.com/show/43qzAEOZ861D4aXaBXaRKj)[iHeartRadio](https://www.iheart.com/podcast/8-The-Upgrade-by-Lifehacker-28037794)和NPR一号。
+听听上面的升级或者在所有通常提供播客的地方找到我们，包括[Google Play](https://play.google.com/music/listen?u=0#/ps/Illldmn6f4jkwb32lslhae3laru)[Spotify](https://open.spotify.com/show/43qzAEOZ861D4aXaBXaRKj)[iHeartRadio](https://www.iheart.com/podcast/8-The-Upgrade-by-Lifehacker-28037794)和 NPR 一号。
 
 ## **本周集锦**
 
@@ -32,7 +32,7 @@ T2】
 
 想听更多的埃格尔博士的智慧，我们建议听完整集。
 
-对未来的剧集有什么反馈或想法吗？想上节目吗？请拨打347-687-8109给我们留言，或者给upgrade@lifehacker.com发送语音备忘录。
+对未来的剧集有什么反馈或想法吗？想上节目吗？请拨打 347-687-8109 给我们留言，或者给 upgrade@lifehacker.com 发送语音备忘录。
 
 ### **一集文字记录**
 

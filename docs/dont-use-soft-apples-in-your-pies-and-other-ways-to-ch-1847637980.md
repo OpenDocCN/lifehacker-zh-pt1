@@ -1,6 +1,6 @@
 # 不要在你的馅饼中使用软苹果(以及其他选择合适苹果烹饪的方法)
 
-> 原文:[https://life hacker . com/don-use-soft-apple-in-your-pies-and-other-ways-to-ch-1847637980](https://lifehacker.com/dont-use-soft-apples-in-your-pies-and-other-ways-to-ch-1847637980)
+> 原文：<https://lifehacker.com/dont-use-soft-apples-in-your-pies-and-other-ways-to-ch-1847637980>
 
 苹果是我最喜欢的水果，也不是特别亲。对我来说，就是品种繁多:在我的余生中，我可以每年尝试一些对我来说新的品种，但仍然觉得我有更多东西要学。然而，所有这些变化的不利之处在于，它可能会让人不知所措，尤其是当你试图找出在食谱中使用哪种苹果的时候。从冰箱里拿出来的甜薯片味道很好，但是放在馅饼里呢？不同的品种真的有那么大的区别吗？
 

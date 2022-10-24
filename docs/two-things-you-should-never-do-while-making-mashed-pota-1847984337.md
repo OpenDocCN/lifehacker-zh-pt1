@@ -1,6 +1,6 @@
 # 做土豆泥时，有两件事你绝对不应该做
 
-> 原文:[https://life hacker . com/two-things-you never-do-which-making-massed-pota-1847984337](https://lifehacker.com/two-things-you-should-never-do-while-making-mashed-pota-1847984337)
+> 原文：<https://lifehacker.com/two-things-you-should-never-do-while-making-mashed-pota-1847984337>
 
 很多人喜欢把秋天和冬天称为“喝汤季节”，但我一直认为这些寒冷的月份是“土豆泥季节”无论是作为(不可协商的)感恩节大餐，还是作为一周中的一餐，很少有东西能像一碗奶油土豆泥一样让人感到舒适和满足。
 

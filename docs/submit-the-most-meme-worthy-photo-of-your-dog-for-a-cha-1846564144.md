@@ -1,12 +1,12 @@
-# 提交最值得纪念的狗狗照片，就有机会赢得1000美元
+# 提交最值得纪念的狗狗照片，就有机会赢得 1000 美元
 
-> 原文:[https://life hacker . com/submit-the-most-meme-worthy-photo-your-dog-for-a-cha-1846564144](https://lifehacker.com/submit-the-most-meme-worthy-photo-of-your-dog-for-a-cha-1846564144)
+> 原文：<https://lifehacker.com/submit-the-most-meme-worthy-photo-of-your-dog-for-a-cha-1846564144>
 
 我们都经历了艰难的一年，有时看着狗狗 有趣的照片会让我们感觉更好，即使只有几秒钟。如果你曾经看过一个流行的狗迷因，并认为，“嘿，我的狗也一样有趣，”现在你有机会证明这一点。
 
 Watch
 
-为了找到这个国家最值得迷因的狗狗照片，Vet Naturals正在举办 [【终极狗狗摄影大赛】](https://blog.vetnaturals.com/dog-photo-contest/) ，并有1000美元的现金奖励。下面是进入的方法。
+为了找到这个国家最值得迷因的狗狗照片，Vet Naturals 正在举办 [【终极狗狗摄影大赛】](https://blog.vetnaturals.com/dog-photo-contest/) ，并有 1000 美元的现金奖励。下面是进入的方法。
 
 ### 关于比赛，你需要知道些什么
 
@@ -16,7 +16,7 @@ Watch
 
 你是不是属于那种*实际上没有*养狗，但*真的想要*养狗，并且可能有点过于依恋家人和朋友的小狗的人？嗯，这一次没有必要感到被排除在外，因为你也可以进入！(只是一定要先和狗的人核实一下。)
 
-除了获得最佳照片的1000美元奖金外，奖品还包括三个月的免费Vet Naturals产品供应，所以如果你自己没有养狗，你可以把这一福利传给你的模特。
+除了获得最佳照片的 1000 美元奖金外，奖品还包括三个月的免费 Vet Naturals 产品供应，所以如果你自己没有养狗，你可以把这一福利传给你的模特。
 
 ### 细则
 
@@ -26,10 +26,10 @@ Watch
 
 这份工作似乎还有更多的内容，尽管这部分也有点模糊。但是我们知道:
 
-> 获胜者需要完成由Vet Naturals LLC指定的特定任务。如果获胜者没有完成要求他们完成的任务，他们将不会获得1000美元的奖金和三个月的Vet Naturals产品供应。
+> 获胜者需要完成由 Vet Naturals LLC 指定的特定任务。如果获胜者没有完成要求他们完成的任务，他们将不会获得 1000 美元的奖金和三个月的 Vet Naturals 产品供应。
 
 ### 如何参加比赛
 
-为了参赛，年满18岁的美国公民或永久居民可以 [填写这张参赛表格](https://forms.gle/7tPHj3bM2HgA8MGU7)——包括附上的照片。
+为了参赛，年满 18 岁的美国公民或永久居民可以 [填写这张参赛表格](https://forms.gle/7tPHj3bM2HgA8MGU7)——包括附上的照片。
 
-参赛者还被鼓励在 [兽医自然脸书页面](https://www.facebook.com/VeterinaryNaturals/) 或Instagram上分享他们的狗狗照片，标记 [兽医自然](https://www.instagram.com/vetnaturals/?hl=en) 。但是请注意，正式进入竞赛的唯一方式是在4月9日之前通过 [填写表格](https://forms.gle/7tPHj3bM2HgA8MGU7) 。
+参赛者还被鼓励在 [兽医自然脸书页面](https://www.facebook.com/VeterinaryNaturals/) 或 Instagram 上分享他们的狗狗照片，标记 [兽医自然](https://www.instagram.com/vetnaturals/?hl=en) 。但是请注意，正式进入竞赛的唯一方式是在 4 月 9 日之前通过 [填写表格](https://forms.gle/7tPHj3bM2HgA8MGU7) 。

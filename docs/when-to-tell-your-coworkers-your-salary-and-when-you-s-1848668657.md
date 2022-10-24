@@ -1,8 +1,8 @@
 # 什么时候告诉你的同事你的薪水(什么时候不应该)
 
-> 原文:[https://life hacker . com/when-to-tell-your-collaborate-your-salary-and-when-you-s-1848668657](https://lifehacker.com/when-to-tell-your-coworkers-your-salary-and-when-you-s-1848668657)
+> 原文：<https://lifehacker.com/when-to-tell-your-coworkers-your-salary-and-when-you-s-1848668657>
 
-薪酬透明的案例是 [获得牵引力](https://www.forbes.com/sites/forbeshumanresourcescouncil/2022/03/14/what-will-compensation-look-like-in-the-new-world-of-work/?sh=7f8efa117605) 。下个月， [纽约市薪酬透明法](https://www.forbes.com/sites/jackkelly/2022/01/06/in-a-big-win-for-workers-new-york-city-will-make-it-mandatory-for-companies-to-disclose-salaries-on-job-advertisements/?sh=612425f14b38) 将会生效，该法要求公司披露所有招聘信息的薪酬范围。尽管薪酬透明在一些地方被强制执行(参见加利福尼亚州 和科罗拉多州的州法律)，披露你挣多少钱在大多数情况下仍然是禁忌。Salary.com T21今年早些时候进行的一项调查发现，只有四分之一的员工认为他们的雇主在薪酬方面是透明的。与此同时，45%的受访者表示，他们个人不愿意与他人讨论自己的薪水。
+薪酬透明的案例是 [获得牵引力](https://www.forbes.com/sites/forbeshumanresourcescouncil/2022/03/14/what-will-compensation-look-like-in-the-new-world-of-work/?sh=7f8efa117605) 。下个月， [纽约市薪酬透明法](https://www.forbes.com/sites/jackkelly/2022/01/06/in-a-big-win-for-workers-new-york-city-will-make-it-mandatory-for-companies-to-disclose-salaries-on-job-advertisements/?sh=612425f14b38) 将会生效，该法要求公司披露所有招聘信息的薪酬范围。尽管薪酬透明在一些地方被强制执行(参见加利福尼亚州 和科罗拉多州的州法律)，披露你挣多少钱在大多数情况下仍然是禁忌。Salary.com T21 今年早些时候进行的一项调查发现，只有四分之一的员工认为他们的雇主在薪酬方面是透明的。与此同时，45%的受访者表示，他们个人不愿意与他人讨论自己的薪水。
 
 Watch
 
@@ -18,9 +18,9 @@ Watch
 
 薪酬透明的核心问题是把权力还给工人，让你们所有人的薪酬更加公平——尤其是那些历史上薪酬不公平的工人。
 
-虽然薪酬透明有助于确保你和你的同事在总体上得到公平的补偿，但个人披露这些信息说起来容易做起来难。Remote.co[、FlexJobs](https://streaklinks.com/A-QKjymODg6oE7SsPQAdGWfA/https%3A%2F%2Fwww.flexjobs.com%2F) 和 [的职业服务经理托尼·弗兰纳说:“与同事分享工资信息可以让你所在单位的工资更加透明。”。](http://remote.co./) ，讲述Lifehacker。但它并不总是一成不变的。Frana指出，“即使你知道美元数字，你也不可能知道做出这个决定的所有背景。”
+虽然薪酬透明有助于确保你和你的同事在总体上得到公平的补偿，但个人披露这些信息说起来容易做起来难。Remote.co[、FlexJobs](https://streaklinks.com/A-QKjymODg6oE7SsPQAdGWfA/https%3A%2F%2Fwww.flexjobs.com%2F) 和 [的职业服务经理托尼·弗兰纳说:“与同事分享工资信息可以让你所在单位的工资更加透明。”。](http://remote.co./) ，讲述 Lifehacker。但它并不总是一成不变的。Frana 指出，“即使你知道美元数字，你也不可能知道做出这个决定的所有背景。”
 
-无论如何，与同事分享你的工资信息并非闻所未闻，但这还不是规范。Frana分享了FlexJobs最近的一项调查的结果，告诉我们42%的受访者曾与同事讨论过他们的工资，而58%的人没有。如果你的雇主没有公开披露工资信息，这里有一些原因可以解释为什么你可能想和你的同事开始这样的对话。
+无论如何，与同事分享你的工资信息并非闻所未闻，但这还不是规范。Frana 分享了 FlexJobs 最近的一项调查的结果，告诉我们 42%的受访者曾与同事讨论过他们的工资，而 58%的人没有。如果你的雇主没有公开披露工资信息，这里有一些原因可以解释为什么你可能想和你的同事开始这样的对话。
 
 *   了解你的价值。如果你知道你的同事做同样的工作挣多少钱，你就可以为自己争取更公平的工资。如果你发现你的团队中没有人在你的行业中获得有竞争力的薪酬，你可以做出明智的决定，要么采取集体行动，要么完全离开公司。
 *   帮助同事了解他们的价值。如果你怀疑你的雇主在利用你的同事，分享你自己的工资信息可以帮助他们争取更公平的工资。
@@ -29,7 +29,7 @@ Watch
 
 ## **何时不分享你的工资**
 
-尽管从长远来看，薪酬透明将有助于更多的员工，但在某些情况下，你仍应谨慎行事。正如Frana所指出的，你可能会遗漏一些敏感信息，这些信息会记录在某个人的薪资数据中，比如，在招聘过程中，你所获得的经验质量的差异。
+尽管从长远来看，薪酬透明将有助于更多的员工，但在某些情况下，你仍应谨慎行事。正如 Frana 所指出的，你可能会遗漏一些敏感信息，这些信息会记录在某个人的薪资数据中，比如，在招聘过程中，你所获得的经验质量的差异。
 
 也许你是那种发现自己挣得比同事还少时会被激怒的人。如果你热衷于薪酬透明，一些尴尬不足以阻止你。这不会对每个人都适用。
 

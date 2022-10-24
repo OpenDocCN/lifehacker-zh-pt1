@@ -1,6 +1,6 @@
 # 现在是时候拥抱不辣的食物了
 
-> 原文:[https://life hacker . com/now-is-the-time-to-embrace-not-hot-food-1846784647](https://lifehacker.com/now-is-the-time-to-embrace-not-hot-food-1846784647)
+> 原文：<https://lifehacker.com/now-is-the-time-to-embrace-not-hot-food-1846784647>
 
 现在还不是时候，但是一旦发生了，三件事将会成真:我会开始讨厌使用我的烤箱。我想邀请人们到我的院子里享受一顿户外大餐。我会变得越来越懒惰。这三样东西都不与其他两个直接冲突，但是它们的共存确实带来了一些挑战。
 
@@ -18,11 +18,11 @@ Watch
 
 ### 食品安全一词
 
-我知道我们都应该保持“热食物热”和“冷食物冷”，但你有一些余地，即使是根据美国食品和药物管理局的标准。他们建议将易腐烂的食物放在冰箱外面不要超过两个小时，如果环境温度超过90华氏度，不要超过一个小时，所以坚持这样做，你会非常安全。(食品和药物管理局和他们的规定从来没有阻止我吃放在柜台上过夜的比萨饼，但是要按照食品和药物管理局说的去做，而不是照我做的去做。)
+我知道我们都应该保持“热食物热”和“冷食物冷”，但你有一些余地，即使是根据美国食品和药物管理局的标准。他们建议将易腐烂的食物放在冰箱外面不要超过两个小时，如果环境温度超过 90 华氏度，不要超过一个小时，所以坚持这样做，你会非常安全。(食品和药物管理局和他们的规定从来没有阻止我吃放在柜台上过夜的比萨饼，但是要按照食品和药物管理局说的去做，而不是照我做的去做。)
 
 ### 让你的肉变得醇香
 
-所有的肉类都受益于烹饪后的短暂休息，这样汁液可以重新分配，但是一些肉类在长时间的午睡甚至T5】一整夜的睡眠 中表现得特别好。我最喜欢的一些不辣的食物包括:已经捣碎 并烧烤(或煎炸)然后冷却到室温的 [鸡胸肉，切成薄片的半生熟牛排，已经冷藏了一夜并拌有酸性调味汁，以及室温(【或冷】)](https://skillet.lifehacker.com/why-you-should-pound-chicken-breasts-before-cooking-the-1797903121)[清酒曲-](https://skillet.lifehacker.com/marinate-all-of-your-pork-in-shio-koji-1831238644) ， [味噌-](https://skillet.lifehacker.com/miso-is-an-amazing-one-ingredient-marinade-1846134341)[这道刚出炉的](https://skillet.lifehacker.com/miso-is-an-amazing-one-ingredient-marinade-1846134341) [腌金枪鱼](https://skillet.lifehacker.com/sous-vide-tuna-confit-is-way-better-than-the-canned-stu-1845352965) 一点也不吸引人*，但是在室温下配上硬皮面包、上好的蛋黄酱和大量的新鲜香草，绝对是一流的。还有，不要在吃剩的炸鸡上睡觉；i t不应该起作用——大多数冷油炸食品都很恶心——但是皮肤下的凝结脂肪层在搭配面包冰冷咸脆的口感时是一种结构上的享受。*
+所有的肉类都受益于烹饪后的短暂休息，这样汁液可以重新分配，但是一些肉类在长时间的午睡甚至 T5】一整夜的睡眠 中表现得特别好。我最喜欢的一些不辣的食物包括:已经捣碎 并烧烤(或煎炸)然后冷却到室温的 [鸡胸肉，切成薄片的半生熟牛排，已经冷藏了一夜并拌有酸性调味汁，以及室温(【或冷】)](https://skillet.lifehacker.com/why-you-should-pound-chicken-breasts-before-cooking-the-1797903121)[清酒曲-](https://skillet.lifehacker.com/marinate-all-of-your-pork-in-shio-koji-1831238644) ， [味噌-](https://skillet.lifehacker.com/miso-is-an-amazing-one-ingredient-marinade-1846134341)[这道刚出炉的](https://skillet.lifehacker.com/miso-is-an-amazing-one-ingredient-marinade-1846134341) [腌金枪鱼](https://skillet.lifehacker.com/sous-vide-tuna-confit-is-way-better-than-the-canned-stu-1845352965) 一点也不吸引人*，但是在室温下配上硬皮面包、上好的蛋黄酱和大量的新鲜香草，绝对是一流的。还有，不要在吃剩的炸鸡上睡觉；i t 不应该起作用——大多数冷油炸食品都很恶心——但是皮肤下的凝结脂肪层在搭配面包冰冷咸脆的口感时是一种结构上的享受。*
 
 ### *让你的蔬菜自然生长*
 
@@ -32,7 +32,7 @@ Watch
 
 ### *鸡蛋和奶制品也受益*
 
-**温热的*鸡蛋和奶酪听起来可能很恶心——特别是如果你在美国或其他任何地方长大，他们 [会把鸡蛋的表皮吹掉](https://vitals.lifehacker.com/why-eggs-need-to-be-refrigerated-in-the-u-s-but-not-i-1790288205)——但是像 [西班牙玉米饼](https://lifehacker.com/make-a-spanish-tortilla-in-just-ten-minutes-with-potato-1791712712) 这样的菜就应该这样做(就像 [这种腌煎蛋卷](https://skillet.lifehacker.com/how-to-make-sous-vide-japanese-omelets-1839133996) )，除非是凌晨2点从袋子里直接拿出来的碎奶酪在 之前，我们已经 [讨论过这个问题，但是奶酪中的脂肪放在冰箱里冷的时候尝起来并不好吃，或者说感觉并不好:](https://skillet.lifehacker.com/serve-your-fancy-cheese-board-at-room-temperature-1837748708)*
+**温热的*鸡蛋和奶酪听起来可能很恶心——特别是如果你在美国或其他任何地方长大，他们 [会把鸡蛋的表皮吹掉](https://vitals.lifehacker.com/why-eggs-need-to-be-refrigerated-in-the-u-s-but-not-i-1790288205)——但是像 [西班牙玉米饼](https://lifehacker.com/make-a-spanish-tortilla-in-just-ten-minutes-with-potato-1791712712) 这样的菜就应该这样做(就像 [这种腌煎蛋卷](https://skillet.lifehacker.com/how-to-make-sous-vide-japanese-omelets-1839133996) )，除非是凌晨 2 点从袋子里直接拿出来的碎奶酪在 之前，我们已经 [讨论过这个问题，但是奶酪中的脂肪放在冰箱里冷的时候尝起来并不好吃，或者说感觉并不好:](https://skillet.lifehacker.com/serve-your-fancy-cheese-board-at-room-temperature-1837748708)*
 
 > *奶酪大部分是脂肪，冷脂肪是橡胶状的，没有味道。但是一旦脂肪变热，它就会变松，奶酪在你的嘴里会感觉像奶油一样，而不是有弹性。它尝起来也会像它本来的味道一样，因为你不会有那些冰冷的、使人失去味觉的脂肪把事情弄糟。*
 

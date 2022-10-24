@@ -1,8 +1,8 @@
-# 21部最适合独自观看的反思电影
+# 21 部最适合独自观看的反思电影
 
-> 原文:[https://life hacker . com/21-of-the-best-inspect-movies-to-watch-absolute-1848571646](https://lifehacker.com/21-of-the-best-introspective-movies-to-watch-absolutely-1848571646)
+> 原文：<https://lifehacker.com/21-of-the-best-introspective-movies-to-watch-absolutely-1848571646>
 
-我总是很满足于一个人看电影。如果是《T1》、《T2》、《速度与激情2》、《T3》或《T4》、《神秘海域》、《T5 》,那当然很好，但也有一些电影需要更多的关注和奖励细心的关注——坦率地说，朋友、伙伴甚至朋友也可能会让你分心。
+我总是很满足于一个人看电影。如果是《T1》、《T2》、《速度与激情 2》、《T3》或《T4》、《神秘海域》、《T5 》,那当然很好，但也有一些电影需要更多的关注和奖励细心的关注——坦率地说，朋友、伙伴甚至朋友也可能会让你分心。
 
 因此，这些是一些最好的电影，可以静静地看，没有很多典型的吸引眼球的东西。他们相对安静，通常很有想法，这并不是说很无聊——尽管里程数肯定会在这一点上有所不同。
 
@@ -48,11 +48,11 @@
 
 在某种程度上，《乔治·华盛顿》是《T2》的故事，讲述了一个小学生无意中杀人并试图隐藏证据的故事...但是这个大纲并没有以任何方式抓住这首有意- 节奏紧凑、音调优美的诗的感觉。
 
-**流向哪里:**准则频道，纯Flix
+**流向哪里:**准则频道，纯 Flix
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-vU29VfayDMw&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-vU29VfayDMw&start=0) 
 
-就另类黑色喜剧而言，没有比这更另类的了:在欧格斯·兰斯莫斯的反乌托邦黑色喜剧中，单身人士有整整45天的时间来寻找浪漫的伴侣——否则他们就会变成动物。这肯定很奇怪，但不比它讽刺的现代求爱仪式更奇怪。
+就另类黑色喜剧而言，没有比这更另类的了:在欧格斯·兰斯莫斯的反乌托邦黑色喜剧中，单身人士有整整 45 天的时间来寻找浪漫的伴侣——否则他们就会变成动物。这肯定很奇怪，但不比它讽刺的现代求爱仪式更奇怪。
 
 **在哪里播放:**富博，任何时间的表演，喧闹，Kanopy
 
@@ -76,7 +76,7 @@
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-r7siyF2qkvU&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-r7siyF2qkvU&start=0) 
 
-我们的男主角是一个不会说话的独眼前囚犯(由Mads Mikkelse n扮演),在肮脏野蛮的中世纪，当北欧人与基督教十字军相遇时，他开始了漫长的催眠之旅。这里有血腥和战斗，但这位独特的导演对其间的沉默更感兴趣。
+我们的男主角是一个不会说话的独眼前囚犯(由 Mads Mikkelse n 扮演),在肮脏野蛮的中世纪，当北欧人与基督教十字军相遇时，他开始了漫长的催眠之旅。这里有血腥和战斗，但这位独特的导演对其间的沉默更感兴趣。
 
 **流向何处:** AMC+
 
@@ -88,7 +88,7 @@
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-RrAz1YLh8nY&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-RrAz1YLh8nY&start=0) 
 
-虽然早期的评论家认为这是自命不凡，但特伦斯·马利克对生命本身的意义进行华丽呈现的探索的安静的野心是不会错的，中途停留在20世纪50年代的德克萨斯州。这可能是自该电影1968年上映以来，任何导演最接近2001年的规模和范围。
+虽然早期的评论家认为这是自命不凡，但特伦斯·马利克对生命本身的意义进行华丽呈现的探索的安静的野心是不会错的，中途停留在 20 世纪 50 年代的德克萨斯州。这可能是自该电影 1968 年上映以来，任何导演最接近 2001 年的规模和范围。
 
 **流向哪里:** Hulu
 

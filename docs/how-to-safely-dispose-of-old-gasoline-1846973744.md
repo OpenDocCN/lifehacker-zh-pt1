@@ -1,6 +1,6 @@
 # 如何安全处置旧汽油
 
-> 原文:[https://life hacker . com/how-to-safe-dispose-of-old-gasoline-1846973744](https://lifehacker.com/how-to-safely-dispose-of-old-gasoline-1846973744)
+> 原文：<https://lifehacker.com/how-to-safely-dispose-of-old-gasoline-1846973744>
 
 如果你一直在储存汽油(希望 [不是塑料袋或其他随机容器](https://lifehacker.com/for-the-love-of-god-please-dont-put-gasoline-in-random-1846889530) )，重要的是要知道汽油会变坏，过一会儿你就不想把它放在你的汽车或割草机里了。但是你也不应该把它扔到街上。以下是你需要知道的关于安全处理旧的或过期的汽油。
 

@@ -1,12 +1,12 @@
 # 模拟“魔兽世界”寻找最佳装备升级
 
-> 原文:[https://life hacker . com/simulate-world-of-war craft-to-find-the-best-gear-upgrad-1846085936](https://lifehacker.com/simulate-world-of-warcraft-to-find-the-best-gear-upgrad-1846085936)
+> 原文：<https://lifehacker.com/simulate-world-of-warcraft-to-find-the-best-gear-upgrad-1846085936>
 
 虽然你可能仍然是一个可怕的*魔兽世界*玩家，无法获得好的 [解析](https://www.warcraftlogs.com/) 来拯救他们的生命，但不要让你的装备拖你的后腿。如果你只是在游戏中不停地按键，我无法帮助你成为一名更好的玩家，但是有很多技术工具可以用来确保你不会因为糟糕的装备选择而损失宝贵的每秒伤害。
 
 Watch
 
-“模拟”方面是有趣的部分。为了帮助你找出最适合你的角色的装备——包括在有选择的情况下你应该升级哪些装备——有各种各样的工具可以运行数百(或数千)个 *Wacraft* 战斗模拟。他们会给你一个好主意，让你知道不同的装备组合在游戏中的表现。大多数工具，如果它们有什么好的话，也会给你一个建议，告诉你应该装备什么来获得最大的潜在DPS。
+“模拟”方面是有趣的部分。为了帮助你找出最适合你的角色的装备——包括在有选择的情况下你应该升级哪些装备——有各种各样的工具可以运行数百(或数千)个 *Wacraft* 战斗模拟。他们会给你一个好主意，让你知道不同的装备组合在游戏中的表现。大多数工具，如果它们有什么好的话，也会给你一个建议，告诉你应该装备什么来获得最大的潜在 DPS。
 
 虽然我懒惰的自我以前依赖来自的向导来装备我的角色，但我已经开始欣赏模拟工具的速度和全面性，如 [【问问机器人先生】](http://www.askmrrobot.com/)[Raidbots](https://www.raidbots.com/simbot/topgear)和[simulation craft](https://www.simulationcraft.org/)。我用它们来让我的(总是很糟糕的)恶魔猎手变得最好，它们非常有用，可以帮助我弄清楚什么是升级，什么是次要的，以及在我现在得到的可怕战利品中什么是值得忽略的。
 
@@ -26,13 +26,13 @@ Watch
 
 一旦你弄乱了选项，点击“查找最佳位置”来完成，这将输出一个类似购物清单的屏幕，告诉你应该去找什么样的装备，在哪里可以找到它:
 
-你还会看到你的角色的一个完整的属性分析，以及一个建议，如果你按照机器人先生的建议去做，你会造成多少伤害。在这一点上，我通常会点击“返回设置”并修补更多的变量，以了解我的角色的未来*进程可能是什么——以及我应该在哪里投入时间，是运行神话，玩PvP，还是运行突袭。*
+你还会看到你的角色的一个完整的属性分析，以及一个建议，如果你按照机器人先生的建议去做，你会造成多少伤害。在这一点上，我通常会点击“返回设置”并修补更多的变量，以了解我的角色的未来*进程可能是什么——以及我应该在哪里投入时间，是运行神话，玩 PvP，还是运行突袭。*
 
 这就是问机器人先生——这可能是我使用最多的工具之一，用来确保我不会在游戏中浪费时间玩没有任何我真正需要的装备的地下城。至于 [**模拟飞船**](https://www.curseforge.com/wow/addons/simulationcraft) ，其他有用的插件，操作方式大同小异。你将安装它，然后将一大串文本复制到其他程序中——甚至是 [Simulationcraft](https://www.simulationcraft.org/download.html) 本身，它也提供了一个应用程序，你可以安装在你的系统上，尽可能多地运行你自己的复杂战斗模拟。
 
-然而，我认为一个更好的配对是使用Simulationcraft与 [**Raidbots**](https://www.raidbots.com/simbot) 网站。首先，进入*魔兽世界*，点击Simulationcraft按钮，复制出现的文本框中的所有内容:
+然而，我认为一个更好的配对是使用 Simulationcraft 与 [**Raidbots**](https://www.raidbots.com/simbot) 网站。首先，进入*魔兽世界*，点击 Simulationcraft 按钮，复制出现的文本框中的所有内容:
 
-然后，您将打开Raidbots的“ [Top Gear](https://www.raidbots.com/simbot/topgear) ”页面，并将此文本粘贴到框中。这将会给你一大堆的东西来选择，一开始可能会感到困惑。这里有一个简单的版本:你选择的任何东西都将与你原来的齿轮*和*进行比较。例如，在我的装备清单上，我看到了这个:
+然后，您将打开 Raidbots 的“ [Top Gear](https://www.raidbots.com/simbot/topgear) ”页面，并将此文本粘贴到框中。这将会给你一大堆的东西来选择，一开始可能会感到困惑。这里有一个简单的版本:你选择的任何东西都将与你原来的齿轮*和*进行比较。例如，在我的装备清单上，我看到了这个:
 
 黄色的物品是我目前装备的。其他的东西要么是我的库存中我可以装备的物品，要么是我作为魔兽世界每周 [大金库奖励系统](https://www.wowhead.com/news=319928/use-raidbots-to-find-your-best-dps-upgrade-in-the-great-vault-in-shadowlands) 的一部分提供的物品——因为我在我的金库打开时已经复制了文本，但在之前*我已经选择了奖励，每个人都应该这样做。*
 

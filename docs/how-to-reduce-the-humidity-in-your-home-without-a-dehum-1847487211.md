@@ -1,16 +1,16 @@
 # 没有除湿机怎么降低家里的湿度
 
-> 原文:[https://life hacker . com/how-to-reduce-the-moist-1847487211](https://lifehacker.com/how-to-reduce-the-humidity-in-your-home-without-a-dehum-1847487211)
+> 原文：<https://lifehacker.com/how-to-reduce-the-humidity-in-your-home-without-a-dehum-1847487211>
 
 随着该国许多地区经历令人不安的高湿度，你可能已经注意到了户外和室内的影响。当然，开着空调或除湿机会有所帮助，但并不是每个人都有这些选择。
 
 Watch
 
-幸运的是，在没有除湿机的情况下，或者除了除湿机之外，你还可以做一些事情来降低家里的湿度。以下是《消费者报告》专家和美国能源部的一些策略，由《消费者报告》 的玛丽H.J法雷尔的一篇文章提供。
+幸运的是，在没有除湿机的情况下，或者除了除湿机之外，你还可以做一些事情来降低家里的湿度。以下是《消费者报告》专家和美国能源部的一些策略，由《消费者报告》 的玛丽 H.J 法雷尔的一篇文章提供。
 
 ## 如何监控你的室内湿度
 
-这有助于了解你家里面到底有多潮湿，因为正如 [法雷尔指出的那样，](https://www.consumerreports.org/home-maintenance-repairs/how-to-prevent-high-humidity-levels-at-home-a1096772313/)并不总是与温度相关联。为了监测你的湿度水平，买一个既能测量温度又能测量湿度的设备——其中许多设备的价格不到20美元。
+这有助于了解你家里面到底有多潮湿，因为正如 [法雷尔指出的那样，](https://www.consumerreports.org/home-maintenance-repairs/how-to-prevent-high-humidity-levels-at-home-a1096772313/)并不总是与温度相关联。为了监测你的湿度水平，买一个既能测量温度又能测量湿度的设备——其中许多设备的价格不到 20 美元。
 
 ## 检查你的通风口和排气扇
 

@@ -1,8 +1,8 @@
 # 使用额外的咖啡过滤器来代替纸巾和茶包
 
-> 原文:[https://life hacker . com/use-extra-coffee-filters-to-replace-paper-words-and-te-1833773821](https://lifehacker.com/use-extra-coffee-filters-to-replace-paper-towels-and-te-1833773821)
+> 原文：<https://lifehacker.com/use-extra-coffee-filters-to-replace-paper-towels-and-te-1833773821>
 
-纸质咖啡过滤器成千上万包出售，价格不到2美元。这是一个普遍的事实。
+纸质咖啡过滤器成千上万包出售，价格不到 2 美元。这是一个普遍的事实。
 
 那么，当你放弃喝咖啡，或者买一个不需要纸质过滤器的新咖啡机时，你会怎么做呢？
 
@@ -10,4 +10,4 @@
 
 它们也是纸巾、抹布或更贵的超细纤维垫的绝佳替代品。此外，它们的多孔性允许空气流过，这意味着它们可以通过填充小苏打来吸收气味，而不会让粉末渗透进来。
 
-*本文原载于2019年4月3日，更新于2021年7月8日。*
+*本文原载于 2019 年 4 月 3 日，更新于 2021 年 7 月 8 日。*

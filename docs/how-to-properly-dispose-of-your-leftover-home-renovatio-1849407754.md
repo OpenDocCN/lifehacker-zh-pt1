@@ -1,6 +1,6 @@
 # 如何正确处理剩余的家居装修材料
 
-> 原文:[https://life hacker . com/how-to-rightly-dispose-your-removation-1849407754](https://lifehacker.com/how-to-properly-dispose-of-your-leftover-home-renovatio-1849407754)
+> 原文：<https://lifehacker.com/how-to-properly-dispose-of-your-leftover-home-renovatio-1849407754>
 
 无论你是完成了一次重大的家居装修，还是一个较小的周末项目，你都有可能会有一些剩余的建筑材料。你也可能有非常好的工具或设备已经达到了它们的目的，你知道你不会再需要(或使用)。
 
@@ -30,8 +30,8 @@ Watch
 
 说到建筑材料和建筑抢救，大概是最有名的了。但重要的是要记住每个地点都作为一个独立的实体运作，并制定自己的规则，所以要经常查看特定地点的网站或提前打电话了解他们拿了什么。
 
-如果你所在的地区没有修复，可能会有另一个非营利性的建筑回收店，像辛辛那提的 [建筑价值](https://buildingvalue.org/) (由 [东部海豹](https://www.easterseals.com/gc/) 经营)，匹兹堡的 [建筑枢纽](https://www.cjreuse.org/) ，DC地铁区的 [社区铲车](https://communityforklift.org/) ，堪萨斯城的 [ScrapsKC](https://scrapskc.org/store) 。
+如果你所在的地区没有修复，可能会有另一个非营利性的建筑回收店，像辛辛那提的 [建筑价值](https://buildingvalue.org/) (由 [东部海豹](https://www.easterseals.com/gc/) 经营)，匹兹堡的 [建筑枢纽](https://www.cjreuse.org/) ，DC 地铁区的 [社区铲车](https://communityforklift.org/) ，堪萨斯城的 [ScrapsKC](https://scrapskc.org/store) 。
 
 ### 发布到网上
 
-在 [Facebook Marketplace、Nextdoor和Craigslist](https://lifehacker.com/is-it-better-to-use-nextdoor-or-facebook-marketplace-1848799896) 之间，有很多方法可以让你的邻居知道你有对他们有潜在价值的东西，但是不再需要你自己。由你决定是免费赠送(在这种情况下，也有你当地的不买团体)还是出售。
+在 [Facebook Marketplace、Nextdoor 和 Craigslist](https://lifehacker.com/is-it-better-to-use-nextdoor-or-facebook-marketplace-1848799896) 之间，有很多方法可以让你的邻居知道你有对他们有潜在价值的东西，但是不再需要你自己。由你决定是免费赠送(在这种情况下，也有你当地的不买团体)还是出售。

@@ -1,6 +1,6 @@
 # 你的“新鲜”鱼可能也是冷冻的
 
-> 原文:[https://life hacker . com/your-fresh-fish-was-possible-frozen-too-1848983328](https://lifehacker.com/your-fresh-fish-was-probably-frozen-too-1848983328)
+> 原文：<https://lifehacker.com/your-fresh-fish-was-probably-frozen-too-1848983328>
 
 “新鲜”听起来很不错，对吧？新鲜水果和蔬菜。新鲜的烘焙食品。如果你想品尝来自海洋的美味:新鲜的鱼。但是柜台上的很多鱼很可能在送到商店之前就已经被冷冻了。即使它不是，它也不会自动比你在冰箱过道里找到的东西更好。
 

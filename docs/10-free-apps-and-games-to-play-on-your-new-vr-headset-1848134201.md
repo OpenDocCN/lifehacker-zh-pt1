@@ -1,18 +1,18 @@
-# 在您的新VR头戴式设备上运行10款免费应用和游戏
+# 在您的新 VR 头戴式设备上运行 10 款免费应用和游戏
 
-> 原文:[https://life hacker . com/10-free-apps-and-games-to-play-on-your-new-VR-headset-1848134201](https://lifehacker.com/10-free-apps-and-games-to-play-on-your-new-vr-headset-1848134201)
+> 原文：<https://lifehacker.com/10-free-apps-and-games-to-play-on-your-new-vr-headset-1848134201>
 
 如果你的假期收获包括一个虚拟现实装备，但你自己的礼物让你破产了，不要绝望。这十个免费的应用程序和游戏将免费为你提供许多小时的虚拟现实乐趣。
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-SCrkZOx5Q1M&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-SCrkZOx5Q1M&start=0) 
 
-没有比Google Earth VR更好的向新手介绍虚拟现实的应用了。用户可以在谷歌发送街景摄像头的任何地方浏览3D渲染图，这几乎是地球上的任何地方。参加新年晚会的每个人都想走过他们童年的故乡，找到他们的公寓，看看东京发生了什么。这个应用程序是免费的，这简直令人惊讶。
+没有比 Google Earth VR 更好的向新手介绍虚拟现实的应用了。用户可以在谷歌发送街景摄像头的任何地方浏览 3D 渲染图，这几乎是地球上的任何地方。参加新年晚会的每个人都想走过他们童年的故乡，找到他们的公寓，看看东京发生了什么。这个应用程序是免费的，这简直令人惊讶。
 
 **平台** : Oculus、Vive
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-vL39Sg2AqWg&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-vL39Sg2AqWg&start=0) 
 
-*Beat Saber* 是有史以来最受欢迎的VR游戏之一，很容易看出为什么。将霓虹立方体切割成重低音音乐是一件令人难以置信的坏事，它甚至提供了一个很好的锻炼。这个演示带了两首歌和一个教程——足够让你说，“我想一直这样做。这是我的信用卡号码。”
+*Beat Saber* 是有史以来最受欢迎的 VR 游戏之一，很容易看出为什么。将霓虹立方体切割成重低音音乐是一件令人难以置信的坏事，它甚至提供了一个很好的锻炼。这个演示带了两首歌和一个教程——足够让你说，“我想一直这样做。这是我的信用卡号码。”
 
 **平台** : Oculus，PS VR，Windows
 
@@ -26,17 +26,17 @@
 
 我讨厌所有的聊天程序——如果我想和人聊天，你认为我会把该死的电脑绑在脸上吗？—但是很多人实际上喜欢社交。Rec Room 面向年轻玩家，它可以让你创建一个全身化身，玩躲避球和捉人游戏等迷你游戏，进行任务，并参观数千个用户创建的房间。另外，你可以在非虚拟- 现实、中玩它。
 
-**平台** : Oculus、PS VR、Xbox One、iOS、微软Windows、Xbox X系列和S系列
+**平台** : Oculus、PS VR、Xbox One、iOS、微软 Windows、Xbox X 系列和 S 系列
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-j-ag6TKBVtw&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-j-ag6TKBVtw&start=0) 
 
-这两个流行的流媒体服务的虚拟版本非常出色。它们允许你在一个虚拟的大屏幕上观看网飞/Prime的内容，带有虚拟的环绕声，而且它们都是完全免费的(除了订阅正常的流媒体服务)。两者都不提供特定于虚拟现实的内容，但如果你只是想看看一些电影或节目，它们是完美的。
+这两个流行的流媒体服务的虚拟版本非常出色。它们允许你在一个虚拟的大屏幕上观看网飞/Prime 的内容，带有虚拟的环绕声，而且它们都是完全免费的(除了订阅正常的流媒体服务)。两者都不提供特定于虚拟现实的内容，但如果你只是想看看一些电影或节目，它们是完美的。
 
 **平台** : Oculus、PS VR、Gear VR
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-pzG7Wc6mbwE&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-pzG7Wc6mbwE&start=0) 
 
-*Superhot* 已经问世五年了，但它仍然是*虚拟现实中最好的射击游戏*。它独特的时间停止游戏与虚拟现实完美结合，其半抽象的视觉效果也恰到好处，也是。这个演示很短，但是它用不可思议的酷弥补了简洁。*超热*的非VR版本有，也有。
+*Superhot* 已经问世五年了，但它仍然是*虚拟现实中最好的射击游戏*。它独特的时间停止游戏与虚拟现实完美结合，其半抽象的视觉效果也恰到好处，也是。这个演示很短，但是它用不可思议的酷弥补了简洁。*超热*的非 VR 版本有，也有。
 
 **平台** : PS VR、Oculus、Switch、Windows、iOS、Google Stadia、Linux
 
@@ -48,7 +48,7 @@
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-ATr1E6CA77A&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-ATr1E6CA77A&start=0) 
 
-YouTube的VR应用程序可以让你在耳机中观看任何YouTube视频，此外，你还可以进入360度虚拟现实视频，做一些事情，比如参观你最喜欢的YouTube的壁橱。“正常”的YouTube视频可以以剧院风格显示，导航已经过调整，使其能够与虚拟现实控制流畅地工作，你可以在基本上任何虚拟现实设备上使用它。
+YouTube 的 VR 应用程序可以让你在耳机中观看任何 YouTube 视频，此外，你还可以进入 360 度虚拟现实视频，做一些事情，比如参观你最喜欢的 YouTube 的壁橱。“正常”的 YouTube 视频可以以剧院风格显示，导航已经过调整，使其能够与虚拟现实控制流畅地工作，你可以在基本上任何虚拟现实设备上使用它。
 
 **站台**:所有
 

@@ -1,8 +1,8 @@
 # 用欺骗的方式获得一次远程工作面试的机会
 
-> 原文:[https://life hacker . com/cheat-your-way to-a great-remote-job-interview-1846600588](https://lifehacker.com/cheat-your-way-to-a-great-remote-job-interview-1846600588)
+> 原文：<https://lifehacker.com/cheat-your-way-to-a-great-remote-job-interview-1846600588>
 
-如果你在疫情遭受重创的经济中获得了一份工作面试的机会，你很有可能是通过视频会议工具如Zoom或Google Meet进行面试的。但是，即使你是一个对T4友好的人，喜欢面对面交流，远程面试形式也能对你有利。
+如果你在疫情遭受重创的经济中获得了一份工作面试的机会，你很有可能是通过视频会议工具如 Zoom 或 Google Meet 进行面试的。但是，即使你是一个对 T4 友好的人，喜欢面对面交流，远程面试形式也能对你有利。
 
 Watch
 
@@ -20,7 +20,7 @@ Watch
 
 ### 此外，记住基础知识
 
-忽略视频面试的基本礼仪总是好的。当你没有时不时地瞥一眼你的笔记时——记住，不要太明显！— [确保看着你的网络摄像头](https://lifehacker.com/when-youre-talking-on-a-zoom-call-look-at-your-webcam-1844196514) 。网络摄像头投射的图像是通话中的其他人实际看到的，我 t让你的目光投向他们更有意义，而不是漫不经心地看着他们。
+忽略视频面试的基本礼仪总是好的。当你没有时不时地瞥一眼你的笔记时——记住，不要太明显！— [确保看着你的网络摄像头](https://lifehacker.com/when-youre-talking-on-a-zoom-call-look-at-your-webcam-1844196514) 。网络摄像头投射的图像是通话中的其他人实际看到的，我 t 让你的目光投向他们更有意义，而不是漫不经心地看着他们。
 
 此外，确保你在一个安静的地方，有良好的照明，因为人们需要看到你，很明显。穿你可能会穿的衣服去面试。如果是集体面试，如果你长时间不说话，就把麦克风静音。当需要感谢他们的时间并结束采访时， [挥挥手](https://lifehacker.com/how-to-end-a-zoom-call-the-smart-way-1843608993) ，这是你能最清楚地表明你知道面试已经结束的方式。
 

@@ -1,6 +1,6 @@
 # 你现在应该为明年春天更好的花园做的一切
 
-> 原文:[https://life hacker . com/everything-you-should-be-doing-now for a better-garden-1848217676](https://lifehacker.com/everything-you-should-be-doing-now-for-a-better-garden-1848217676)
+> 原文：<https://lifehacker.com/everything-you-should-be-doing-now-for-a-better-garden-1848217676>
 
 园艺似乎是一项温暖天气的活动，但为了达到最佳效果，它实际上是全年的努力。仅仅因为土地被冻结，现在很少开花，并不意味着无事可做。利用这段时间——当你还没有被种植、浇水、管理和收获压垮的时候——为春天园艺的成功做好准备。
 

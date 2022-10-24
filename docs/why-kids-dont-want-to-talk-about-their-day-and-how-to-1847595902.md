@@ -1,6 +1,6 @@
 # 为什么孩子们不想谈论他们的一天(以及如何让他们敞开心扉)
 
-> 原文:[https://life hacker . com/why-kids-dont-want-to-1847595902](https://lifehacker.com/why-kids-dont-want-to-talk-about-their-day-and-how-to-1847595902)
+> 原文：<https://lifehacker.com/why-kids-dont-want-to-talk-about-their-day-and-how-to-1847595902>
 
 从学校回家的路上感觉就像和我的大儿子进行一场意志的斗争。当我发动汽车时，他精力充沛。但是，当我开始问他今天过得怎么样时，他的笑容消失了，他像锁保险箱一样紧闭着嘴。剩下的旅程比《法律与秩序》中的一集更让人伤脑筋，因为我在寻找任何能让他向我敞开心扉的线索。
 
@@ -24,11 +24,11 @@ Watch
 
 ## 小孩子不会像你一样回忆起当天的事情
 
-当你询问你的孩子一天的情况时，他们拒绝你的原因之一实际上是生理上的，而不是心理上的。 [大脑发育的第一个显著阶段](https://www.edutopia.org/article/why-ages-2-7-matter-so-much-brain-development) 发生在两岁到七岁之间。在这个年龄，儿童神经心理学家Alison Gopnik在她的书 、*The philosophy Baby:What Children ' s Minds告诉我们关于真理、爱和生活的意义*中写道 [，当被问及他们一天的一般情况时，孩子们无法参与其中，因为他们的大脑无法像成人甚至更大的孩子那样回忆记忆。](https://www.amazon.com/Philosophical-Baby-Childrens-Minds-Meaning/dp/0374231966/?_encoding=UTF8&asc_campaign=InlineText&asc_refurl=https://lifehacker.com/why-kids-dont-want-to-talk-about-their-day-and-how-to-1847595902&asc_source=&pd_rd_r=42a90b82-e7f9-442a-87c0-782ca6270ec8&pd_rd_w=Z4N6Z&pd_rd_wg=oAcHK&pf_rd_p=97e5a12c-5e5c-4415-bc8d-e409b5878c4b&pf_rd_r=7TV85FJWT6CZPBX84RKT&ref_=pd_gw_pd_cart_vw_crc&tag=kinjalifehackerlink-20)
+当你询问你的孩子一天的情况时，他们拒绝你的原因之一实际上是生理上的，而不是心理上的。 [大脑发育的第一个显著阶段](https://www.edutopia.org/article/why-ages-2-7-matter-so-much-brain-development) 发生在两岁到七岁之间。在这个年龄，儿童神经心理学家 Alison Gopnik 在她的书 、*The philosophy Baby:What Children ' s Minds 告诉我们关于真理、爱和生活的意义*中写道 [，当被问及他们一天的一般情况时，孩子们无法参与其中，因为他们的大脑无法像成人甚至更大的孩子那样回忆记忆。](https://www.amazon.com/Philosophical-Baby-Childrens-Minds-Meaning/dp/0374231966/?_encoding=UTF8&asc_campaign=InlineText&asc_refurl=https://lifehacker.com/why-kids-dont-want-to-talk-about-their-day-and-how-to-1847595902&asc_source=&pd_rd_r=42a90b82-e7f9-442a-87c0-782ca6270ec8&pd_rd_w=Z4N6Z&pd_rd_wg=oAcHK&pf_rd_p=97e5a12c-5e5c-4415-bc8d-e409b5878c4b&pf_rd_r=7TV85FJWT6CZPBX84RKT&ref_=pd_gw_pd_cart_vw_crc&tag=kinjalifehackerlink-20)
 
 从你的孩子那里得到一个标准的答案是令人沮丧的，但是他们并没有拒绝你的问题。让他们敞开心扉的一个方法是使用大多数幼儿园和老师在学年开始时给家长的典型学校日的行程。戈普尼克建议说可以引导你问问题，帮助孩子们回忆起他们一天中发生的具体记忆，并且可以引发更长时间的谈话。
 
-## **告诉t 哼哼a 说说*你的* d ay f 首先**
+## **告诉 t 哼哼 a 说说*你的* d ay f 首先**
 
 除非你是电影明星，或者，我不知道，杰夫·贝索斯，否则你典型的工作日很可能是单调乏味的——而且很有可能你的孩子对他们的一天也有同样的感受。也许学习长除法或午餐时谁坐在谁旁边的细节感觉太平凡而无法重述。但是 [萨拉·阿克曼为*华盛顿邮报*](https://www.washingtonpost.com/news/parenting/wp/2016/09/27/want-your-kids-to-tell-you-about-their-day-instead-of-asking-questions-try-this/) 写道，当她开始与女儿分享*她的*时光时，她的女儿回报了她的恩惠:
 
@@ -36,7 +36,7 @@ Watch
 
 ## 如果你觉得他们被欺负了怎么办？
 
-五分之一的孩子 [经历过](https://www.pacer.org/bullying/resources/stats.asp)这些孩子中有25%到60%没有向父母或权威人士报告。尽管这些统计数据令人吃惊，但家长们可能不会通过直接询问孩子他们是否在学校受到骚扰来阻止这一趋势。
+五分之一的孩子 [经历过](https://www.pacer.org/bullying/resources/stats.asp)这些孩子中有 25%到 60%没有向父母或权威人士报告。尽管这些统计数据令人吃惊，但家长们可能不会通过直接询问孩子他们是否在学校受到骚扰来阻止这一趋势。
 
 如果你 [怀疑你的孩子是欺凌的受害者，](https://www.stopbullying.gov/bullying/warning-signs) 有办法让他们敞开心扉。 [据 *赫芬顿邮报*](https://www.huffpost.com/entry/how-talk-to-kids-about-bullying_l_5d5ac17ce4b0d8840ff67bbc) 报道，父母应该开始问一些简单而尖锐的问题，比如他们在和谁玩，玩得怎么样。比如 : *你今天和谁玩了？那是什么感觉？你喜欢和其他孩子一起做什么？有哪些事情是你不太喜欢的？*
 

@@ -1,8 +1,8 @@
 # 如何发现一颗闪着红光和绿光的耀眼的星星(不是一架飞机)
 
-> 原文:[https://life hacker . com/how-to-spot-a-glitzy-star-that-flash-red-green-and-1845472036](https://lifehacker.com/how-to-spot-a-glitzy-star-that-flashes-red-green-and-1845472036)
+> 原文：<https://lifehacker.com/how-to-spot-a-glitzy-star-that-flashes-red-green-and-1845472036>
 
-如果你足够幸运，住在可以看到星星的地方，我们这些住在城市的人希望你能好好利用这个机会。当然，我们可以在月亮出来的时候看到它——如果它足够亮的话，也许是一颗特殊的行星——但是除此之外就没什么了。还有一些时刻，当它看起来像我们能看到一颗星星一样，意识到它在移动，希望它甚至可能是一颗正在发射星星的T2，却意识到它是一架飞机。
+如果你足够幸运，住在可以看到星星的地方，我们这些住在城市的人希望你能好好利用这个机会。当然，我们可以在月亮出来的时候看到它——如果它足够亮的话，也许是一颗特殊的行星——但是除此之外就没什么了。还有一些时刻，当它看起来像我们能看到一颗星星一样，意识到它在移动，希望它甚至可能是一颗正在发射星星的 T2，却意识到它是一架飞机。
 
 Watch
 
@@ -10,7 +10,7 @@ Watch
 
 ### 如何找到五车二之星
 
-每年秋天，北半球的人们都有机会在夜幕降临或傍晚时分看到五车二星 。 [根据EarthSky](https://earthsky.org/tonight/what-star-in-the-northeast-flashes-red-and-green) 的说法，它是一颗金色的星——实际上是*两颗*金色的星——都比太阳更大更亮，温度大致相同。
+每年秋天，北半球的人们都有机会在夜幕降临或傍晚时分看到五车二星 。 [根据 EarthSky](https://earthsky.org/tonight/what-star-in-the-northeast-flashes-red-and-green) 的说法，它是一颗金色的星——实际上是*两颗*金色的星——都比太阳更大更亮，温度大致相同。
 
 五车二最显著的特征是它看起来闪烁着红色和绿色，就像一个单一的天体节日灯泡。它整晚都在天空中升起，在清晨直接在头顶上结束，但你看到红色和绿色闪烁光的最佳机会是傍晚。
 

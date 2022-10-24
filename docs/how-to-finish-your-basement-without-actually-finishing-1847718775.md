@@ -1,6 +1,6 @@
 # 如何在没有完成的情况下完成你的地下室
 
-> 原文:[https://life hacker . com/how-to-finish-your-base-without-actually-finishing-1847718775](https://lifehacker.com/how-to-finish-your-basement-without-actually-finishing-1847718775)
+> 原文：<https://lifehacker.com/how-to-finish-your-basement-without-actually-finishing-1847718775>
 
 所以你从来没有抽出时间来“完成”你的地下室，但这并不意味着它应该闲置。如果你在下面有很多空间可以享受，但没有足够的时间或金钱来进行一次彻底的翻修，这里有一些让它更舒适的建议，即使它还没有完工。
 
@@ -10,9 +10,9 @@ Watch
 
 首先:一个未完工的地下室没有你房子里其他房间那样漂亮的墙壁或天花板，但是覆盖暴露的管道和横梁并不难，即使你不是木匠。
 
-您可以尝试使用flex wall套件。 [有些](https://www.everblocksystems.com/everpanel-76-x-7-wall-kit-w-door/?utm_term=&utm_campaign=BLOCKS+-+Smart+Shopping&utm_source=adwords&utm_medium=ppc&hsa_acc=9918802808&hsa_cam=10640956536&hsa_grp=105965212300&hsa_ad=451199105683&hsa_src=u&hsa_tgt=pla-1395016095599&hsa_kw=&hsa_mt=&hsa_net=adwords&hsa_ver=3&gclid=CjwKCAjwhaaKBhBcEiwA8acsHLWblfVW3v7nvVBWJkV4WEbpSz37oPmuabEQkjIPgfhoKJYh27S3sBoCwWkQAvD_BwE) 甚至还有门，所以你可以遮住一个丑的热水器，比如说而还有可以进入。甚至几个精心布置的房间隔断或隐私屏风也能发挥作用。它们又轻又便宜，而且颜色一致。简而言之，它们比暴露的墙壁要好。如果你没有太多可见的管道或电线，但仍然有煤渣砖或横梁，为什么不油漆它们？那你可以自己做。
+您可以尝试使用 flex wall 套件。 [有些](https://www.everblocksystems.com/everpanel-76-x-7-wall-kit-w-door/?utm_term=&utm_campaign=BLOCKS+-+Smart+Shopping&utm_source=adwords&utm_medium=ppc&hsa_acc=9918802808&hsa_cam=10640956536&hsa_grp=105965212300&hsa_ad=451199105683&hsa_src=u&hsa_tgt=pla-1395016095599&hsa_kw=&hsa_mt=&hsa_net=adwords&hsa_ver=3&gclid=CjwKCAjwhaaKBhBcEiwA8acsHLWblfVW3v7nvVBWJkV4WEbpSz37oPmuabEQkjIPgfhoKJYh27S3sBoCwWkQAvD_BwE) 甚至还有门，所以你可以遮住一个丑的热水器，比如说而还有可以进入。甚至几个精心布置的房间隔断或隐私屏风也能发挥作用。它们又轻又便宜，而且颜色一致。简而言之，它们比暴露的墙壁要好。如果你没有太多可见的管道或电线，但仍然有煤渣砖或横梁，为什么不油漆它们？那你可以自己做。
 
-如果你想要更舒适的东西，试试挂毯。你会散发出一种Tumblr的氛围，但是如果你花时间挑选合适的，你的地下室不需要看起来像斯潘塞的礼物。稍微放松一点，让它们看起来放松。然后…
+如果你想要更舒适的东西，试试挂毯。你会散发出一种 Tumblr 的氛围，但是如果你花时间挑选合适的，你的地下室不需要看起来像斯潘塞的礼物。稍微放松一点，让它们看起来放松。然后…
 
 ## **添加右灯**
 
@@ -20,7 +20,7 @@ Watch
 
 边桌上的几盏小灯会给你足够的光线，但还不足以提醒你，该死的，你真的需要完成那个地下室。再拿几盏仙女灯。现在它们无处不在，从“乡村”主题婚礼到大学生宿舍，但这意味着它们也很便宜。塔吉特百货的美元区通常有一些，网上零售商出售各种形状和颜色的商品。
 
-将一串童话灯放入一个小罐子中，打造一个Pinterest风格的中心装饰品。它不会亮很多，但会给人留下你努力过的印象——这在营造良好氛围的同时也很重要。
+将一串童话灯放入一个小罐子中，打造一个 Pinterest 风格的中心装饰品。它不会亮很多，但会给人留下你努力过的印象——这在营造良好氛围的同时也很重要。
 
 ## **选择合适的舒适家具**
 

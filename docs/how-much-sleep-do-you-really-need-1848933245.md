@@ -1,6 +1,6 @@
 # 你到底需要多少睡眠？
 
-> 原文:[https://life hacker . com/how-much-sleep-do-much-you-really-need-1848933245](https://lifehacker.com/how-much-sleep-do-you-really-need-1848933245)
+> 原文：<https://lifehacker.com/how-much-sleep-do-you-really-need-1848933245>
 
 如果你在街上随便问一个人，一个人每晚应该睡多少小时，他们的答案很可能是八小时。但是这个金本位制是从哪里来的呢？ [和](https://lifehacker.com/top-10-myths-and-misconceptions-about-sleep-1772637976) 是真的吗？比这多还是少对你不好？这是我们所知道的。
 
@@ -8,7 +8,7 @@ Watch
 
 ## 疾控中心建议的睡眠时间是多少
 
-[美国疾病控制和预防中心建议](https://www.cdc.gov/sleep/about_sleep/how_much_sleep.html) 一旦过了青少年时期，你实际上每晚需要“7个或更多”小时的睡眠，具体时间因人而异。一旦你到了61岁，他们会把建议时间改为7到9小时，从65岁开始改为7到8小时。
+[美国疾病控制和预防中心建议](https://www.cdc.gov/sleep/about_sleep/how_much_sleep.html) 一旦过了青少年时期，你实际上每晚需要“7 个或更多”小时的睡眠，具体时间因人而异。一旦你到了 61 岁，他们会把建议时间改为 7 到 9 小时，从 65 岁开始改为 7 到 8 小时。
 
 尽管如此，疾病预防控制中心谨慎地指出，这不是一个放之四海而皆准的建议。根据他们的指导，你不应该仅仅通过睡眠的长度来衡量你的睡眠，还应该通过睡眠的质量来衡量。他们警告说，睡眠质量差的迹象包括夜间反复醒来，打鼾/喘着气。这些都可能是你患有睡眠障碍的迹象。
 
@@ -28,4 +28,4 @@ Watch
 
 根据疾病预防控制中心的数据，三分之一的美国成年人没有达到推荐的每日睡眠量 。这很重要，因为睡眠不足会导致严重的后果。睡眠不足已经与 [【二型糖尿病】、肥胖、](https://www.cdc.gov/sleep/data_statistics.html) (后者是美国人)心脏病联系在一起。
 
-此外，美国疾病预防控制中心警告说，睡眠不足会使你面临意外机动车事故的风险，这导致了2019年近 [4万人死亡](https://www.cdc.gov/nchs/data/nvsr/nvsr70/nvsr70-08-508.pdf) 。 [美国国立卫生研究院的迈克尔·特威利博士强调了睡眠的重要性，他解释道:“睡眠几乎影响着我们身体的每一个组织。它会影响生长和应激激素、我们的免疫系统、食欲、呼吸、血压和心血管健康。”](https://newsinhealth.nih.gov/2013/04/benefits-slumber)
+此外，美国疾病预防控制中心警告说，睡眠不足会使你面临意外机动车事故的风险，这导致了 2019 年近 [4 万人死亡](https://www.cdc.gov/nchs/data/nvsr/nvsr70/nvsr70-08-508.pdf) 。 [美国国立卫生研究院的迈克尔·特威利博士强调了睡眠的重要性，他解释道:“睡眠几乎影响着我们身体的每一个组织。它会影响生长和应激激素、我们的免疫系统、食欲、呼吸、血压和心血管健康。”](https://newsinhealth.nih.gov/2013/04/benefits-slumber)

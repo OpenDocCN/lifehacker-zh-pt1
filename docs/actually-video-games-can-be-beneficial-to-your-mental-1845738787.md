@@ -1,6 +1,6 @@
 # 电子游戏对你的心理健康有益
 
-> 原文:[https://life hacker . com/actually-video-games-can-benefit-to-your-mental-1845738787](https://lifehacker.com/actually-video-games-can-be-beneficial-to-your-mental-1845738787)
+> 原文：<https://lifehacker.com/actually-video-games-can-be-beneficial-to-your-mental-1845738787>
 
 随着全球疫情重创经济，让全球数十亿人被隔离在家中，我们的集体心理健康状况正在经历的暴跌，这是可以理解的。由于许多人缺乏与家人、朋友和同事联系的通常渠道，抑郁症在全球范围内激增。
 
@@ -10,7 +10,7 @@ Watch
 
 ### 这项研究是同类研究中的首例
 
-这项研究为电子游戏研究开辟了新的领域。通过分析两个游戏中玩家的行为模式，研究人员对3274名玩家的具体游戏时间进行了调查。(之前的研究依赖于玩家自我报告的游戏时间，这倾向于得出更可疑的结论。)
+这项研究为电子游戏研究开辟了新的领域。通过分析两个游戏中玩家的行为模式，研究人员对 3274 名玩家的具体游戏时间进行了调查。(之前的研究依赖于玩家自我报告的游戏时间，这倾向于得出更可疑的结论。)
 
 [研究](https://www.oii.ox.ac.uk/news/releases/groundbreaking-new-study-says-time-spent-playing-video-games-can-be-good-for-your-wellbeing/) 试图衡量客观游戏时间和个人心理健康之间的联系，引用了几个与玩家体验有关的因素，如“自主感、归属感、能力、享受感和玩游戏的压力感”
 
@@ -22,7 +22,7 @@ Watch
 
 值得注意的是，研究中使用的两种游戏都有一个比市场上许多暴力或末日游戏更阳光的前提。被调查的玩家的快乐可能源于*动物穿越*的更愉快的心情，以及为了玩游戏，玩家必须相互交流以完成互利的任务。
 
-Przybylski告诉BBC ，他把这两个游戏的效果比作“数字饮水机”。他说:“我不认为人们会花很多时间在社交游戏上，除非他们对此感到高兴。”
+Przybylski 告诉 BBC ，他把这两个游戏的效果比作“数字饮水机”。他说:“我不认为人们会花很多时间在社交游戏上，除非他们对此感到高兴。”
 
 该研究接着得出结论:
 
@@ -33,7 +33,7 @@ Przybylski告诉BBC ，他把这两个游戏的效果比作“数字饮水机”
 
 ### 数据有助于为公共卫生政策提供信息
 
-尽管如此，这项研究并没有完全否定之前长达40年的视频游戏研究，其中大部分都观察到了不同年龄组的各种游戏与玩家 的心理健康之间的负面联系。根据 [Przybylski](https://www.bbc.com/news/technology-54954622) 的说法，这项研究确实为研究人员提供了一个更好地向公共卫生当局传递有关视频游戏的准确数据的机会，这些数据以前由于技术限制而无法获得。
+尽管如此，这项研究并没有完全否定之前长达 40 年的视频游戏研究，其中大部分都观察到了不同年龄组的各种游戏与玩家 的心理健康之间的负面联系。根据 [Przybylski](https://www.bbc.com/news/technology-54954622) 的说法，这项研究确实为研究人员提供了一个更好地向公共卫生当局传递有关视频游戏的准确数据的机会，这些数据以前由于技术限制而无法获得。
 
 他告诉《卫报》， [他说:“你真的很尊重重要的机构，像世界](https://www.theguardian.com/games/2020/nov/16/video-gaming-can-benefit-mental-health-find-oxford-academics) [卫生](https://www.theguardian.com/society/health) 组织和英国国民健康服务体系，把注意力和资源分配到一些实际上没有好数据的事情上。”。
 

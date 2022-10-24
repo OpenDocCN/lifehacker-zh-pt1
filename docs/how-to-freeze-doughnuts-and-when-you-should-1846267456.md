@@ -1,6 +1,6 @@
 # 如何冷冻甜甜圈(以及何时应该冷冻)
 
-> 原文:[https://life hacker . com/how-to-freeze-doughnuts-and-when-you-should-1846267456](https://lifehacker.com/how-to-freeze-doughnuts-and-when-you-should-1846267456)
+> 原文：<https://lifehacker.com/how-to-freeze-doughnuts-and-when-you-should-1846267456>
 
 假设你发现自己有大量的甜甜圈。也许你充分利用了那些买一打送一打的交易，或者试着自己做这些交易，它们立即变得完美，或者它更像是一个全垒打价格场景 。
 
@@ -14,7 +14,7 @@ Watch
 
 首先，是的:冷冻甜甜圈是可能的。(虽然从技术上来说，冻结大部分东西是可能的。)而且做的时候确实很重要。常识告诉我们，如果你关心味道和质量，冷冻已经不新鲜的甜甜圈不是一个好主意。但是也有可能过早冷冻甜甜圈。
 
-佐治亚州马丁内斯 [Heroes Donuts](https://heroes-donuts.business.site/) 的老板Miles Sao最近告诉 [Southern Living](https://www.southernliving.com/breakfast/how-to-store-donuts) 说，你想让甜甜圈在储存前冷却下来——不管它们是放在冰箱里还是密封的容器里，你都希望它们能保鲜几天。在甜甜圈有机会达到室温之前储存它们会导致它们出汗并变湿。不了，谢谢你。
+佐治亚州马丁内斯 [Heroes Donuts](https://heroes-donuts.business.site/) 的老板 Miles Sao 最近告诉 [Southern Living](https://www.southernliving.com/breakfast/how-to-store-donuts) 说，你想让甜甜圈在储存前冷却下来——不管它们是放在冰箱里还是密封的容器里，你都希望它们能保鲜几天。在甜甜圈有机会达到室温之前储存它们会导致它们出汗并变湿。不了，谢谢你。
 
 ### 如何冷冻甜甜圈
 
@@ -30,4 +30,4 @@ Watch
 
 你有两个选择。第一种是在你想吃甜甜圈的前一天晚上，把它们从冰箱里拿出来，放在柜台上解冻，根据美食家 的说法 [。](https://www.epicurious.com/archive/howtocook/primers/doughnuts_frying_glazing)
 
-但是有时油炸圈饼紧急情况出现，你可能没有时间等一夜。在这种情况下， [将甜甜圈放入微波炉](https://www.epicurious.com/archive/howtocook/primers/doughnuts_frying_glazing) 中10秒钟，然后检查一下情况如何。如果它需要更多的时间，每次继续加热几秒钟，以防止油炸圈饼烤过头，变得又硬又粗糙。
+但是有时油炸圈饼紧急情况出现，你可能没有时间等一夜。在这种情况下， [将甜甜圈放入微波炉](https://www.epicurious.com/archive/howtocook/primers/doughnuts_frying_glazing) 中 10 秒钟，然后检查一下情况如何。如果它需要更多的时间，每次继续加热几秒钟，以防止油炸圈饼烤过头，变得又硬又粗糙。

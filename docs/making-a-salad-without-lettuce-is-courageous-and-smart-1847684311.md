@@ -1,6 +1,6 @@
 # 做一份没有生菜的沙拉既勇敢又聪明
 
-> 原文:[https://life hacker . com/making-a-salad-without-生菜是勇敢和聪明的-1847684311](https://lifehacker.com/making-a-salad-without-lettuce-is-courageous-and-smart-1847684311)
+> 原文：<https://lifehacker.com/making-a-salad-without-lettuce-is-courageous-and-smart-1847684311>
 
 可食用的叶子，通常被称为“莴苣”或“绿叶蔬菜”，经常被用作沙拉的基础，理由正当。叶子提供颜色、质地和营养，但它们并不“必须”参与其中。完全有可能吃一堆浸在调料里的蔬菜，根本没有生菜。
 

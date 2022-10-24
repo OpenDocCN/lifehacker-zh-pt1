@@ -1,6 +1,6 @@
 # 识别出听起来不像的呼救声
 
-> 原文:[https://life hacker . com/recognize-a-cry-a-help-than-sound-like-one-1847328446](https://lifehacker.com/recognize-a-cry-for-help-that-doesnt-sound-like-one-1847328446)
+> 原文：<https://lifehacker.com/recognize-a-cry-for-help-that-doesnt-sound-like-one-1847328446>
 
 不是每个需要帮助的人都会去请求，也不是每个请求帮助的人都会这样做。有时候，我们所知道的“呼救声”看起来并不像是来自绝望。这就是为什么知道处于脆弱状态的人可能会恳求别人注意到他们的方式会有所帮助——即使他们的言语或肢体语言并没有流露出个人危机。
 

@@ -1,6 +1,6 @@
 # 如何油漆室内装潢
 
-> 原文:[https://lifehacker.com/how-to-paint-upholstery-1849508620](https://lifehacker.com/how-to-paint-upholstery-1849508620)
+> 原文：<https://lifehacker.com/how-to-paint-upholstery-1849508620>
 
 当谈到更新你家的内部装饰时(尤其是在预算有限的情况下)，油漆是你最好的朋友。几件外套就能改变一个房间或一条走廊，让破旧的家具焕然一新。
 
@@ -18,7 +18,7 @@ Watch
 
 有几种不同类型的油漆可以用于室内装潢，所以很多都取决于材料和个人喜好。高度着色的粉笔漆、乳胶漆以及乳胶漆和织物介质的混合物是受欢迎的选择。
 
-Charlie Leanna Murphy 是一名室内设计师，也是得克萨斯州凯尔的工作室 [粉色顶层公寓](https://www.instagram.com/the_pinkpenthouse/) 的所有者，她经常粉刷软垫家具，以搭配她玫瑰色的室内空间，经过反复试验后，她发现一层室内乳胶漆最适合她。她告诉Lifehacker:“我使用乳胶漆，因为当它变干时，就像假皮革一样。”。“我能把它擦干净。”
+Charlie Leanna Murphy 是一名室内设计师，也是得克萨斯州凯尔的工作室 [粉色顶层公寓](https://www.instagram.com/the_pinkpenthouse/) 的所有者，她经常粉刷软垫家具，以搭配她玫瑰色的室内空间，经过反复试验后，她发现一层室内乳胶漆最适合她。她告诉 Lifehacker:“我使用乳胶漆，因为当它变干时，就像假皮革一样。”。“我能把它擦干净。”
 
 过去，墨菲曾在室内装潢上使用粉笔画，但发现它会开裂。同样，根据她的经验，织物喷漆容易被擦掉。
 
@@ -38,6 +38,6 @@ Charlie Leanna Murphy 是一名室内设计师，也是得克萨斯州凯尔的�
 
  [https://lifehacker.com/embed/inset/iframe?id=instagram-Chn4JRsr1tP&autosize=1](https://lifehacker.com/embed/inset/iframe?id=instagram-Chn4JRsr1tP&autosize=1) 
 
-如果你没有涂底漆，而是涂了好几层油漆，用一个 [打磨海绵或砂纸](https://www.thisoldhouse.com/painting/22923973/how-to-paint-fabric-furniture) (大约220粒度)将油漆打磨到涂层之间的内饰中。
+如果你没有涂底漆，而是涂了好几层油漆，用一个 [打磨海绵或砂纸](https://www.thisoldhouse.com/painting/22923973/how-to-paint-fabric-furniture) (大约 220 粒度)将油漆打磨到涂层之间的内饰中。
 
 然后，不要动这件家具，直到它完全干燥。在那之后，有些人喜欢涂上一层 [的蜡或液体铜锈](https://www.thisoldhouse.com/painting/22923973/how-to-paint-fabric-furniture) 来密封新刷的室内装潢，但这还是取决于个人喜好。

@@ -1,12 +1,12 @@
 # 你在网上卖东西时被骗的方式有很多
 
-> 原文:[https://life hacker . com/the-many-way-you-can-get-scammed-selling-your-things-o-1849655585](https://lifehacker.com/the-many-ways-you-can-get-scammed-selling-your-things-o-1849655585)
+> 原文：<https://lifehacker.com/the-many-ways-you-can-get-scammed-selling-your-things-o-1849655585>
 
 互联网的便利让我们能够接触到我们以前从未接触过的网络——但这也意味着我们将自己暴露给那些心怀不轨的人。特别是，当你把你的电子邮件或电话号码放在网上市场网站上时，你就成了骗子的目标。
 
 Watch
 
-今年夏末，我把我10年前的卡罗拉拿出来卖，以利用二手车市场的火爆。我在脸书市场、OfferUp、Craiglist和其他在线网站上发了帖子。几乎立刻，我就收到了大量的购车报价。唯一的问题是他们中的大多数都是骗子，试图 [窃取我的身份](https://www.wgal.com/article/scammers-use-verification-codes-to-hijack-phone-numbers/37409538) 。
+今年夏末，我把我 10 年前的卡罗拉拿出来卖，以利用二手车市场的火爆。我在脸书市场、OfferUp、Craiglist 和其他在线网站上发了帖子。几乎立刻，我就收到了大量的购车报价。唯一的问题是他们中的大多数都是骗子，试图 [窃取我的身份](https://www.wgal.com/article/scammers-use-verification-codes-to-hijack-phone-numbers/37409538) 。
 
 如果你最近没有尝试过在网上销售东西，你可能会对今天骗子用来窃取你的身份的巨大数量和新策略感到措手不及。下面是我遇到的一些。
 

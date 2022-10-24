@@ -1,8 +1,8 @@
 # 像个该死的成年人一样为秋天准备好你的衣橱
 
-> 原文:[https://life hacker . com/prepare-your-closets-for-fall-like-该死的成年人-1847768530](https://lifehacker.com/prepare-your-closets-for-fall-like-a-goddamned-adult-1847768530)
+> 原文：<https://lifehacker.com/prepare-your-closets-for-fall-like-a-goddamned-adult-1847768530>
 
-是时候了。季节已经正式转变，空气变得清爽，湿气也离开了大楼。(至少我住的地方。不好意思，佛罗里达)。也就是说。是时候为秋天翻转那些壁橱了。我们不是在这里谈论T2的衣服。新的季节经常需要新的亚麻制品、新的休闲活动和新的运动装备。以下是你如何更有条理地“落入”秋天(呃，我们知道)。
+是时候了。季节已经正式转变，空气变得清爽，湿气也离开了大楼。(至少我住的地方。不好意思，佛罗里达)。也就是说。是时候为秋天翻转那些壁橱了。我们不是在这里谈论 T2 的衣服。新的季节经常需要新的亚麻制品、新的休闲活动和新的运动装备。以下是你如何更有条理地“落入”秋天(呃，我们知道)。
 
 Watch
 
@@ -34,7 +34,7 @@ Watch
 
 ## 检查你的游戏情况
 
-在过去的几个月里，我们都在户外嬉戏，但现在是蹲下来像一家人一样坐在火炉旁的时候了。翻翻你的桌游和 [拼图拼图合集](https://lifehacker.com/jigsaw-puzzles-can-improve-your-quality-of-life-more-th-1847667513) 。有没有一些不再适合家中任何人的年龄(我们正在看你，4- 乘 3- foot托马斯坦克发动机地板拼图)。有没有永远找不到的遗失物品？有需要更换的箱子吗？把你家已经用不完的东西捐出去， [重新利用](https://www.diyncrafts.com/23420/repurpose/20-fun-exciting-ways-repurpose-old-board-games) 或者扔掉那些不再有用的东西，用旧鞋盒和拉链袋把破旧但仍能使用的游戏换个新家。
+在过去的几个月里，我们都在户外嬉戏，但现在是蹲下来像一家人一样坐在火炉旁的时候了。翻翻你的桌游和 [拼图拼图合集](https://lifehacker.com/jigsaw-puzzles-can-improve-your-quality-of-life-more-th-1847667513) 。有没有一些不再适合家中任何人的年龄(我们正在看你，4- 乘 3- foot 托马斯坦克发动机地板拼图)。有没有永远找不到的遗失物品？有需要更换的箱子吗？把你家已经用不完的东西捐出去， [重新利用](https://www.diyncrafts.com/23420/repurpose/20-fun-exciting-ways-repurpose-old-board-games) 或者扔掉那些不再有用的东西，用旧鞋盒和拉链袋把破旧但仍能使用的游戏换个新家。
 
 ## 仔细阅读你的餐具室和烘焙用品
 

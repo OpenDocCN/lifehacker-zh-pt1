@@ -1,6 +1,6 @@
 # 这里有两个万圣节播放列表(一个让你的派对继续，另一个激发恐惧)
 
-> 原文:[https://life hacker . com/here-are-two-Halloween-playlists-one-to-get-your-party-1847739772](https://lifehacker.com/here-are-two-halloween-playlists-one-to-get-your-party-1847739772)
+> 原文：<https://lifehacker.com/here-are-two-halloween-playlists-one-to-get-your-party-1847739772>
 
 因为我是一个病态的食尸鬼，万圣节是我最喜欢的节日，所以我放了几个万圣节播放列表来分享欢乐和恐怖。第一首歌充满了强制性的万圣节灵异歌曲，旨在让所有的男孩和食尸鬼进入舞池，如迈克尔·杰克逊的《颤栗》和斯蒂维·旺德的《迷信》，但我加入了一些适合季节的曲球，如海伦·瑞狄的《安吉宝贝》(Angie Baby)——有史以来关于鬼魂的最佳歌曲。
 
@@ -8,7 +8,7 @@ Watch
 
 来看看:
 
-## Lifehacker的杀手万圣节派对播放列表
+## Lifehacker 的杀手万圣节派对播放列表
 
 [https://open.spotify.com/embed/playlist/4DB2xx5832ILyOXyEJCiqc](https://open.spotify.com/embed/playlist/4DB2xx5832ILyOXyEJCiqc)
 
@@ -44,7 +44,7 @@ T2】
 
 14.迈克尔·杰克逊——《颤栗》
 
-15.DJ爵士杰夫&新鲜王子——《我街上的噩梦》
+15.DJ 爵士杰夫&新鲜王子——《我街上的噩梦》
 
 16.**Oingo Boingo**——“怪异科学”
 
@@ -64,7 +64,7 @@ T2】
 
 24.**波斯特·马龙、奥兹·奥斯朋、特拉维斯·斯考特** t—“随心所欲”
 
-## Lifehacker的实际恐怖万圣节播放列表
+## Lifehacker 的实际恐怖万圣节播放列表
 
 如果你和我一样，认为万圣节是业余之夜，因为你一整年都生活在黑暗中，我整理了第二个，显然更可怕的播放列表。这些歌曲会让舞池空无一人，让你的客人凝视着中间的距离，思考国王和乞丐的共同命运。
 

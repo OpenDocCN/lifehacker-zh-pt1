@@ -1,18 +1,18 @@
 # 如何重返后疫情社会，治疗师查敏·阿詹
 
-> 原文:[https://life hacker . com/how-to-reen-society-post-疫情与治疗师-ch-1847092879](https://lifehacker.com/how-to-reenter-society-post-pandemic-with-therapist-ch-1847092879)
+> 原文：<https://lifehacker.com/how-to-reenter-society-post-pandemic-with-therapist-ch-1847092879>
 
 回到那里你有点紧张吗？你是否有一些挥之不去的疫情诱发的焦虑，让你无法再次社交？不要害怕，因为本周我们将在治疗师查敏·阿詹的帮助下学习如何开始逐渐重新融入社会，他是查敏阿詹心理治疗师的创始人和临床主任。
 
 Watch
 
-查敏有超过20年的心理治疗经验，是一个认证的性治疗师和认证的认知行为治疗师。请听她回答乔丹和梅根的问题，如何在“新常态”的世界中建立自己的规则，如何处理询问他人疫苗接种情况的棘手问题，如何重新开始约会，以及如何重新点燃那些可能在疫情期间受到打击的关系。
+查敏有超过 20 年的心理治疗经验，是一个认证的性治疗师和认证的认知行为治疗师。请听她回答乔丹和梅根的问题，如何在“新常态”的世界中建立自己的规则，如何处理询问他人疫苗接种情况的棘手问题，如何重新开始约会，以及如何重新点燃那些可能在疫情期间受到打击的关系。
 
 [https://art19.com/shows/96bf1671-b079-4f44-b7d2-e95d655de263/episodes/03e7ea34-8a23-41da-8257-9244796b75bd/embed](https://art19.com/shows/96bf1671-b079-4f44-b7d2-e95d655de263/episodes/03e7ea34-8a23-41da-8257-9244796b75bd/embed)
 
 T2】
 
-收听上面的升级或者在所有通常提供播客的地方找到我们，包括 [苹果播客](https://itunes.apple.com/us/podcast/lifehacker/id508117781?mt=2)[Google Play](https://play.google.com/music/listen?u=0#/ps/Illldmn6f4jkwb32lslhae3laru)[Spotify](https://open.spotify.com/show/43qzAEOZ861D4aXaBXaRKj)[iHeartRadio](https://www.iheart.com/podcast/8-The-Upgrade-by-Lifehacker-28037794/)[Stitcher](https://www.stitcher.com/podcast/lifehacker-podcast)和NPR一号。
+收听上面的升级或者在所有通常提供播客的地方找到我们，包括 [苹果播客](https://itunes.apple.com/us/podcast/lifehacker/id508117781?mt=2)[Google Play](https://play.google.com/music/listen?u=0#/ps/Illldmn6f4jkwb32lslhae3laru)[Spotify](https://open.spotify.com/show/43qzAEOZ861D4aXaBXaRKj)[iHeartRadio](https://www.iheart.com/podcast/8-The-Upgrade-by-Lifehacker-28037794/)[Stitcher](https://www.stitcher.com/podcast/lifehacker-podcast)和 NPR 一号。
 
 ## **本周集锦**
 
@@ -28,7 +28,7 @@ T2】
 
 关于如何让孩子逐渐融入大型公共聚会，他们的社交发展可能在疫情期间被打断:
 
-> 我们低估了孩子的一点是他们的适应能力。孩子们很有弹性。所以你想从一个现实的地方接近它。你不想压倒他们。你不想让他们处于这样一种境地:他们从不去商店，而是在黑色星期五带他们去沃尔玛。但你确实想采取这些渐进的步骤，把他们放在可能有更多人的新环境中，看看他们怎么样，然后评估你下一步要做什么。我们称之为CBT，它实际上是建立一种暴露等级，在这里你评估风险，并一步一步地采取行动。所以你可以在休息时间带他们去操场，这样周围就不会有太多的孩子。下一次你带他们的时候，他们周围有更多的孩子，下一次你带他们到另一个环境，那里可能有更多的人，你只是和他们一起玩，你和你的孩子一起检查，你注意他们对环境的反应。如果他们能够用语言描述你，问他们，“这是什么感觉？”你知道，“在外面或者和很多人在一起是什么感觉？”你给他们一个参与创造自己经历的机会。还有，给他们一些代理权。你们一起努力帮助他们重新融入这个世界，或者完全融入这个世界。
+> 我们低估了孩子的一点是他们的适应能力。孩子们很有弹性。所以你想从一个现实的地方接近它。你不想压倒他们。你不想让他们处于这样一种境地:他们从不去商店，而是在黑色星期五带他们去沃尔玛。但你确实想采取这些渐进的步骤，把他们放在可能有更多人的新环境中，看看他们怎么样，然后评估你下一步要做什么。我们称之为 CBT，它实际上是建立一种暴露等级，在这里你评估风险，并一步一步地采取行动。所以你可以在休息时间带他们去操场，这样周围就不会有太多的孩子。下一次你带他们的时候，他们周围有更多的孩子，下一次你带他们到另一个环境，那里可能有更多的人，你只是和他们一起玩，你和你的孩子一起检查，你注意他们对环境的反应。如果他们能够用语言描述你，问他们，“这是什么感觉？”你知道，“在外面或者和很多人在一起是什么感觉？”你给他们一个参与创造自己经历的机会。还有，给他们一些代理权。你们一起努力帮助他们重新融入这个世界，或者完全融入这个世界。
 
 为了听到更多查敏的伟大建议，我们强烈建议听完整集。
 

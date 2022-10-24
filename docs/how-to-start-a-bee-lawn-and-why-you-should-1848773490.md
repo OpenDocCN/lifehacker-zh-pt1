@@ -1,8 +1,8 @@
 # 如何开始一个“蜜蜂草坪”(以及为什么你应该)
 
-> 原文:[https://life hacker . com/how-to-start-a-bee-lawn-and-why-you-should-1848773490](https://lifehacker.com/how-to-start-a-bee-lawn-and-why-you-should-1848773490)
+> 原文：<https://lifehacker.com/how-to-start-a-bee-lawn-and-why-you-should-1848773490>
 
-传统的草坪——比如，需要翻起一块土地，去除任何植物，然后种植和生长统一类型的草，社会规定必须以某种方式维护——不是你院子的唯一选择。(更多背景资料，请阅读Lifehacker作家 [A.A .牛顿的草坪讲解者](https://lifehacker.com/fuck-lawns-1847736416)/9月起撤下。)
+传统的草坪——比如，需要翻起一块土地，去除任何植物，然后种植和生长统一类型的草，社会规定必须以某种方式维护——不是你院子的唯一选择。(更多背景资料，请阅读 Lifehacker 作家 [A.A .牛顿的草坪讲解者](https://lifehacker.com/fuck-lawns-1847736416)/9 月起撤下。)
 
 Watch
 
@@ -14,7 +14,7 @@ Watch
 
 是的，一些生长缓慢的开花植物是我们习惯性认为的“杂草”，所以如果你的家庭或邻居中有一个草坪传统主义者，他们可能不会对你的蜜蜂草坪感到兴奋(即使他们从中受益)。
 
-但是，如何维护草坪仍然取决于你，包括像平时一样修剪草坪。事实上，明尼苏达园艺学会T4说蜜蜂草坪的理想高度是三英寸。所有的东西——包括开花植物——都会马上长回来。
+但是，如何维护草坪仍然取决于你，包括像平时一样修剪草坪。事实上，明尼苏达园艺学会 T4 说蜜蜂草坪的理想高度是三英寸。所有的东西——包括开花植物——都会马上长回来。
 
 蜜蜂草坪不仅仅是蜜蜂的冬天；下面简单介绍一下他们的一些 [其他](https://phys.org/news/2019-05-bees-money-bee-lawn.html#:~:text=%2Deffective%2C%20too.-,Bee%20lawns%20are%20turf%20grasses%20blended%20with%20low%2Dgrowing%20perennials,vital%20nutrients%20for%20foraging%20pollinators.) [好处](https://northerngardener.org/bee-lawn/) :
 
@@ -53,7 +53,7 @@ Watch
 *   芒草
 *   美国紫菀
 
-就草坪草而言，UME的专家推荐使用优质羊茅(标准多年生草坪草)，包括:
+就草坪草而言，UME 的专家推荐使用优质羊茅(标准多年生草坪草)，包括:
 
 *   强壮匍匐紫羊茅
 *   细长匍匐紫羊茅
@@ -65,9 +65,9 @@ Watch
 
 ### 种植蜜蜂草坪
 
-一旦你选择了你的植物，并且知道了蜜蜂草坪 的走向 [，就到了准备和种植的时候了。UME的专家说建立蜜蜂草坪的最佳时间是春天和晚秋。](https://extension.umn.edu/landscape-design/planting-and-maintaining-bee-lawn#choosing-where-to-put-a-bee-lawn-2941010)
+一旦你选择了你的植物，并且知道了蜜蜂草坪 的走向 [，就到了准备和种植的时候了。UME 的专家说建立蜜蜂草坪的最佳时间是春天和晚秋。](https://extension.umn.edu/landscape-design/planting-and-maintaining-bee-lawn#choosing-where-to-put-a-bee-lawn-2941010)
 
-有两种方法可以将土地变成蜜蜂草坪——过度播种和翻新——你的决定应该基于你院子里目前生长的东西。UME有 [几个](https://extension.umn.edu/lawns-and-landscapes/flowers-pollinators) [详细的](https://extension.umn.edu/landscape-design/planting-and-maintaining-bee-lawn) [指南](https://turf.umn.edu/sites/turf.umn.edu/files/2021-07/Installing%20and%20maintaining%20a%20bee%20lawn.pdf) 来启动一个蜜蜂草坪(包括一步一步的指示)，但是这里有一些关于何时最好选择每种方法的一般提示:
+有两种方法可以将土地变成蜜蜂草坪——过度播种和翻新——你的决定应该基于你院子里目前生长的东西。UME 有 [几个](https://extension.umn.edu/lawns-and-landscapes/flowers-pollinators) [详细的](https://extension.umn.edu/landscape-design/planting-and-maintaining-bee-lawn) [指南](https://turf.umn.edu/sites/turf.umn.edu/files/2021-07/Installing%20and%20maintaining%20a%20bee%20lawn.pdf) 来启动一个蜜蜂草坪(包括一步一步的指示)，但是这里有一些关于何时最好选择每种方法的一般提示:
 
 [**补种**](https://extension.umn.edu/landscape-design/planting-and-maintaining-bee-lawn#overseeding-2941612) **推荐:**
 
@@ -83,7 +83,7 @@ Watch
 
 ## 与蜜蜂草坪一起生活
 
-使用 [UME的解释和说明](https://extension.umn.edu/landscape-design/planting-and-maintaining-bee-lawn) 带你完成准备和播种过程。母鸡，耐心点。在第一年，你的蜜蜂草坪可能主要是草坪草，夹杂着一些开花植物的叶子，也许还有一些白色的三叶草花。第二年是它真正开始生长的时候，有更多的树叶和花朵，以及它们打算吸引的授粉者。
+使用 [UME 的解释和说明](https://extension.umn.edu/landscape-design/planting-and-maintaining-bee-lawn) 带你完成准备和播种过程。母鸡，耐心点。在第一年，你的蜜蜂草坪可能主要是草坪草，夹杂着一些开花植物的叶子，也许还有一些白色的三叶草花。第二年是它真正开始生长的时候，有更多的树叶和花朵，以及它们打算吸引的授粉者。
 
 如果你愿意，你也可以在你的院子里放一个标志，表明你有一个蜜蜂草坪。这可能是一种先发制人的方式，可以回答任何问题，解决邻居关于为什么你的草坪看起来与街区里的其他草坪不同的任何担忧，也可以提高对蜜蜂草坪的总体认识——可能会促使其他人种植自己的草坪(或至少调查一下)。
 

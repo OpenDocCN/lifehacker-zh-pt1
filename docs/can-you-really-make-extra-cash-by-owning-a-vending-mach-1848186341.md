@@ -1,24 +1,24 @@
 # 拥有一台自动售货机真的能赚外快吗？
 
-> 原文:[https://life hacker . com/can-you-really-make-extra-cash-owning-a-vending-mach-1848186341](https://lifehacker.com/can-you-really-make-extra-cash-by-owning-a-vending-mach-1848186341)
+> 原文：<https://lifehacker.com/can-you-really-make-extra-cash-by-owning-a-vending-mach-1848186341>
 
 当你被困在办公室或机场时，你可能会认为自动售货机是你最后的零食站。你可能不认为它们是尖端的、能产生现金的商业投资，但也许你应该这样想。你知道这些小吃自动售货机绿洲往往是独立拥有的吗？它们不会被可口可乐公司租用，而是可以由像你我这样的个人来运营(假设你不是百事公司的首席执行官)。
 
 Watch
 
-今年早些时候， [NerdWallet挖掘了像经营小企业一样经营自动售货机的成本和收益](https://www.nerdwallet.com/article/small-business/how-to-start-a-vending-machine-business) ，提供了一个循序渐进的指导，帮助你判断这项投资对你是否有意义(大概不仅仅是实现你儿时拥有一家糖果店的梦想)。如果你有兴趣成为你所在社区的自动售货机巨头，以下是你要考虑的主要问题。
+今年早些时候， [NerdWallet 挖掘了像经营小企业一样经营自动售货机的成本和收益](https://www.nerdwallet.com/article/small-business/how-to-start-a-vending-machine-business) ，提供了一个循序渐进的指导，帮助你判断这项投资对你是否有意义(大概不仅仅是实现你儿时拥有一家糖果店的梦想)。如果你有兴趣成为你所在社区的自动售货机巨头，以下是你要考虑的主要问题。
 
 ## 自动售货机的时尚性:它们真的有利可图吗？
 
-疫情 [极大地提高了人们对个人拥有和维护自己的自动售货机的兴趣](https://thehustle.co/the-economics-of-vending-machines/) ，尤其是在Z世代中，他们看着自己的同龄人炫耀他们在抖音 和 [YouTube](https://www.youtube.com/watch?v=BdUjZD_Iqww) 的所谓现金流。去年，20岁的YouTuber用户杰米·依班娜据称从这项业务中赚了6位数的收入；实际上，该片透露，他的大部分收入来自他的YouTube频道。尽管如此，在那次采访中，依班娜告诉Vox，他是在看了这个 [YouTube上的视频后买了他的第一台自动售货机，视频中有人](https://www.youtube.com/watch?v=VqSPDEV1Eso&feature=youtu.be) 到处从他们的机器里取出所有的钱。鼓舞人心！
+疫情 [极大地提高了人们对个人拥有和维护自己的自动售货机的兴趣](https://thehustle.co/the-economics-of-vending-machines/) ，尤其是在 Z 世代中，他们看着自己的同龄人炫耀他们在抖音 和 [YouTube](https://www.youtube.com/watch?v=BdUjZD_Iqww) 的所谓现金流。去年，20 岁的 YouTuber 用户杰米·依班娜据称从这项业务中赚了 6 位数的收入；实际上，该片透露，他的大部分收入来自他的 YouTube 频道。尽管如此，在那次采访中，依班娜告诉 Vox，他是在看了这个 [YouTube 上的视频后买了他的第一台自动售货机，视频中有人](https://www.youtube.com/watch?v=VqSPDEV1Eso&feature=youtu.be) 到处从他们的机器里取出所有的钱。鼓舞人心！
 
-让我成为第一个指出抖音和YouTube不是真实生活的人。这种商业风险到底有多有利可图？嗯，根据 [自动售货市场观察](https://www.vendingmarketwatch.com/reports/document/21143662/2020-state-of-the-industry-report-2019-another-recordbreaking-year-for-operators) :非常。他们最新的“行业状况”报告称2019年是便利服务运营商销售额“破纪录”的一年。疫情这边还没有新的报道，但是网上的普遍共识是，亲自工作和旅行的回归给自动售货机行业带来了希望。
+让我成为第一个指出抖音和 YouTube 不是真实生活的人。这种商业风险到底有多有利可图？嗯，根据 [自动售货市场观察](https://www.vendingmarketwatch.com/reports/document/21143662/2020-state-of-the-industry-report-2019-another-recordbreaking-year-for-operators) :非常。他们最新的“行业状况”报告称 2019 年是便利服务运营商销售额“破纪录”的一年。疫情这边还没有新的报道，但是网上的普遍共识是，亲自工作和旅行的回归给自动售货机行业带来了希望。
 
-然而，考虑到地点、机器数量和销售商品类型等变量，很难找到一个准确的估计值，来估算拥有一台机器实际上能产生多少收入。据NerdWallet 报道，自动售货机平均每周收入35美元，但“库存充足并放置在安全、高流量位置”的自动售货机可以让你赚到这个数字的近三倍——每月超过400美元。
+然而，考虑到地点、机器数量和销售商品类型等变量，很难找到一个准确的估计值，来估算拥有一台机器实际上能产生多少收入。据 NerdWallet 报道，自动售货机平均每周收入 35 美元，但“库存充足并放置在安全、高流量位置”的自动售货机可以让你赚到这个数字的近三倍——每月超过 400 美元。
 
 ## **低启动成本**
 
-你的自动售货机业务的主要成本来自于对机器的初始投资，以及随后的进货。一台直接来自制造商的新机器可能高达8000美元，但二手机器在Craigslist或Facebook Marketplace上的价格仅为300美元。你想在一台昂贵的机器和一个最终会带来更多麻烦的垃圾之间找到一个平衡点。为了试水，打算买一台自动售货机，初始库存在2000美元以下。当然，这些库存成本将取决于你选择销售什么。
+你的自动售货机业务的主要成本来自于对机器的初始投资，以及随后的进货。一台直接来自制造商的新机器可能高达 8000 美元，但二手机器在 Craigslist 或 Facebook Marketplace 上的价格仅为 300 美元。你想在一台昂贵的机器和一个最终会带来更多麻烦的垃圾之间找到一个平衡点。为了试水，打算买一台自动售货机，初始库存在 2000 美元以下。当然，这些库存成本将取决于你选择销售什么。
 
 ## **库存的选择**
 
@@ -43,4 +43,4 @@ Watch
 *   你需要确保自动售货机的家在一个有足够经常性客流量的有利可图的区域。
 *   您需要一定的身体素质，因为维修机器需要大量的行走和搬运工作。
 
-有了足够的市场调查和谨慎的决策，任何人都可以进入自动售货机行业。如果你确信拥有一台自动售货机是你的下一个创业项目，一定要去读读NerdWallet的完整分步指南 。请为我准备一些盐和醋片。
+有了足够的市场调查和谨慎的决策，任何人都可以进入自动售货机行业。如果你确信拥有一台自动售货机是你的下一个创业项目，一定要去读读 NerdWallet 的完整分步指南 。请为我准备一些盐和醋片。

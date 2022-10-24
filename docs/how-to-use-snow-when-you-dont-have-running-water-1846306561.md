@@ -1,6 +1,6 @@
 # 没有自来水怎么用雪
 
-> 原文:[https://life hacker . com/how-to-use-snow-when you-dont-have-run-water-1846306561](https://lifehacker.com/how-to-use-snow-when-you-dont-have-running-water-1846306561)
+> 原文：<https://lifehacker.com/how-to-use-snow-when-you-dont-have-running-water-1846306561>
 
 现在，德克萨斯州的许多人有电但没有水，他们转向融化的雪来喝水或洗澡。这种方法确实有效——冬季露营者对此心知肚明——但是有一些小贴士可以帮助你有效地完成这项工作。
 
@@ -38,6 +38,6 @@ Watch
 
 ### 考虑过滤成品水
 
-如果喝从你的院子里收集的雪使你不适，你可以像野营时一样过滤或处理水。(REI这里有一个 [关于过滤器和净化器的指南](https://www.rei.com/learn/expert-advice/water-treatment-backcountry.html) 。)
+如果喝从你的院子里收集的雪使你不适，你可以像野营时一样过滤或处理水。(REI 这里有一个 [关于过滤器和净化器的指南](https://www.rei.com/learn/expert-advice/water-treatment-backcountry.html) 。)
 
 如果你融化完雪，发现里面有灰尘或植物，你可以让水通过咖啡过滤器来清除它们。

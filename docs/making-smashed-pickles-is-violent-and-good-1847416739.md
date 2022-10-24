@@ -1,6 +1,6 @@
 # 做砸了的泡菜暴力又好
 
-> 原文:[https://life hacker . com/making-smashed-pickles-is-violent-and-good-1847416739](https://lifehacker.com/making-smashed-pickles-is-violent-and-good-1847416739)
+> 原文：<https://lifehacker.com/making-smashed-pickles-is-violent-and-good-1847416739>
 
 一片泡菜有它的时间和地点(例如，在汉堡上)，你盘子边上的尖矛可以给你的午餐带来熟食的氛围，但泡菜的形状不需要如此光滑、整洁、干净。事实上，完全放弃刀子有一个非常好的理由:朋友们，打碎你们的泡菜吧。粉碎它们，获得自由。
 

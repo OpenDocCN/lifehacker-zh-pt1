@@ -1,6 +1,6 @@
 # 自助出书前你应该知道什么
 
-> 原文:[https://life hacker . com/what-you-should-know-before-self-publishing-a-book-1848885033](https://lifehacker.com/what-you-should-know-before-self-publishing-a-book-1848885033)
+> 原文：<https://lifehacker.com/what-you-should-know-before-self-publishing-a-book-1848885033>
 
 如果你有一个世界需要阅读的伟大想法，你可以写一本书——但是出版界很难进入，也很难驾驭。代理人是做什么的？什么是查询信？你必须认识认识某人的人才能有所成就吗？酒吧世界的看门人会永远站在你的信息和公众之间吗？
 
@@ -16,24 +16,24 @@ Watch
 
 如果可能的话，争取一些朋友，但是要明白，如果你没有付钱给专业人士，那可能仍然不能帮助你发现每一个连续性或拼写错误。
 
-“让尊重或关心你的人先读吧，”达连·阿奈说，她在2014年自助出版了诗集《裸体的[](https://www.amazon.com/Nude-Darien-Anay-ebook/dp/B00NPBV3DE?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/what-you-should-know-before-self-publishing-a-book-1848885033&asc_source=&tag=kinjalifehackerlink-20)*。她选择了一个她“作为作家和人类尊敬的人。”开始想一想你生活中符合这种描述的人——祈祷他们有时间为你做这件事。*
+“让尊重或关心你的人先读吧，”达连·阿奈说，她在 2014 年自助出版了诗集《裸体的[](https://www.amazon.com/Nude-Darien-Anay-ebook/dp/B00NPBV3DE?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/what-you-should-know-before-self-publishing-a-book-1848885033&asc_source=&tag=kinjalifehackerlink-20)*。她选择了一个她“作为作家和人类尊敬的人。”开始想一想你生活中符合这种描述的人——祈祷他们有时间为你做这件事。*
 
 ## ***晋升将会很困难***
 
 *再说一次，你在这里是靠自己，所以没有行业机器来推动你的书。你 是这台机器，所以在你的作品出版之前就开始宣传吧。*
 
-*“如果我再做一次，我会坚持宣传至少一年，然后计划让它变得可访问，”Anay说，他建议在宣传和发布之前建立一个社交媒体受众。*
+*“如果我再做一次，我会坚持宣传至少一年，然后计划让它变得可访问，”Anay 说，他建议在宣传和发布之前建立一个社交媒体受众。*
 
 *传统作者有各种各样的方式来推广他们的书籍。例如，他们的出版商推销这些书，并把它们带进书店。他们有公关人员发送新闻稿，让他们排队接受采访。你应该考虑去你当地的书店问问，你到底怎样才能把你的书放到他们的书架上。花些时间起草一份新闻稿，发给你能在网上找到的任何书评人或编辑。这听起来有点咄咄逼人，但你必须咄咄逼人，因为没有人在为你推，你的书很容易陷入完全的晦涩。*
 
 *如果你有一些在社交媒体上知名度很高的朋友，你也会想让他们帮忙。如果你有预算，给自己开一个发布会，但要确保你的发布会在社交媒体上曝光率最高。想想看:照片亭、俗气的装饰、活动标签，甚至可能是你的与会者可以通过分享书或聚会的照片获得的赠品。想想你是如何找到书籍、电影、节目或活动的——然后确保你也在使用同样的途径来推广你的工作。*
 
-*Lifehacker的专职作家 Sarah Showfety自助出书 [*按书约会:2012年一个浮躁的单身者在自助过道里寻找爱情*](https://www.amazon.com/Dating-Books-Blundering-Singletons-Self-Help-ebook/dp/B008NE6040?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/what-you-should-know-before-self-publishing-a-book-1848885033&asc_source=&tag=kinjalifehackerlink-20) 除了以传统方式出书，她在这里有着独特的视角。她说，“如果你想让它大卖，就要做好自己推销的准备，利用一切可用的渠道，即便如此，也要管理好你的预期。”*
+*Lifehacker 的专职作家 Sarah Showfety 自助出书 [*按书约会:2012 年一个浮躁的单身者在自助过道里寻找爱情*](https://www.amazon.com/Dating-Books-Blundering-Singletons-Self-Help-ebook/dp/B008NE6040?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/what-you-should-know-before-self-publishing-a-book-1848885033&asc_source=&tag=kinjalifehackerlink-20) 除了以传统方式出书，她在这里有着独特的视角。她说，“如果你想让它大卖，就要做好自己推销的准备，利用一切可用的渠道，即便如此，也要管理好你的预期。”*
 
 *让我们更深入地研究一下…*
 
 ## ***管理你的期望***
 
-*正如Showfety所说，你的书“不会从任何书架上飞走”这只是一个拥挤的行业，简单明了，没有出版商的支持，你会处于不利地位。不要期望登上《纽约时报》畅销书排行榜的榜首。当然，这可能发生，但这种可能性极小，除非你有数百万的社交粉丝，在一家大型连锁书店的C层有一个朋友，或者有某种灯里的魔法精灵等着满足你的愿望(在这种情况下，你可能不会开始自助出版)。*
+*正如 Showfety 所说，你的书“不会从任何书架上飞走”这只是一个拥挤的行业，简单明了，没有出版商的支持，你会处于不利地位。不要期望登上《纽约时报》畅销书排行榜的榜首。当然，这可能发生，但这种可能性极小，除非你有数百万的社交粉丝，在一家大型连锁书店的 C 层有一个朋友，或者有某种灯里的魔法精灵等着满足你的愿望(在这种情况下，你可能不会开始自助出版)。*
 
-*尽管如此，还是要乐观。这是你分享自己作品的机会。赚大钱或打破销售记录可能不是你唯一的动力。Anay说她出版了她的诗集，这样她的朋友和家人就能更好地理解她的经历。Showfety将自助出版描述为“授权”和“一种神奇的方式，可以控制你的激情项目，并将其发布到世界上，而无需等待任何人给你许可。”*
+*尽管如此，还是要乐观。这是你分享自己作品的机会。赚大钱或打破销售记录可能不是你唯一的动力。Anay 说她出版了她的诗集，这样她的朋友和家人就能更好地理解她的经历。Showfety 将自助出版描述为“授权”和“一种神奇的方式，可以控制你的激情项目，并将其发布到世界上，而无需等待任何人给你许可。”*

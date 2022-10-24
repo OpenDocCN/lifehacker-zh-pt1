@@ -1,6 +1,6 @@
 # 如何清洁你孩子的乐高积木，因为想想它们有多恶心
 
-> 原文:[https://life hacker . com/how-to-clean-your-kids-Lego-pieces-because-think-how-g-1847039899](https://lifehacker.com/how-to-clean-your-kids-lego-pieces-because-think-how-g-1847039899)
+> 原文：<https://lifehacker.com/how-to-clean-your-kids-lego-pieces-because-think-how-g-1847039899>
 
 如果你有孩子，你可能现在家里就有某种类型的乐高积木(或它们的通用等价物)。你可能也曾(至少)赤脚踩过一个，而且，在这个过程中， [教会了你的孩子一些他们最初的骂人话](https://lifehacker.com/how-to-teach-your-kids-when-its-ok-to-curse-1847014866) 。
 
@@ -14,7 +14,7 @@ Watch
 
 乐高 的官方清洁说明非常简单:
 
-> 我们建议您使用温度不超过104 F / 40 C的水和软布或海绵手动清洁乐高零件。较高的温度可能会影响零件的质量。你可以在水中加入温和的洗涤剂——之后请用清水冲洗干净，就大功告成了！
+> 我们建议您使用温度不超过 104 F / 40 C 的水和软布或海绵手动清洁乐高零件。较高的温度可能会影响零件的质量。你可以在水中加入温和的洗涤剂——之后请用清水冲洗干净，就大功告成了！
 
 他们还带来了 [这个警告](https://www.lego.com/en-us/service/help/bricks-building/brick-facts/cleaning-your-lego-bricks-408100000007835) :
 
@@ -26,9 +26,9 @@ Watch
 
 我们理解为什么乐高不想提供潜在的非常详细的洗砖说明，但是多一点信息真的很有帮助。这是 [约书亚·里昂在最近为钢丝剪](https://www.nytimes.com/wirecutter/guides/how-to-clean-lego/) 撰写的文章中提供的东西。
 
-首先，Lyon指定您应该单独清理每块砖块——这意味着将所有点击在一起的砖块分开。虽然乐高出售他们自己的砖块分离器 ，里昂说这使得工作更容易，你当然可以用手将它们分开。(虽然砖块分离器售价2.49美元，所以如果你的孩子是乐高迷，这可能是一笔值得的投资。)
+首先，Lyon 指定您应该单独清理每块砖块——这意味着将所有点击在一起的砖块分开。虽然乐高出售他们自己的砖块分离器 ，里昂说这使得工作更容易，你当然可以用手将它们分开。(虽然砖块分离器售价 2.49 美元，所以如果你的孩子是乐高迷，这可能是一笔值得的投资。)
 
-从这里开始，Lyon根据你需要的物品将洗涤过程分成几个步骤:
+从这里开始，Lyon 根据你需要的物品将洗涤过程分成几个步骤:
 
 > *   **Big plastic bucket:** Fill this with detergent, water and a lot of Legos.
 > *   **Mild detergent:** Never clean Lego with anything containing bleach, because it will damage the bricks.

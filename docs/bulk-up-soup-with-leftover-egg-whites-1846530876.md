@@ -1,6 +1,6 @@
 # 用剩下的蛋白来盛汤
 
-> 原文:[https://life hacker . com/bulk-up-soup-with the left-white-1846530876](https://lifehacker.com/bulk-up-soup-with-leftover-egg-whites-1846530876)
+> 原文：<https://lifehacker.com/bulk-up-soup-with-leftover-egg-whites-1846530876>
 
 我爸爸养了 [很多鸡](https://twitter.com/clairelizzie/status/1373694537663582209) ，都是以他最喜欢的教堂贵妇的名字命名的，那些母鸡一直在*下蛋*。这意味着我一直在接收源源不断的漂亮新鲜鸡蛋，这些鸡蛋的蛋黄颜色最深、最金黄，而他们却因为杂货店的鸡蛋而毁了我。
 

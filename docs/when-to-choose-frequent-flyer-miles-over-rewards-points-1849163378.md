@@ -1,6 +1,6 @@
 # 何时选择常旅客里程而非奖励积分
 
-> 原文:[https://life hacker . com/when-to-choose-frequent flyer-miles-over-rewards-points-1849163378](https://lifehacker.com/when-to-choose-frequent-flyer-miles-over-rewards-points-1849163378)
+> 原文：<https://lifehacker.com/when-to-choose-frequent-flyer-miles-over-rewards-points-1849163378>
 
 有这么多可用的信用卡选项，可能很难从收益率、额外福利、和包含的保险保障等方面进行分类，以决定哪个选项适合你。决定你是否想在特定的航空公司赢取灵活的信用卡积分或常旅客里程是一个好的开始。以下是你需要知道的。
 
@@ -10,7 +10,7 @@ Watch
 
 当谈到信用卡积分，有几件事你应该记住。信用卡积分通常可用于多种用途，包括旅行费用、返现、礼品卡、甚至商品。然而，如何使用你的积分取决于信用卡发行商，所以在注册信用卡之前做好调查是很重要的。
 
-你可以选择一张可以赚取灵活积分的信用卡(比如Chase Ultimate Rewards、American Express Membership Rewards、Citi ThankYou Points或Capital One Miles)，这种灵活性可以在使用你的里程时派上用场，最终使它们更容易使用，有时甚至更有价值。
+你可以选择一张可以赚取灵活积分的信用卡(比如 Chase Ultimate Rewards、American Express Membership Rewards、Citi ThankYou Points 或 Capital One Miles)，这种灵活性可以在使用你的里程时派上用场，最终使它们更容易使用，有时甚至更有价值。
 
 另外请记住，您的灵活奖励积分的价值可能会有所不同。例如，与兑换现金或商品(商品通常是最糟糕的兑换方式之一)相比，如果您在促销期间兑换积分用于旅行，那么您的积分可能更有价值。一些银行积分可以转移到合作伙伴航空公司，但在这种情况下，奖励定价、奖励可用性和当前现金价格都会影响您的积分价值。
 

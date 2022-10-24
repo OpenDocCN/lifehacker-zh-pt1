@@ -1,18 +1,18 @@
 # 如何给你的宠物拍出值得拥有的经典照片
 
-> 原文:[https://life hacker . com/how-to-take-the-classy-portraits-your-pet-deserves SD-1845474782](https://lifehacker.com/how-to-take-the-classy-portraits-your-pet-deservesd-1845474782)
+> 原文：<https://lifehacker.com/how-to-take-the-classy-portraits-your-pet-deservesd-1845474782>
 
 从社交媒体上的宠物照片数量来看，你会认为拍一张好照片会很简单。但是如果你曾经试图给猫、狗、兔子、仓鼠或其他生物拍照，你就会知道这实际上有点棘手。在运动中，你的宠物可能大部分时间看起来都很可爱。但是当你在手机上滚动相机胶卷时，你可能会注意到，并不是所有的照片都真正捕捉到了你宝贝宠物的本质。
 
 Watch
 
-这并不是说你需要昂贵的设备:你完全可以用你的智能手机拍出像样的宠物照片。在纽约时报 的一篇文章中，J.D. Biersdorfer为我们进行了分析。以下是需要了解的内容。
+这并不是说你需要昂贵的设备:你完全可以用你的智能手机拍出像样的宠物照片。在纽约时报 的一篇文章中，J.D. Biersdorfer 为我们进行了分析。以下是需要了解的内容。
 
 <aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled How to Take the Classy Portraits Your Pet Deserves](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-take-the-best-photos-with-your-iphone-1845243377)</aside>
 
 ### 1.选择时间和地点
 
-你会希望你的宠物安静下来，所以选一个他们习惯的地方。此外， [Biersdorfer注意到](https://www.nytimes.com/2020/10/21/technology/personaltech/how-to-take-better-pet-portraits.html) 有些宠物在吃完饭后或午睡前最放松，所以这可能是拍照的最佳时间。如果你打算尝试重现西尔斯肖像工作室的魔力，铺上一张床单或一些布料，或者在整洁的墙前拍照。对于动作镜头，去公园或你的后院。不管在什么地方，都要准备好花些时间去捕捉许多不同的选择，希望有一个会成为现实。
+你会希望你的宠物安静下来，所以选一个他们习惯的地方。此外， [Biersdorfer 注意到](https://www.nytimes.com/2020/10/21/technology/personaltech/how-to-take-better-pet-portraits.html) 有些宠物在吃完饭后或午睡前最放松，所以这可能是拍照的最佳时间。如果你打算尝试重现西尔斯肖像工作室的魔力，铺上一张床单或一些布料，或者在整洁的墙前拍照。对于动作镜头，去公园或你的后院。不管在什么地方，都要准备好花些时间去捕捉许多不同的选择，希望有一个会成为现实。
 
 ### 2.关掉闪光灯
 
@@ -24,8 +24,8 @@ Watch
 
 ### 4.设置镜头
 
-类似于给婴儿和其他小孩拍照，有其他人在旁边分散你的宠物的注意力或者让他们专注于玩具和/或零食会有帮助。如果周围没有其他人，使用自拍器，自己分散注意力。Biersdorfer还建议用不同的角度玩——包括与你的宠物的眼睛平齐——如果这样会更容易的话，使用三脚架。
+类似于给婴儿和其他小孩拍照，有其他人在旁边分散你的宠物的注意力或者让他们专注于玩具和/或零食会有帮助。如果周围没有其他人，使用自拍器，自己分散注意力。Biersdorfer 还建议用不同的角度玩——包括与你的宠物的眼睛平齐——如果这样会更容易的话，使用三脚架。
 
 ### 5.编辑
 
-不用，不用找然后学Photoshop——用手机自带的编辑软件就行了。你可以调整光线、背景和颜色，使用滤镜，或者裁剪和拉直图像。理想情况下，你会有一些值得骄傲的东西发布到你的主网格上。
+不用，不用找然后学 Photoshop——用手机自带的编辑软件就行了。你可以调整光线、背景和颜色，使用滤镜，或者裁剪和拉直图像。理想情况下，你会有一些值得骄傲的东西发布到你的主网格上。

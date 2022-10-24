@@ -1,6 +1,6 @@
 # 如何充分利用没有孩子的一天
 
-> 原文:[https://life hacker . com/how-to-make-the-most of-day-without-the-kids-1846574142](https://lifehacker.com/how-to-make-the-most-of-a-day-without-the-kids-1846574142)
+> 原文：<https://lifehacker.com/how-to-make-the-most-of-a-day-without-the-kids-1846574142>
 
 如果你是一个孩子的父母，或者是和你一起住在家里的孩子的父母，我要大胆地猜测一下:你需要休息一下。不，休息并不构成在杂货店的一个小时，试图限制你接触的东西的数量(我的意思是，除非你真的喜欢那种东西——每个人都是不同的)。
 

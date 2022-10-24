@@ -1,6 +1,6 @@
 # 搬进新家后你需要买的第一件东西
 
-> 原文:[https://life hacker . com/the-first-things-you-being-into-your-1849157065](https://lifehacker.com/the-first-things-you-need-to-buy-after-moving-into-your-1849157065)
+> 原文：<https://lifehacker.com/the-first-things-you-need-to-buy-after-moving-into-your-1849157065>
 
 恭喜你，你刚刚 [买了你的第一个家](https://lifehacker.com/how-to-make-home-buying-better-without-being-rich-1848360354) ！在多年的公寓生活后，像额外的卧室、车库和后院这样的异国情调似乎很令人兴奋，对吗？即使是一个普通的新房也会让你有一段时间的贵族感，直到你想到你需要购买的所有东西，才能让它真正成为家。
 
@@ -8,7 +8,7 @@
 
 Watch
 
-O 拥有一处房产和租房有很大不同。U 除非你住在公寓里，有随叫随到的维修公司，否则所有的 e保养现在都由你负责—你家的安全也是如此。你为新家准备的个人购物清单可能会更长或更短，这取决于你从老地方带来了什么(以及它们各自的尺寸)，但这里有你在购买第一套房子后需要获得的东西。
+O 拥有一处房产和租房有很大不同。U 除非你住在公寓里，有随叫随到的维修公司，否则所有的 e 保养现在都由你负责—你家的安全也是如此。你为新家准备的个人购物清单可能会更长或更短，这取决于你从老地方带来了什么(以及它们各自的尺寸)，但这里有你在购买第一套房子后需要获得的东西。
 
 ## 基础知识
 
@@ -22,12 +22,12 @@ O 拥有一处房产和租房有很大不同。U 除非你住在公寓里，有�
 
 ## 维护人员
 
-如果你买了一个由HOA或c ondo协会支付维修公司的房子，你也许可以跳过这一部分。否则，我有消息告诉你:除非你去做(或雇人去做)，否则在你的土地上什么也做不了。因此，您将需要一些租赁时从未使用过的工具:
+如果你买了一个由 HOA 或 c ondo 协会支付维修公司的房子，你也许可以跳过这一部分。否则，我有消息告诉你:除非你去做(或雇人去做)，否则在你的土地上什么也做不了。因此，您将需要一些租赁时从未使用过的工具:
 
 *   **雪铲。如果你的新邻居有可能下雪，准备一把好铲子。这不仅是暴风雨后出门所必需的，大多数地方政府都要求你清理门前的人行道。**
 *   **梯子。**即使是在一层楼的房子里，你也需要一把像样的梯子才能在粉刷或维修时进入各个区域。如果你不确定你需要什么，一个 [多位置梯子](https://www.amazon.com/Little-Giant-Multi-Use-Ladder-15417-001/dp/B00E1AQED2/ref=asc_df_B00E1AQED2/?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/the-first-things-you-need-to-buy-after-moving-into-your-1849157065&asc_source=&hvadid=167155426463&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=9003566&hvnetw=g&hvpone=&hvpos=&hvptwo=&hvqmt=&hvrand=9338698253830639611&hvtargid=pla-277859144772&linkCode=df0&psc=1&tag=kinjalifehackerlink-20) 给你很大的灵活性，而且更容易存放。
-*   **工具。**也许你已经有了一整套工具，但如果你在过去几年里一直打电话给房东进行小修小补，而你的工具包只相当于在 CVS买的一把螺丝刀和一把锤子，你会想要一套更坚固的。幸运的是，你可以购买 [方便的工具包](https://www.amazon.com/Black-Decker-BDCDD12PK-Drill-Project/dp/B014QUP0FE/ref=sr_1_5?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/the-first-things-you-need-to-buy-after-moving-into-your-1849157065&asc_source=&keywords=tool kit with drill&qid=1657201350&sr=8-5&tag=kinjalifehackerlink-20) ，它会给你所有的基础，然后根据需要添加。
-*   **柱塞。**直到他们冲马桶，水位开始上升的时候，人们才想到这个不起眼的活塞。有一个非零的机会，前业主留下了他们的gunky活塞，但...你想摸摸吗？
+*   **工具。**也许你已经有了一整套工具，但如果你在过去几年里一直打电话给房东进行小修小补，而你的工具包只相当于在 CVS 买的一把螺丝刀和一把锤子，你会想要一套更坚固的。幸运的是，你可以购买 [方便的工具包](https://www.amazon.com/Black-Decker-BDCDD12PK-Drill-Project/dp/B014QUP0FE/ref=sr_1_5?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/the-first-things-you-need-to-buy-after-moving-into-your-1849157065&asc_source=&keywords=tool kit with drill&qid=1657201350&sr=8-5&tag=kinjalifehackerlink-20) ，它会给你所有的基础，然后根据需要添加。
+*   **柱塞。**直到他们冲马桶，水位开始上升的时候，人们才想到这个不起眼的活塞。有一个非零的机会，前业主留下了他们的 gunky 活塞，但...你想摸摸吗？
 *   割草机。再说一遍，除非你的房产有维修服务，否则你将负责驯服长在你院子里的草和杂草。你可能还需要一些其他的美化工具，除非你打算雇佣一家公司来帮你处理。F 或者启动器，尽管你至少需要某种割草机，尽管一台简单的 [卷轴割草机](https://www.homedepot.com/p/Scotts-Scott-s-16-in-Manual-Walk-Behind-Push-Reel-Lawn-Mower-415-16S/100540960) 可能足以让你启动。
 
 ## 那些多余房间的东西
@@ -43,9 +43,9 @@ O 拥有一处房产和租房有很大不同。U 除非你住在公寓里，有�
 你买了一栋房子，这意味着你现在拥有一项重要资产，其中充满了各种不太重要的资产。你需要一些基本的东西来保护它:
 
 *   **新锁。**立即更换门上的锁。没有人密谋抢劫你(可能)，但你不知道谁有那些旧锁的钥匙。为了方便，人们把钥匙给邻居，给家人，给承包商——然后就把他们忘得一干二净。
-*   **安全系统。这是可选的，但是一个好主意。即使是廉价的DIY安全设置也能提供一定程度的保护，房屋出售列表 [有时会被小偷用来识别容易被抢劫的空房子](https://www.nbclosangeles.com/news/local/san-marino-burglaries/2008957/) ，所以这是个好主意。**
+*   **安全系统。这是可选的，但是一个好主意。即使是廉价的 DIY 安全设置也能提供一定程度的保护，房屋出售列表 [有时会被小偷用来识别容易被抢劫的空房子](https://www.nbclosangeles.com/news/local/san-marino-burglaries/2008957/) ，所以这是个好主意。**
 *   **灭火器。**走进厨房，你应该做的第一件事就是寻找灭火器。如果有，检查压力和日期。如果它旧了或者不见了，就换一个新的。就像浴室里的一个塞子，不要等到有紧急情况时才希望自己拿了一个。
-*   新的烟雾报警器。除非你有先见之明，问一下以前的主人他们什么时候安装了烟雾报警器和二氧化碳探测器，否则马上把它们都换掉。这将给你10年的时间去重新考虑，并确保你和你的家人得到保护。
+*   新的烟雾报警器。除非你有先见之明，问一下以前的主人他们什么时候安装了烟雾报警器和二氧化碳探测器，否则马上把它们都换掉。这将给你 10 年的时间去重新考虑，并确保你和你的家人得到保护。
 *   **夜灯。**你可能不喜欢或不需要 [夜晚灯光](https://lifehacker.com/why-everyone-should-have-a-night-light-and-how-to-choo-1849039622) 定期，但当在一个陌生的空间，他们是一个伟大的想法。导航一个不熟悉的楼层计划在最初几周(或更长时间)会有点迷失方向，所以能够在晚上看到你要去哪里将是一个优势，直到你的精神肌肉记忆开始发挥作用。
 
 你的第一个家是庆祝的时候，但也是去购物的时候。有了这些基本条件，你马上就能享受你的新房子了。当然，除非闹鬼。

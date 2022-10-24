@@ -1,16 +1,16 @@
 # 这个数字图书馆包含了宇宙所有秘密的答案，如果你能找到的话
 
-> 原文:[https://life hacker . com/this-digital-library-contains-answers-to-all-the-myster-1847886319](https://lifehacker.com/this-digital-library-contains-answers-to-all-the-myster-1847886319)
+> 原文：<https://lifehacker.com/this-digital-library-contains-answers-to-all-the-myster-1847886319>
 
 所以我想如果我找到治疗癌症的方法，我会赚很多钱。我没有时间去“研究肿瘤学”或者“学习任何东西是如何工作的”，但是我喜欢钱，我有捷径: [巴别塔图书馆。](https://libraryofbabel.info/) 如果有治愈癌症的方法，它已经写在那里，只需点击几下鼠标，就等着我去发现它。
 
 Watch
 
-这个网站是Brooklyn作家兼程序员Jonathan Basile的作品，它大胆地声称，它包含了曾经写过的多达3200个字符的每一页，曾经*将要*写过的每一页，以及曾经*可能*写过的每一页。这意味着，在它的虚拟书架中，藏着宇宙所有谜团的答案:十二宫黑仔的真实身份，即将到来的每一场超级碗的获胜者，以及癌症的治疗方法——我将找到它。所以我可以赚很多钱。
+这个网站是 Brooklyn 作家兼程序员 Jonathan Basile 的作品，它大胆地声称，它包含了曾经写过的多达 3200 个字符的每一页，曾经*将要*写过的每一页，以及曾经*可能*写过的每一页。这意味着，在它的虚拟书架中，藏着宇宙所有谜团的答案:十二宫黑仔的真实身份，即将到来的每一场超级碗的获胜者，以及癌症的治疗方法——我将找到它。所以我可以赚很多钱。
 
 ## 它是如何工作的？
 
-我不会假装我完全理解它背后的数学和编程，但在巴别塔图书馆内，3200个字母、空格、逗号和句号的每一种可能的排列据说现在都可以在图书馆的“书”中找到从字面上搜索你能想到的任何东西——剪切并粘贴这段文字，键入你下一条尚未发出的推文，键入随机的胡言乱语——你会发现它已经存在于图书馆的某个地方。它已经在那里了，如果你知道去哪里找的话。
+我不会假装我完全理解它背后的数学和编程，但在巴别塔图书馆内，3200 个字母、空格、逗号和句号的每一种可能的排列据说现在都可以在图书馆的“书”中找到从字面上搜索你能想到的任何东西——剪切并粘贴这段文字，键入你下一条尚未发出的推文，键入随机的胡言乱语——你会发现它已经存在于图书馆的某个地方。它已经在那里了，如果你知道去哪里找的话。
 
 该图书馆不会创建和保存几乎无限的随机生成的字母和标点符号组合——地球上几乎没有足够的硬盘空间来做这件事。相反，它使用一种“伪随机数生成算法”来产生看似随机分布的书籍，而不需要在磁盘上存储任何东西。
 
@@ -20,7 +20,7 @@ Watch
 
 **在我寻找癌症治疗方法的过程中，第一个挑战——无知(我称之为“问题”,因为我是一个积极的思考者)是我不知道在图书馆的哪里可以找到包含癌症治疗方法的书。然而，在它众多书架中的某个地方，这一页还在等待着。我能感觉到。**
 
-**就像豪尔赫·路易斯·博尔赫斯短篇小说《巴别塔图书馆中虚构的宇宙图书馆一样，该网站的灵感来自于图书馆的内容被分成编号的六边形“房间”(它们实际上并不存在， [它们在理论上存在，作为数据如何排序的功能](https://libraryofbabel.info/theory.html) ，这基本上是一回事)。每个房间有四面墙，20个书架，640册书。你可以 [进入一个魔法房间](https://libraryofbabel.info/browse.cgi) 从书架上随便拿一本书，但是没有一样东西是按主题组织的。**
+**就像豪尔赫·路易斯·博尔赫斯短篇小说《巴别塔图书馆中虚构的宇宙图书馆一样，该网站的灵感来自于图书馆的内容被分成编号的六边形“房间”(它们实际上并不存在， [它们在理论上存在，作为数据如何排序的功能](https://libraryofbabel.info/theory.html) ，这基本上是一回事)。每个房间有四面墙，20 个书架，640 册书。你可以 [进入一个魔法房间](https://libraryofbabel.info/browse.cgi) 从书架上随便拿一本书，但是没有一样东西是按主题组织的。**
 
 **我从 [开始，进入随机房间](https://libraryofbabel.info/browse.cgi) 并检查随机书籍，但发现只有胡言乱语。然后，我十指交叉，点击了网站搜索功能上的“随机”按钮，把我带到了 [一本叫做](https://libraryofbabel.info/book.cgi?2babt29l6kslu199urb20popk6yky91bejaiq7h7egfv4e3obifr93nidonspgu1fvdnz1ndcqrnu8g8ugukafn8ijch7o7gsmn1cj500w28tnfuvsjfxldb9iwfwpetmt89oexbtxamn61cnk69v8djbocuoej1ytlqccgywr2lhj3gjm0093oniyrz79m9lpys1qjqvzkojlvbmvrsvarikeki8l2g8etaq7qul5zoqu4dra2py6rfwwaaa9zmzl9sbc144dzm09vwhxao37bi9tk5nmopv57mvqso7ddm2crgzmnjjs04r46vzq4r4hrtteegqpcuzyv7hr6ponpu5nb9tr03neqgoe8d9xdizxug47r8dtmviyc0om5it7bffwj1c7ogi6z73jb6u2sli1hwrpyj1o1c6lyhxzl17copxu7him5igwdaki3mza7q3khen62x9dmmq6j6b4tqfdlk884juyg6a8y28nyfwiml6d7oaoocsqvo91jt1985iayvib1ozcsptq3l4rd2cf4e2qwxw97x339l1x313dd6n8e8mtklu823frvg51qpism3e2gh9l25urpalb14xc05rwl7v0bifxih33vxfs1uuf5o4c2lqf3ynqwuixb1618c7fv1hoockdxqcf9bsw78kn0x6nsb6vw4mch82ji443yc4qdkn5ll8wddxvkyvf1xgcmu2jefyq6ets55kdyeoref0zsqczz9wixfnsgtagy92p590d9r36bxkm5mxvobhu8a0imzvmjeuh0snm9bzhk1d45mjjncycgy3ffc8b2yn37k61odifygowddthwvdmudndjet7e1scgkvcud7a0y7a4ffb1d1zw3vj2cwpxr219dc77o8cogyrl7e0oysfgxpxi7j301b016qqme7ghbuk52jvq641cziwkincdjweoof6moq1taxnnf596wkc5lqddfif4lr00yi0xv88ss22bub81oe6m16kan6rjsai3s4lthm53nt4nh9lnoyzeng2po967xo3fcn06u90kb4r1pzfzx34jnisjb9ns6box1y1fqmd6u7kn3xcfgjdstmir9nrm7co8i8cctk4i9bbfspiyoxkj4ava89ekam1hioi8n3a2v140v80izmd1i8f3uqk3tv3btc12w5eegxwo3g3xzac9ew6ay7kehi95xtevile2fmdhblsydodd42acvm3conn04gvgxp1tpddtwe6xa8kclcz1sv7uhb1qfp80css0w2w9n44fhsabtot3waww5osmybzxap3zizint0p3zf42l7apxu635r68bytk88l8emu0d57k8vpu5xyhd2ijv3jmsd5v8ge1n8ehybbzhiyl0kmtv7h9oh6g4h3vu2bai5o5v059254c3seqtt24xddqrzs9edemus9dyo9c1rqb5as2gibhcxp116l44yyoklra7sqcpgp1hrr3m1g7819khm27kvevfk7hjal86he8rjiwiuu3fq76wgs3k728nsioosd63sg36fkolihvpxw8owiisqsy1iaqcnj55dd3tkf71xgwamhr484ly8zqaf2bl2wgtnp13r4usldnogb19zp99bomroiixe6tjiwck3kdmptahfti6m7zuhm90f13s86tpoo71k7p01k1tkdi7ld3fevsgp6sjybfgq7dnxgd48n8q4q0rtnqcq6jc0vq124un4z0ub6o55fauef7g65v098fyydmztw74386f733q52lz6llsk6to6wx5m38ncxwhaug5k21te62e0561sm6piw9n42jty23psqs46zu22urz1o8uo8tmehq4btjt7x74vma622ca56g30aayvv37frhr2e2xydn3540vzfihky2gnxjzepwgbmplx2acdjs69btyrmb7ghkzdxxo9wv-w3-s3-v30:1)《jdr，xblx，mormfic，nvuo，1》的书，这一卷好像和肿瘤学没什么关系。我的第二次、第三次和第四次尝试也是如此。我意识到，在书架上翻来翻去或者手动点击“随机”直到我碰巧找到了合适的书，这需要花费很长时间，直到大冻结终结了宇宙，所以我必须在时间管理上做得更好。**
 
@@ -30,7 +30,7 @@ Watch
 
 ## ****无穷大很大****
 
-**可以想象，你可以自动完成这项任务——设计一个搜索引擎，在巴别塔上搜索关于治疗癌症的书籍，并且只返回可以理解的英语结果。但是，即使有最快的计算机，浏览如此大量的书籍也是不可能的——图书馆里有10^4677的书。相比之下，宇宙中大约有100个10^78原子。**
+**可以想象，你可以自动完成这项任务——设计一个搜索引擎，在巴别塔上搜索关于治疗癌症的书籍，并且只返回可以理解的英语结果。但是，即使有最快的计算机，浏览如此大量的书籍也是不可能的——图书馆里有 10^4677 的书。相比之下，宇宙中大约有 100 个 10^78 原子。**
 
 **但是如果你有某种超级先进的量子计算机来管理搜索，那会怎么样呢？(我在这里用“量子”作为“不可能但很酷的事情”的简写)那个*能找到治愈的方法吗？***
 
@@ -42,7 +42,7 @@ Watch
 
 **除此之外，你会用各种可能的方法来确定癌症文本的准确性。你还需要一本名为“如何判断巴别塔图书馆的癌症治疗指南是否准确”的指南，并不断向无限延伸。 [真是一路龟倒](https://en.wikipedia.org/wiki/Turtles_all_the_way_down) 。**
 
-**即使你能设计出一个程序，过滤掉除了那些含有基于我们对癌症的了解至少是可信的癌症治疗方法的书之外的每一本书，你仍然会得到几乎无限数量的未经测试的癌症治疗方法。包括“多吃洋葱”，“奇怪的是，吸烟会治愈癌症”，以及任何其他可以想象/写在3200个字符内的“治疗方法”。太多了，以至于无法阅读，更不用说以任何有意义的方式进行测试，即使每一个活着的人都将他们的一生奉献给了这项任务。**
+**即使你能设计出一个程序，过滤掉除了那些含有基于我们对癌症的了解至少是可信的癌症治疗方法的书之外的每一本书，你仍然会得到几乎无限数量的未经测试的癌症治疗方法。包括“多吃洋葱”，“奇怪的是，吸烟会治愈癌症”，以及任何其他可以想象/写在 3200 个字符内的“治疗方法”。太多了，以至于无法阅读，更不用说以任何有意义的方式进行测试，即使每一个活着的人都将他们的一生奉献给了这项任务。**
 
 **我要说的是:无穷大非常大。即使癌症的治疗方法就在图书馆的那里(可能在“df kl，gjtg，whzdfozdf”旁边的书架上)，我也不可能找到它并变得富有。你也不是。**
 
@@ -56,6 +56,6 @@ Watch
 
 **在无用信息的包围下，图书馆员很大程度上陷入绝望，或者试图通过发明旨在为他们的工作和生活创造意义的系统来避免绝望。尽管徒劳无功，他们仍然试图在噪音中找到信号。(也许他们中的一个人写了博客，我不知道。)**
 
-**那么图书馆有什么意义呢？任何事情都有什么意义？这是一个关于无限的有趣的思想实验，是一种可视化我们居住的真实宇宙的方式，或者是浪费几分钟的一种很酷的方式。 [看看](https://libraryofbabel.info/) 让我知道你的想法，或者加入Reddit 的t [he馆员。](https://www.reddit.com/r/BabelForum/)**
+**那么图书馆有什么意义呢？任何事情都有什么意义？这是一个关于无限的有趣的思想实验，是一种可视化我们居住的真实宇宙的方式，或者是浪费几分钟的一种很酷的方式。 [看看](https://libraryofbabel.info/) 让我知道你的想法，或者加入 Reddit 的 t [he 馆员。](https://www.reddit.com/r/BabelForum/)**
 
 **但如果你找到治愈癌症的方法，我有优先权。**

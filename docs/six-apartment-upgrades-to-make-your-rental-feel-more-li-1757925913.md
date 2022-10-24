@@ -1,6 +1,6 @@
 # 六个公寓升级，让您的租赁感觉更像家
 
-> 原文:[https://life hacker . com/six-apartment-upgrades-to-make-your-rental-feel-more-Li-1757925913](https://lifehacker.com/six-apartment-upgrades-to-make-your-rental-feel-more-li-1757925913)
+> 原文：<https://lifehacker.com/six-apartment-upgrades-to-make-your-rental-feel-more-li-1757925913>
 
 你可能没有自己的房子，但你仍然希望它有家的感觉。问题是，许多公寓平淡无奇，千篇一律。作为一个租房者，你不能拆掉一面墙或者升级你厨房里的电器，但是，有一些简单的，对房东友好的升级，让你的租房感觉更像家。
 
@@ -25,8 +25,8 @@ Watch
 
 小的改变也能带来大的不同。这里有一些硬件细节，你可以交换出来，以产生很大的影响。
 
-*   [**橱柜把手、拉钮，或者拉手**](http://www.apartmenttherapy.com/how-to-upgrade-drawer-knobs-pulls-and-handles-220169) :你经常可以花不到30美元 买到一包 [25个。当然，你想要的越多，你付出的就越多。](http://www.amazon.com/s/ref=nb_sb_noss_2?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/six-apartment-upgrades-to-make-your-rental-feel-more-li-1757925913&asc_source=&field-keywords=cabinet knobs&tag=kinjalifehackerlink-20&url=search-alias=aps)
-*   [**马桶座圈**](https://www.youtube.com/watch?v=vwlctDw5yK0&ab_channel=Howcast) :通常在20-50美元之间，但作为第一个坐在你马桶座上的人？无价的。
+*   [**橱柜把手、拉钮，或者拉手**](http://www.apartmenttherapy.com/how-to-upgrade-drawer-knobs-pulls-and-handles-220169) :你经常可以花不到 30 美元 买到一包 [25 个。当然，你想要的越多，你付出的就越多。](http://www.amazon.com/s/ref=nb_sb_noss_2?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/six-apartment-upgrades-to-make-your-rental-feel-more-li-1757925913&asc_source=&field-keywords=cabinet knobs&tag=kinjalifehackerlink-20&url=search-alias=aps)
+*   [**马桶座圈**](https://www.youtube.com/watch?v=vwlctDw5yK0&ab_channel=Howcast) :通常在 20-50 美元之间，但作为第一个坐在你马桶座上的人？无价的。
 *   卫生纸架:它不是你公寓里最迷人的东西，但它是一个超级便宜的替代品，可以大大提升你的浴室。
 *   **灯开关板**:在进行任何电气升级时，请务必关闭电源。除此之外，安装一个新的灯开关板 [非常容易。](https://www.youtube.com/watch?v=aOF-ca3qJ5Y&ab_channel=ForRent.comApartmentTours)
 
@@ -49,11 +49,11 @@ Watch
 
 你也要为这项工作挑选合适的灯泡。大多数灯泡包装应该包括关于流明的细节。 [用这个计算器](http://www.charlstonlights.com/led-light-requirement-calculator) 算出每个房间需要多少流明，看你家和喜好。
 
-如果你准备好了，你也可以把整个电灯开关换成可调光的 。你可以花不到20美元找到一个像样的，虽然它需要关闭电源和连接电线，但它可以让你更好地控制你租赁的照明。
+如果你准备好了，你也可以把整个电灯开关换成可调光的 。你可以花不到 20 美元找到一个像样的，虽然它需要关闭电源和连接电线，但它可以让你更好地控制你租赁的照明。
 
 无论你选择哪一种，关键是:你不必忍受你的公寓自带的难看的灯光。最棒的是，当你搬家时，你可以带着所有这些家具。
 
-[房间最好看](http://lifehacker.com/how-to-use-basic-design-principles-to-decorate-your-hom-1687607782#_ga=1.231018399.1662698338.1411053142) 混合照明时也是如此。因此，除了标准的头顶照明，也可以添加一些任务照明。灯具是实现这一目标的显而易见的方式，但你也可以用橱柜下的照明来装饰。例如，安装像这些 一样的 [剥离粘贴式LED灯非常容易，我已经在自己的橱柜下使用过了。公寓疗法有一个](http://www.amazon.com/Battery-powered-Wireless-Night-Light-Stick/dp/B00KD3BRIS/ref=sr_1_1?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/six-apartment-upgrades-to-make-your-rental-feel-more-li-1757925913&asc_source=&ie=UTF8&keywords=peel and stick LED lights&qid=1454964646&sr=8-1&tag=kinjalifehackerlink-20) [不同选项的趣味列表](http://www.apartmenttherapy.com/energy-saving-bright-10-led-under-cabinet-lights-182660) 也是如此。最重要的是，许多这些都是电池供电的，所以它们不需要连接到你的电器上。总的来说，混合照明会让房间感觉更舒适，不那么公寓化。
+[房间最好看](http://lifehacker.com/how-to-use-basic-design-principles-to-decorate-your-hom-1687607782#_ga=1.231018399.1662698338.1411053142) 混合照明时也是如此。因此，除了标准的头顶照明，也可以添加一些任务照明。灯具是实现这一目标的显而易见的方式，但你也可以用橱柜下的照明来装饰。例如，安装像这些 一样的 [剥离粘贴式 LED 灯非常容易，我已经在自己的橱柜下使用过了。公寓疗法有一个](http://www.amazon.com/Battery-powered-Wireless-Night-Light-Stick/dp/B00KD3BRIS/ref=sr_1_1?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/six-apartment-upgrades-to-make-your-rental-feel-more-li-1757925913&asc_source=&ie=UTF8&keywords=peel and stick LED lights&qid=1454964646&sr=8-1&tag=kinjalifehackerlink-20) [不同选项的趣味列表](http://www.apartmenttherapy.com/energy-saving-bright-10-led-under-cabinet-lights-182660) 也是如此。最重要的是，许多这些都是电池供电的，所以它们不需要连接到你的电器上。总的来说，混合照明会让房间感觉更舒适，不那么公寓化。
 
 ### 充分利用小空间
 
@@ -61,13 +61,13 @@ Watch
 
 为了增加储物空间，使用具有双重功能的家具会有所帮助。比如， [一个搁脚凳](http://www.amazon.com/s/ref=nb_sb_noss_2?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/six-apartment-upgrades-to-make-your-rental-feel-more-li-1757925913&asc_source=&field-keywords=ottoman storage bench&tag=kinjalifehackerlink-20&url=search-alias=aps) ， [一个阁楼床工作空间](http://lifehacker.com/the-diy-loft-bed-workspace-1711730619) ，或者 [一个小厨房岛](http://www.wayfair.com/Kitchen-Islands-and-Carts-l56-c415182-O479~Butcher+Block.html) 下面带搁板。
 
-说到厨房，确保你优化了所有的橱柜空间。比如我家厨房橱柜不多，就买了 [一个橱柜搁板](http://www.amazon.com/Seville-Classics-Expandable-Kitchen-Counter/dp/B00FIYDG4A/ref=sr_1_3?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/six-apartment-upgrades-to-make-your-rental-feel-more-li-1757925913&asc_source=&ie=UTF8&keywords=cabinet risers&qid=1454965710&sr=8-3&tag=kinjalifehackerlink-20) ，充分利用空间存放盘子和碗。它们的价格约为15美元，但这是一种立即增加存储空间的简单方法。
+说到厨房，确保你优化了所有的橱柜空间。比如我家厨房橱柜不多，就买了 [一个橱柜搁板](http://www.amazon.com/Seville-Classics-Expandable-Kitchen-Counter/dp/B00FIYDG4A/ref=sr_1_3?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/six-apartment-upgrades-to-make-your-rental-feel-more-li-1757925913&asc_source=&ie=UTF8&keywords=cabinet risers&qid=1454965710&sr=8-3&tag=kinjalifehackerlink-20) ，充分利用空间存放盘子和碗。它们的价格约为 15 美元，但这是一种立即增加存储空间的简单方法。
 
-同样，你可以使用 [拉杆来增加额外的空间](http://lifehacker.com/use-a-tension-rod-to-create-a-second-shelf-in-your-kitc-5897492?tag=organization/kitchen) 放调料，或者试试 [这个DIY磁性调料架，它可以兼作架子。](http://lifehacker.com/diy-magnetic-spice-rack-doubles-your-shelf-space-5503462) 你甚至可以 [在你的冰箱旁边建造你自己的折叠储藏室](https://lifehacker.com/diy-roll-out-pantry-saves-space-in-your-kitchen-512990049) 。这不是一个简单的选择，但却是一个非常有创意的选择。
+同样，你可以使用 [拉杆来增加额外的空间](http://lifehacker.com/use-a-tension-rod-to-create-a-second-shelf-in-your-kitc-5897492?tag=organization/kitchen) 放调料，或者试试 [这个 DIY 磁性调料架，它可以兼作架子。](http://lifehacker.com/diy-magnetic-spice-rack-doubles-your-shelf-space-5503462) 你甚至可以 [在你的冰箱旁边建造你自己的折叠储藏室](https://lifehacker.com/diy-roll-out-pantry-saves-space-in-your-kitchen-512990049) 。这不是一个简单的选择，但却是一个非常有创意的选择。
 
 如果你缺乏柜台空间，你可以通过公寓疗法尝试使用 [模块化折叠柜台空间](https://lifehacker.com/add-modular-counter-space-to-your-kitchen-with-a-simple-1694107540) [或像这样的壁挂式砧板](http://www.thekitchn.com/diy-countertop-cutting-board-e-99967) 。当然，你要检查你的租约，以确保你被允许在你的墙上安装东西。
 
-如果你的浴室没有太多储物空间，你也要发挥创意。试试 [在卫生间增加第二根淋浴杆](https://lifehacker.com/add-a-second-shower-rod-for-extra-bathroom-storage-5944583) 并悬挂便携筐。装上几个壁式架子 [用来存放](http://lifehacker.com/roll-your-towels-instead-of-folding-them-to-save-space-5878369#_ga=1.127255437.1662698338.1411053142) 毛巾。如果你没有空间放毛巾架，买几个 [吸盘挂钩](http://www.amazon.com/s/ref=nb_sb_noss_2?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/six-apartment-upgrades-to-make-your-rental-feel-more-li-1757925913&asc_source=&field-keywords=suction mount hook&tag=kinjalifehackerlink-20&url=search-alias=aps) (不到10美元)，你可以放在浴室门后，或者放在一个浪费空间的角落。我把我的直接安装在我的浴室门上。
+如果你的浴室没有太多储物空间，你也要发挥创意。试试 [在卫生间增加第二根淋浴杆](https://lifehacker.com/add-a-second-shower-rod-for-extra-bathroom-storage-5944583) 并悬挂便携筐。装上几个壁式架子 [用来存放](http://lifehacker.com/roll-your-towels-instead-of-folding-them-to-save-space-5878369#_ga=1.127255437.1662698338.1411053142) 毛巾。如果你没有空间放毛巾架，买几个 [吸盘挂钩](http://www.amazon.com/s/ref=nb_sb_noss_2?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/six-apartment-upgrades-to-make-your-rental-feel-more-li-1757925913&asc_source=&field-keywords=suction mount hook&tag=kinjalifehackerlink-20&url=search-alias=aps) (不到 10 美元)，你可以放在浴室门后，或者放在一个浪费空间的角落。我把我的直接安装在我的浴室门上。
 
 ### 加一层新漆
 
@@ -81,9 +81,9 @@ Watch
 > 
 > 不要害怕！油漆不是永久的，你可以随时更换。
 
-更简单的是，你可以使用在线工具 [帮助你选择一个互补的调色板](http://lifehacker.com/pick-a-paint-palette-to-tie-together-all-your-rooms-1685593392#_ga=1.197576751.1662698338.1411053142) ，然后使用 [测试那些颜色，比如colorsap](http://lifehacker.com/colorsnap-studio-digitally-paints-your-house-to-help-pi-493838015)。
+更简单的是，你可以使用在线工具 [帮助你选择一个互补的调色板](http://lifehacker.com/pick-a-paint-palette-to-tie-together-all-your-rooms-1685593392#_ga=1.197576751.1662698338.1411053142) ，然后使用 [测试那些颜色，比如 colorsap](http://lifehacker.com/colorsnap-studio-digitally-paints-your-house-to-help-pi-493838015)。
 
-如果你的租约不允许你粉刷，不要担心——还有其他方法可以给你的墙壁增添色彩。例如，你可以购买可移动的、便于租赁的壁纸，并随身携带。每块25英寸宽的面板价格在55-60美元 之间，相当实惠。你有很多在线选择，但你也可以在大牌零售商那里购买，如 [塔吉特](http://www.target.com/c/wallpaper-home-improvement/-/N-5xtsd) 和 [床、浴室和超越](http://www.bedbathandbeyond.com/store/category/home-decor/wall-decor/decals-wallpaper/12197/) 。同样，这些地方也出售装饰性乙烯贴花，如果你想在不使用 [整面墙的情况下添加一点个人设计的话。](http://lifehacker.com/how-to-customize-your-apartment-without-pissing-off-you-5800143#_ga=1.160433981.1662698338.1411053142)T15】
+如果你的租约不允许你粉刷，不要担心——还有其他方法可以给你的墙壁增添色彩。例如，你可以购买可移动的、便于租赁的壁纸，并随身携带。每块 25 英寸宽的面板价格在 55-60 美元 之间，相当实惠。你有很多在线选择，但你也可以在大牌零售商那里购买，如 [塔吉特](http://www.target.com/c/wallpaper-home-improvement/-/N-5xtsd) 和 [床、浴室和超越](http://www.bedbathandbeyond.com/store/category/home-decor/wall-decor/decals-wallpaper/12197/) 。同样，这些地方也出售装饰性乙烯贴花，如果你想在不使用 [整面墙的情况下添加一点个人设计的话。](http://lifehacker.com/how-to-customize-your-apartment-without-pissing-off-you-5800143#_ga=1.160433981.1662698338.1411053142)T15】
 
 ### 隐藏丑陋的东西
 
@@ -92,10 +92,10 @@ Watch
 *   [把你的空调机组变成一个降落跑道](http://lifehacker.com/hide-unsightly-air-conditioners-by-turning-them-into-la-5624440)
 *   [把难看的厨柜变成开放式搁架](http://lifehacker.com/top-10-diy-projects-that-simplify-your-kitchen-1538640661)
 *   用隐藏难看的地毯[易于安装(并四处移动)的地毯贴砖](http://www.apartmenttherapy.com/were-still-floored-by-flor-car-61019)T3】
-*   [添加甲板瓷砖](http://www.apartmenttherapy.com/renters-removable-solutions-sn-57747) 掩盖难看或开裂的天井混凝土。公寓疗法推荐SnapDeck，但是我自己用过 [宜家的可拆卸甲板瓷砖](http://www.ikea.com/us/en/catalog/categories/departments/outdoor/21957/) ，好像稍微便宜一点。
+*   [添加甲板瓷砖](http://www.apartmenttherapy.com/renters-removable-solutions-sn-57747) 掩盖难看或开裂的天井混凝土。公寓疗法推荐 SnapDeck，但是我自己用过 [宜家的可拆卸甲板瓷砖](http://www.ikea.com/us/en/catalog/categories/departments/outdoor/21957/) ，好像稍微便宜一点。
 
 这些都是简单的解决办法，但是如果你正在寻找一个更大范围的升级，简单地和你的房东谈谈你想做的改变也无妨。也许他们会和你对半分，升级你的电器或者帮助你进行翻新工程，尤其是如果你打算待一段时间的话。
 
 然而，如果你只是在寻找一些简单的解决方案，这些是一些最实惠、最物有所值的解决方案，它们会让你的公寓感觉不像是你租住的临时住所，而更像是你自己的家。
 
-*本故事最初发表于2016年2月，2021年3月15日更新，以符合Lifehacker风格指南。*
+*本故事最初发表于 2016 年 2 月，2021 年 3 月 15 日更新，以符合 Lifehacker 风格指南。*

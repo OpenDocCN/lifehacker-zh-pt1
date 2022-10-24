@@ -1,8 +1,8 @@
 # 把你的百吉饼的一半放在另一半上吃
 
-> 原文:[https://life hacker . com/eat-one-half-your-everything-bagel-over-the-other-1846129690](https://lifehacker.com/eat-one-half-of-your-everything-bagel-over-the-other-1846129690)
+> 原文：<https://lifehacker.com/eat-one-half-of-your-everything-bagel-over-the-other-1846129690>
 
-有两种吃百吉饼的人——一种人一次吃半个百吉饼，另一种人把百吉饼当三明治吃，即使奶油奶酪是唯一的馅料。如果你是第二类人(比如我的男朋友)，下面这个小小的- but- smart hack不适合你。但如果你是第一组(我的组)成员:欢迎，我有个建议。
+有两种吃百吉饼的人——一种人一次吃半个百吉饼，另一种人把百吉饼当三明治吃，即使奶油奶酪是唯一的馅料。如果你是第二类人(比如我的男朋友)，下面这个小小的- but- smart hack 不适合你。但如果你是第一组(我的组)成员:欢迎，我有个建议。
 
 Watch
 

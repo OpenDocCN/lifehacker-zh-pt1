@@ -1,10 +1,10 @@
-# 12部浪漫电影能融化最冰冷的心
+# 12 部浪漫电影能融化最冰冷的心
 
-> 原文:[https://life hacker . com/12-浪漫电影-解冻最冰冷的心-1846252749](https://lifehacker.com/12-romantic-movies-to-thaw-even-the-coldest-hearts-1846252749)
+> 原文：<https://lifehacker.com/12-romantic-movies-to-thaw-even-the-coldest-hearts-1846252749>
 
 你不为庆祝一个(母亲)而激动是可以原谅的？)疫情情人节。在最好的时候，这通常是一个令人担忧、紧张的场合 。今年，虽然一切都很糟糕，但我们甚至不能去餐馆吃饭。(或者我们不应该— [不要做一个傻蛋](https://lifehacker.com/only-a-dweeb-would-go-out-for-dinner-this-valentines-da-1846191665) 。)
 
-所以，不管你是单身还是幸福的情侣，计划一个晚上在家。让 [成为两个](https://skillet.lifehacker.com/treat-valentines-day-like-a-dinner-party-for-two-1846232496) 的浪漫晚餐(或者一个 的 [快乐餐)，然后惬意地在你的流媒体设备上看一部浪漫电影。但因为现在是2021年，所以没有什么轻浮的浪漫喜剧可以做。你需要一个爱情故事来唤醒一颗因过去12个月的浩劫而麻木的心，我们有十几个建议——多么恰当。](https://skillet.lifehacker.com/what-do-you-eat-to-celebrate-the-joys-of-dining-alone-1832401099)
+所以，不管你是单身还是幸福的情侣，计划一个晚上在家。让 [成为两个](https://skillet.lifehacker.com/treat-valentines-day-like-a-dinner-party-for-two-1846232496) 的浪漫晚餐(或者一个 的 [快乐餐)，然后惬意地在你的流媒体设备上看一部浪漫电影。但因为现在是 2021 年，所以没有什么轻浮的浪漫喜剧可以做。你需要一个爱情故事来唤醒一颗因过去 12 个月的浩劫而麻木的心，我们有十几个建议——多么恰当。](https://skillet.lifehacker.com/what-do-you-eat-to-celebrate-the-joys-of-dining-alone-1832401099)
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-yA4OE09Bt60&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-yA4OE09Bt60&start=0) 
 
@@ -20,13 +20,13 @@
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-vmSpCLefjnw&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-vmSpCLefjnw&start=0) 
 
-当这部现在备受喜爱的诺拉·依弗朗/罗伯·莱纳合作电影在1989年上映时，各地的评论家都争相将其与伍迪·艾伦的电影 相提并论(通常带着一些嘲笑)——但30年后，莎莉(梅格·瑞恩饰)和哈利(比利·克里斯托饰)之间跨越十年的浪漫爱情已经像美酒一样陈年，而艾伦著名作品中的某些作品已经，呃，不是 。我认为，这不仅归功于埃夫龙完美的剧本或获奖的表演(包括已故的凯丽·费雪和布鲁诺·柯比令人难忘的配角)，也归功于这部电影最终充满希望的爱情观。找到一个适合你的人很难，但是，正如Crystal的Allen-eqsue grump Harry最终发现的那样，有时你确实想加入一个会让你成为会员的俱乐部。*—乔尔·坎宁安*
+当这部现在备受喜爱的诺拉·依弗朗/罗伯·莱纳合作电影在 1989 年上映时，各地的评论家都争相将其与伍迪·艾伦的电影 相提并论(通常带着一些嘲笑)——但 30 年后，莎莉(梅格·瑞恩饰)和哈利(比利·克里斯托饰)之间跨越十年的浪漫爱情已经像美酒一样陈年，而艾伦著名作品中的某些作品已经，呃，不是 。我认为，这不仅归功于埃夫龙完美的剧本或获奖的表演(包括已故的凯丽·费雪和布鲁诺·柯比令人难忘的配角)，也归功于这部电影最终充满希望的爱情观。找到一个适合你的人很难，但是，正如 Crystal 的 Allen-eqsue grump Harry 最终发现的那样，有时你确实想加入一个会让你成为会员的俱乐部。*—乔尔·坎宁安*
 
 **在:**直播电视，数码租赁
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-OPCug9jyG9k&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-OPCug9jyG9k&start=0) 
 
-两个警察(金城武和梁朝伟)，都挂了不同的女人，月亮周围的香港。大约30%的过期菠萝罐头被过量食用。除了这一个抱怨，我深深地爱这部迷人的，古怪的电影。*—主编爱丽丝·布拉德利*
+两个警察(金城武和梁朝伟)，都挂了不同的女人，月亮周围的香港。大约 30%的过期菠萝罐头被过量食用。除了这一个抱怨，我深深地爱这部迷人的，古怪的电影。*—主编爱丽丝·布拉德利*
 
 **在:**标准频道找到它
 
@@ -50,13 +50,13 @@
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-AFma24S-Uvw&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-AFma24S-Uvw&start=0) 
 
-李·霍洛韦(玛吉·吉伦哈尔饰)得到了一份工作，给一位要求苛刻的律师爱德华·格雷(詹姆斯·斯派德饰)当秘书。接下来发生的是50度…斯派德。执行主编乔尔·坎宁安称这是一个“大胆的选择”，但我认为这是一个爱情故事。有什么比两个志趣相投的人找到彼此更浪漫的呢？*—爱丽丝·布拉德利*
+李·霍洛韦(玛吉·吉伦哈尔饰)得到了一份工作，给一位要求苛刻的律师爱德华·格雷(詹姆斯·斯派德饰)当秘书。接下来发生的是 50 度…斯派德。执行主编乔尔·坎宁安称这是一个“大胆的选择”，但我认为这是一个爱情故事。有什么比两个志趣相投的人找到彼此更浪漫的呢？*—爱丽丝·布拉德利*
 
 **找到它在:**孔雀
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-B-yhF7IScUE&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-B-yhF7IScUE&start=0) 
 
-我们最愤世嫉俗的本性需要一个愤世嫉俗的主角来感受足够的现实，闯入我们的内心，我知道*的一半*的Ellie Chu会从她的开场警告中发出警告，这不是一个永远幸福的爱情故事。事实证明，埃莉会在她最意想不到的地方找到爱情，但她会在途中找到其他更重要的东西。这部由伍思薇编剧和导演的移民同性恋青少年爱情故事迷人、独特、有趣，也许最重要的是，它并没有将幸福快乐作为一个年轻女孩的最终目标，她还有很多其他的事情要做。*——乔丹·卡尔霍恩*
+我们最愤世嫉俗的本性需要一个愤世嫉俗的主角来感受足够的现实，闯入我们的内心，我知道*的一半*的 Ellie Chu 会从她的开场警告中发出警告，这不是一个永远幸福的爱情故事。事实证明，埃莉会在她最意想不到的地方找到爱情，但她会在途中找到其他更重要的东西。这部由伍思薇编剧和导演的移民同性恋青少年爱情故事迷人、独特、有趣，也许最重要的是，它并没有将幸福快乐作为一个年轻女孩的最终目标，她还有很多其他的事情要做。*——乔丹·卡尔霍恩*
 
 **找到它:**网飞
 

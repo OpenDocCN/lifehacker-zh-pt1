@@ -1,6 +1,6 @@
 # 使用这个网站浏览和下载数以千计的历史电影海报
 
-> 原文:[https://life hacker . com/use-this-site-to-browse-and-download-of-histo-1847440419](https://lifehacker.com/use-this-site-to-browse-and-download-thousands-of-histo-1847440419)
+> 原文：<https://lifehacker.com/use-this-site-to-browse-and-download-thousands-of-histo-1847440419>
 
 电影海报:他们不像以前那样制作了。当然，较小的独立电影可以带着一些有趣的东西(通常有黄色背景)，但主要大片 [的海报往往相当公式化](https://www.thewrap.com/why-movie-posters-all-look-same-75846/) 。然而，电影的最初几十年是一个不同的故事。
 
@@ -10,9 +10,9 @@ Watch
 
 ## 你会在这个系列中发现什么
 
-德克萨斯大学奥斯汀分校哈利·兰森中心的 [电影海报收藏馆](https://hrc.contentdm.oclc.org/digital/collection/p15878coll84?) 收藏了大约一万张可以追溯到无声时代的数字化电影海报。我们第一次知道在线档案馆 [是从凯文·凯利在Recomendo时事通讯](https://www.recomendo.com/posts/movie-poster-archive) 上的一篇文章中。
+德克萨斯大学奥斯汀分校哈利·兰森中心的 [电影海报收藏馆](https://hrc.contentdm.oclc.org/digital/collection/p15878coll84?) 收藏了大约一万张可以追溯到无声时代的数字化电影海报。我们第一次知道在线档案馆 [是从凯文·凯利在 Recomendo 时事通讯](https://www.recomendo.com/posts/movie-poster-archive) 上的一篇文章中。
 
-收藏的最大部分(以及一些最有趣的海报供浏览)来自州际巡回剧院——一个曾经包括德克萨斯几乎所有电影院的连锁剧院。海报、电影剧照、游说卡和新闻书籍涵盖了20世纪40年代到70年代，收集了20世纪50年代和60年代的电影，包括音乐剧、史诗、西部片、剑与凉鞋、恐怖片和反主流文化电影。
+收藏的最大部分(以及一些最有趣的海报供浏览)来自州际巡回剧院——一个曾经包括德克萨斯几乎所有电影院的连锁剧院。海报、电影剧照、游说卡和新闻书籍涵盖了 20 世纪 40 年代到 70 年代，收集了 20 世纪 50 年代和 60 年代的电影，包括音乐剧、史诗、西部片、剑与凉鞋、恐怖片和反主流文化电影。
 
 ## **如何搜索、浏览和下载旧电影海报**
 

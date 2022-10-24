@@ -1,6 +1,6 @@
 # 为什么你不应该为错过一天的锻炼而感到内疚
 
-> 原文:[https://life hacker . com/why-you-should-not-skin-a-day-of-ex-1847410197](https://lifehacker.com/why-you-shouldnt-feel-guilty-about-skipping-a-day-of-ex-1847410197)
+> 原文：<https://lifehacker.com/why-you-shouldnt-feel-guilty-about-skipping-a-day-of-ex-1847410197>
 
 有时候你需要休息一天。有时候你不需要休息，但无论如何你还是要休息一天。如果你对锻炼对你意味着什么有任何焦虑，你可能会陷入担忧或内疚:A 我是个懒鬼？我失去了所有的收获吗？
 

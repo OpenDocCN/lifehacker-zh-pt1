@@ -1,10 +1,10 @@
-# 消除家中和身体异味的10种方法
+# 消除家中和身体异味的 10 种方法
 
-> 原文:[https://life hacker . com/top-10-ways-to-放逐来自你家和你的难闻气味1642168353](https://lifehacker.com/top-10-ways-to-banish-bad-smells-from-your-home-and-you-1642168353)
+> 原文：<https://lifehacker.com/top-10-ways-to-banish-bad-smells-from-your-home-and-you-1642168353>
 
-宠物的气味，臭鞋子，发霉的湿衣服，还有你日常家居的气味:喷一点Febreze可能不足以征服它们。
+宠物的气味，臭鞋子，发霉的湿衣服，还有你日常家居的气味:喷一点 Febreze 可能不足以征服它们。
 
-这是贯穿Lifehacker漫长历史中一直困扰我们的问题。多年来，我们已经尝试和测试了许多DIY方法，不用借助同样难闻的化学物质就能去除家中的异味。这里有10种方法，你应该经常尝试，让你的环境闻起来更清新。
+这是贯穿 Lifehacker 漫长历史中一直困扰我们的问题。多年来，我们已经尝试和测试了许多 DIY 方法，不用借助同样难闻的化学物质就能去除家中的异味。这里有 10 种方法，你应该经常尝试，让你的环境闻起来更清新。
 
 醋是一种真正神奇的物质，非常适合用于 [除臭室](https://lifehacker.com/deodorize-a-room-with-a-bowl-of-vinegar-5814015) 和处理宠物气味。如果你把醋喷在地毯上，它有助于 [中和新旧宠物气味](http://lifehacker.com/get-rid-of-old-and-new-pet-odors-with-vinegar-1516806680) (尽管不要指望它能消除猫尿之类的强烈气味)。
 
@@ -38,4 +38,4 @@
 
 多年来，我们推荐的许多除味小贴士都包含相同的成分:醋、小苏打、报纸和干燥纸。所以你应该准备好这些东西来克服大多数的气味问题，既便宜又自然。(比如醋 [去除毛巾](https://lifehacker.com/use-vinegar-to-remove-mildew-smell-from-towels-321115)[湿衣物](http://lifehacker.com/destink-wet-laundry-left-in-the-washer-with-white-vineg-506269737) ，以及 [许多残留的食物气味](http://lifehacker.com/get-rid-of-lingering-food-smells-5309326) 。)与空气清新剂不同，这些产品不会掩盖气味，而是吸收水分，中和这些气味背后的原因，所以你和你的家都可以闻起来更清新。
 
-*本文最初发布于2014年，于2021年2月16日更新，提供了附加信息和更新的链接，并使内容与当前的Lifehacker风格保持一致。*
+*本文最初发布于 2014 年，于 2021 年 2 月 16 日更新，提供了附加信息和更新的链接，并使内容与当前的 Lifehacker 风格保持一致。*

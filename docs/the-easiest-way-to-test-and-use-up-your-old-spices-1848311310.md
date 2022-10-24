@@ -1,6 +1,6 @@
 # 测试(和用完)你的旧香料的最简单的方法
 
-> 原文:[https://life hacker . com/the-easy-way to-test-and-use-up your-old-spices-1848311310](https://lifehacker.com/the-easiest-way-to-test-and-use-up-your-old-spices-1848311310)
+> 原文：<https://lifehacker.com/the-easiest-way-to-test-and-use-up-your-old-spices-1848311310>
 
 一月通常是清理、巩固和清洁的月份，但是这个一月似乎特别适合它。奥米克隆几乎感染了我认识的每一个人，而且天气很糟糕——没有什么理由离开房子；还不如打扫干净。
 

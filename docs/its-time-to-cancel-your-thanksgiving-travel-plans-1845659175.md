@@ -1,27 +1,27 @@
 # 是时候取消你的感恩节旅行计划了
 
-> 原文:[https://life hacker . com/its-time-to-cancel-your ' s感恩节旅行计划-1845659175](https://lifehacker.com/its-time-to-cancel-your-thanksgiving-travel-plans-1845659175)
+> 原文：<https://lifehacker.com/its-time-to-cancel-your-thanksgiving-travel-plans-1845659175>
 
 这个感恩节是 [不同于](https://lifehacker.com/this-thanksgiving-ignore-tradition-1845626251) 。是的，这是艰难的一年。是的，我们都会错过一个和一个。但是如果你爱你的家人，跳过这个假期是值得的，以确保他们在下一个假期还活着并且健康。
 
 Watch
 
-当我们为持续五天的选举之夜感到紧张时，冠状病毒正在全国肆虐。10月30日，我们迎来了首个10万箱日； [昨日新增病例](https://covid.cdc.gov/covid-data-tracker/#trends_dailytrendscases)143408例。这种病毒每天会夺去1000多人的生命。
+当我们为持续五天的选举之夜感到紧张时，冠状病毒正在全国肆虐。10 月 30 日，我们迎来了首个 10 万箱日； [昨日新增病例](https://covid.cdc.gov/covid-data-tracker/#trends_dailytrendscases)143408 例。这种病毒每天会夺去 1000 多人的生命。
 
-[住院人数也上升了](https://covidtracking.com/data/charts/us-currently-hospitalized) 。正百分比也是如此，它是衡量传播和测试可用性的一个关键指标。死亡人数落后于病例数和住院人数，它们正开始按计划增长。 [狗屎变坏](https://www.theatlantic.com/science/archive/2020/11/pandemic-coronavirus-hospitalizations-new-record/617061/?utm_content=edit-promo&utm_campaign=the-atlantic&utm_source=twitter&utm_medium=social&utm_term=2020-11-11T00%3A43%3A26) ，假期旅行只会让事情变得更糟。美国中西部和北部现在是相对于人口而言病例最多的地方。一些医院再次面临重症监护室容量不足的情况，但是容量不仅仅是床位。北达科他州面临着医院工作人员的严重短缺，他们允许护士继续工作，即使他们的COVID测试呈阳性。
+[住院人数也上升了](https://covidtracking.com/data/charts/us-currently-hospitalized) 。正百分比也是如此，它是衡量传播和测试可用性的一个关键指标。死亡人数落后于病例数和住院人数，它们正开始按计划增长。 [狗屎变坏](https://www.theatlantic.com/science/archive/2020/11/pandemic-coronavirus-hospitalizations-new-record/617061/?utm_content=edit-promo&utm_campaign=the-atlantic&utm_source=twitter&utm_medium=social&utm_term=2020-11-11T00%3A43%3A26) ，假期旅行只会让事情变得更糟。美国中西部和北部现在是相对于人口而言病例最多的地方。一些医院再次面临重症监护室容量不足的情况，但是容量不仅仅是床位。北达科他州面临着医院工作人员的严重短缺，他们允许护士继续工作，即使他们的 COVID 测试呈阳性。
 
 作为一个社区，要让事情变得更好还需要做很多工作，但是现在，我们个人能做的一件事就是不要让事情变得更糟。
 
 ### 你的安全措施糟透了
 
-不要旅行。不要聚会。我知道，你认为你很特别，是其他所有人*在推动COVID的传播。不，实际上，很可能是你。*
+不要旅行。不要聚会。我知道，你认为你很特别，是其他所有人*在推动 COVID 的传播。不，实际上，很可能是你。*
 
-*每个人都在接受测试？嗯，不要忘记，你可以测试阴性，然后得到病毒，即使你被感染后，你仍然会测试阴性几天。记住常规的COVID测试并不能保护T2居民T4，因为测试本身并不是一种预防策略。*
+*每个人都在接受测试？嗯，不要忘记，你可以测试阴性，然后得到病毒，即使你被感染后，你仍然会测试阴性几天。记住常规的 COVID 测试并不能保护 T2 居民 T4，因为测试本身并不是一种预防策略。*
 
 *你的感恩节将会是“社交疏远”？祝你好运。如果你住在一个温暖的地方，*和*你在外面举行整个聚会，*和*人们真的真的遵守距离和掩蔽的规则，那么这是一个伟大的计划。但是很少有家庭能够做到这一点。人们会一起在厨房做饭吗？反复去同一个卫生间？他们喝了几杯就走得太近了？*
 
-*在这个国家的大部分地区，我们将呆在室内。如果你整天和一群人分享同一种空气，口罩救不了你。反正你是摘下面具吃饭的，不是吗？想想看:餐馆和酒吧是COVID传播的最大驱动力。感恩节晚餐与餐馆用餐有很多共同之处，除了它更糟糕，因为你在那里呆的时间更长，而且你的用餐伙伴经常从全国各地的热点地区坐飞机或开车过来。*
+*在这个国家的大部分地区，我们将呆在室内。如果你整天和一群人分享同一种空气，口罩救不了你。反正你是摘下面具吃饭的，不是吗？想想看:餐馆和酒吧是 COVID 传播的最大驱动力。感恩节晚餐与餐馆用餐有很多共同之处，除了它更糟糕，因为你在那里呆的时间更长，而且你的用餐伙伴经常从全国各地的热点地区坐飞机或开车过来。*
 
-*加拿大在10月份过感恩节，这一天我们庆祝哥伦布日或土著民族日。上个月的感恩节庆祝活动很可能导致几周后那个国家的病例上升 。*
+*加拿大在 10 月份过感恩节，这一天我们庆祝哥伦布日或土著民族日。上个月的感恩节庆祝活动很可能导致几周后那个国家的病例上升 。*
 
-*我们能从经验中学习一次吗？疫情中部的假日聚会是一个非常糟糕的主意。最好在Zoom上给你妈妈打电话， [烤你一直想要的那只鸭子](https://lifehacker.com/this-thanksgiving-ignore-tradition-1845626251) ，尽你的一份力量让2021年不那么致命。*
+*我们能从经验中学习一次吗？疫情中部的假日聚会是一个非常糟糕的主意。最好在 Zoom 上给你妈妈打电话， [烤你一直想要的那只鸭子](https://lifehacker.com/this-thanksgiving-ignore-tradition-1845626251) ，尽你的一份力量让 2021 年不那么致命。*

@@ -1,6 +1,6 @@
 # 如何知道什么时候该买新灭火器
 
-> 原文:[https://life hacker . com/how-to-know-when-it-time-to-buy-a-new-fire-queen-1846316192](https://lifehacker.com/how-to-know-when-its-time-to-buy-a-new-fire-extinguishe-1846316192)
+> 原文：<https://lifehacker.com/how-to-know-when-its-time-to-buy-a-new-fire-extinguishe-1846316192>
 
 灭火器是那些直到你需要的时候才会想到的东西之一。当你需要的时候，很有可能是真正的紧急情况。你不想处于这样一种情况:你试图控制火势，伸手去拿灭火器，试着使用它，然后发现它不再工作。
 
@@ -10,7 +10,7 @@ Watch
 
 ### 灭火器能用多久？
 
-灭火器确实会过期——即使我们不认为它们是易腐物品。棘手的部分是如何判断你的灭火器实际上有多旧。一般来说，它们的 [预计持续5到15年](https://www.hunker.com/13719398/how-long-do-fire-extinguishers-last) ，但很难知道它目前处于生命周期的哪个阶段。
+灭火器确实会过期——即使我们不认为它们是易腐物品。棘手的部分是如何判断你的灭火器实际上有多旧。一般来说，它们的 [预计持续 5 到 15 年](https://www.hunker.com/13719398/how-long-do-fire-extinguishers-last) ，但很难知道它目前处于生命周期的哪个阶段。
 
 即使你碰巧记得是什么时候买的，你还是(大概) [不知道它在商店的货架上坐了多久](https://www.hunker.com/13719398/how-long-do-fire-extinguishers-last) 才带回家。这里有一些其他的方法来帮助你决定你是否应该投资一个新的，或者得到一个你现在已经维修过的:
 
@@ -22,7 +22,7 @@ Watch
 
 #### 要检查的其他事项
 
-根据 [【真正简单的T2】](https://www.realsimple.com/work-life/technology/safety-family/when-to-replace-a-fire-extinguisher) 和 [Hunker](https://www.hunker.com/13719398/how-long-do-fire-extinguishers-last) 的提示，如果你目前的灭火器存在以下任何一种情况，那么是时候把它带到专业机构进行评估和/或维修了:
+根据 [【真正简单的 T2】](https://www.realsimple.com/work-life/technology/safety-family/when-to-replace-a-fire-extinguisher) 和 [Hunker](https://www.hunker.com/13719398/how-long-do-fire-extinguishers-last) 的提示，如果你目前的灭火器存在以下任何一种情况，那么是时候把它带到专业机构进行评估和/或维修了:
 
 *   手柄松动或损坏
 *   喷嘴开裂、撕裂、破裂或被碎片堵塞

@@ -1,6 +1,6 @@
 # 如何辨别你是压力大还是抑郁
 
-> 原文:[https://life hacker . com/how-to-tell-if-you-stressed-or-depressed-1847270805](https://lifehacker.com/how-to-tell-whether-youre-stressed-or-depressed-1847270805)
+> 原文：<https://lifehacker.com/how-to-tell-whether-youre-stressed-or-depressed-1847270805>
 
 压力和抑郁看起来和感觉起来非常相似。两者的一些共同症状包括睡眠、饮食、注意力和情绪问题，以及执行日常任务的困难。在生理上，压力和抑郁之间有很多重叠，因为两者都会影响免疫系统，导致某些炎症标记物的增加。
 

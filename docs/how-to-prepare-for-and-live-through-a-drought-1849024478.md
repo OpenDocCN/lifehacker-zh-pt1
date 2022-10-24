@@ -1,6 +1,6 @@
 # 如何为干旱做准备(并度过干旱)
 
-> 原文:[https://life hacker . com/how-to-prepare-and-like-through a-drugs-1849024478](https://lifehacker.com/how-to-prepare-for-and-live-through-a-drought-1849024478)
+> 原文：<https://lifehacker.com/how-to-prepare-for-and-live-through-a-drought-1849024478>
 
 加州目前正处于一场特大干旱中，这场干旱发生在不同的地方，程度不同。节约用水是你应该现在就练习，在干旱来临之前练习 *，而不是一到就练习。 下面是干旱前和干旱期间应该做的事情。* 
 

@@ -1,12 +1,12 @@
 # 当你的执行能力很差时，如何管理生活
 
-> 原文:[https://life hacker . com/how-to-manage-life-when you-happy-executive-function-1849318841](https://lifehacker.com/how-to-manage-life-when-you-have-poor-executive-functio-1849318841)
+> 原文：<https://lifehacker.com/how-to-manage-life-when-you-have-poor-executive-functio-1849318841>
 
 即使你从未听说过“执行功能”这个术语，你可能会痛苦地意识到它对日常生活的重要性。执行功能通常被描述为大脑 的 [管理系统:这是负责规划、优先排序和执行任务的部分。](https://www.understood.org/en/articles/what-is-executive-function)
 
 Watch
 
-“执行功能是大脑的CEO”，YouTube频道主持人 [如何多动症](https://www.youtube.com/c/HowtoADHD) 杰西卡·麦凯布 说。“执行功能是一套认知过程，帮助我们自我调节，以便我们能够有效地计划、优先考虑和持续努力实现我们的长期目标。”
+“执行功能是大脑的 CEO”，YouTube 频道主持人 [如何多动症](https://www.youtube.com/c/HowtoADHD) 杰西卡·麦凯布 说。“执行功能是一套认知过程，帮助我们自我调节，以便我们能够有效地计划、优先考虑和持续努力实现我们的长期目标。”
 
 ## 执行功能控制什么？
 
@@ -22,7 +22,7 @@ Watch
 
 处理执行功能问题的最大挑战是所有的解决方案都需要执行功能。“尽管向患有多动症的人建议列清单很可爱，但他们可能已经列了清单。他们已经失去了他们。或者他们不知道如何优先考虑，”麦凯布说，她在年轻时被诊断患有多动症。
 
-正是因为这个原因，处理执行功能问题才如此具有挑战性——你做的几乎每件事都需要它，它影响着你生活的方方面面。对于像多动症这样的情况，改善执行功能最有效的方法是寻求治疗——主要策略通常是药物治疗。 [ADHD是一种神经发育状况](https://lifehacker.com/are-you-living-with-undiagnosed-adult-adhd-1847464099) ，被认为是由于神经递质多巴胺的缺乏。然而，正如麦凯布指出的那样，尽管药物治疗有助于改善潜在的病因，但“药片不会传授技能。”
+正是因为这个原因，处理执行功能问题才如此具有挑战性——你做的几乎每件事都需要它，它影响着你生活的方方面面。对于像多动症这样的情况，改善执行功能最有效的方法是寻求治疗——主要策略通常是药物治疗。 [ADHD 是一种神经发育状况](https://lifehacker.com/are-you-living-with-undiagnosed-adult-adhd-1847464099) ，被认为是由于神经递质多巴胺的缺乏。然而，正如麦凯布指出的那样，尽管药物治疗有助于改善潜在的病因，但“药片不会传授技能。”
 
 药物治疗可以帮助解决潜在的神经生物学原因，但它不会教你达到目标所需的生活技能 。出于这个原因，最有效的 [疗程](https://www.mayoclinic.org/diseases-conditions/adult-adhd/diagnosis-treatment/drc-20350883) 一般是药物治疗结合疗法，这可以帮助培养必要的技能。
 

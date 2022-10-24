@@ -1,6 +1,6 @@
 # 让这些常见的超级碗零食远离你的狗
 
-> 原文:[https://life hacker . com/keep-these-common-super-bowl-零食-远离你的狗-1848507551](https://lifehacker.com/keep-these-common-super-bowl-snacks-away-from-your-dog-1848507551)
+> 原文：<https://lifehacker.com/keep-these-common-super-bowl-snacks-away-from-your-dog-1848507551>
 
 大量的人类零食对狗来说是坏消息，你可能记得我们的建议，不要在感恩节 给你的狗吃火鸡皮 [，让它们远离各种糖果，不仅仅是巧克力，万圣节。因此，当你得知你的超级碗派对也是你需要远离的一堆东西时，你不会感到惊讶。](https://lifehacker.com/the-thanksgiving-foods-your-dog-can-and-cant-eat-1845755556)
 
@@ -16,7 +16,7 @@ Watch
 
 ## 任何油腻的东西
 
-高脂肪食物会引发胰腺炎，这是一种潜在的威胁生命的疾病。所以，注意不要让你的小狗吃任何脂肪多、油腻或危险的奶酪。吃几口油腻的食物不一定是问题，但是如果你发现他们把一整碗queso都吃光了，就要小心呕吐、腹泻、发烧和嗜睡等症状了。
+高脂肪食物会引发胰腺炎，这是一种潜在的威胁生命的疾病。所以，注意不要让你的小狗吃任何脂肪多、油腻或危险的奶酪。吃几口油腻的食物不一定是问题，但是如果你发现他们把一整碗 queso 都吃光了，就要小心呕吐、腹泻、发烧和嗜睡等症状了。
 
 ## 澳大利亚坚果
 

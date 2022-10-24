@@ -1,6 +1,6 @@
 # 如何判断你的孩子是否已经到了去鬼屋的年龄
 
-> 原文:[https://life hacker . com/how-to-tell-if-your ' s kid-to-a-pounded-Hou-1847806388](https://lifehacker.com/how-to-tell-if-your-kid-is-old-enough-for-a-haunted-hou-1847806388)
+> 原文：<https://lifehacker.com/how-to-tell-if-your-kid-is-old-enough-for-a-haunted-hou-1847806388>
 
 一个孩子第一次穿越鬼屋的旅程是对童年勇气的一次惊心动魄的考验，在这里，恐惧被直面和征服...或者噩梦般的灾难，取决于他们是否准备好了。以下是如何在这个万圣节穿越那个微型雷区的方法。
 

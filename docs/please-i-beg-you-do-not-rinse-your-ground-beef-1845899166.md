@@ -1,6 +1,6 @@
 # 拜托，我求你，不要冲洗你的碎牛肉
 
-> 原文:[https://life hacker . com/please-I-beg-you-do-rinse-you-ground-beef-1845899166](https://lifehacker.com/please-i-beg-you-do-not-rinse-your-ground-beef-1845899166)
+> 原文：<https://lifehacker.com/please-i-beg-you-do-not-rinse-your-ground-beef-1845899166>
 
 到现在为止，你可能已经看过混乱的抖音视频，视频中一名年轻女子冲洗一些煮熟的碎牛肉以去除“所有的油脂”对于喜欢味道的人来说，这是令人不安的内容，但我怀疑这对水管工来说更令人不安。
 

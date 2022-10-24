@@ -1,6 +1,6 @@
 # 为什么你不应该空腹锻炼
 
-> 原文:[https://life hacker . com/why-you-should-not-work-on-a-empty-body-1792998267](https://lifehacker.com/why-you-shouldn-t-work-out-on-an-empty-stomach-1792998267)
+> 原文：<https://lifehacker.com/why-you-shouldn-t-work-out-on-an-empty-stomach-1792998267>
 
 如果你曾经试图在饱餐一顿后去健身房，你可能知道那感觉并不好，你可能希望你只是跳过了锻炼前的零食。但这并不意味着你应该空腹锻炼。这就是为什么你最好在去跑步或去健身房锻炼之前补充能量。
 
@@ -8,7 +8,7 @@ Watch
 
 ### **科学**
 
-假设现在是你日常锻炼的时间。你先吃点东西吗？或者你会把它推迟到你完成了你通常的养生之后吗？支持在“禁食”或饥饿状态下锻炼的人建议你可以通过这样做来加速减肥。发表在《英国营养学杂志》上的一项研究 [发现，在禁食时锻炼的参与者比之前吃东西的参与者多燃烧了近20%的脂肪。另一项研究](https://www.cambridge.org/core/journals/british-journal-of-nutrition/article/div-classtitlebreakfast-and-exercise-contingently-affect-postprandial-metabolism-and-energy-balance-in-physically-active-malesdiv/9DAC8DE59DEEF7926E81FF2BB2C5B7EB) [发表在*国际运动营养和运动代谢杂志*](https://www.ncbi.nlm.nih.gov/pubmed/22248495) 上，有类似的发现，表明与进食训练相比，禁食状态下的有氧训练除了降低体重外，还降低了更多的体脂百分比。
+假设现在是你日常锻炼的时间。你先吃点东西吗？或者你会把它推迟到你完成了你通常的养生之后吗？支持在“禁食”或饥饿状态下锻炼的人建议你可以通过这样做来加速减肥。发表在《英国营养学杂志》上的一项研究 [发现，在禁食时锻炼的参与者比之前吃东西的参与者多燃烧了近 20%的脂肪。另一项研究](https://www.cambridge.org/core/journals/british-journal-of-nutrition/article/div-classtitlebreakfast-and-exercise-contingently-affect-postprandial-metabolism-and-energy-balance-in-physically-active-malesdiv/9DAC8DE59DEEF7926E81FF2BB2C5B7EB) [发表在*国际运动营养和运动代谢杂志*](https://www.ncbi.nlm.nih.gov/pubmed/22248495) 上，有类似的发现，表明与进食训练相比，禁食状态下的有氧训练除了降低体重外，还降低了更多的体脂百分比。
 
 为什么会燃烧多余的脂肪？正如运动营养学专家凯利·普里切特博士所说， [你的身体正在切换燃料来源](http://dailyburn.com/life/health/intermittent-fasting-exercise-weight-loss) 。为了进行像长跑或举重这样的激烈体育运动，你的身体必须燃烧 [糖原](https://www.sciencedirect.com/topics/neuroscience/glycogen) ，或者你储存的碳水化合物。如果你的身体耗尽了糖原储备——就像在饥饿、禁食状态下一样——它必须用其他东西来维持你的运转。在这种情况下，是你储存的多余脂肪。
 
@@ -28,4 +28,4 @@ Watch
 
 *简而言之，是的，空腹锻炼并过得很好是可行的。有些人更喜欢它，因为他们感觉更轻，更警觉，注意力更集中。但是除了个人喜好，好处不多。你最好在锻炼前一小时 [吃一顿高碳水化合物的饭](http://lifehacker.com/train-like-an-athlete-what-to-eat-before-during-and-5804496) ， [之后吃一顿高蛋白、低碳水化合物的饭](http://lifehacker.com/eat-these-foods-before-and-after-your-workout-to-stay-i-5904587) 。另外，不吃东西会让你心情不好。你最好在完成训练后感到愉快和精神焕发，而不是痛苦和准备好去杀戮。*
 
-**这个故事最初发表于2017年，2020年10月21日更新了新信息。**
+**这个故事最初发表于 2017 年，2020 年 10 月 21 日更新了新信息。**

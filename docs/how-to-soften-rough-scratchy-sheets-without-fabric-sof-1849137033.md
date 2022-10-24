@@ -1,8 +1,8 @@
 # 如何在不使用衣物柔顺剂的情况下软化粗糙、有划痕的床单
 
-> 原文:[https://life hacker . com/how-to-soften-rough-scratchy-sheets-without-fabric-sof-1849137033](https://lifehacker.com/how-to-soften-rough-scratchy-sheets-without-fabric-sof-1849137033)
+> 原文：<https://lifehacker.com/how-to-soften-rough-scratchy-sheets-without-fabric-sof-1849137033>
 
-没有什么比换上一套干净的新床单后爬上床的感觉更好了。但是，如果你已经习惯了破旧的棉质床单——或由针织、竹制或超细纤维制成的床单——一套新的床单(尤其是如果它们是percale、亚麻或其他高端类型的棉的话)在一次(或多次)洗涤后可能不会像你希望的那样柔软。
+没有什么比换上一套干净的新床单后爬上床的感觉更好了。但是，如果你已经习惯了破旧的棉质床单——或由针织、竹制或超细纤维制成的床单——一套新的床单(尤其是如果它们是 percale、亚麻或其他高端类型的棉的话)在一次(或多次)洗涤后可能不会像你希望的那样柔软。
 
 Watch
 
@@ -17,7 +17,7 @@ Watch
 *   存放了很长时间的床单会变干，感觉粗糙
 *   质量较低的床单会有刺痒感——即使洗了很多次也是如此
 *   随着时间的推移，聚酯或尼龙薄片会起球(形成小球)
-*   你习惯了更柔软的合成材料床单，那么相比之下 100%棉床单可能会感觉粗糙(尤其是percale)
+*   你习惯了更柔软的合成材料床单，那么相比之下 100%棉床单可能会感觉粗糙(尤其是 percale)
 *   你使用的洗涤剂和/或衣物柔顺剂超过了制造商说明书的推荐量
 *   你把洗衣机放得太满了，洗涤剂不能完全漂洗干净
 
@@ -45,11 +45,11 @@ Watch
 
 #### 在洗涤过程中加入醋
 
-除了你的普通洗涤剂， [在洗涤周期中加入1/2杯白醋](https://www.hunker.com/12001138/how-to-make-scratchy-sheets-soft) 。醋既能软化你的床单，又能清新你的床单。
+除了你的普通洗涤剂， [在洗涤周期中加入 1/2 杯白醋](https://www.hunker.com/12001138/how-to-make-scratchy-sheets-soft) 。醋既能软化你的床单，又能清新你的床单。
 
 #### 用泻盐浸泡床单
 
-偶尔——特别是当你的床单感觉有点痒的时候——跳过洗衣机，用 [给它们洗澡](https://www.thespruce.com/how-to-soften-your-sheets-5085837#:~:text=Baking%20Soda%2FVinegar%20Trick&text=All%20you%20have%20to%20do,and%20wash%20for%20one%20cycle.) 。在浴缸里装满冷水，加入大约1/3杯泻盐，搅拌直到盐完全溶解。(使用木勺，避免必须将手放入冷水中几分钟)。
+偶尔——特别是当你的床单感觉有点痒的时候——跳过洗衣机，用 [给它们洗澡](https://www.thespruce.com/how-to-soften-your-sheets-5085837#:~:text=Baking%20Soda%2FVinegar%20Trick&text=All%20you%20have%20to%20do,and%20wash%20for%20one%20cycle.) 。在浴缸里装满冷水，加入大约 1/3 杯泻盐，搅拌直到盐完全溶解。(使用木勺，避免必须将手放入冷水中几分钟)。
 
 浸泡床单一夜，然后第二天彻底冲洗干净。如果可能的话，把床单晾干。否则，使用下面提到的一种干燥技术。
 

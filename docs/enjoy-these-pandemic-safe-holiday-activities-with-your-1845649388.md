@@ -1,6 +1,6 @@
 # 和家人一起享受这些疫情安全的假日活动
 
-> 原文:[https://life hacker . com/enjoy-these-the-疫情-safe-holiday-activities-with-your-1845649388](https://lifehacker.com/enjoy-these-pandemic-safe-holiday-activities-with-your-1845649388)
+> 原文：<https://lifehacker.com/enjoy-these-pandemic-safe-holiday-activities-with-your-1845649388>
 
 随着假日季节的临近，疫情 迅速恶化的 [可能会让你对恢复假日快乐和乐趣的可能性感到有点不乐观。虽然我们都继续避免危险行为很重要，但有很多户外活动可以帮助你迎接假期，而不会让你自己或你的家人处于危险之中。](https://www.nytimes.com/live/2020/11/11/world/covid-19-coronavirus-live-updates)
 
@@ -8,7 +8,7 @@ Watch
 
 ### 节日灯光秀
 
-这是一项美丽的户外传统，包括装饰着闪亮灯光的大型建筑，这项活动非常适合家庭在遵循新冠肺炎预防措施的同时享受。其中许多，像哈特福德 [假日灯光幻想曲](https://www.holidaylightfantasia.org/) 或好时公园的 [甜蜜的灯光](https://www.hersheypark.com/info/hours/sweet-lights.php) ，当你开车穿过精心照明的假日场景时，可以在自己的车里舒适地欣赏。有几个网站可以帮助你找到你所在地区的灯光展示。[《mommynearest.com》](https://www.mommynearest.com/article/10-best-holiday-light-displays-in-the-united-states)列出全国10大最佳展示；Countryliving.com[将其类似的记录](https://www.countryliving.com/life/travel/g5049/best-christmas-light-displays/) 扩展到38个值得去的景点。考虑调查当地动物园的计划，从华盛顿州DC的 [动物园灯](https://www.countryliving.com/life/travel/g5049/best-christmas-light-displays/?slide=13) ，到布朗克斯动物园的 [节日灯](https://bronxzoo.com/holiday-lights) 。尤其是今年，很多站点都需要预订，一定要提前做好计划。
+这是一项美丽的户外传统，包括装饰着闪亮灯光的大型建筑，这项活动非常适合家庭在遵循新冠肺炎预防措施的同时享受。其中许多，像哈特福德 [假日灯光幻想曲](https://www.holidaylightfantasia.org/) 或好时公园的 [甜蜜的灯光](https://www.hersheypark.com/info/hours/sweet-lights.php) ，当你开车穿过精心照明的假日场景时，可以在自己的车里舒适地欣赏。有几个网站可以帮助你找到你所在地区的灯光展示。[《mommynearest.com》](https://www.mommynearest.com/article/10-best-holiday-light-displays-in-the-united-states)列出全国 10 大最佳展示；Countryliving.com[将其类似的记录](https://www.countryliving.com/life/travel/g5049/best-christmas-light-displays/) 扩展到 38 个值得去的景点。考虑调查当地动物园的计划，从华盛顿州 DC 的 [动物园灯](https://www.countryliving.com/life/travel/g5049/best-christmas-light-displays/?slide=13) ，到布朗克斯动物园的 [节日灯](https://bronxzoo.com/holiday-lights) 。尤其是今年，很多站点都需要预订，一定要提前做好计划。
 
 ### 免下车电影
 
@@ -18,7 +18,7 @@ Watch
 
 ### 在雪地里骑大轮自行车
 
-如果你在这个国家仍然享受季节性降雪的部分地区，在这个前所未有的假日季节，你仍然可以参加一些有趣的冬季运动活动。考虑一下 [大轮自行车骑](https://bendtrails.org/tips-for-riding-in-snow/) 。这些不是你童年时代的大车轮——宽轮胎自行车在雪地上很棒，这使它们适合寒冷天气的户外乐趣(尽管 [它们在沙地上也骑得很好](https://www.fattiretracks.com/fat-bike-beach-riding-tips/) )。“在轮胎气压低的情况下，它们会漂浮在普通山地车、越野或公路轮胎会下沉的表面上，”Bicycle.com说。你可以骑行穿越冬日仙境(或者穿越沙漠般的假日公路)。出发前，在弯道上寻找一些在雪地里骑行的提示。
+如果你在这个国家仍然享受季节性降雪的部分地区，在这个前所未有的假日季节，你仍然可以参加一些有趣的冬季运动活动。考虑一下 [大轮自行车骑](https://bendtrails.org/tips-for-riding-in-snow/) 。这些不是你童年时代的大车轮——宽轮胎自行车在雪地上很棒，这使它们适合寒冷天气的户外乐趣(尽管 [它们在沙地上也骑得很好](https://www.fattiretracks.com/fat-bike-beach-riding-tips/) )。“在轮胎气压低的情况下，它们会漂浮在普通山地车、越野或公路轮胎会下沉的表面上，”Bicycle.com 说。你可以骑行穿越冬日仙境(或者穿越沙漠般的假日公路)。出发前，在弯道上寻找一些在雪地里骑行的提示。
 
 ### 圣诞寻宝游戏
 

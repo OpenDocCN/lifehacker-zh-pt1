@@ -1,8 +1,8 @@
 # 每个房主都应该知道的十大家居装修技巧
 
-> 原文:[https://life hacker . com/top-10-home-improvement-tips-every-homeowner-should-kno-1656251243](https://lifehacker.com/top-10-home-improvement-tips-every-homeowner-should-kno-1656251243)
+> 原文：<https://lifehacker.com/top-10-home-improvement-tips-every-homeowner-should-kno-1656251243>
 
-拥有住房可以唤醒我们所有人内心的鲍勃·维拉——即使是那些对家庭装修一无所知的人。无论你是在进行大规模的翻新，还是小心翼翼地走进DIY的世界，这些建议都将帮助你走向成功。
+拥有住房可以唤醒我们所有人内心的鲍勃·维拉——即使是那些对家庭装修一无所知的人。无论你是在进行大规模的翻新，还是小心翼翼地走进 DIY 的世界，这些建议都将帮助你走向成功。
 
 Watch
 
@@ -10,7 +10,7 @@ Watch
 
 [翻新很少完全按照](https://lifehacker.com/the-biggest-problems-youll-run-into-when-renovating-an-1772460906) 的计划进行，但这并不意味着你应该即兴发挥。最后一分钟的改变既紧张又昂贵，所以先敲定不可协商的细节。至少，这意味着知道你想要什么样的结果，以及实现这些结果需要多少钱和时间。
 
-像 [Floorplanner](https://floorplanner.com/) 这样的建模和设计工具在规划阶段非常有用。为同一个项目创建几个不同的版本，然后在预算中增加10-15%的缓冲，为不可避免的意外做准备。
+像 [Floorplanner](https://floorplanner.com/) 这样的建模和设计工具在规划阶段非常有用。为同一个项目创建几个不同的版本，然后在预算中增加 10-15%的缓冲，为不可避免的意外做准备。
 
 ### **尽可能增加价值**
 
@@ -20,13 +20,13 @@ Watch
 
 一些家庭装修比其他的更迫切。如果一个项目能立即为你省钱或者防止未来毁灭性的损失，那么就把它放在优先列表的首位。这是快速、简单修复的两倍，像密封草稿和 [替换过滤器](https://lifehacker.com/add-these-diy-home-improvement-projects-to-your-winter-1845513824) 。
 
-### **找到你的DIY门槛**
+### **找到你的 DIY 门槛**
 
-即使你是一个有经验的DIY者，有一个库存充足的工作室，也不是所有的家庭装修项目都适合业余爱好者。在开始一个项目之前，衡量你的兴趣水平:你真的愿意投入多少工作？这种努力值得你省下的钱吗？非常诚实。
+即使你是一个有经验的 DIY 者，有一个库存充足的工作室，也不是所有的家庭装修项目都适合业余爱好者。在开始一个项目之前，衡量你的兴趣水平:你真的愿意投入多少工作？这种努力值得你省下的钱吗？非常诚实。
 
-如果你不知道你要做什么，不要承诺，直到你至少花了几个小时看了YouTube教程，并对材料进行定价。记住: [你*能*不代表你](https://lifehacker.com/which-home-improvements-can-i-diy-and-which-should-i-le-487207936) [*就应该*](https://lifehacker.com/which-home-improvements-can-i-diy-and-which-should-i-le-487207936) *。*
+如果你不知道你要做什么，不要承诺，直到你至少花了几个小时看了 YouTube 教程，并对材料进行定价。记住: [你*能*不代表你](https://lifehacker.com/which-home-improvements-can-i-diy-and-which-should-i-le-487207936) [*就应该*](https://lifehacker.com/which-home-improvements-can-i-diy-and-which-should-i-le-487207936) *。*
 
-### 钻研DIY知识
+### 钻研 DIY 知识
 
 每个人都应该知道 [一些基本的维修技能](https://lifehacker.com/top-10-repair-projects-you-should-never-pay-for-5837117) ，感谢互联网，学习它们从未如此简单。如果可以的话，从一个具体的问题开始:我的垃圾处理器坏了还是只是堵塞了？我真的需要清洗我的洗碗机过滤器吗？你如何修补咖啡桌？你会比其他人更喜欢一些博客和视频人物；下次，从他们开始。
 
@@ -62,6 +62,6 @@ Watch
 
 ### 永远记住你的下一个项目
 
-一个项目结束，另一个项目开始——这就是家庭装修的本质。当你不记得在做其他事情时有过的好主意时，计划下一步会困难得多。在电子表格、笔记本、甚至是老式的Pinterest板 中详细列出你的项目目标，这样你就能随时知道下一步要做什么。
+一个项目结束，另一个项目开始——这就是家庭装修的本质。当你不记得在做其他事情时有过的好主意时，计划下一步会困难得多。在电子表格、笔记本、甚至是老式的 Pinterest 板 中详细列出你的项目目标，这样你就能随时知道下一步要做什么。
 
-*这篇文章最初发表于2014年，并于2021年3月15日进行了全面更新，增加了新的内容和链接。*
+*这篇文章最初发表于 2014 年，并于 2021 年 3 月 15 日进行了全面更新，增加了新的内容和链接。*

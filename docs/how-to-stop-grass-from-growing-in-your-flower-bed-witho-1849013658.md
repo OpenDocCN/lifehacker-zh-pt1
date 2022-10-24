@@ -1,6 +1,6 @@
 # 如何在不杀死你的花的情况下阻止草在你的花坛里生长
 
-> 原文:[https://life hacker . com/how-to-stop-grass-from-growing-in-your flower-bed-with o-1849013658](https://lifehacker.com/how-to-stop-grass-from-growing-in-your-flower-bed-witho-1849013658)
+> 原文：<https://lifehacker.com/how-to-stop-grass-from-growing-in-your-flower-bed-witho-1849013658>
 
 当你发现不需要的草在你的花坛里免费生长时，你可能会想喷洒一些除草剂来处理这个区域。虽然这可能会杀死草，它也会带走你的花。
 
@@ -26,4 +26,4 @@ Watch
 2.  创造一个阳光屏障
     它看起来不怎么样，但你可以用 [纸板或黑色塑料布](https://www.gardeningetc.com/us/advice/killing-grass-in-flower-beds) 盖住生长在你的花坛里的草，以阻止它获得任何阳光(并继续生长)。一开始让它持续一个月，然后评估你的进展。
 3.  使用选择性除草剂
-    如果你真的想使用除草剂，选择一种配方明确的除草剂。标签上应该标明除草剂针对的是哪种植物，但如果没有，就看看成分:烯草酮、sethoxydim或fluazifop-p会杀死草，但不会伤害花和灌木。
+    如果你真的想使用除草剂，选择一种配方明确的除草剂。标签上应该标明除草剂针对的是哪种植物，但如果没有，就看看成分:烯草酮、sethoxydim 或 fluazifop-p 会杀死草，但不会伤害花和灌木。

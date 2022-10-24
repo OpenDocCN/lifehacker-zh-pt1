@@ -1,6 +1,6 @@
 # 停止给出“狗屎三明治”反馈(以及该怎么做)
 
-> 原文:[https://life hacker . com/stop-giving-shit-sandwich-feedback-and-what-to-do-inst-1848671782](https://lifehacker.com/stop-giving-shit-sandwich-feedback-and-what-to-do-inst-1848671782)
+> 原文：<https://lifehacker.com/stop-giving-shit-sandwich-feedback-and-what-to-do-inst-1848671782>
 
 如果你曾经有过一个经理，你可能会收到反馈；反馈可能是通过“狗屎三明治”传递的，负面反馈被包装在两层正面信息之间。(它也被称为“表扬三明治”，说起来一点也不好玩。)这种方法包括首先称赞员工在某些方面的表现(最下面的那片面包)，然后提出批评(谚语所说的狗屎)，最后再称赞或承认员工的价值(最上面的那片面包)。
 
@@ -24,7 +24,7 @@ Watch
 
 ## *他们甚至不登记底片*
 
-*有时候，大便三明治效果太好了，它完全掩盖了反馈。当芝加哥大学的行为科学教授Ayelet fish Bach[进行一项实验](https://www.nytimes.com/2013/04/06/your-money/how-to-give-effective-feedback-both-positive-and-negative.html) 时，她班上的一半人被要求给另一半人负面的反馈，被批评的学生留下的感觉是，他们实际上表现很好。正如菲什巴赫解释的那样，“负面反馈往往被埋没，而且不太具体。”*
+*有时候，大便三明治效果太好了，它完全掩盖了反馈。当芝加哥大学的行为科学教授 Ayelet fish Bach[进行一项实验](https://www.nytimes.com/2013/04/06/your-money/how-to-give-effective-feedback-both-positive-and-negative.html) 时，她班上的一半人被要求给另一半人负面的反馈，被批评的学生留下的感觉是，他们实际上表现很好。正如菲什巴赫解释的那样，“负面反馈往往被埋没，而且不太具体。”*
 
 ## *取而代之做什么*
 
@@ -34,7 +34,7 @@ Watch
 
 > **   Pay attention to the behavior that hinders employees.*   Explain why behavior causes problems.*   The importance of actions that make people reflect back.*   Finally, let them find a way to fix it.T9】*
 
-*在Clatterbuck分享的例子中，他首先告诉一名员工，“你的估计经常会偏离一个数量级”，然后详细说明了影响(例如，取消公关活动，延长对旧应用的支持)。问完“你明白这为什么这么重要吗？”在等待他们展示这种理解的时候，你会问，“你有什么建议来确保这种事情不会在未来发生？”这就把行为改变的责任*转移回*给了员工，这比简单地要求他们听从上级的建议更有可能有效。*
+*在 Clatterbuck 分享的例子中，他首先告诉一名员工，“你的估计经常会偏离一个数量级”，然后详细说明了影响(例如，取消公关活动，延长对旧应用的支持)。问完“你明白这为什么这么重要吗？”在等待他们展示这种理解的时候，你会问，“你有什么建议来确保这种事情不会在未来发生？”这就把行为改变的责任*转移回*给了员工，这比简单地要求他们听从上级的建议更有可能有效。*
 
 ## *反馈最佳实践*
 
@@ -42,7 +42,7 @@ Watch
 
 ***询问他们是否愿意接受反馈:**当然，无论对方是否愿意接受，都必须给出一些反馈。但是如果不紧急，试着说，“我注意到你工作过程中的一些事情，我想和你分享一下。你愿意接受反馈吗？”根据 [组织心理学家亚当·格兰特](https://greatergood.berkeley.edu/article/item/nine_tips_for_giving_better_feedback_at_work) 的说法，当人们拥有接收反馈的所有权时，他们会减少防御性。*
 
-***解释你的意图(来自关怀的地方):**表达通过反馈帮助他人的真诚愿望，可以让他们更有建设性地接受反馈。让他们知道你给出了准确的反馈*，因为*你相信他们和他们的潜力。根据加州大学伯克利分校的 [Greater Good杂志](https://greatergood.berkeley.edu/article/item/nine_tips_for_giving_better_feedback_at_work) ，“在一项研究中，研究人员通过这样的开头使反馈更有效40%:‘*我给你这些意见是因为我有很高的期望，我知道你能达到这些期望*。”"*
+***解释你的意图(来自关怀的地方):**表达通过反馈帮助他人的真诚愿望，可以让他们更有建设性地接受反馈。让他们知道你给出了准确的反馈*，因为*你相信他们和他们的潜力。根据加州大学伯克利分校的 [Greater Good 杂志](https://greatergood.berkeley.edu/article/item/nine_tips_for_giving_better_feedback_at_work) ，“在一项研究中，研究人员通过这样的开头使反馈更有效 40%:‘*我给你这些意见是因为我有很高的期望，我知道你能达到这些期望*。”"*
 
 ***私下提供反馈**:尽可能避免在周围都是同事的情况下提供反馈。除了他们可能经历的潜在的惊讶感、不适应感或失败感之外，员工还必须面对尴尬的一面。*
 
@@ -52,6 +52,6 @@ Watch
 
 *注意你的非言语行为:记住我们的言语只是信息的一部分；在我们说话的整个过程中，我们的面部和身体都在传递信息。用微笑、点头、和开放的肢体语言(比如双臂交叉)传递反馈，会比通过 [皱眉和眯起眼睛](https://hbr.org/2008/09/social-intelligence-and-the-biology-of-leadership) 传递同样的信息让接受者感觉更好。*
 
-***真实而频繁地提供反馈:**在他的书《应对不断变化的世界秩序的原则:为什么国家会成功和失败》中，世界上最大的对冲基金Bridgewater Associates的创始人雷伊·达里奥说，“持续、清晰和诚实的反馈”加上讨论和开放的心态将达到最佳的学习效果。"不断提供这种反馈是最有效的训练方式."*
+***真实而频繁地提供反馈:**在他的书《应对不断变化的世界秩序的原则:为什么国家会成功和失败》中，世界上最大的对冲基金 Bridgewater Associates 的创始人雷伊·达里奥说，“持续、清晰和诚实的反馈”加上讨论和开放的心态将达到最佳的学习效果。"不断提供这种反馈是最有效的训练方式."*
 
 *对于我们这些处于接收端的人，他有以下的建议，“意识到你对真理没有任何恐惧。理解、接受并知道如何有效应对现实对于取得成功至关重要。”*

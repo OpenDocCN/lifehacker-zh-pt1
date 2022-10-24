@@ -1,6 +1,6 @@
 # 以下是你在工作场合应该喝多少酒，如果你必须喝的话
 
-> 原文:[https://life hacker . com/heres-how-you-due-much-you-you-if-you-1847046987](https://lifehacker.com/heres-how-much-you-should-drink-at-work-events-if-you-1847046987)
+> 原文：<https://lifehacker.com/heres-how-much-you-should-drink-at-work-events-if-you-1847046987>
 
 酒精是成年人无处不在的必需品，但是让它渗透到你的工作生活中会破坏你的职业精神。如果你期待参加工作聚会——即使你的公司以在聚会上营造相当喧闹的氛围而闻名——也有一些关于设定界限的知识，以及如何整合这些界限，即使你被开放式酒吧所诱惑。
 
@@ -10,7 +10,7 @@ Watch
 
 首先，专业活动不应该是和一群朋友出去宣泄情绪的夜晚。你会被付钱给你的人包围，所以最好缓和一下你的渴望。
 
-一般来说，事先不要出去喝酒。“赛前”是你在大学时可能偏爱的一种仪式，但你不会想在职业赛事之前做这件事，哪怕只是为了减少随着时间的推移无意中变得邋遢的可能性。正如德克萨斯大学西南医学中心负责职业和专业发展的助理院长娜塔莉·伦德斯汀(Natalie Lundsteen)为2019年 高等教育内部的 [所写的那样，你应该在专业聚会上寻求将酒精摄入量控制在50%左右。](https://www.insidehighered.com/advice/2019/02/25/knowing-when-drink-alcohol-and-how-much-professional-events-opinion)
+一般来说，事先不要出去喝酒。“赛前”是你在大学时可能偏爱的一种仪式，但你不会想在职业赛事之前做这件事，哪怕只是为了减少随着时间的推移无意中变得邋遢的可能性。正如德克萨斯大学西南医学中心负责职业和专业发展的助理院长娜塔莉·伦德斯汀(Natalie Lundsteen)为 2019 年 高等教育内部的 [所写的那样，你应该在专业聚会上寻求将酒精摄入量控制在 50%左右。](https://www.insidehighered.com/advice/2019/02/25/knowing-when-drink-alcohol-and-how-much-professional-events-opinion)
 
 然而，诱惑可能很大，尤其是如果有一个开放的酒吧。一种你仍然可以手拿酒杯进行社交活动的方法是用苏打水或软饮料代替其他饮料。奇怪的是，没有杯子在手的触感，聊天会感觉不舒服，但你可能会发现，如果你在喝酒精饮料的间隙啜饮一杯姜汁汽水，聚会上的玩笑也会同样令人兴奋。
 

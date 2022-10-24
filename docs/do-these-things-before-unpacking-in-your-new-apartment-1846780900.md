@@ -1,6 +1,6 @@
 # 在你的新公寓或家里打开行李之前，做这些事情
 
-> 原文:[https://life hacker . com/do-these-things-before-in-your-new-apartment-1846780900](https://lifehacker.com/do-these-things-before-unpacking-in-your-new-apartment-1846780900)
+> 原文：<https://lifehacker.com/do-these-things-before-unpacking-in-your-new-apartment-1846780900>
 
 搬到一个新公寓或新家是令人兴奋的时刻。你已经寻找了几个月(甚至几年)，终于找到了一个完美的地方定居下来。但是在你开始筑巢之前，有一些家务事需要处理。大多数人知道换锁或者把断路器放在新的地方。但是你也应该考虑其他重要的入门措施，尤其是如果你打算逗留一段时间的话。
 
@@ -26,7 +26,7 @@ Watch
 
 ### 拿个工具箱
 
-我喜欢在我的公寓里处理DIY工作，但是更换水槽水龙头或门把手需要一套好的工具来完成工作——你永远不知道什么时候你可能需要自己修理一些东西(特别是如果你的建筑管理员或管理公司在小修小补上行动迟缓的话)。所以拿起一些工具——我拿起一个小工具包，里面有螺丝刀、钉子和艾伦扳手等必需品，还拿了一个电钻和钻头。如果你只担心处理简单的东西，不要担心买昂贵的高端东西；你可以 [花费大约](https://www.amazon.com/Hi-Spec-Mechanic-Tool-Set/dp/B07VC1WLLY/ref=sr_1_4_sspa?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/do-these-things-before-unpacking-in-your-new-apartment-1846780900&asc_source=&dchild=1&keywords=tool set&psc=1&qid=1619623728&spLa=ZW5jcnlwdGVkUXVhbGlmaWVyPUExVTFKU05RRDZGQThKJmVuY3J5cHRlZElkPUEwMDcyNDU0T1ZRMjRMUjNZWTdFJmVuY3J5cHRlZEFkSWQ9QTAxMTQ3ODYyR0lKT0ZYSFZWVkxEJndpZGdldE5hbWU9c3BfYXRmJmFjdGlvbj1jbGlja1JlZGlyZWN0JmRvTm90TG9nQ2xpY2s9dHJ1ZQ==&sr=8-4-spons&tag=kinjalifehackerlink-20)[【40】美元](https://www.amazon.com/Hi-Spec-Mechanic-Tool-Set/dp/B07VC1WLLY/ref=sr_1_4_sspa?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/do-these-things-before-unpacking-in-your-new-apartment-1846780900&asc_source=&dchild=1&keywords=tool set&psc=1&qid=1619623728&spLa=ZW5jcnlwdGVkUXVhbGlmaWVyPUExVTFKU05RRDZGQThKJmVuY3J5cHRlZElkPUEwMDcyNDU0T1ZRMjRMUjNZWTdFJmVuY3J5cHRlZEFkSWQ9QTAxMTQ3ODYyR0lKT0ZYSFZWVkxEJndpZGdldE5hbWU9c3BfYXRmJmFjdGlvbj1jbGlja1JlZGlyZWN0JmRvTm90TG9nQ2xpY2s9dHJ1ZQ==&sr=8-4-spons&tag=kinjalifehackerlink-20) 获得你需要的一切。
+我喜欢在我的公寓里处理 DIY 工作，但是更换水槽水龙头或门把手需要一套好的工具来完成工作——你永远不知道什么时候你可能需要自己修理一些东西(特别是如果你的建筑管理员或管理公司在小修小补上行动迟缓的话)。所以拿起一些工具——我拿起一个小工具包，里面有螺丝刀、钉子和艾伦扳手等必需品，还拿了一个电钻和钻头。如果你只担心处理简单的东西，不要担心买昂贵的高端东西；你可以 [花费大约](https://www.amazon.com/Hi-Spec-Mechanic-Tool-Set/dp/B07VC1WLLY/ref=sr_1_4_sspa?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/do-these-things-before-unpacking-in-your-new-apartment-1846780900&asc_source=&dchild=1&keywords=tool set&psc=1&qid=1619623728&spLa=ZW5jcnlwdGVkUXVhbGlmaWVyPUExVTFKU05RRDZGQThKJmVuY3J5cHRlZElkPUEwMDcyNDU0T1ZRMjRMUjNZWTdFJmVuY3J5cHRlZEFkSWQ9QTAxMTQ3ODYyR0lKT0ZYSFZWVkxEJndpZGdldE5hbWU9c3BfYXRmJmFjdGlvbj1jbGlja1JlZGlyZWN0JmRvTm90TG9nQ2xpY2s9dHJ1ZQ==&sr=8-4-spons&tag=kinjalifehackerlink-20)[【40】美元](https://www.amazon.com/Hi-Spec-Mechanic-Tool-Set/dp/B07VC1WLLY/ref=sr_1_4_sspa?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/do-these-things-before-unpacking-in-your-new-apartment-1846780900&asc_source=&dchild=1&keywords=tool set&psc=1&qid=1619623728&spLa=ZW5jcnlwdGVkUXVhbGlmaWVyPUExVTFKU05RRDZGQThKJmVuY3J5cHRlZElkPUEwMDcyNDU0T1ZRMjRMUjNZWTdFJmVuY3J5cHRlZEFkSWQ9QTAxMTQ3ODYyR0lKT0ZYSFZWVkxEJndpZGdldE5hbWU9c3BfYXRmJmFjdGlvbj1jbGlja1JlZGlyZWN0JmRvTm90TG9nQ2xpY2s9dHJ1ZQ==&sr=8-4-spons&tag=kinjalifehackerlink-20) 获得你需要的一切。
 
 ### 了解规则，观察地形
 

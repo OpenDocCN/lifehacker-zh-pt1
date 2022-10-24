@@ -1,6 +1,6 @@
 # 如果你总是很冷，如何感觉更温暖
 
-> 原文:[https://life hacker . com/how-to-feel-warmer-if-you-always-cold-1848310457](https://lifehacker.com/how-to-feel-warmer-if-youre-always-cold-1848310457)
+> 原文：<https://lifehacker.com/how-to-feel-warmer-if-youre-always-cold-1848310457>
 
 寒冷的天气正式到来了(至少，是在每年这个时候通常会变冷的地区。 ) (我说的不是南加州。 ) (我绝不是在说南加州。 )
 
@@ -26,17 +26,17 @@ Watch
 
 我们的身体优先考虑保持器官温暖；毫不夸张地说，这让我们的手和脚处于寒冷之中。通过添加一层或两层来保护这些肢体。如果你不想戴手套，用手包住一大杯你最喜欢的热饮，或者求助于暖手宝。
 
-## **制作DIY暖手宝**
+## **制作 DIY 暖手宝**
 
-为了让你的手保持温暖，可以考虑自己动手做一个暖手宝。对于经典的 [融冰颗粒法](https://lifehacker.com/make-your-own-instant-hand-warmers-in-5-minutes-5888050) ，你所需要的只是一个大的Z iploc袋，一个小的，一些水，和从五金店买的氯化钙融冰颗粒。 [下面是制作一个](https://lifehacker.com/make-your-own-instant-hand-warmers-in-5-minutes-5888050) 的方法:
+为了让你的手保持温暖，可以考虑自己动手做一个暖手宝。对于经典的 [融冰颗粒法](https://lifehacker.com/make-your-own-instant-hand-warmers-in-5-minutes-5888050) ，你所需要的只是一个大的 Z iploc 袋，一个小的，一些水，和从五金店买的氯化钙融冰颗粒。 [下面是制作一个](https://lifehacker.com/make-your-own-instant-hand-warmers-in-5-minutes-5888050) 的方法:
 
-> 将大袋子装满融冰颗粒的四分之一。向较小的Z iploc袋中注入一半的水并密封，然后将其放入较大的袋中，挤出多余的空气并密封。现在，挤压较小的袋子，直到它破裂，水与融冰颗粒混合，根据 [PopSci](http://www.popsci.com/diy/article/2012-02/5-minute-project-hand-warmers) 的说法，这应该会产生20分钟到一个小时的升温反应(多久取决于你使用多少颗粒)。
+> 将大袋子装满融冰颗粒的四分之一。向较小的 Z iploc 袋中注入一半的水并密封，然后将其放入较大的袋中，挤出多余的空气并密封。现在，挤压较小的袋子，直到它破裂，水与融冰颗粒混合，根据 [PopSci](http://www.popsci.com/diy/article/2012-02/5-minute-project-hand-warmers) 的说法，这应该会产生 20 分钟到一个小时的升温反应(多久取决于你使用多少颗粒)。
 
 如果你无法从五金店买到融冰颗粒，试试这种 [方法](https://lifehacker.com/make-your-own-reusable-diy-hot-ice-hand-warmers-1516087373) ，它只需要一些小苏打、白醋和一个炉子。
 
 ## **把手放在腋下**
 
-腋窝是最原始的DIY暖手宝。把你的手放在这些凹坑下面，拥抱你的身体，这样可以立刻缓解寒冷。
+腋窝是最原始的 DIY 暖手宝。把你的手放在这些凹坑下面，拥抱你的身体，这样可以立刻缓解寒冷。
 
 ## **侵入你的大脑(和呼吸)**
 

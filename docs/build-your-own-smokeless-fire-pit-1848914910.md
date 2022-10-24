@@ -1,8 +1,8 @@
 # 建造你自己的无烟火坑
 
-> 原文:[https://life hacker . com/build-your-own-无烟火坑-1848914910](https://lifehacker.com/build-your-own-smokeless-fire-pit-1848914910)
+> 原文：<https://lifehacker.com/build-your-own-smokeless-fire-pit-1848914910>
 
-火坑通常被认为是户外空间中诱人的一部分——但有时它们产生的烟雾并不诱人。无论你外套上或头发里挥之不去的气味是否令人讨厌，或者你碰巧是那个似乎总是坐在风吹起烟雾的地方的人，减少它的数量可以提高你围着炉火度过的夜晚的质量。答:虽然没有完全无烟的火，但T2的所谓“无烟”火坑T4使用双燃烧室系统燃烧燃料，产生的烟雾明显减少。
+火坑通常被认为是户外空间中诱人的一部分——但有时它们产生的烟雾并不诱人。无论你外套上或头发里挥之不去的气味是否令人讨厌，或者你碰巧是那个似乎总是坐在风吹起烟雾的地方的人，减少它的数量可以提高你围着炉火度过的夜晚的质量。答:虽然没有完全无烟的火，但 T2 的所谓“无烟”火坑 T4 使用双燃烧室系统燃烧燃料，产生的烟雾明显减少。
 
 Watch
 
@@ -17,13 +17,13 @@ Watch
 对于这个项目，您需要:
 
 *   用 [金属钻头](https://www.homedepot.com/p/Grand-Rapids-Industrial-Products-Titanium-Coated-Steel-Step-Drill-Bit-Set-3-Piece-35326/206515496?source=shoppingads&locale=en-US) 钻一个
-*   一个现有的火坑，有一个金属环或一个20夸脱的通用异步收发器和一个16夸脱的T2锅(加上一个20夸脱T4锅的盖子)
+*   一个现有的火坑，有一个金属环或一个 20 夸脱的通用异步收发器和一个 16 夸脱的 T2 锅(加上一个 20 夸脱 T4 锅的盖子)
 *   一把 [曲线锯](https://piphardware.com/product/ryobi-4-8-amp-corded-variable-speed-orbital-jig-saw/) 配一把 [金属刀片](https://www.acmetools.com/diablo-tools-3-1-4in-18-tpi-carbide-t-shank-jig-saw-blade-thick-metal-djt118ehm/008925153825.html?feeds=shopping&srsltid=AWLEVJxvHtEsST67V_GxAH2sRKlXNrKGjHNt6HLOkUIi4FxLYJqNF2EEuSk)
 *   一把结实的 [金属剪刀](https://www.homedepot.com/p/Genesis-4-0-Amp-14-Gauge-Swivel-Head-Variable-Speed-Electric-Power-Metal-Shear-GES40/300536821?source=shoppingads&locale=en-US) 或者一把 [研磨机](https://www.hardwareworld.com/p10k9yq/Small-Angle-Grinder) ( 建造一个新的无烟火坑而不用石头结构)
 *   一把 [金属锉](https://www.lowes.com/pd/Kobalt-8-in-Smooth-File-Set/999921000) ( 磨钝你的孔的边缘并切割金属块)
 *   一副厚重的金属工作手套
 *   安全护目镜
-*   ar保护
+*   ar 保护
 
 ## 如何改造一个现有的传统火坑
 
@@ -35,8 +35,8 @@ Watch
 
 ## 如何建造一个新的无烟火坑
 
-为了建造一个新的金属无烟火坑，拿起你的20- 夸脱的罐子的盖子，用你的小罐子的底部用一个永久性的记号笔在盖子下面的中心画一个圆。穿上你的安全装备和用你的带切断刀片的研磨机，钻，和带金属刀片的竖锯(或钻和金属剪刀)来切割大壶盖的中间。用锉刀把洞的边缘锉平，你的小罐子应该套在大罐子的盖子里，在两者之间留出大约一英寸的间隙。
+为了建造一个新的金属无烟火坑，拿起你的 20- 夸脱的罐子的盖子，用你的小罐子的底部用一个永久性的记号笔在盖子下面的中心画一个圆。穿上你的安全装备和用你的带切断刀片的研磨机，钻，和带金属刀片的竖锯(或钻和金属剪刀)来切割大壶盖的中间。用锉刀把洞的边缘锉平，你的小罐子应该套在大罐子的盖子里，在两者之间留出大约一英寸的间隙。
 
 接下来，大约每三英寸钻一个洞，距离小罐子的顶部一英寸，距离大罐子的底部一英寸。用你的金属锉去除任何倒刺，并磨平孔的边缘。然后，当你把两个锅放在一起，你就有一个小无烟炉。确保当你使用你的炉子时，你没有把它放在容易受热的表面上，这样你就不会在你的坑外生火。
 
-这种方法适用于任何一对大小比例相似的容器，比例为20- 至16- 夸脱。对于一个更大的模型，金属垃圾桶将工作，以及。
+这种方法适用于任何一对大小比例相似的容器，比例为 20- 至 16- 夸脱。对于一个更大的模型，金属垃圾桶将工作，以及。

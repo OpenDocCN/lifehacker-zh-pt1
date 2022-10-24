@@ -1,6 +1,6 @@
 # 你会渴望这些香甜的焦糖葡萄吗？
 
-> 原文:[https://life hacker . com/will-you-dream-these-boozy-caramel-grapes-1845637610](https://lifehacker.com/will-you-crave-these-boozy-caramel-grapes-1845637610)
+> 原文：<https://lifehacker.com/will-you-crave-these-boozy-caramel-grapes-1845637610>
 
 我最喜欢的秋季传统之一是和我的新英格兰男朋友争论焦糖苹果。他——一个错误的人——认为来自康涅狄格州的给了他对什么是*的特殊洞察力。*”何坚持说，苹果糖——又难吃又笨——是上等的。
 

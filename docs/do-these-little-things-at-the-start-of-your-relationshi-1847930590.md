@@ -1,6 +1,6 @@
 # 专家说，在你们的关系开始时做这些小事
 
-> 原文:[https://life hacker . com/do-this-things-at-start-of-your-relationshi Shi-1847930590](https://lifehacker.com/do-these-little-things-at-the-start-of-your-relationshi-1847930590)
+> 原文：<https://lifehacker.com/do-these-little-things-at-the-start-of-your-relationshi-1847930590>
 
 一段新关系中最令人兴奋的阶段之一是当你的蝴蝶开始变得更严肃的时候。同时，这也是你可能会因为过度思考每一个最后的动作*而感到内疚的阶段。我应该等到明天回短信吗？为什么只有我开始约会？如果他们和我的感觉不一样呢？*T3】
 
@@ -12,7 +12,7 @@ Watch
 
 ## **尽快回复短信**
 
-为了让你看起来很酷，你等了几个小时才给你的约会对象发短信或回电话，你为此感到内疚吗？这对任何人有用吗？治疗师 [杰夫·根特](https://twitter.com/jeffguentherlpc?lang=en) 说，当你开始见新朋友时，不要害怕一看到信息就给他们回短信。Guenther在抖音上以 [@therapyden](https://www.tiktok.com/@therapyden/video/7021876823713697030?is_from_webapp=v1&lang=en) 的身份发布帖子，他继续说，在关系发展的同时，快速的反应时间可以“创造大量的安全感”。
+为了让你看起来很酷，你等了几个小时才给你的约会对象发短信或回电话，你为此感到内疚吗？这对任何人有用吗？治疗师 [杰夫·根特](https://twitter.com/jeffguentherlpc?lang=en) 说，当你开始见新朋友时，不要害怕一看到信息就给他们回短信。Guenther 在抖音上以 [@therapyden](https://www.tiktok.com/@therapyden/video/7021876823713697030?is_from_webapp=v1&lang=en) 的身份发布帖子，他继续说，在关系发展的同时，快速的反应时间可以“创造大量的安全感”。
 
 ## **轮流制定计划**
 
@@ -26,7 +26,7 @@ Watch
 
 ## 如果你喜欢他们，就告诉他们
 
-欲擒故纵被大大高估了。不要 [爱上某人](https://lifehacker.com/how-to-recognize-if-youre-being-lovebombed-by-a-narciss-1846364080) ，而是“公开你有多喜欢和他们在一起，” [Guenther说](https://www.tiktok.com/@therapyden/video/7021876823713697030?is_copy_url=1&is_from_webapp=v1&lang=en) 。他对小事情的想法可以持续很长时间，包括直接的评论，比如，“我刚刚和你度过了一个美好的夜晚”，或者告诉他们他们给了你蝴蝶。
+欲擒故纵被大大高估了。不要 [爱上某人](https://lifehacker.com/how-to-recognize-if-youre-being-lovebombed-by-a-narciss-1846364080) ，而是“公开你有多喜欢和他们在一起，” [Guenther 说](https://www.tiktok.com/@therapyden/video/7021876823713697030?is_copy_url=1&is_from_webapp=v1&lang=en) 。他对小事情的想法可以持续很长时间，包括直接的评论，比如，“我刚刚和你度过了一个美好的夜晚”，或者告诉他们他们给了你蝴蝶。
 
 ## **添加品种**
 
@@ -34,7 +34,7 @@ Watch
 
 ## **假设他们也喜欢你**
 
-自信是关键。Guenther说“停止扫描他们可能对你不感兴趣的原因”，否则你肯定会 [创造一个自我实现的预言](https://lifehacker.com/11-self-sabotaging-phrases-to-drop-from-your-vocabulary-1847529464/slides/5) 。在关系真正开始之前，不要让你的焦虑破坏了它。
+自信是关键。Guenther 说“停止扫描他们可能对你不感兴趣的原因”，否则你肯定会 [创造一个自我实现的预言](https://lifehacker.com/11-self-sabotaging-phrases-to-drop-from-your-vocabulary-1847529464/slides/5) 。在关系真正开始之前，不要让你的焦虑破坏了它。
 
 ## **诚实，做你自己**
 

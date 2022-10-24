@@ -1,6 +1,6 @@
 # 请看:一份实用的、不太难的秋季大扫除清单
 
-> 原文:[https://life hacker . com/looka-a-practical-not-too-override-fall-cleaning-1847821460](https://lifehacker.com/behold-a-practical-not-too-overwhelming-fall-cleaning-1847821460)
+> 原文：<https://lifehacker.com/behold-a-practical-not-too-overwhelming-fall-cleaning-1847821460>
 
 首先，请允许我管理你的期望:这不是一个*全面的*秋季深度清洁清洁清单。关于它，没有什么是完全的或*终极的*(因为坦白地说，那些列表给了我们焦虑)。
 
@@ -36,7 +36,7 @@ Watch
 
 清洁主要电器:你的洗衣机、洗碗机、和烤箱需要一点爱——这并不像听起来那么难。许多烤箱都有自清洁功能，如果没有，你可以 [自制小苏打清洁膏](https://www.realsimple.com/home-organizing/cleaning/how-to-clean-an-oven) 并放置一夜。 [用醋给你的洗衣机消毒](https://www.hgtv.com/lifestyle/clean-and-organize/how-to-clean-your-washing-machine) 并擦掉你的 [洗碗机排水管](https://www.today.com/series/how-often-should-you/how-clean-dishwasher-t17946) 上的粘糊糊的东西，让那些盘子保持闪亮。
 
-X Games模式下的真空吸尘:如果你想多走一步，考虑用真空吸尘器清理沙发和椅子、家具下、通风口盖外、干衣机内部和主要电器后面。(但也可以随意给自己倒一杯葡萄酒。你一直在努力工作。)
+X Games 模式下的真空吸尘:如果你想多走一步，考虑用真空吸尘器清理沙发和椅子、家具下、通风口盖外、干衣机内部和主要电器后面。(但也可以随意给自己倒一杯葡萄酒。你一直在努力工作。)
 
 ## **文件在:“最好拥有”下**
 

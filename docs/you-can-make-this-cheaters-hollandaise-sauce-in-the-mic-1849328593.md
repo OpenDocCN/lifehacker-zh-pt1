@@ -1,6 +1,6 @@
 # 你可以用微波炉做这个骗子的荷兰酱
 
-> 原文:[https://life hacker . com/you-can-make-this-cheaters-hollandaise-sauce-in-the-mic-1849328593](https://lifehacker.com/you-can-make-this-cheaters-hollandaise-sauce-in-the-mic-1849328593)
+> 原文：<https://lifehacker.com/you-can-make-this-cheaters-hollandaise-sauce-in-the-mic-1849328593>
 
 荷兰酱可能会令人生畏，尤其是如果你是制作乳液的新手。尽管我们有几个制作真正荷兰酱的好方法(无论你是想在炉子 上做 [，用，还是用](https://lifehacker.com/two-easy-ways-to-make-hollandaise-for-your-mothers-day-1795057534) [浸入式搅拌机](https://lifehacker.com/make-perfect-one-minute-hollandaise-sauce-with-an-imme-1763362039) )，有一个简单的骗子选项还是不错的，尤其是如果你发现你的鸡蛋没了，或者想要一些可以在微波炉中两分钟内搅拌好的东西。
 
@@ -20,9 +20,9 @@ Watch
 
 **配料:**
 
-*   1/2杯杜克蛋黄酱(或其他蛋黄蛋黄酱)
-*   2汤匙黄油
-*   1 1/4茶匙柠檬汁
-*   2茶匙水(分开)
+*   1/2 杯杜克蛋黄酱(或其他蛋黄蛋黄酱)
+*   2 汤匙黄油
+*   1 1/4 茶匙柠檬汁
+*   2 茶匙水(分开)
 
-将前三种原料和1茶匙水加入微波炉安全容器中，用一半功率微波45秒。用叉子搅拌，然后再加热45秒，或者直到变热。如果你想要更稀的调味汁，加入第二茶匙水。再搅拌一次，倒在本尼迪克特、芦笋、三文鱼或任何你通常在上面倒荷兰酱的东西上。
+将前三种原料和 1 茶匙水加入微波炉安全容器中，用一半功率微波 45 秒。用叉子搅拌，然后再加热 45 秒，或者直到变热。如果你想要更稀的调味汁，加入第二茶匙水。再搅拌一次，倒在本尼迪克特、芦笋、三文鱼或任何你通常在上面倒荷兰酱的东西上。

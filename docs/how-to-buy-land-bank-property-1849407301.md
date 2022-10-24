@@ -1,12 +1,12 @@
 # 如何购买土地银行物业
 
-> 原文:[https://life hacker . com/how-to-buy-land-bank-property-1849407301](https://lifehacker.com/how-to-buy-land-bank-property-1849407301)
+> 原文：<https://lifehacker.com/how-to-buy-land-bank-property-1849407301>
 
-如果你看过HGTV的*廉价街区*之类的节目，或者关注Instagram上的 [廉价老房子](https://www.instagram.com/cheapoldhouses/?hl=en) 或类似的账户，你可能会注意到一些老房子——尤其是那些往往需要大量工作的房子——被列为几乎难以置信的低价。这些土地通常(但不总是)由当地的土地银行出售。
+如果你看过 HGTV 的*廉价街区*之类的节目，或者关注 Instagram 上的 [廉价老房子](https://www.instagram.com/cheapoldhouses/?hl=en) 或类似的账户，你可能会注意到一些老房子——尤其是那些往往需要大量工作的房子——被列为几乎难以置信的低价。这些土地通常(但不总是)由当地的土地银行出售。
 
 Watch
 
-例如，发生在底特律的*廉价街区*的主持人经常购买和翻新土地银行的房子——其中一些是他们以低至1000美元的价格购买的(至少根据节目报道)。那么，确切地说，土地银行是什么，你如何从土地银行购买房产？这是基本的。
+例如，发生在底特律的*廉价街区*的主持人经常购买和翻新土地银行的房子——其中一些是他们以低至 1000 美元的价格购买的(至少根据节目报道)。那么，确切地说，土地银行是什么，你如何从土地银行购买房产？这是基本的。
 
 ## 什么是土地银行？
 
@@ -18,9 +18,9 @@ Watch
 
 ## 土地银行在哪里？
 
-据专注于土地储备的全国性组织 [社区进步中心](https://communityprogress.org/resources/land-banks/national-land-bank-map/) (CCP)称，目前全美有超过250家土地银行和土地储备项目。
+据专注于土地储备的全国性组织 [社区进步中心](https://communityprogress.org/resources/land-banks/national-land-bank-map/) (CCP)称，目前全美有超过 250 家土地银行和土地储备项目。
 
-许多是17个州通过法律授权土地储备的结果(纽约、密歇根、俄亥俄、佐治亚、内布拉斯加、密苏里、田纳西、阿拉巴马、特拉华、弗吉尼亚、西弗吉尼亚、印第安纳、宾夕法尼亚、肯塔基、康涅狄格、新泽西和马里兰)。这张来自CCP 的 [互动地图提供了更多关于土地储备及其位置的信息。](https://communityprogress.org/resources/land-banks/national-land-bank-map/)
+许多是 17 个州通过法律授权土地储备的结果(纽约、密歇根、俄亥俄、佐治亚、内布拉斯加、密苏里、田纳西、阿拉巴马、特拉华、弗吉尼亚、西弗吉尼亚、印第安纳、宾夕法尼亚、肯塔基、康涅狄格、新泽西和马里兰)。这张来自 CCP 的 [互动地图提供了更多关于土地储备及其位置的信息。](https://communityprogress.org/resources/land-banks/national-land-bank-map/)
 
 ## 如何搜寻土地银行物业
 

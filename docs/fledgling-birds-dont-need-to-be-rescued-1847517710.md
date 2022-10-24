@@ -1,6 +1,6 @@
 # 羽翼未丰的小鸟不需要被“拯救”
 
-> 原文:[https://life hacker . com/brenning-birds-dont-need-to-need-be-rescue-1847517710](https://lifehacker.com/fledgling-birds-dont-need-to-be-rescued-1847517710)
+> 原文：<https://lifehacker.com/fledgling-birds-dont-need-to-be-rescued-1847517710>
 
 如果你发现一只羽毛脏兮兮的小鸟，跳来跳去，看起来有些不知所措，看不到父母，你可能会认为它有麻烦了，需要被拯救。但事实很可能并非如此。最有可能的是，你刚刚发现了一只雏鸟。
 

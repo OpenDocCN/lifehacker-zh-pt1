@@ -1,6 +1,6 @@
 # 如何在没有太多自然光的家里增加更多的自然光
 
-> 原文:[https://life hacker . com/how-to-add-more-natural light to-a home-not-more-of-they-of-1848269441](https://lifehacker.com/how-to-add-more-natural-light-to-a-home-without-much-of-1848269441)
+> 原文：<https://lifehacker.com/how-to-add-more-natural-light-to-a-home-without-much-of-1848269441>
 
 白天正式变长了，但我们还有很多黑暗的冬天要过。虽然我们对太阳这么早落山无能为力，但我们可以在白天太阳出来的时候最大限度地增加室内的自然光。
 

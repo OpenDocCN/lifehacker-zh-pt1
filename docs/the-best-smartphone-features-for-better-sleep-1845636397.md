@@ -1,6 +1,6 @@
 # 改善睡眠的最佳智能手机功能
 
-> 原文:[https://life hacker . com/the-best-smart phone-features-for-better-sleep-1845636397](https://lifehacker.com/the-best-smartphone-features-for-better-sleep-1845636397)
+> 原文：<https://lifehacker.com/the-best-smartphone-features-for-better-sleep-1845636397>
 
 整晚盯着我们的手机是获得良好睡眠的最大障碍。然而，有许多方法可以减轻智能手机对我们睡眠时间表的负面影响。如果使用正确，你的智能手机甚至可以成为*帮助你睡眠的有用工具。以下是智能手机帮助你享受整夜休息的一些最佳方式。*
 
@@ -10,39 +10,39 @@ Watch
 
 让我们从你的智能手机妨碍睡眠的最大原因说起:蓝光。一项又一项的研究表明，过多的蓝光照射会让我们更难入睡，而这正是我们所有的手机、电脑和电视向我们的眼球发出的信号。
 
-幸运的是， [Android的夜灯](https://support.google.com/pixelphone/answer/7169926?hl=en) 和 [iOS的夜班](https://lifehacker.com/how-to-activate-night-shift-and-apples-secret-invert-1818590859) 至少能过滤掉*部分*那种蓝光，这应该能帮你放松，更快入睡。您可以手动打开或关闭这些过滤器，或者将它们设置为在特定时间自动打开。您也可以在设备设置中编辑亮度和色温。
+幸运的是， [Android 的夜灯](https://support.google.com/pixelphone/answer/7169926?hl=en) 和 [iOS 的夜班](https://lifehacker.com/how-to-activate-night-shift-and-apples-secret-invert-1818590859) 至少能过滤掉*部分*那种蓝光，这应该能帮你放松，更快入睡。您可以手动打开或关闭这些过滤器，或者将它们设置为在特定时间自动打开。您也可以在设备设置中编辑亮度和色温。
 
-如果Android的夜灯滤镜对你来说不够强烈(或者你的设备上没有)，第三方应用程序如可以让屏幕更红更暗。
+如果 Android 的夜灯滤镜对你来说不够强烈(或者你的设备上没有)，第三方应用程序如可以让屏幕更红更暗。
 
-除了这些滤镜，降低智能手机的亮度也有助于减轻蓝光的影响。Android和iOS允许你从通知托盘中调整手机的亮度，但iOS可以在辅助功能菜单 中 [进一步降低亮度。](https://lifehacker.com/how-to-dim-your-iphones-brightness-more-than-you-though-1833138064) 
+除了这些滤镜，降低智能手机的亮度也有助于减轻蓝光的影响。Android 和 iOS 允许你从通知托盘中调整手机的亮度，但 iOS 可以在辅助功能菜单 中 [进一步降低亮度。](https://lifehacker.com/how-to-dim-your-iphones-brightness-more-than-you-though-1833138064) 
 
 ### 使用手机内置的就寝模式和睡眠追踪器
 
-Android手机和iPhones都有内置的就寝模式，它会提醒你什么时候该上床睡觉，减少夜间分心，并有助于提高每晚的睡眠质量。
+Android 手机和 iPhones 都有内置的就寝模式，它会提醒你什么时候该上床睡觉，减少夜间分心，并有助于提高每晚的睡眠质量。
 
 #### **iOS**
 
-运行iOS 14或更高版本的iPhones有 [三个内置助眠功能](https://support.apple.com/en-us/HT211685) :
+运行 iOS 14 或更高版本的 iPhones 有 [三个内置助眠功能](https://support.apple.com/en-us/HT211685) :
 
-*   **睡眠时间表:**让您设置一周中每天的起床时间和就寝时间。你的iPhone会提醒你该睡觉了。
+*   **睡眠时间表:**让您设置一周中每天的起床时间和就寝时间。你的 iPhone 会提醒你该睡觉了。
 *   **放松:**此模式打开请勿打扰模式，并从您的锁定屏幕中删除令人分心的应用程序。
 *   **睡眠模式:**让您选择睡眠时允许使用的电话功能和通知类型。如果你有苹果手表，这种模式还可以跟踪你每晚的睡眠时间和质量，这是医生可以用来发现你睡眠问题的有用信息。
 
-你可以在iOS健康应用的“睡眠”部分找到并配置这些模式。
+你可以在 iOS 健康应用的“睡眠”部分找到并配置这些模式。
 
 ### **安卓**
 
-Android的就寝模式基本上是将所有不同的iOS“睡眠辅助”功能合二为一。
+Android 的就寝模式基本上是将所有不同的 iOS“睡眠辅助”功能合二为一。
 
 就寝模式会在你的就寝时间临近时提醒你，它可以用“日出”闹钟更温柔地叫醒你，在你的闹钟前几分钟，它会用橙色光慢慢点亮显示屏。它还会在准备睡觉的时候自动开启各种设置，比如“请勿打扰”。
 
 你可以在股票时钟应用程序的“就寝时间”标签中调整你的闹钟和提醒，并且你可以在**设置>数字健康>就寝时间模式**下自定义打开哪些功能和应用程序限制。
 
-就寝模式唯一缺少的是专门的睡眠跟踪。Android没有像iOS那样内置睡眠追踪器，但亚马逊的Halo或Fitbit智能手表等设备将使用自己的应用程序。也可以使用类似 [的第三方追踪器，睡眠为安卓](https://play.google.com/store/apps/details?id=com.urbandroid.sleep&hl=en_US) 。
+就寝模式唯一缺少的是专门的睡眠跟踪。Android 没有像 iOS 那样内置睡眠追踪器，但亚马逊的 Halo 或 Fitbit 智能手表等设备将使用自己的应用程序。也可以使用类似 [的第三方追踪器，睡眠为安卓](https://play.google.com/store/apps/details?id=com.urbandroid.sleep&hl=en_US) 。
 
 ### 手动调整手机设置以获得更好的睡眠
 
-Android和iOS的睡眠辅助模式很方便，但它们并不适用于所有设备，也没有涵盖所有的睡眠辅助功能。虽然睡眠跟踪应用和可穿戴设备为我们的睡眠质量提供了重要的见解，但不是每个人都可以花钱(或花时间)来设置它们。
+Android 和 iOS 的睡眠辅助模式很方便，但它们并不适用于所有设备，也没有涵盖所有的睡眠辅助功能。虽然睡眠跟踪应用和可穿戴设备为我们的睡眠质量提供了重要的见解，但不是每个人都可以花钱(或花时间)来设置它们。
 
 这里有几个额外的智能手机设置，你应该打开它们以获得更好的睡眠。更好的是，每个人都可以访问它们:
 

@@ -1,8 +1,8 @@
 # 为你不可避免地打碎眼镜做好准备
 
-> 原文:[https://life hacker . com/be-ready-for-when-you-ably-break-your-glasses-1846138207](https://lifehacker.com/be-ready-for-when-you-inevitably-break-your-glasses-1846138207)
+> 原文：<https://lifehacker.com/be-ready-for-when-you-inevitably-break-your-glasses-1846138207>
 
-你在半夜踩到你的眼镜。或者一场房屋大火融化了你的眼镜框架T2。一场龙卷风把你脸上的眼镜刮了下来。或一个疫情恶化，你的眼镜碎了，一切都关闭了，没有办法得到一个替代品。作为一名眼镜佩戴者，我已经考虑了所有这些可能性以及更多。Y 你可能也有，但是还没有采取步骤为潜在的无眼镜未来做准备。让我们解决这个问题。
+你在半夜踩到你的眼镜。或者一场房屋大火融化了你的眼镜框架 T2。一场龙卷风把你脸上的眼镜刮了下来。或一个疫情恶化，你的眼镜碎了，一切都关闭了，没有办法得到一个替代品。作为一名眼镜佩戴者，我已经考虑了所有这些可能性以及更多。Y 你可能也有，但是还没有采取步骤为潜在的无眼镜未来做准备。让我们解决这个问题。
 
 Watch
 
@@ -26,8 +26,8 @@ Watch
 
 ### 知道如何管理您的备用联系人
 
-隐形眼镜给日常生活带来了难以置信的便利，但在灾难情况T2下，它们可能会成为负担，因为它们需要干净的水和抗菌溶液。没有干净的隐形眼镜，你的眼睛容易受到感染，如 [细菌性](https://www.cdc.gov/contactlenses/bacterial-keratitis.html#:~:text=Bacterial%20keratitis%20is%20an%20infection,Pseudomonas%20aeruginosa) 和 [真菌性角膜炎](https://www.cdc.gov/contactlenses/fungal-keratitis.html#:~:text=Fungal%20keratitis%20is%20an%20infection,Candida%20species) 。
+隐形眼镜给日常生活带来了难以置信的便利，但在灾难情况 T2 下，它们可能会成为负担，因为它们需要干净的水和抗菌溶液。没有干净的隐形眼镜，你的眼睛容易受到感染，如 [细菌性](https://www.cdc.gov/contactlenses/bacterial-keratitis.html#:~:text=Bacterial%20keratitis%20is%20an%20infection,Pseudomonas%20aeruginosa) 和 [真菌性角膜炎](https://www.cdc.gov/contactlenses/fungal-keratitis.html#:~:text=Fungal%20keratitis%20is%20an%20infection,Candida%20species) 。
 
-如果没有接触溶液，抗菌液也能起到作用，但 [肥皂和水是最好的替代](https://www.mentalfloss.com/article/55689/what-happens-if-i-survive-apocalypse-and-only-have-one-pair-contact-lenses) 。然而，无论你是在野营还是在全球疫情期间被困在室内，储备联络解决方案显然是最好的选择。LASIK和视力矫正手术专家Kugler 博士说:“当你面临隐形眼镜带来的灾难时，眼睛感染很可能是你最大的威胁。”。
+如果没有接触溶液，抗菌液也能起到作用，但 [肥皂和水是最好的替代](https://www.mentalfloss.com/article/55689/what-happens-if-i-survive-apocalypse-and-only-have-one-pair-contact-lenses) 。然而，无论你是在野营还是在全球疫情期间被困在室内，储备联络解决方案显然是最好的选择。LASIK 和视力矫正手术专家 Kugler 博士说:“当你面临隐形眼镜带来的灾难时，眼睛感染很可能是你最大的威胁。”。
 
 不幸的是，隐形眼镜确实会过期:一副开放式一次性隐形眼镜可以持续一天到一个月，硬性隐形眼镜可以持续一年或更长时间 。一包未开封的隐形眼镜可以持续 [到三年](https://www.1800contacts.com/eyesociety/how-long-can-you-wear-contacts/#:~:text=How%20long%20do%20contact%20lenses,a%20lens%20that%20has%20expired.) 。因此，如果您将联系人放在一边以便在活页夹中使用，请确保记录他们何时到期。随身携带一副眼镜。也许几双。

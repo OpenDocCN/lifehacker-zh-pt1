@@ -1,12 +1,12 @@
 # 打喷嚏时戴上口罩
 
-> 原文:[https://life hacker . com/keep-your-mask-on-when you-sneagle-1846053476](https://lifehacker.com/keep-your-mask-on-when-you-sneeze-1846053476)
+> 原文：<https://lifehacker.com/keep-your-mask-on-when-you-sneeze-1846053476>
 
 当你戴着口罩，需要打喷嚏的时候，似乎有些不知所措。正如马特·卡罗里安在推特 上指出的，在最近的弹劾投票中，一名男子拉下他的面具对着他的手打喷嚏，这与你应该做的事情完全相反。
 
 Watch [https://lifehacker.com/embed/inset/iframe?id=twitter-1349437671517650944&autosize=1](https://lifehacker.com/embed/inset/iframe?id=twitter-1349437671517650944&autosize=1) 
 
-佩戴口罩的目的是为了防止您个人的呼吸飞沫进入其他人可能呼吸的空气中。如果你需要打喷嚏——这种现象会排出大量该死的T2飞沫——以下是你需要做的:
+佩戴口罩的目的是为了防止您个人的呼吸飞沫进入其他人可能呼吸的空气中。如果你需要打喷嚏——这种现象会排出大量该死的 T2 飞沫——以下是你需要做的:
 
 1.  戴上面具
 2.  对着手肘或纸巾打喷嚏(透过口罩)

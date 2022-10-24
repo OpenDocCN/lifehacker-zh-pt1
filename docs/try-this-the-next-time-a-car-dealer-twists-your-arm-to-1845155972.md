@@ -1,6 +1,6 @@
 # 下次汽车经销商强迫你购买延长保修时，试试这个方法
 
-> 原文:[https://jalopnik . com/try-this-the-next-time-a-car-dealer-twists-your-arm-to-1845155972](https://jalopnik.com/try-this-the-next-time-a-car-dealer-twists-your-arm-to-1845155972)
+> 原文：<https://jalopnik.com/try-this-the-next-time-a-car-dealer-twists-your-arm-to-1845155972>
 
 尽管新冠肺炎对汽车市场产生了深远的影响，但它并没有给经销商带来经常预测的革命性变化。虽然远程交易和在线交易有所增加，但传统的购车方式仍然存在，这意味着要在财务办公室应对硬推销策略。
 
@@ -18,16 +18,16 @@ Watch
 
 这种方法在几个层面上有效。首先，它传达了这样一个信息:你很清楚自己对任何额外的成本都不感兴趣。第二，它给了交易商各种各样的激励，促使他们缩短推销时间，尽快完成文书工作。
 
-[汽车制造商发送给客户的调查系统通常会根据客户的反馈为经销商](https://jalopnik.com/here-is-how-you-should-respond-to-those-dealership-surv-1795885547) [提供报酬](https://jalopnik.com/here-is-how-you-should-respond-to-those-dealership-surv-1795885547) [。](https://jalopnik.com/here-is-how-you-should-respond-to-those-dealership-surv-1795885547) 现在，我要说调查系统不公平:基本上，分数被视为10分(完美)或零分，任何介于两者之间的分数都被认为不好。通过提及调查，您表明了您的理解，即这些分数对代理商可能有一定意义，并且如果他们合作，您愿意给他们高分。这里的潜台词是，如果他们继续强硬，你也可以在调查中处罚他们。
+[汽车制造商发送给客户的调查系统通常会根据客户的反馈为经销商](https://jalopnik.com/here-is-how-you-should-respond-to-those-dealership-surv-1795885547) [提供报酬](https://jalopnik.com/here-is-how-you-should-respond-to-those-dealership-surv-1795885547) [。](https://jalopnik.com/here-is-how-you-should-respond-to-those-dealership-surv-1795885547) 现在，我要说调查系统不公平:基本上，分数被视为 10 分(完美)或零分，任何介于两者之间的分数都被认为不好。通过提及调查，您表明了您的理解，即这些分数对代理商可能有一定意义，并且如果他们合作，您愿意给他们高分。这里的潜台词是，如果他们继续强硬，你也可以在调查中处罚他们。
 
-当然，这可能不是100%的时候都有效，我相信在评论中会有人建议一个更积极的方法。但是我有一些客户在寻找一个坚定而文明的谈话，有效地使用这种方法。
+当然，这可能不是 100%的时候都有效，我相信在评论中会有人建议一个更积极的方法。但是我有一些客户在寻找一个坚定而文明的谈话，有效地使用这种方法。
 
 * * *
 
-更多关于G/O Media的合作伙伴延长保修的信息:
+更多关于 G/O Media 的合作伙伴延长保修的信息:
 - [最佳延长汽车保修](https://jalopnik.com/advisor/best-extended-car-warranty/)
 --[耐久保修评论](https://jalopnik.com/advisor/endurance-warranty-review/)
---[CarShield评论](https://jalopnik.com/advisor/carshield-reviews/)
--[Carchex评论](https://jalopnik.com/advisor/carchex-reviews/)
+--[CarShield 评论](https://jalopnik.com/advisor/carshield-reviews/)
+-[Carchex 评论](https://jalopnik.com/advisor/carchex-reviews/)
 
-*Jalopnik不参与这些文章的创作，但可以通过其内容从购买中获得佣金。*
+*Jalopnik 不参与这些文章的创作，但可以通过其内容从购买中获得佣金。*

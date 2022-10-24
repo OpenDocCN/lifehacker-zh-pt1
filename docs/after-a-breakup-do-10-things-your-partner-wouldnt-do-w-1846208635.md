@@ -1,8 +1,8 @@
-# 分手后，做10件你的伴侣不会和你一起做的事
+# 分手后，做 10 件你的伴侣不会和你一起做的事
 
-> 原文:[https://life hacker . com/after-a-breakup-do-10-things-your-partner-would-do-w-1846208635](https://lifehacker.com/after-a-breakup-do-10-things-your-partner-wouldnt-do-w-1846208635)
+> 原文：<https://lifehacker.com/after-a-breakup-do-10-things-your-partner-wouldnt-do-w-1846208635>
 
-如果你最近从一段关系的束缚中解放出来，这段关系扼杀了你做那些带给你快乐和满足的事情，那么你可能想从这条Reddit帖子 中得到提示 [。书中建议，在一次特别糟糕的分手后，你应该做10件你的前任伴侣不会和你一起做的事情，这样你就可以重新找回真正的自我。](https://www.reddit.com/r/LifeProTips/comments/lcmwqn/lpt_after_a_bad_break_up_do_10_things_that_your/) 
+如果你最近从一段关系的束缚中解放出来，这段关系扼杀了你做那些带给你快乐和满足的事情，那么你可能想从这条 Reddit 帖子 中得到提示 [。书中建议，在一次特别糟糕的分手后，你应该做 10 件你的前任伴侣不会和你一起做的事情，这样你就可以重新找回真正的自我。](https://www.reddit.com/r/LifeProTips/comments/lcmwqn/lpt_after_a_bad_break_up_do_10_things_that_your/) 
 
 Watch
 

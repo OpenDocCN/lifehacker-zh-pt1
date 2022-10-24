@@ -1,14 +1,14 @@
-# 这些是Reddit有史以来最受欢迎的“生活专业建议”
+# 这些是 Reddit 有史以来最受欢迎的“生活专业建议”
 
-> 原文:[https://life hacker . com/these-is-reddits-most-popular-life-pro-tips-of-all-Tim-1845303538](https://lifehacker.com/these-are-reddits-most-popular-life-pro-tips-of-all-tim-1845303538)
+> 原文：<https://lifehacker.com/these-are-reddits-most-popular-life-pro-tips-of-all-tim-1845303538>
 
-[life protips sub Reddit](https://www.reddit.com/r/LifeProTips)是Lifehacker工作人员的最爱。和我们一样，这些人对发现和分享让生活变得更轻松或更美好的古怪小技巧很感兴趣。有些是特定时刻的黑客攻击；其他的是经得起岁月流逝的常青树。但是每一条——根据subreddit的描述——都旨在成为一条，“简明而具体的建议，以一种具体而有意义的方式改善你和你周围人的生活。”
+[life protips sub Reddit](https://www.reddit.com/r/LifeProTips)是 Lifehacker 工作人员的最爱。和我们一样，这些人对发现和分享让生活变得更轻松或更美好的古怪小技巧很感兴趣。有些是特定时刻的黑客攻击；其他的是经得起岁月流逝的常青树。但是每一条——根据 subreddit 的描述——都旨在成为一条，“简明而具体的建议，以一种具体而有意义的方式改善你和你周围人的生活。”
 
-我注意到这个subreddit这个月就满10岁了。因此，我觉得有义务分享它有史以来最受欢迎的10个专业建议。然后我们将讨论他们是否是真正的黑客。
+我注意到这个 subreddit 这个月就满 10 岁了。因此，我觉得有义务分享它有史以来最受欢迎的 10 个专业建议。然后我们将讨论他们是否是真正的黑客。
 
 来加入我吧。
 
-[来自u/jade_monkey07](https://www.reddit.com/r/LifeProTips/comments/89unew/lpt_if_you_like_one_song_by_an_artist_but_dont) :
+[来自 u/jade_monkey07](https://www.reddit.com/r/LifeProTips/comments/89unew/lpt_if_you_like_one_song_by_an_artist_but_dont) :
 
 > 如果你喜欢某个艺术家的一首歌，但不喜欢他们的其他作品，那就找出制作人，看看他们还做过什么。制作人可以在最终歌曲的结果中发挥很大的作用。
 
@@ -30,15 +30,15 @@
 
 [From u/co1 one 1 hunter gathers](https://www.reddit.com/r/LifeProTips/comments/fu8e1y/lpt_gym_closed_and_wont_respond_to_your_emails):
 
-> 健身房关闭，不会回复你的电子邮件，要求暂停你的健身房会员资格？打电话给银行，要求他们停止支付1年的费用，大多数银行目前都免除这项费用。还有，去他妈的随时健身。
+> 健身房关闭，不会回复你的电子邮件，要求暂停你的健身房会员资格？打电话给银行，要求他们停止支付 1 年的费用，大多数银行目前都免除这项费用。还有，去他妈的随时健身。
 
 这显然是在大多数健身房因疫情而关闭的时候写的，但是“ [退出健身房](https://youtu.be/-_LM2ZlbmP8) ”仍然是我们许多人都可以联系到的永恒问题。我不知道银行是否仍在免除这些费用，但如果你要么无法联系健身房的人关闭你的会员资格(或者穿着紧身莱卡的玛利亚很难说“不”)，我想你可以自己解决问题。
 
 [From u/phedre](https://www.reddit.com/r/LifeProTips/comments/6s7ln1/lpt_if_your_lpt_is_about_fucking_coconuts_it_will) :
 
-> 如果你的LPT [Life Pro Tip]是关于他妈的椰子的，就会被删除，你就会被封禁。
+> 如果你的 LPT [Life Pro Tip]是关于他妈的椰子的，就会被删除，你就会被封禁。
 
-这是由subreddit的一个版主发布的。我第一次读“他妈的”这个形容词的时候，就想，“哇，我们这里有什么反对椰子的？”但后来我意识到，大多数人都发布了一个关于与椰子共度私人时光的专业提示，是的，这可能会让你被禁。所以，当然，“不要在网上发布关于和椰子做爱的帖子”可能是个骗局，因为这就是我们生活的世界。
+这是由 subreddit 的一个版主发布的。我第一次读“他妈的”这个形容词的时候，就想，“哇，我们这里有什么反对椰子的？”但后来我意识到，大多数人都发布了一个关于与椰子共度私人时光的专业提示，是的，这可能会让你被禁。所以，当然，“不要在网上发布关于和椰子做爱的帖子”可能是个骗局，因为这就是我们生活的世界。
 
 是时候彻底改变话题了！[From u/socratit](https://www.reddit.com/r/LifeProTips/comments/d09tq7/lpt_if_a_friend_or_a_family_member_gets_diagnosed)T3:
 
@@ -46,7 +46,7 @@
 > 
 > 音乐有助于痴呆症患者回忆起记忆和情感。尤其是当特定的歌曲与他们之前的生活联系在一起的时候。
 
-嗯，我很清楚地同意这是一个坚实的黑客，因为一年多前当u/sportznut1000发布了一个类似的建议时，我实际上写了关于它的(并且得到的*支持票少了很多*，这似乎是不公平的)。
+嗯，我很清楚地同意这是一个坚实的黑客，因为一年多前当 u/sportznut1000 发布了一个类似的建议时，我实际上写了关于它的(并且得到的*支持票少了很多*，这似乎是不公平的)。
 
 [From u/podotash](https://www.reddit.com/r/LifeProTips/comments/hfmqyd/lpt_the_next_time_you_catch_yourself_judging) :
 
@@ -68,9 +68,9 @@
 > 
 > 编辑:我能不能说这个帖子不是针对美国政治的。我不是美国人，也不太了解你们的政治。我今天才听说拜登这个名字，抱歉！
 
-U/ninnymugginsss在五个月前发布了这篇文章，他可能并没有打算把这篇文章指向美国政治，但我认为如果你这样应用它，这是完全好的，也是值得鼓励的。黑。
+U/ninnymugginsss 在五个月前发布了这篇文章，他可能并没有打算把这篇文章指向美国政治，但我认为如果你这样应用它，这是完全好的，也是值得鼓励的。黑。
 
-[来自u/aviji22](https://www.reddit.com/r/LifeProTips/comments/j2mm1b/lpt_when_you_sign_up_for_anything_online_put_the) :
+[来自 u/aviji22](https://www.reddit.com/r/LifeProTips/comments/j2mm1b/lpt_when_you_sign_up_for_anything_online_put_the) :
 
 > 当你在网上注册任何东西时，把网站的名字作为你的中间名。这样，当你收到垃圾邮件/广告邮件时，你就知道是谁出卖了你的信息。
 
@@ -78,15 +78,15 @@ U/ninnymugginsss在五个月前发布了这篇文章，他可能并没有打算�
 
 还有，网站通常会问你的中间名吗？似乎有点牵强；我不能支持这个。
 
-(你还记得在90年代用真正的杂志和其他垃圾邮件做过类似的事情吗？我哥哥曾经在当地一家家居用品店注册了一个名为“嗨，妈妈，我在这里。”如此纯真的时光。)
+(你还记得在 90 年代用真正的杂志和其他垃圾邮件做过类似的事情吗？我哥哥曾经在当地一家家居用品店注册了一个名为“嗨，妈妈，我在这里。”如此纯真的时光。)
 
-[来自u/Moonripple616](https://www.reddit.com/r/LifeProTips/comments/fpfwra/lpt_if_you_want_a_smarter_kid_teach_your_child_to) :
+[来自 u/Moonripple616](https://www.reddit.com/r/LifeProTips/comments/fpfwra/lpt_if_you_want_a_smarter_kid_teach_your_child_to) :
 
 > 如果你想要一个更聪明的孩子，尽早教你的孩子阅读，并向他们灌输对书籍的热爱。因为他们一识字，就能自学。这将是他们一生的优势，因为他们的同龄人没有同样的能力。
 
 这一个对我来说有点太普通了，因为，是的，对阅读的热爱是重要和美妙的，一些孩子在很小的时候还没有准备好学习阅读。我更喜欢关于如何让孩子多读*多读*的小贴士，比如 [这个](https://offspring.lifehacker.com/let-your-kid-stay-up-past-their-bedtime-to-read-1837833422) 或者 [这个](https://offspring.lifehacker.com/play-karaoke-videos-for-your-kid-who-loves-music-but-ha-1834418103) 或者 [这个](https://offspring.lifehacker.com/keep-books-for-your-kid-in-every-room-of-your-house-1827358391) 。仅仅说我们应该教他们阅读并灌输他们对书籍的热爱本身并不足以成为一个可靠的黑客。
 
-[来自u/w2555](https://www.reddit.com/r/LifeProTips/comments/f6jt5e/lpt_keep_your_mouth_shut_and_dont_volunteer) :
+[来自 u/w2555](https://www.reddit.com/r/LifeProTips/comments/f6jt5e/lpt_keep_your_mouth_shut_and_dont_volunteer) :
 
 > 守口如瓶，不要主动提供信息。
 > 
@@ -94,7 +94,7 @@ U/ninnymugginsss在五个月前发布了这篇文章，他可能并没有打算�
 > 
 > 相反，我所做的只是道歉，并问我们是否可以重新安排时间。就这样，一句话，没有额外的信息，没有解释或借口，为什么我错过了第一次面试。
 > 
-> 他们在20分钟内回复了我，向我道歉，说这可能是他们的错，他们的计算机系统几天来一直有问题，当然我可以重新安排，那天下午我有空吗？
+> 他们在 20 分钟内回复了我，向我道歉，说这可能是他们的错，他们的计算机系统几天来一直有问题，当然我可以重新安排，那天下午我有空吗？
 > 
 > 孩子们，不要主动提供信息。你永远不知道对方有什么信息，如果以后有人问你，你随时可以提供信息。
 

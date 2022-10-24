@@ -1,16 +1,16 @@
-# 为什么您应该填写FAFSA，即使您认为它不适合您
+# 为什么您应该填写 FAFSA，即使您认为它不适合您
 
-> 原文:[https://life hacker . com/why-you-should-fill-the-fafsa-even-if-you-don-t-th-1847817897](https://lifehacker.com/why-you-should-fill-out-the-fafsa-even-if-you-don-t-th-1847817897)
+> 原文：<https://lifehacker.com/why-you-should-fill-out-the-fafsa-even-if-you-don-t-th-1847817897>
 
-FAFSA——2022-2023学年免费申请联邦学生资助于10月1日开放。然而每年，许多高中毕业生不像FAFSA那样填写表格，把钱留在桌上。也许你认为自己没有资格获得资助，或者认为这只是浪费时间。根据美国消费者新闻与商业频道的说法，这种混乱导致学生们错过了每年1500亿美元的联邦学生资助。
+FAFSA——2022-2023 学年免费申请联邦学生资助于 10 月 1 日开放。然而每年，许多高中毕业生不像 FAFSA 那样填写表格，把钱留在桌上。也许你认为自己没有资格获得资助，或者认为这只是浪费时间。根据美国消费者新闻与商业频道的说法，这种混乱导致学生们错过了每年 1500 亿美元的联邦学生资助。
 
 Watch
 
-这就是为什么无论如何，对你或你生活中即将上大学的孩子来说，填写FAFSA是有意义的。
+这就是为什么无论如何，对你或你生活中即将上大学的孩子来说，填写 FAFSA 是有意义的。
 
-## **FAFSA决定的不仅仅是贷款**
+## **FAFSA 决定的不仅仅是贷款**
 
-FAFSA的目的是确定学生有资格获得多少经济资助，包括基于需求和非基于需求的资助。值得填写表格，了解你如何有资格获得各种经济资助，包括联邦、州和学校资助，以及基于成绩的奖学金。
+FAFSA 的目的是确定学生有资格获得多少经济资助，包括基于需求和非基于需求的资助。值得填写表格，了解你如何有资格获得各种经济资助，包括联邦、州和学校资助，以及基于成绩的奖学金。
 
 ## 最初的数字并不是一成不变的
 
@@ -22,10 +22,10 @@ FAFSA的目的是确定学生有资格获得多少经济资助，包括基于需
 
 ## **没有适用的官方收入截止值**
 
-不要以为根据你的家庭收入水平你没有资格。即使你没有资格申请所有类型的援助，申请联邦贷款也没有官方收入截止日期。像勤工俭学这样的按需资助或者佩尔助学金这样的奖学金都有收入要求。了解 [获得的标准— 并抓住— 你的资格](https://studentaid.gov/understand-aid/eligibility) 很重要(比如对新生没有GPA要求)。
+不要以为根据你的家庭收入水平你没有资格。即使你没有资格申请所有类型的援助，申请联邦贷款也没有官方收入截止日期。像勤工俭学这样的按需资助或者佩尔助学金这样的奖学金都有收入要求。了解 [获得的标准— 并抓住— 你的资格](https://studentaid.gov/understand-aid/eligibility) 很重要(比如对新生没有 GPA 要求)。
 
 ## **它是免费的，而且(据说)很快**
 
-根据美国教育部的 [联邦学生资助网站](https://studentaid.gov/) (免费！)FAFSA的表格需要一般学生 [不到一个小时](https://studentaid.gov/help/how-long) 来填写。所以，即使你可能不知道你要去哪里上学，甚至不知道你是否要去哪里上学，你也应该尽快申请联邦资助。这个过程可能令人望而生畏，但有了FAFSA， [早起的鸟儿有虫吃](https://lifehacker.com/if-you-want-federal-student-aid-fill-out-your-fafsa-no-1838749614) 。
+根据美国教育部的 [联邦学生资助网站](https://studentaid.gov/) (免费！)FAFSA 的表格需要一般学生 [不到一个小时](https://studentaid.gov/help/how-long) 来填写。所以，即使你可能不知道你要去哪里上学，甚至不知道你是否要去哪里上学，你也应该尽快申请联邦资助。这个过程可能令人望而生畏，但有了 FAFSA， [早起的鸟儿有虫吃](https://lifehacker.com/if-you-want-federal-student-aid-fill-out-your-fafsa-no-1838749614) 。
 
-可以在线 完成 [自由式或者使用iOS或Android的](https://studentaid.ed.gov/sa/fafsa) [myStudentAid app](https://twocents.lifehacker.com/you-can-now-file-fafsa-from-your-phone-1829435594) 。
+可以在线 完成 [自由式或者使用 iOS 或 Android 的](https://studentaid.ed.gov/sa/fafsa) [myStudentAid app](https://twocents.lifehacker.com/you-can-now-file-fafsa-from-your-phone-1829435594) 。

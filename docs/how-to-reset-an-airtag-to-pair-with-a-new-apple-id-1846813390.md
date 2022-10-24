@@ -1,18 +1,18 @@
-# 如何重置AirTag以与新的Apple ID配对
+# 如何重置 AirTag 以与新的 Apple ID 配对
 
-> 原文:[https://life hacker . com/how-to-reset-an-air tag-to-pair-with-a-new-apple-id-1846813390](https://lifehacker.com/how-to-reset-an-airtag-to-pair-with-a-new-apple-id-1846813390)
+> 原文：<https://lifehacker.com/how-to-reset-an-airtag-to-pair-with-a-new-apple-id-1846813390>
 
-Apple AirTags可以附着在各种各样的东西上——你的钥匙、钱包、行李，甚至是你宠物的项圈——但尽管它们作为微型跟踪设备具有多种功能，airtag一次只能与一个Apple ID相关联。如果你是唯一一个使用AirTag的人，这很好，并且使其他人很难窃取或篡改设备，但这意味着如果你想在不同的帐户上使用AirTag，你需要从你的苹果帐户中删除它。
+Apple AirTags 可以附着在各种各样的东西上——你的钥匙、钱包、行李，甚至是你宠物的项圈——但尽管它们作为微型跟踪设备具有多种功能，airtag 一次只能与一个 Apple ID 相关联。如果你是唯一一个使用 AirTag 的人，这很好，并且使其他人很难窃取或篡改设备，但这意味着如果你想在不同的帐户上使用 AirTag，你需要从你的苹果帐户中删除它。
 
 Watch
 
-您可以在“查找我的应用程序”中轻松地从Apple ID中移除AirTag，但如果您在AirTag不在蓝牙范围内时取消其链接，您还需要手动重置它，其他人才能使用它。重置AirTag很简单，但需要您遵循非常具体的说明。
+您可以在“查找我的应用程序”中轻松地从 Apple ID 中移除 AirTag，但如果您在 AirTag 不在蓝牙范围内时取消其链接，您还需要手动重置它，其他人才能使用它。重置 AirTag 很简单，但需要您遵循非常具体的说明。
 
-### 如何**手动**重置AirTag
+### 如何**手动**重置 AirTag
 
-第一步是取下AirTag的电池盖:
+第一步是取下 AirTag 的电池盖:
 
-1.  逆时针旋转AirTag，同时按下它的金属部分。继续转动它，直到盖子停止转动，然后提起盖子。
+1.  逆时针旋转 AirTag，同时按下它的金属部分。继续转动它，直到盖子停止转动，然后提起盖子。
 
 接下来，您需要以特定的方式多次取出并重新插入电池:
 
@@ -22,8 +22,8 @@ Watch
 
 当你播放声音五次后，装回电池盖，再次确保你遵循以下步骤:
 
-1.  确保电池盖的三个凸耳与AirTag上的插槽对齐。
+1.  确保电池盖的三个凸耳与 AirTag 上的插槽对齐。
 2.  按下盖子，直到听到声音。
 3.  顺时针转动盖子，直到它停止转动。
 
-您的AirTag现已重置，您可以将其与新的Apple ID配对。
+您的 AirTag 现已重置，您可以将其与新的 Apple ID 配对。

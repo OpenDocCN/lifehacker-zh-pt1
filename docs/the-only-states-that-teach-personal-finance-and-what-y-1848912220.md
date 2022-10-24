@@ -1,8 +1,8 @@
 # 唯一教个人理财的州(以及你必须自己教孩子的东西)
 
-> 原文:[https://life hacker . com/the-only-States-the-teach-personal-finance-and-what-y-1848912220](https://lifehacker.com/the-only-states-that-teach-personal-finance-and-what-y-1848912220)
+> 原文：<https://lifehacker.com/the-only-states-that-teach-personal-finance-and-what-y-1848912220>
 
-最近， [佐治亚州成为全国第13个](https://www.cnbc.com/2022/04/28/georgia-is-now-the-latest-state-to-mandate-personal-finance-education.html) 强制高中学生接受个人理财教育的州。根据 [下一代个人理财](https://www.ngpf.org/blog/advocacy/how-many-states-require-students-to-take-a-personal-finance-course-before-graduating-from-high-school-is-it-6-or-is-it-21/?gclid=CjwKCAjwve2TBhByEiwAaktM1Myqj5p1Q7BcJJ6oPNkVhySxjV9zVcSYgV23KuNWGa7FGA2J5v9wVBoCPXUQAvD_BwE) 的报道，乔治亚州加入了阿拉巴马州、佛罗里达州、爱荷华州、密西西比州、密苏里州、内布拉斯加州、北卡罗来纳州、罗德岛州、俄亥俄州、田纳西州、犹他州和弗吉尼亚州的行列，要求青少年在毕业之前至少学习一个学期的个人理财。
+最近， [佐治亚州成为全国第 13 个](https://www.cnbc.com/2022/04/28/georgia-is-now-the-latest-state-to-mandate-personal-finance-education.html) 强制高中学生接受个人理财教育的州。根据 [下一代个人理财](https://www.ngpf.org/blog/advocacy/how-many-states-require-students-to-take-a-personal-finance-course-before-graduating-from-high-school-is-it-6-or-is-it-21/?gclid=CjwKCAjwve2TBhByEiwAaktM1Myqj5p1Q7BcJJ6oPNkVhySxjV9zVcSYgV23KuNWGa7FGA2J5v9wVBoCPXUQAvD_BwE) 的报道，乔治亚州加入了阿拉巴马州、佛罗里达州、爱荷华州、密西西比州、密苏里州、内布拉斯加州、北卡罗来纳州、罗德岛州、俄亥俄州、田纳西州、犹他州和弗吉尼亚州的行列，要求青少年在毕业之前至少学习一个学期的个人理财。
 
 Watch
 
@@ -12,13 +12,13 @@ Watch
 
 ## 基本预算
 
-每个青少年都应该被教导如何建立一个现实的预算。教他们(用你自己的报表)收集财务文件，如W-2和工资单、公用事业账单、信用卡账单、收据和所有其他与他们(未来)收入和支出相关的财务文件。在 [创建了每月费用清单](https://www.thebalance.com/how-to-make-a-budget-1289587) 后，他们应该知道如何将它们分解成固定费用和可变费用。教他们将总收入与支出进行比较，这样他们就可以为每月剩余的收入制定储蓄计划，或者决定在哪里削减支出，这样他们就不会入不敷出。
+每个青少年都应该被教导如何建立一个现实的预算。教他们(用你自己的报表)收集财务文件，如 W-2 和工资单、公用事业账单、信用卡账单、收据和所有其他与他们(未来)收入和支出相关的财务文件。在 [创建了每月费用清单](https://www.thebalance.com/how-to-make-a-budget-1289587) 后，他们应该知道如何将它们分解成固定费用和可变费用。教他们将总收入与支出进行比较，这样他们就可以为每月剩余的收入制定储蓄计划，或者决定在哪里削减支出，这样他们就不会入不敷出。
 
 ## 智能购物
 
 应该教会孩子和青少年如何货比三家，考虑食品杂货、个人卫生用品、玩具、运动器材和其他杂项的价格、体积和数量——无论是在当地商店的过道上，还是在亚马逊上。带他们去杂货店购物，讲述你自己评估和寻找最佳价值的过程。或者给他们一定数量的钱和购物清单，并挑战他们用这些有限的资金购买你家庭每周的必需品。
 
-## 省钱的DIY生活技巧
+## 省钱的 DIY 生活技巧
 
 能够做基本的家务可以帮你省下一大笔钱。父母应该积极地教孩子如何洗衣服，计划他们的每周膳食，缝补衣服，做饭，清洁，疏通厕所或下水道，以及进行基本的汽车保养，如更换机油或更换空气过滤器。他们将能够节省现金,否则他们将会花在裁缝、女佣服务、外卖和技工上。
 

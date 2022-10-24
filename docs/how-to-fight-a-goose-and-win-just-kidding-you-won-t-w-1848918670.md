@@ -1,8 +1,8 @@
 # 如何打鹅赢(开个玩笑，你不会赢)
 
-> 原文:[https://life hacker . com/how-to-fight-a-goose-win-just-kill-you-won-t-w-1848918670](https://lifehacker.com/how-to-fight-a-goose-and-win-just-kidding-you-won-t-w-1848918670)
+> 原文：<https://lifehacker.com/how-to-fight-a-goose-and-win-just-kidding-you-won-t-w-1848918670>
 
-几周前，一段视频 [在互联网](https://www.fox13news.com/news/protective-goose-attacks-unsuspecting-woman-in-jacksonville-parking-lot) 上流传，视频中一名毫无防备的佛罗里达州妇女在拥挤的停车场被一只鹅袭击。根据犹他州立大学 的一项 [研究，据报道，从1990年到2015年，美国有117起加拿大鹅伤人事件。这意味着你被加拿大鹅攻击的几率很低，但绝不是零。](https://digitalcommons.usu.edu/cgi/viewcontent.cgi?article=1544&context=hwi) 
+几周前，一段视频 [在互联网](https://www.fox13news.com/news/protective-goose-attacks-unsuspecting-woman-in-jacksonville-parking-lot) 上流传，视频中一名毫无防备的佛罗里达州妇女在拥挤的停车场被一只鹅袭击。根据犹他州立大学 的一项 [研究，据报道，从 1990 年到 2015 年，美国有 117 起加拿大鹅伤人事件。这意味着你被加拿大鹅攻击的几率很低，但绝不是零。](https://digitalcommons.usu.edu/cgi/viewcontent.cgi?article=1544&context=hwi) 
 
 Watch
 
@@ -16,7 +16,7 @@ Watch
 
 ## 如何防止鹅攻击
 
-如果你的特权是让鹅远离你的财产，俄亥俄州野生动物部门T2 T3说最好的方法就是疯狂地追逐鹅。他们解释说，如果做得正确，在一年中适当的时候，追逐可以成为你使用的最有效的管理工具。追逐会让鹅在你的领地上感觉不舒服，当结合其他骚扰技巧时，会让你的收益最大化。他们建议你在早春 ( 二月或三月)开始追逐。你应该每天出去四五次，在鹅开始筑巢前把它们赶走。
+如果你的特权是让鹅远离你的财产，俄亥俄州野生动物部门 T2 T3 说最好的方法就是疯狂地追逐鹅。他们解释说，如果做得正确，在一年中适当的时候，追逐可以成为你使用的最有效的管理工具。追逐会让鹅在你的领地上感觉不舒服，当结合其他骚扰技巧时，会让你的收益最大化。他们建议你在早春 ( 二月或三月)开始追逐。你应该每天出去四五次，在鹅开始筑巢前把它们赶走。
 
 你要知道，如果鹅已经开始筑巢，追赶的方法是不会有结果的。从四月到六月，俄亥俄州野生动物部门不建议追逐，而是建议避开。其他清除鹅的方法包括使用激光或噪音威慑。
 

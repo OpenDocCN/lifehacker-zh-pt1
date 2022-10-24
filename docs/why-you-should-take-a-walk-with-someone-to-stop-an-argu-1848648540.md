@@ -1,6 +1,6 @@
 # 为什么你应该和某人散步来停止争论
 
-> 原文:[https://life hacker . com/why-you-should-take-a-walk-with-someone-stop-an-argu-1848648540](https://lifehacker.com/why-you-should-take-a-walk-with-someone-to-stop-an-argu-1848648540)
+> 原文：<https://lifehacker.com/why-you-should-take-a-walk-with-someone-to-stop-an-argu-1848648540>
 
 生活在一个高度政治化的社会的副产品之一是大量的争论。即使你自己没有参与其中，我们也经常被那些把日常生活的方方面面变成政治声明或道德运动的人所包围，他们觉得有必要告诉你这些。
 
@@ -10,7 +10,7 @@ Watch
 
 ## 为什么运动在解决冲突中有用
 
-在2022年2月 [的一篇文章](https://greatergood.berkeley.edu/article/item/to_resolve_conflicts_get_up_and_move?utm_source=Greater+Good+Science+Center&utm_campaign=37ed600682-EMAIL_CAMPAIGN_GG_Newsletter_February_8_2022&utm_medium=email&utm_term=0_5ae73e326e-37ed600682-51301103) 中，哥伦比亚大学研究棘手冲突和可持续和平的教授彼得·t·科尔曼博士解释了为什么起床并移动身体也可以帮助你移动思维。
+在 2022 年 2 月 [的一篇文章](https://greatergood.berkeley.edu/article/item/to_resolve_conflicts_get_up_and_move?utm_source=Greater+Good+Science+Center&utm_campaign=37ed600682-EMAIL_CAMPAIGN_GG_Newsletter_February_8_2022&utm_medium=email&utm_term=0_5ae73e326e-37ed600682-51301103) 中，哥伦比亚大学研究棘手冲突和可持续和平的教授彼得·t·科尔曼博士解释了为什么起床并移动身体也可以帮助你移动思维。
 
 但这一策略并不仅限于国际外交背景下出现的冲突:科尔曼说，它们也可以应用于同事、合作伙伴、家庭成员和其他意见不一致的人之间的日常纠纷。他指出了几项研究——包括 [这一项](https://psycnet.apa.org/record/2017-02062-001)——他与人合著的研究结果表明，对于人类来说，运动(他称之为“运动”)既增加了人们的动力，也增加了解决人际冲突的可能性。
 
@@ -24,6 +24,6 @@ Watch
 
 ## 散步以结束争论
 
-为了结束争论和/或达成一致， [科尔曼的研究结果](https://onlinelibrary.wiley.com/doi/full/10.1111/ncmr.12192) 表明，与他人同步的身体运动增强了合作和实现共同目标的能力，此外还增加了我们的同情心和帮助他人的意愿。事实上， [一项2017年的研究](https://www.frontiersin.org/articles/10.3389/fpsyg.2017.00945/full#:~:text=The%20core%20idea%20is%20that,that%20functions%20to%20accomplish%20tasks.) 发现，当一群人同步行走时，他们变得更愿意做出有利于群体的个人牺牲。
+为了结束争论和/或达成一致， [科尔曼的研究结果](https://onlinelibrary.wiley.com/doi/full/10.1111/ncmr.12192) 表明，与他人同步的身体运动增强了合作和实现共同目标的能力，此外还增加了我们的同情心和帮助他人的意愿。事实上， [一项 2017 年的研究](https://www.frontiersin.org/articles/10.3389/fpsyg.2017.00945/full#:~:text=The%20core%20idea%20is%20that,that%20functions%20to%20accomplish%20tasks.) 发现，当一群人同步行走时，他们变得更愿意做出有利于群体的个人牺牲。
 
 那么，理想的辩论结束步行看起来像什么？根据科尔曼的说法，当我们考虑我们从各种关于运动和同步的研究中学到的东西时，最佳的解决争论和冲突的步行包括人们平稳地移动，在大自然中并肩行走(或者至少在有一点绿色植物的地方)。

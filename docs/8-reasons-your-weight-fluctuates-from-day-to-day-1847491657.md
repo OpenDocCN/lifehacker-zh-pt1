@@ -1,6 +1,6 @@
-# 体重每天波动的8个原因
+# 体重每天波动的 8 个原因
 
-> 原文:[https://life hacker . com/8-你体重每天波动的原因-1847491657](https://lifehacker.com/8-reasons-your-weight-fluctuates-from-day-to-day-1847491657)
+> 原文：<https://lifehacker.com/8-reasons-your-weight-fluctuates-from-day-to-day-1847491657>
 
 体重的变化很难判断。你的体重不是静态的，而是在一天中波动的东西，这取决于诸如你吃了什么和你的日常活动。除了这种日常波动，你的体重也可能在一周内上下浮动几磅,这是由与增重或减重无关的因素造成的。
 
@@ -12,7 +12,7 @@
 
 如果你最近吃了很多加工食品或特别频繁地使用盐瓶，这会导致你的 [体重增加一点](https://www.fitandwell.com/features/weight-fluctuation-reasons) ，因为钠会让你的身体保留额外的水分。
 
-考虑到加工食品中钠的含量，留意盐的摄入量可能会很棘手。 [建议每日钠摄入量为2300毫克](https://www.fda.gov/consumers/consumer-updates/you-may-be-surprised-how-much-salt-youre-eating) ，约一茶匙，累加起来很快。例如，一份 [熟食肉类含有大约700毫克](https://www.thehealthy.com/nutrition/high-sodium-foods/) 钠，这几乎是每日推荐量的三分之一，而在意想不到的食物中，如早餐麦片或商店购买的面包中，钠含量可能会高得惊人。
+考虑到加工食品中钠的含量，留意盐的摄入量可能会很棘手。 [建议每日钠摄入量为 2300 毫克](https://www.fda.gov/consumers/consumer-updates/you-may-be-surprised-how-much-salt-youre-eating) ，约一茶匙，累加起来很快。例如，一份 [熟食肉类含有大约 700 毫克](https://www.thehealthy.com/nutrition/high-sodium-foods/) 钠，这几乎是每日推荐量的三分之一，而在意想不到的食物中，如早餐麦片或商店购买的面包中，钠含量可能会高得惊人。
 
 然而，考虑到这都是水的重量，减少盐的摄入将会使秤回到正常水平。
 
@@ -24,15 +24,15 @@
 
 如果你从一次艰苦的锻炼中醒来，发现肌肉酸痛，很有可能程度会比平时高一点。这是因为艰苦的锻炼会导致肌肉微撕裂，然后需要愈合。这些微撕裂是一件好事，因为这是你的肌肉变得更强壮的方式，然而，在愈合过程中，你的肌肉会保留额外的液体。
 
-就像盐一样， [碳水化合物会让你的身体留住水分](https://www.womenshealthmag.com/weight-loss/a19977216/how-much-weight-fluctuation-is-normal/) ，导致暂时的体重增加。原因是糖原，我们身体在肝脏和肌肉中储存的碳水化合物，每克碳水化合物含有大约3克水。糖原储存波动有几个原因，但主要是它在运动中燃烧，当我们吃碳水化合物时得到补充。
+就像盐一样， [碳水化合物会让你的身体留住水分](https://www.womenshealthmag.com/weight-loss/a19977216/how-much-weight-fluctuation-is-normal/) ，导致暂时的体重增加。原因是糖原，我们身体在肝脏和肌肉中储存的碳水化合物，每克碳水化合物含有大约 3 克水。糖原储存波动有几个原因，但主要是它在运动中燃烧，当我们吃碳水化合物时得到补充。
 
 如果你便秘，那意味着你的 [身体挂着一堆多余的废物](https://www.fitandwell.com/features/weight-fluctuation-reasons) 。除了不舒服之外，这还会导致体重增加，至少在你能找到办法再次把它们全吐出来之前是这样。
 
 导致便秘的原因有包括低纤维饮食、久坐不动的生活方式、日常作息的改变、大量食用乳制品以及脱水。
 
-即使事情进展顺利，食物仍然(暂时)增加你的体重。一般来说，你的食物需要大约 [六到八个小时才能被消化](https://www.fitandwell.com/features/weight-fluctuation-reasons) ，大约36个小时才能被排出体外，如果你便秘的话，时间可能会更长。
+即使事情进展顺利，食物仍然(暂时)增加你的体重。一般来说，你的食物需要大约 [六到八个小时才能被消化](https://www.fitandwell.com/features/weight-fluctuation-reasons) ，大约 36 个小时才能被排出体外，如果你便秘的话，时间可能会更长。
 
-如果你曾经在锻炼前后称过体重，通常会有几磅的差异，这是因为你出汗排出了水分。普通人在一个小时的锻炼 中会减掉 [0.8到1.4升水的重量，这相当于大约1到3磅水的重量。对于一个训练有素的运动员来说，他们可能会损失两倍的体重。](https://www.outsideonline.com/health/training-performance/how-much-am-i-supposed-sweat-during-workout/) 
+如果你曾经在锻炼前后称过体重，通常会有几磅的差异，这是因为你出汗排出了水分。普通人在一个小时的锻炼 中会减掉 [0.8 到 1.4 升水的重量，这相当于大约 1 到 3 磅水的重量。对于一个训练有素的运动员来说，他们可能会损失两倍的体重。](https://www.outsideonline.com/health/training-performance/how-much-am-i-supposed-sweat-during-workout/) 
 
 这种流失都是水的重量，这意味着你需要补充流失的水分，否则会有脱水的危险。
 

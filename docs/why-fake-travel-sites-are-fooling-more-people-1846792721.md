@@ -1,6 +1,6 @@
 # 为什么虚假旅游网站欺骗了更多的人
 
-> 原文:[https://life hacker . com/why-fake-travel-sites-are-folling-more-people-1846792721](https://lifehacker.com/why-fake-travel-sites-are-fooling-more-people-1846792721)
+> 原文：<https://lifehacker.com/why-fake-travel-sites-are-fooling-more-people-1846792721>
 
 一年没有休假，有些人在预订旅行方面有点生疏，骗子正在充分利用这一点。商业改善局 [报告称，被功能齐全、看似合法的旅游预订网站欺骗的人数激增](https://www.bbb.org/article/scams/20149-scam-alert-watch-out-for-airfare-scams-when-booking-your-trip) ，这些网站实际上是假的——企图窃取你的金钱和个人信息的蜜罐。以下是你应该注意的，这样你就可以避免它们。
 
@@ -18,12 +18,12 @@ Watch
 
 *   一些目的地被列为地区或州，而不是城市(“阿拉巴马”)，而偶尔航空公司名称(“Westjet”)被拼错。
 
-*   有VISA、Discover和Mastercard的标志，但图像分辨率低，设计过时。
-*   一个“DMCA”安全盾醒目地显示出来——但是DMCA与版权声明有关，而不是网络安全，这在一个旅游预订网站的登陆页面上毫无意义。
-*   有一个功能性的FAQ页面，但是副本充满了错别字，而且不太有意义——好像它是写来看的，而不是真的读的。
+*   有 VISA、Discover 和 Mastercard 的标志，但图像分辨率低，设计过时。
+*   一个“DMCA”安全盾醒目地显示出来——但是 DMCA 与版权声明有关，而不是网络安全，这在一个旅游预订网站的登陆页面上毫无意义。
+*   有一个功能性的 FAQ 页面，但是副本充满了错别字，而且不太有意义——好像它是写来看的，而不是真的读的。
 
 ### **如何避免虚假预订网站**
 
-BBB建议你在输入你的个人信息之前研究任何不熟悉的网站，以确保它是合法的(你可以从检查[【BBB.org】](https://www.bbb.org/)以前客户的评论和反馈开始)。在输入信用卡信息之前仔细检查网址(你应该在地址栏看到“https://”旁边有一个挂锁图标)，一般要警惕看起来廉价的网站。
+BBB 建议你在输入你的个人信息之前研究任何不熟悉的网站，以确保它是合法的(你可以从检查[【BBB.org】](https://www.bbb.org/)以前客户的评论和反馈开始)。在输入信用卡信息之前仔细检查网址(你应该在地址栏看到“https://”旁边有一个挂锁图标)，一般要警惕看起来廉价的网站。
 
-如果你是机票或其他旅游骗局的受害者，请报告你在BBB.org/ScamTracker的经历。
+如果你是机票或其他旅游骗局的受害者，请报告你在 BBB.org/ScamTracker 的经历。

@@ -1,8 +1,8 @@
 # 观察汽车盲点的最聪明方法
 
-> 原文:[https://life hacker . com/the-smartest-ways-to-watch-your-cars-blind-spots-1848740999](https://lifehacker.com/the-smartest-ways-to-watch-your-cars-blind-spots-1848740999)
+> 原文：<https://lifehacker.com/the-smartest-ways-to-watch-your-cars-blind-spots-1848740999>
 
-回想一下你在驾驶学校的日子。除了被告知将方向盘保持在“10和2”(现在被认为过时的和潜在的危险)，你可能还会不断被提醒调整你的后视镜并检查你的盲点。
+回想一下你在驾驶学校的日子。除了被告知将方向盘保持在“10 和 2”(现在被认为过时的和潜在的危险)，你可能还会不断被提醒调整你的后视镜并检查你的盲点。
 
 Watch
 
@@ -12,7 +12,7 @@ Watch
 
 ## 你开车的盲点在哪里？
 
-根据[【NHTSA】](https://one.nhtsa.gov/links/GetUpToSpeed/index.html#blind-spot-content)美国国家公路交通安全管理局的数据，车辆周围有将近一半的区域被盲点所隐藏。虽然你应该始终注意到你无法看到车辆周围的大部分区域，但 [NHTSA说](https://one.nhtsa.gov/links/GetUpToSpeed/index.html#blind-spot-content) 当你在驾驶中遇到视线盲点时，这一点尤为重要。在这些区域，路边和车辆障碍物会限制您的反应时间，例如在弯曲的道路上，以及当山顶或火山口靠近道路入口时。
+根据[【NHTSA】](https://one.nhtsa.gov/links/GetUpToSpeed/index.html#blind-spot-content)美国国家公路交通安全管理局的数据，车辆周围有将近一半的区域被盲点所隐藏。虽然你应该始终注意到你无法看到车辆周围的大部分区域，但 [NHTSA 说](https://one.nhtsa.gov/links/GetUpToSpeed/index.html#blind-spot-content) 当你在驾驶中遇到视线盲点时，这一点尤为重要。在这些区域，路边和车辆障碍物会限制您的反应时间，例如在弯曲的道路上，以及当山顶或火山口靠近道路入口时。
 
 ## 开车时如何看自己的盲点
 

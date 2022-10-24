@@ -1,6 +1,6 @@
-# 住在索诺玛的时候学习酿酒&每个月挣20美元10K
+# 住在索诺玛的时候学习酿酒&每个月挣 20 美元 10K
 
-> 原文:[https://life hacker . com/learn-wine making-while-living-in-sonoma-earning-10k-1846998607](https://lifehacker.com/learn-winemaking-while-living-in-sonoma-earning-10k-1846998607)
+> 原文：<https://lifehacker.com/learn-winemaking-while-living-in-sonoma-earning-10k-1846998607>
 
 过去一年左右的事件让很多人重新思考他们想如何度过余生。出于各种原因，并不是每个人都有重新开始或接受新职业培训的选择，但加州的一个葡萄园为一个人提供了这样的机会。以下是关于这份理想工作需要了解的内容。
 
@@ -21,12 +21,12 @@ Watch
 
 除了学习酿酒知识，成功的申请者还将获得:
 
-*   一年12万美元的薪水
+*   一年 12 万美元的薪水
 *   加州索诺玛的一年免费租金
-*   30箱葡萄酒
+*   30 箱葡萄酒
 
 ### 如何申请
 
-为了申请这个职位，你必须至少年满21岁，是美国的合法居民和/或被授权在美国工作，并且能够举起至少50磅的重量。您可以在这里查看 [的完整职位描述和要求](https://www.murphygoodewinery.com/sites/default/files/2021-03/MG%20Job%20DescriptionFinal_1132021.pdf) 。
+为了申请这个职位，你必须至少年满 21 岁，是美国的合法居民和/或被授权在美国工作，并且能够举起至少 50 磅的重量。您可以在这里查看 [的完整职位描述和要求](https://www.murphygoodewinery.com/sites/default/files/2021-03/MG%20Job%20DescriptionFinal_1132021.pdf) 。
 
-该应用程序的主要部分是创建一个视频，解释为什么你很适合这份工作。您可以在 这里上传视频和 [填写申请表。申请必须在2021年6月30日前收到。](https://www.murphygoodewinery.com/a-really-goode-job#block-webform)
+该应用程序的主要部分是创建一个视频，解释为什么你很适合这份工作。您可以在 这里上传视频和 [填写申请表。申请必须在 2021 年 6 月 30 日前收到。](https://www.murphygoodewinery.com/a-really-goode-job#block-webform)

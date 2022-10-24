@@ -1,6 +1,6 @@
 # 秘密和隐私的区别，以及它们如何影响你的人际关系
 
-> 原文:[https://life hacker . com/the-difference-between-secret-and-privacy-and-how-each-1847702076](https://lifehacker.com/the-difference-between-secrecy-and-privacy-and-how-each-1847702076)
+> 原文：<https://lifehacker.com/the-difference-between-secrecy-and-privacy-and-how-each-1847702076>
 
 当涉及到浪漫的关系，有一些不成文的规则，往往不被讨论，直到一个人认为另一个人打破了一个。我们在像一夫一妻制这样的事情上变得越来越开放，但是个人信息的披露呢？
 
@@ -12,7 +12,7 @@ Watch
 
 ## 秘密和隐私的区别
 
-那么，秘密和隐私的区别到底是什么？“如果你不想透露一些事情，这很可能是维护隐私的一个例子，” [艾米·莫兰，LCSW](https://amymorinlcsw.com/) ，心理治疗师兼 [主编Verywell Mind](https://www.verywellmind.com/) 告诉 [Well+Good](https://www.wellandgood.com/difference-between-secrecy-privacy/) 。“如果你因为害怕后果而没有透露一些事情，这很可能是保密。”
+那么，秘密和隐私的区别到底是什么？“如果你不想透露一些事情，这很可能是维护隐私的一个例子，” [艾米·莫兰，LCSW](https://amymorinlcsw.com/) ，心理治疗师兼 [主编 Verywell Mind](https://www.verywellmind.com/) 告诉 [Well+Good](https://www.wellandgood.com/difference-between-secrecy-privacy/) 。“如果你因为害怕后果而没有透露一些事情，这很可能是保密。”
 
 也就是说，保守秘密需要努力。“秘密往往会主宰我们的生活，”莫林解释道。“你很可能会投入大量精力来掩盖或隐藏它们。”这可能包括从诱使他人帮你掩盖行踪，到向你的伴侣隐瞒信息的极端行为。例如，某人有外遇就是一个非常明显的秘密的例子。
 
@@ -24,6 +24,6 @@ Watch
 
 *但是从另一方面来说，如果对伴侣有所隐瞒不会引发负面情绪，那么这很有可能是你在行使你的隐私权。“你有没有一种平和的感觉，或者意识到自己的需求和欲望？你的行为注重尊重你的界限吗？那么我倾向于相信你在维护自己的隐私，” [李解释道](https://www.wellandgood.com/difference-between-secrecy-privacy/) 。*
 
-*那么，浪漫的伴侣应该告诉对方多少呢？李认为，隐私不仅有用，而且在一段关系中有着重要的作用。“人们通常认为，为了体验亲密或亲近，你需要分享一切，但我告诉我的客户，倾听他们的身体，并考虑你是否感到安全或舒适，无论你要透露什么，”她告诉Well+Good。*
+*那么，浪漫的伴侣应该告诉对方多少呢？李认为，隐私不仅有用，而且在一段关系中有着重要的作用。“人们通常认为，为了体验亲密或亲近，你需要分享一切，但我告诉我的客户，倾听他们的身体，并考虑你是否感到安全或舒适，无论你要透露什么，”她告诉 Well+Good。*
 
 *但是因为每个人都有自己对秘密和隐私的概念和定义，所以你需要和你的伴侣进行一次对话——以及谈论你们关系中的其他重要界限。*

@@ -1,6 +1,6 @@
 # 知道“错误信息”和“虚假信息”的区别
 
-> 原文:[https://life hacker . com/misinformation-and-dis-information-is-not-the-same-thin-1839290006](https://lifehacker.com/misinformation-and-disinformation-are-not-the-same-thin-1839290006)
+> 原文：<https://lifehacker.com/misinformation-and-disinformation-are-not-the-same-thin-1839290006>
 
 近年来，我们已经习惯于生活在社交媒体和新闻中不准确和完全虚假的信息中。随着我们的现任总统拒绝承认选举——引用毫无根据的选举欺诈指控——以及随着新冠肺炎疫苗[【有希望】的推出，是时候再次让我们坚强起来，面对错误信息*和*虚假信息的冲击了。知道它们的区别很重要，因为它们不是一回事。](https://vitals.lifehacker.com/what-to-know-about-the-latest-coronavirus-vaccine-resul-1845620392)
 
@@ -22,4 +22,4 @@ Watch
 
 * * *
 
-*本文最初发表于2019年，并于2020年11月9日更新，以反映当前的信息和背景。*
+*本文最初发表于 2019 年，并于 2020 年 11 月 9 日更新，以反映当前的信息和背景。*

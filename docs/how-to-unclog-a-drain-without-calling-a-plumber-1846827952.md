@@ -1,6 +1,6 @@
 # 如何在不叫水管工的情况下疏通下水道
 
-> 原文:[https://life hacker . com/how-to-unclog-a drain-not call-a-plumber-1846827952](https://lifehacker.com/how-to-unclog-a-drain-without-calling-a-plumber-1846827952)
+> 原文：<https://lifehacker.com/how-to-unclog-a-drain-without-calling-a-plumber-1846827952>
 
 只要有室内自来水，就有堵塞的下水道。但是当你的下水道堵塞时，你会怎么做呢？马上叫水管工？倒化学品？在使用核能之前，你可以尝试一些简单的方法。(免责声明:你不要试图炸掉你的管道。)
 

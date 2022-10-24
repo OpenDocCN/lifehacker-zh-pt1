@@ -1,6 +1,6 @@
 # 冬天保持老房子温暖的最好方法
 
-> 原文:[https://life hacker . com/the-best-ways-to-keep your old house-warm in the winter-1849614494](https://lifehacker.com/the-best-ways-to-keep-your-old-house-warm-in-the-winter-1849614494)
+> 原文：<https://lifehacker.com/the-best-ways-to-keep-your-old-house-warm-in-the-winter-1849614494>
 
 你的老房子可能漂亮迷人，但也可能通风不良，给它供暖会花掉你一大笔钱。你可以批评现代住宅是毫无魅力的复制粘贴工作，但它们是密闭和温暖的。不过，你的老房子也可以更暖和，这样你就可以两全其美了。以下是如何在不倾家荡产的情况下高效加热。
 
@@ -8,7 +8,7 @@ Watch
 
 ## **查看绝缘选项**
 
-这条提示 [来自CNet](https://www.cnet.com/home/energy-and-utilities/how-to-efficiently-heat-an-older-home-and-save-money-on-your-bills/) :你可以给你的房子增加隔热层，即使它建造时并没有考虑隔热空间。你会想在屋顶上做隔热层，那里的房子会失去很多热量，然后转移到你的墙壁上。在屋顶上，事情可能有点偶然，因为很少有人会看到它，但你可能不想自己动手做你的墙壁绝缘。阅读 [这些关于地下室隔热的建议](https://lifehacker.com/learn-to-insulate-your-basement-yourself-and-add-more-l-1659950537)——或者打电话给专业人士。
+这条提示 [来自 CNet](https://www.cnet.com/home/energy-and-utilities/how-to-efficiently-heat-an-older-home-and-save-money-on-your-bills/) :你可以给你的房子增加隔热层，即使它建造时并没有考虑隔热空间。你会想在屋顶上做隔热层，那里的房子会失去很多热量，然后转移到你的墙壁上。在屋顶上，事情可能有点偶然，因为很少有人会看到它，但你可能不想自己动手做你的墙壁绝缘。阅读 [这些关于地下室隔热的建议](https://lifehacker.com/learn-to-insulate-your-basement-yourself-and-add-more-l-1659950537)——或者打电话给专业人士。
 
 ## **更新您的窗口**
 
@@ -16,7 +16,7 @@ Watch
 
 ## **塞住通风管**
 
-此外，根据CNet，你需要寻找通风良好的地区，这更有可能发生在室外空气与室内空气分离的地方。你可以 [DIY门防风器](https://lifehacker.com/keep-a-room-warm-and-cozy-with-this-diy-door-draft-bloc-1746426672) ，所以我们在这里进入更便宜的领域。你也可以抓住 [一些泡沫，用来在通风的地方膨胀](https://rectorseal.com/draft-block-aerosol-12-oz/) ，阻挡冷空气。
+此外，根据 CNet，你需要寻找通风良好的地区，这更有可能发生在室外空气与室内空气分离的地方。你可以 [DIY 门防风器](https://lifehacker.com/keep-a-room-warm-and-cozy-with-this-diy-door-draft-bloc-1746426672) ，所以我们在这里进入更便宜的领域。你也可以抓住 [一些泡沫，用来在通风的地方膨胀](https://rectorseal.com/draft-block-aerosol-12-oz/) ，阻挡冷空气。
 
 最后，这里有一些更简单的建议，你可以马上使用，让你的家更温暖:
 

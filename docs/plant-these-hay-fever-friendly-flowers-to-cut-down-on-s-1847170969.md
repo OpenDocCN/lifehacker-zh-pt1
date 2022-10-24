@@ -1,8 +1,8 @@
 # 种植这些有益于花粉热的花来减少夏天打喷嚏的次数
 
-> 原文:[https://life hacker . com/plant-things-the-haxy-fever-friendly-flowers-to-cut-down-on-s-1847170969](https://lifehacker.com/plant-these-hay-fever-friendly-flowers-to-cut-down-on-s-1847170969)
+> 原文：<https://lifehacker.com/plant-these-hay-fever-friendly-flowers-to-cut-down-on-s-1847170969>
 
-从字面上看，过敏是令人恼火的。它们把本该是你宁静的户外空间变成了一个让人打喷嚏的地狱般的场景。在美国，大约有1920万成人和520万儿童患有——根据美国 [哮喘和过敏基金会](https://www.aafa.org/allergy-facts/) 的说法，更好的说法是花粉热。
+从字面上看，过敏是令人恼火的。它们把本该是你宁静的户外空间变成了一个让人打喷嚏的地狱般的场景。在美国，大约有 1920 万成人和 520 万儿童患有——根据美国 [哮喘和过敏基金会](https://www.aafa.org/allergy-facts/) 的说法，更好的说法是花粉热。
 
 Watch
 
@@ -10,7 +10,7 @@ Watch
 
 ## 给花粉热患者的鲜花
 
-当然，你还必须考虑当地的环境和天气等因素，但这里有一些花卉可供选择，让你开始选择， [由Interflora](https://www.interflora.co.uk/blog/top-hay-fever-friendly-flowers/) 提供:
+当然，你还必须考虑当地的环境和天气等因素，但这里有一些花卉可供选择，让你开始选择， [由 Interflora](https://www.interflora.co.uk/blog/top-hay-fever-friendly-flowers/) 提供:
 
 ### 金鱼草
 
@@ -30,7 +30,7 @@ Watch
 
 ### 伞形科聚星花属植物
 
-根据 [Interflora](https://www.interflora.co.uk/blog/top-hay-fever-friendly-flowers/) 的记载，“阿斯特兰蒂亚在16世纪首先在英国种植，并成为农舍花园的最爱，它也可以在野外生长。”它们的花粉含量也较低。
+根据 [Interflora](https://www.interflora.co.uk/blog/top-hay-fever-friendly-flowers/) 的记载，“阿斯特兰蒂亚在 16 世纪首先在英国种植，并成为农舍花园的最爱，它也可以在野外生长。”它们的花粉含量也较低。
 
 ### 绣球花
 

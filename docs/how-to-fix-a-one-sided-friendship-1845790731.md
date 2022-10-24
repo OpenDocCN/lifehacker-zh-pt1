@@ -1,8 +1,8 @@
 # 如何修复单方面的友谊
 
-> 原文:[https://life hacker . com/how-to-fix-a-sided-friendship-1845790731](https://lifehacker.com/how-to-fix-a-one-sided-friendship-1845790731)
+> 原文：<https://lifehacker.com/how-to-fix-a-one-sided-friendship-1845790731>
 
-你可能会花几个小时盯着手机，等着回复短信。也许他们会在一群朋友中谈论你，或者在一个群聊中谈论你，比如T2。或者，每当你说话时，他们的注意力似乎转移了，他们的目光移开了。
+你可能会花几个小时盯着手机，等着回复短信。也许他们会在一群朋友中谈论你，或者在一个群聊中谈论你，比如 T2。或者，每当你说话时，他们的注意力似乎转移了，他们的目光移开了。
 
 Watch
 
@@ -22,7 +22,7 @@ Watch
 
 相反，积极倾听——目光接触并参与谈话的行为———是伟大友谊的标志，这种友谊能培养相互理解和善意。
 
-正如创业公司创始人Thomas Oppong [在一篇媒体文章中写道:](https://medium.com/kaizen-habits/people-who-are-good-at-winning-friends-are-good-listeners-26be9e1da28e)
+正如创业公司创始人 Thomas Oppong [在一篇媒体文章中写道:](https://medium.com/kaizen-habits/people-who-are-good-at-winning-friends-are-good-listeners-26be9e1da28e)
 
 > 善于赢得朋友的人会聪明地倾听，他们会发现对方话语背后的含义。他们会问一些开放式的问题，比如“那对你来说是什么感觉？”进一步打开话题。他们还用肢体语言给任何谈话增添活力——即使你在专心听，你也必须*让别人知道你在听他们说话。*
 

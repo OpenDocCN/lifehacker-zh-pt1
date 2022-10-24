@@ -1,6 +1,6 @@
 # 不要被某些“入门级”工作所欺骗
 
-> 原文:[https://life hacker . com/don ' t-be-tried-by-某某入门级工作-1846307174](https://lifehacker.com/dont-be-tricked-by-certain-entry-level-jobs-1846307174)
+> 原文：<https://lifehacker.com/dont-be-tricked-by-certain-entry-level-jobs-1846307174>
 
 公司有一个狡猾的策略，用来吸引有前途的员工去做低收入的工作:通常，被列为“入门级”的职位空缺需要更有经验的员工的经验。然而，实际上，薪酬是唯一反映实际入门级工作的东西。
 
@@ -12,7 +12,7 @@ Watch
 
 这很简单。一份真正的入门级工作不需要多年的经验，这类工作的清单也不应该要求在整个页面上分散无数的职责。尽管企业部门在疫情之前已经使用这种策略多年，但新冠肺炎已经全面加速了对工作的需求，经常迫使更有经验的工人从事他们通常大材小用的工作。
 
-这是一个双重困境，不仅影响到寻找工作的老员工，也影响到新毕业的学生，他们被期望去履行他们几乎没有经验的职责。正如人才管理和评估公司Cubiks [的国家经理Breanne Harris在2019年告诉人力资源管理学会:](https://www.shrm.org/resourcesandtools/hr-topics/talent-acquisition/pages/managing-hiring-managers-high-expectations-for-new-college-graduates.aspx)
+这是一个双重困境，不仅影响到寻找工作的老员工，也影响到新毕业的学生，他们被期望去履行他们几乎没有经验的职责。正如人才管理和评估公司 Cubiks [的国家经理 Breanne Harris 在 2019 年告诉人力资源管理学会:](https://www.shrm.org/resourcesandtools/hr-topics/talent-acquisition/pages/managing-hiring-managers-high-expectations-for-new-college-graduates.aspx)
 
 > 我们经常听到雇主谈论新大学毕业生所具备的技能和雇主需要他们做的技能之间的巨大差距。问题是雇主们不断提高门槛。在某种程度上，它成为了进入的障碍。
 

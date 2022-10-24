@@ -1,12 +1,12 @@
 # 当你没有夹子时，制作夹子的最聪明的方法
 
-> 原文:[https://life hacker . com/the-clever-way-to-make-a-clamp-when you-dont-have-on-1847339696](https://lifehacker.com/the-cleverest-way-to-make-a-clamp-when-you-dont-have-on-1847339696)
+> 原文：<https://lifehacker.com/the-cleverest-way-to-make-a-clamp-when-you-dont-have-on-1847339696>
 
 夹子 [是一种重要的工具](https://www.ccohs.ca/oshanswers/safety_haz/hand_tools/clamps.html) 用于在木工、木工、家具制作和其他项目中临时将木材固定在一起——有多少用途就有多少 [不同类型的夹子](https://www.homestratosphere.com/types-of-clamps/) 。 [将几块木头熔合在一起，形成牢固的结合](https://www.ccohs.ca/oshanswers/safety_haz/hand_tools/clamps.html) 。不过，如果你没有合适的夹子，有一种替代方法可以用来固定你的木头。
 
 Watch
 
-## 如何制作一个简单的DIY夹子
+## 如何制作一个简单的 DIY 夹子
 
 夹子通常用于在[粘合剂将材料粘合在一起](https://uk.rs-online.com/web/generalDisplay.html?id=ideas-and-advice/clamps-guide) 时将材料保持在一起，或者在将材料保持在原位同时用钉子或螺丝将它们固定在一起。(偶尔，当牙齿穿过木头时，螺钉会迫使木板分开，这是一个夹子防止的。)对于需要将两块木板夹在彼此顶部或侧面的简单项目，hand yman[Ron hazel ton](https://www.youtube.com/watch?v=duMgz_6pGQk)使用的东西不是来自他的工具箱，而是来自他的医药箱:弹性绷带。 [下面介绍一下](https://www.youtube.com/watch?v=duMgz_6pGQk) :
 

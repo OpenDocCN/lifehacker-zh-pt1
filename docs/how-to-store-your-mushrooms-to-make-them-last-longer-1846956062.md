@@ -1,6 +1,6 @@
 # 如何储存你的蘑菇，让它们保存更久
 
-> 原文:[https://life hacker . com/how-to-store-your-mon菇-to-make-them-last-longer-1846956062](https://lifehacker.com/how-to-store-your-mushrooms-to-make-them-last-longer-1846956062)
+> 原文：<https://lifehacker.com/how-to-store-your-mushrooms-to-make-them-last-longer-1846956062>
 
 蘑菇和水分的关系很紧张。蘑菇似乎喜欢潮湿，一有机会就会抓住它，但这种关系是有毒的，因为潮湿加速了蘑菇的死亡。作为蘑菇贮藏者，你的工作就是尽可能保持它们干燥(直到你准备好吃它们)。
 
@@ -8,7 +8,7 @@ Watch
 
 最简单的方法是不要提前太久购买——在你计划吃它们的前几天购买是最好的，但是一些品种可以食用长达一周。如果可能的话，买完整的、松散的蘑菇，这样你可以检查每一个蘑菇是否有损坏，确保它是牢固的，没有斑点或柔软的湿斑。
 
-说到储存，并不是每个人都同意哪种方法是“最好的”根据Harold McGee关于食物和烹饪的文章,“蘑菇”在冰箱里时会“呼出”水分，这些水分会聚集在蘑菇的表面，促进腐败。McGee建议将它们松散地包装在吸湿包装中(如纸袋)，而[Cook ' s Illustrated](https://www.cooksillustrated.com/articles/1442-our-guide-to-fresh-mushrooms)更喜欢一种开口的拉链式袋子，他们说这种袋子“最大限度地增加空气流通，而不会使它们变干”，并且“允许蘑菇释放乙烯气体，延长它们的保质期。”
+说到储存，并不是每个人都同意哪种方法是“最好的”根据 Harold McGee 关于食物和烹饪的文章,“蘑菇”在冰箱里时会“呼出”水分，这些水分会聚集在蘑菇的表面，促进腐败。McGee 建议将它们松散地包装在吸湿包装中(如纸袋)，而[Cook ' s Illustrated](https://www.cooksillustrated.com/articles/1442-our-guide-to-fresh-mushrooms)更喜欢一种开口的拉链式袋子，他们说这种袋子“最大限度地增加空气流通，而不会使它们变干”，并且“允许蘑菇释放乙烯气体，延长它们的保质期。”
 
 由于对这种相互矛盾的信息不满，我联系了 [农民丹](https://www.instagram.com/farmer.dan.pdx/?hl=en) ，他正好组织了我六月份要参加的 [蘑菇狩猎](https://mailchi.mp/e2f605c0e731/quick-dirty-gardens) 。丹对塑料袋方法不感兴趣:
 

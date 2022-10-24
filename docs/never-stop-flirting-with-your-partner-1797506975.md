@@ -1,6 +1,6 @@
 # 永远不要停止和你的伴侣调情
 
-> 原文:[https://life hacker . com/never-stop-tailing-with-your-partner-1797506975](https://lifehacker.com/never-stop-flirting-with-your-partner-1797506975)
+> 原文：<https://lifehacker.com/never-stop-flirting-with-your-partner-1797506975>
 
 我的妻子是一个伟大的调情者。和我，和她的朋友，和观众。她知道调情不只是针对你刚刚认识的人。调情在一段关系开始的几年里和开始时一样重要。也许更是如此。
 
@@ -12,4 +12,4 @@ Watch
 
 当然，你可以回忆第一次约会，以及任何其他你坠入爱河时的记忆，这将激发你当时的一些相同的感觉 。只是不要在公共场合过分炫耀你的调情*。没有人喜欢在派对上亲热的情侣，或者在博客上互称调情高手的情侣。*
 
-*本帖最初发表于2017年，2020年更新，以符合Lifehacker风格指南。*
+*本帖最初发表于 2017 年，2020 年更新，以符合 Lifehacker 风格指南。*

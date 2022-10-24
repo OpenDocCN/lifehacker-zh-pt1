@@ -1,6 +1,6 @@
 # 如何加入社区花园
 
-> 原文:[https://life hacker . com/how-to-join-a-community-garden-1845655430](https://lifehacker.com/how-to-join-a-community-garden-1845655430)
+> 原文：<https://lifehacker.com/how-to-join-a-community-garden-1845655430>
 
 园艺一直都有相当多的粉丝，但这是另一个活动的例子——像烘焙、编织和做拼图——自新冠肺炎疫情开始以来，更加流行。不仅有些人觉得它让人放松；园艺还有提升情绪和精神健康的好处。此外，在一切都不确定的时候，能够种植至少一小部分自己的食物可能有助于人们感到更多的控制。
 
@@ -27,6 +27,6 @@ Watch
 
 具体费用各不相同，但目标通常是尽可能地参与或租用地块。在某些情况下，对于那些自己无力负担的人，费用可能会减少或免除。(检查个别花园的规则和政策。)
 
-没有标准的社区花园费用，所以你必须做一些研究，找出成本和一块地的大小。例如，通过密歇根州 的 [项目获得的地块的年成本为全地块(约750平方英尺)130美元，半地块(约375平方英尺)80美元。在得克萨斯州奥斯汀的](http://www.projectgrowgardens.org/community-gardens/plot-types) [阳光社区花园里，](http://www.sunshinecommunitygardens.org/index.php?p=contact_info/plot_info) 全地块为20' x 20 '，每年费用为90美元，而半地块和四分之一地块每年分别为45美元和40美元。
+没有标准的社区花园费用，所以你必须做一些研究，找出成本和一块地的大小。例如，通过密歇根州 的 [项目获得的地块的年成本为全地块(约 750 平方英尺)130 美元，半地块(约 375 平方英尺)80 美元。在得克萨斯州奥斯汀的](http://www.projectgrowgardens.org/community-gardens/plot-types) [阳光社区花园里，](http://www.sunshinecommunitygardens.org/index.php?p=contact_info/plot_info) 全地块为 20' x 20 '，每年费用为 90 美元，而半地块和四分之一地块每年分别为 45 美元和 40 美元。
 
 期望你在社区花园投入 的 [时间也会有很大的不同。虽然有些人只要求你维护自己的地块，但其他人每月都有小时工作要求，以确保每个人都投入到定期维护工作中。除了成本和地块的大小，这也是你在决定是否加入社区花园时需要考虑和询问的问题。](http://dcrefined.com/city-living/everything-you-need-to-know-about-getting-involved-at-your-community-garden)

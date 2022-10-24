@@ -1,12 +1,12 @@
 # 确保你的浏览器的稍后阅读工具没有过度共享
 
-> 原文:[https://life hacker . com/make-sure-your-browsers-read-it-la ter-tool-not-oversha-1846380278](https://lifehacker.com/make-sure-your-browsers-read-it-later-tool-isnt-oversha-1846380278)
+> 原文：<https://lifehacker.com/make-sure-your-browsers-read-it-later-tool-isnt-oversha-1846380278>
 
 当你在网上看到一篇有趣的文章，但没有时间马上阅读时，你可能会习惯于在一个新的标签页中打开它，稍后再阅读——结果只是它迷失在你的浏览器栏的混乱中。相反，你*应该*使用你的浏览器专用的“稍后阅读”功能。这是我推荐给每个人的设置——这些标签会占用更少的资源，你的浏览器会看起来更漂亮，而且有一天你可能会回头去看那些文章。
 
 Watch
 
-许多浏览器已经内置了这一功能——从Edge Chromium的 [收藏](https://lifehacker.com/how-to-try-out-edge-chromiums-latest-features-months-be-1842562597) ，到Chrome的 [稍后阅读](https://lifehacker.com/you-can-finally-save-articles-to-read-later-in-chrome-1846145758) 工具，到 Firefox的 [口袋](https://support.mozilla.org/en-US/kb/save-web-pages-later-pocket-firefox) ，到 Safari的 [阅读列表](https://support.apple.com/en-us/HT200294) 等等。有 [的](https://chrome.google.com/webstore/detail/notion-web-clipper/knheggckgoiihginacbkhaalnibhilkk?hl=en) [的](https://getpocket.com/add/?ep=1)的 [的](https://www.instapaper.com/) 的 [的](https://mailist.app/)[的](https://raindrop.io/) 的【扩展】的。
+许多浏览器已经内置了这一功能——从 Edge Chromium 的 [收藏](https://lifehacker.com/how-to-try-out-edge-chromiums-latest-features-months-be-1842562597) ，到 Chrome 的 [稍后阅读](https://lifehacker.com/you-can-finally-save-articles-to-read-later-in-chrome-1846145758) 工具，到 Firefox 的 [口袋](https://support.mozilla.org/en-US/kb/save-web-pages-later-pocket-firefox) ，到 Safari 的 [阅读列表](https://support.apple.com/en-us/HT200294) 等等。有 [的](https://chrome.google.com/webstore/detail/notion-web-clipper/knheggckgoiihginacbkhaalnibhilkk?hl=en) [的](https://getpocket.com/add/?ep=1)的 [的](https://www.instapaper.com/) 的 [的](https://mailist.app/)[的](https://raindrop.io/) 的【扩展】的。
 
 但是提醒一句:虽然这些第三方扩展和服务可以为组织、存档和共享内容提供更多有趣的功能，但请确保所述扩展在默认情况下保持了你的稍后阅读列表的私密性。
 
@@ -14,9 +14,9 @@ Watch
 
 最近在测试一个新的扩展， [**Q**](https://q.mimicrylabs.com/) 的时候，我希望它能为我提供一个简单、实用的方式来保存和阅读文章，但令人难以置信的是，我的账户——我被要求创建这个账户，以便使用这个扩展，并在不同的浏览器和平台上同步我保存的文章——默认为一个我标记为以后阅读的公开列表。换句话说，任何拥有我的账户名的人都可以看到我保存的内容。
 
-即使您将帐户切换为私人帐户，使用该服务的任何人都可以查看您保存到Q的任何内容。这一切都在“新的”自动收报机中，文章标题附在你的账户上。
+即使您将帐户切换为私人帐户，使用该服务的任何人都可以查看您保存到 Q 的任何内容。这一切都在“新的”自动收报机中，文章标题附在你的账户上。
 
-我想不出有多少网站或服务是这样运作的，除了那些为社区驱动的有趣内容分享而设计的(Reddit，Digg等)。).换句话说，一个“社会化书签”服务公开分享你保存的链接，而不是一个真正的“以后再看”服务，这并不奇怪。
+我想不出有多少网站或服务是这样运作的，除了那些为社区驱动的有趣内容分享而设计的(Reddit，Digg 等)。).换句话说，一个“社会化书签”服务公开分享你保存的链接，而不是一个真正的“以后再看”服务，这并不奇怪。
 
 ### 寻求两全其美:私人*和*公共共享
 

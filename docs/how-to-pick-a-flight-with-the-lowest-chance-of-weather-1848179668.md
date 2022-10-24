@@ -1,6 +1,6 @@
 # 如何选择天气延误几率最低的航班
 
-> 原文:[https://life hacker . com/how-to-pick-a-chance-of-lower-of-weather-1848179668](https://lifehacker.com/how-to-pick-a-flight-with-the-lowest-chance-of-weather-1848179668)
+> 原文：<https://lifehacker.com/how-to-pick-a-flight-with-the-lowest-chance-of-weather-1848179668>
 
 众所周知，假期是坐飞机旅行的困难时期，部分原因是想坐飞机的人太多，部分原因是冬季天气的可能性增加。暴风雪和结冰的跑道会很快使几天的空中旅行脱轨。
 

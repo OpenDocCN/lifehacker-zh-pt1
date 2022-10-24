@@ -1,8 +1,8 @@
 # 如何在不伤害狗狗的情况下在家为它们梳理毛发
 
-> 原文:[https://life hacker . com/how-to-grow-your dog-in-home-without-trauma-them-1847867963](https://lifehacker.com/how-to-groom-your-dog-at-home-without-traumatizing-them-1847867963)
+> 原文：<https://lifehacker.com/how-to-groom-your-dog-at-home-without-traumatizing-them-1847867963>
 
-当你的狗变得有点臭，毛茸茸的，或者指甲长了，你知道是时候给它们梳毛了...但是很难找到钱或时间带他们去看专业人士。半好消息:Un如果皮毛状况失控，你*可以*自己做一些保养美容。半坏消息是:这不是强烈推荐的。下面是让你的决定尽可能顺利的考虑因素。
+当你的狗变得有点臭，毛茸茸的，或者指甲长了，你知道是时候给它们梳毛了...但是很难找到钱或时间带他们去看专业人士。半好消息:Un 如果皮毛状况失控，你*可以*自己做一些保养美容。半坏消息是:这不是强烈推荐的。下面是让你的决定尽可能顺利的考虑因素。
 
 Watch
 

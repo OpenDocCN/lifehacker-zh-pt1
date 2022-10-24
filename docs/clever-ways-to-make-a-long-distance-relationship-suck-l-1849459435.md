@@ -1,6 +1,6 @@
 # 让异地恋不那么糟糕的聪明方法
 
-> 原文:[https://life hacker . com/clever-ways-to-make-a-distance-relationship-suck-l-1849459435](https://lifehacker.com/clever-ways-to-make-a-long-distance-relationship-suck-l-1849459435)
+> 原文：<https://lifehacker.com/clever-ways-to-make-a-long-distance-relationship-suck-l-1849459435>
 
 异地恋比大多数都要棘手。与住在数百英里(如果不是数千英里)之外的人建立和保持联系可能很困难，但这对你们关系的发展和幸福也是必不可少的。
 
@@ -18,7 +18,7 @@ Watch
 
 随着一段关系的发展，随着时间的推移，你很容易认为你对你的伴侣了如指掌，但正如社会学家和性学家莎拉·梅兰康所说，“总有更多的东西需要学习！”这就是她建议问开放式问题的原因，因为这些问题“有趣、有创意，能让你看到我们伴侣的性格、观点和价值观中你日常可能看不到的方面。这能让你们俩都觉得自己更受关注，并在分开的时候保持兴趣。”
 
-提出问题可能很难，但是有很多资源可以帮助你。梅兰康推荐以下内容来更多地了解你的伴侣: [戈特曼卡片组app](https://www.gottman.com/couples/apps/) 、 [{The And}卡片和app](https://shop.theskindeep.com/pages/the-and-relationship-card-game) ，以及一套名为 [【诚实X](https://shop.theskindeep.com/pages/honest-x-a-tsd-experience) 的针对性别的卡片，旨在帮助促进围绕性的禁忌或污名化话题的交流。
+提出问题可能很难，但是有很多资源可以帮助你。梅兰康推荐以下内容来更多地了解你的伴侣: [戈特曼卡片组 app](https://www.gottman.com/couples/apps/) 、 [{The And}卡片和 app](https://shop.theskindeep.com/pages/the-and-relationship-card-game) ，以及一套名为 [【诚实 X](https://shop.theskindeep.com/pages/honest-x-a-tsd-experience) 的针对性别的卡片，旨在帮助促进围绕性的禁忌或污名化话题的交流。
 
 把你的问题集中起来，和你的伴侣共度一个夜晚，或者通过短信提出一些全天的问题。
 
@@ -44,7 +44,7 @@ Watch
 
 “虽然没有什么可以代替你伴侣的嘴、手或其他身体部位，但是远距离性爱玩具可以让你‘触摸’到对方，不管你们相距多远。当我们和伴侣做爱时，会有一种期待感和神秘感，因为我们永远不知道他们下一步会做什么。远程性玩具可以帮助捕捉一些让性满足的化学反应和互动。”
 
-有 [多种选择](https://sextoycollective.com/long-distance/) ，不过梅兰康推荐 [的Lovense Max 2](https://www.amazon.com/vdp/009197ad4f694cf38a7061e32c77396c?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/clever-ways-to-make-a-long-distance-relationship-suck-l-1849459435&asc_source=&tag=kinjalifehackerlink-20) 和 [的Lovense Nora](https://www.amazon.com/LOVENSE-Stimulator-Rechargeable-Waterproof-Smartphone/product-reviews/B01AL3Y0K6?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/clever-ways-to-make-a-long-distance-relationship-suck-l-1849459435&asc_source=&pageNumber=5&tag=kinjalifehackerlink-20) 都是通过一个app配对的遥控情趣玩具。“这些神奇的玩具会对彼此的动作做出反应，因此当一方用力更大时，另一方的玩具也会同样增加力度。”
+有 [多种选择](https://sextoycollective.com/long-distance/) ，不过梅兰康推荐 [的 Lovense Max 2](https://www.amazon.com/vdp/009197ad4f694cf38a7061e32c77396c?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/clever-ways-to-make-a-long-distance-relationship-suck-l-1849459435&asc_source=&tag=kinjalifehackerlink-20) 和 [的 Lovense Nora](https://www.amazon.com/LOVENSE-Stimulator-Rechargeable-Waterproof-Smartphone/product-reviews/B01AL3Y0K6?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/clever-ways-to-make-a-long-distance-relationship-suck-l-1849459435&asc_source=&pageNumber=5&tag=kinjalifehackerlink-20) 都是通过一个 app 配对的遥控情趣玩具。“这些神奇的玩具会对彼此的动作做出反应，因此当一方用力更大时，另一方的玩具也会同样增加力度。”
 
 ## 一起冥想
 

@@ -1,12 +1,12 @@
 # 在给你的狗注射年度心丝虫疫苗之前，你应该知道些什么
 
-> 原文:[https://life hacker . com/what-you-should-know before-switching-your-dog-to-an-1848240480](https://lifehacker.com/what-you-should-know-before-switching-your-dog-to-an-an-1848240480)
+> 原文：<https://lifehacker.com/what-you-should-know-before-switching-your-dog-to-an-an-1848240480>
 
-心丝虫病是一种 [潜在的致命疾病，需要广泛的治疗](https://vcahospitals.com/know-your-pet/heartworm-disease-in-dogs)——想想多种药物和至少两个月的完全休息——这就是为什么兽医和狗主人如此努力地预防它。最常见的预防治疗是每月一次口服或局部用药，但最近，美国的兽医开始提供持续6个月或12个月的抗心丝虫疫苗。
+心丝虫病是一种 [潜在的致命疾病，需要广泛的治疗](https://vcahospitals.com/know-your-pet/heartworm-disease-in-dogs)——想想多种药物和至少两个月的完全休息——这就是为什么兽医和狗主人如此努力地预防它。最常见的预防治疗是每月一次口服或局部用药，但最近，美国的兽医开始提供持续 6 个月或 12 个月的抗心丝虫疫苗。
 
 Watch
 
-心丝虫注射和其他心丝虫药物的最大区别是它们使用的抗寄生虫药物的类型。前心脏注射使用莫西克汀，有6个月或12个月的剂型；许多外用药物(Advantage Multi和Advocate)也使用莫西菌素。HeartGard是一种受欢迎的咀嚼片，它使用伊维菌素或伊维菌素和pyrantel的组合。所有这些药物都是FDA批准的有效药物，所以选择哪种形式对你和你的狗更好。以下是切换到镜头的利弊。
+心丝虫注射和其他心丝虫药物的最大区别是它们使用的抗寄生虫药物的类型。前心脏注射使用莫西克汀，有 6 个月或 12 个月的剂型；许多外用药物(Advantage Multi 和 Advocate)也使用莫西菌素。HeartGard 是一种受欢迎的咀嚼片，它使用伊维菌素或伊维菌素和 pyrantel 的组合。所有这些药物都是 FDA 批准的有效药物，所以选择哪种形式对你和你的狗更好。以下是切换到镜头的利弊。
 
 ## 优点:方便和价格
 
@@ -18,6 +18,6 @@ Watch
 
 心丝虫注射必须由合格的兽医或技术员管理，所以你不能自己做。如果你已经支付了体检费用，这没什么大不了的；如果你只是为了拍照而需要安排一个，那可能会比必要的花费更多。
 
-打针的最后一个不利之处可能是最大的:与其他一些抗寄生虫药物不同，莫西菌素*只能预防心丝虫病。虽然心丝虫病比其他类型的寄生虫感染更危险，T3不是唯一的T5。 [钩虫可引起严重贫血](https://www.akc.org/expert-advice/health/understanding-hookworms-in-dogs/)； [绦虫可引起体重减轻和腹泻](https://www.akc.org/expert-advice/health/parasites/tapeworms-in-dogs-symptoms-treatment-and-prevention/)；蛔虫会阻碍狗的成长，对小狗来说尤其危险。根据你的狗的非心丝虫感染的风险因素，你的兽医可能会推荐一种组合药物来防止一种以上的寄生虫。*
+打针的最后一个不利之处可能是最大的:与其他一些抗寄生虫药物不同，莫西菌素*只能预防心丝虫病。虽然心丝虫病比其他类型的寄生虫感染更危险，T3 不是唯一的 T5。 [钩虫可引起严重贫血](https://www.akc.org/expert-advice/health/understanding-hookworms-in-dogs/)； [绦虫可引起体重减轻和腹泻](https://www.akc.org/expert-advice/health/parasites/tapeworms-in-dogs-symptoms-treatment-and-prevention/)；蛔虫会阻碍狗的成长，对小狗来说尤其危险。根据你的狗的非心丝虫感染的风险因素，你的兽医可能会推荐一种组合药物来防止一种以上的寄生虫。*
 
 这里没有普遍正确或错误的选择。心丝虫注射对许多狗来说是一个理想的解决方案，但不是所有的狗。如果你正在考虑更换药物，先和你的兽医谈谈——他们会给你做出决定所需的个性化建议。

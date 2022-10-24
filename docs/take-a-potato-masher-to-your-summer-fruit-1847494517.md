@@ -1,6 +1,6 @@
 # 拿一个马铃薯捣碎器去捣碎你的夏季水果
 
-> 原文:[https://life hacker . com/take-a-potato-masher-to-your-summer-fruit-1847494517](https://lifehacker.com/take-a-potato-masher-to-your-summer-fruit-1847494517)
+> 原文：<https://lifehacker.com/take-a-potato-masher-to-your-summer-fruit-1847494517>
 
 每次我去看我的爸爸和继母，我都会吃一碗冰淇淋。昨天和我爸射了几箭后，我后妈让我选择桃子冰淇淋还是黑莓冰淇淋，我选了桃子。大约两分钟后，我的继母递给我一碗香草冰淇淋，上面放着香喷喷的小桃子。
 

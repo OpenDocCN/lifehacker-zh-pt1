@@ -1,8 +1,8 @@
 # 如何与有药物滥用问题的人交谈
 
-> 原文:[https://life hacker . com/how-to-talk to-someone with a-a-someone-a-substance-abuse-problem-1845826908](https://lifehacker.com/how-to-talk-to-someone-with-a-substance-abuse-problem-1845826908)
+> 原文：<https://lifehacker.com/how-to-talk-to-someone-with-a-substance-abuse-problem-1845826908>
 
-在网上围绕新冠肺炎、萎靡的经济和我们普遍不确定的全球未来的所有合理喧嚣中，一个关于吸毒成瘾和青少年的电视节目正在设法打破这些噪音。周日，HBO电视台的《欣快感》第一集打破常规，讲述了混乱的生活，这一集的中心是主角鲁(赞达亚饰)和她的赞助商阿里(科尔曼·多明戈饰)之间关于吸毒成瘾的广泛对话。
+在网上围绕新冠肺炎、萎靡的经济和我们普遍不确定的全球未来的所有合理喧嚣中，一个关于吸毒成瘾和青少年的电视节目正在设法打破这些噪音。周日，HBO 电视台的《欣快感》第一集打破常规，讲述了混乱的生活，这一集的中心是主角鲁(赞达亚饰)和她的赞助商阿里(科尔曼·多明戈饰)之间关于吸毒成瘾的广泛对话。
 
 Watch
 
@@ -22,7 +22,7 @@ Watch
 
 我不想在*欣快症*的例子上多费口舌，但这一集发生在平安夜一家废弃的小餐馆。这是一种有利于坦诚讨论的环境——基本上与拥挤的聚会、家庭聚餐或办公室休息室相反。对单独的骚动或潜在的闯入者感到安全，会让这个人敞开心扉。
 
-挤出一些时间，邀请这个人过来。让它成为一件平静的、个性化的事情。安全环境在很大程度上取决于非对抗性。正如药物治疗组织 [Narconon建议](https://www.narconon.org/blog/how-to-talk-to-someone-about-their-addiction.html) :
+挤出一些时间，邀请这个人过来。让它成为一件平静的、个性化的事情。安全环境在很大程度上取决于非对抗性。正如药物治疗组织 [Narconon 建议](https://www.narconon.org/blog/how-to-talk-to-someone-about-their-addiction.html) :
 
 > 首先要做的事情之一是确保上瘾者感到舒适，并且你尽可能使你与他们的交流愉快且不具对抗性。
 
@@ -50,4 +50,4 @@ Watch
 
 这是一个过程，所以要知道这些策略可能不会在一夜之间改变什么。但是，如果方法正确，坚持不懈地帮助所爱的人从毒瘾中康复是可以成功的。
 
-*如果您或您认识的人正遭受药物滥用问题的困扰，请致电1-800-662-HELP (4357)联系* [*药物滥用和精神健康服务管理局*](https://www.samhsa.gov/find-help/national-helpline) *。*
+*如果您或您认识的人正遭受药物滥用问题的困扰，请致电 1-800-662-HELP (4357)联系* [*药物滥用和精神健康服务管理局*](https://www.samhsa.gov/find-help/national-helpline) *。*

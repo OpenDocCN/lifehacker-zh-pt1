@@ -1,8 +1,8 @@
 # 如何辨别你的孩子是否有天赋(如果有，该怎么办)
 
-> 原文:[https://life hacker . com/how-to-tell-if-your ' s child is-gifted and-do-if-1849598912](https://lifehacker.com/how-to-tell-if-your-child-is-gifted-and-what-to-do-if-1849598912)
+> 原文：<https://lifehacker.com/how-to-tell-if-your-child-is-gifted-and-what-to-do-if-1849598912>
 
-教育中最有争议的话题之一是T2的天才教育。甚至——[天才——这个词本身也引起了](https://motherwellmag.com/2020/01/08/perspective-its-time-we-stopped-with-the-phrase-gifted-and-talented/) 的争论。天才节目 的功效和 [公平性在2021年遭到抨击，当时](https://fordhaminstitute.org/ohio/research/ohios-lost-einsteins-inequitable-outcomes-early-high-achievers#:~:text=Ohio's%20Lost%20Einsteins%3A%20The%20inequitable%20outcomes%20of%20early%20high%20achievers,-Scott%20Imberman&text=To%20shed%20more%20light%20on,or%20English%20language%20arts%20exams.) [纽约市m 市长比尔·白思豪(Bill De Blasio)推出了一项彻底淘汰纽约天才节目](https://www.nytimes.com/2021/10/08/nyregion/gifted-talented-nyc-schools.html)——[的计划，该计划后来被悄悄搁置](https://ny.chalkbeat.org/2022/4/6/23013451/nyc-gifted-and-talented-programs-admissions-changes) 。
+教育中最有争议的话题之一是 T2 的天才教育。甚至——[天才——这个词本身也引起了](https://motherwellmag.com/2020/01/08/perspective-its-time-we-stopped-with-the-phrase-gifted-and-talented/) 的争论。天才节目 的功效和 [公平性在 2021 年遭到抨击，当时](https://fordhaminstitute.org/ohio/research/ohios-lost-einsteins-inequitable-outcomes-early-high-achievers#:~:text=Ohio's%20Lost%20Einsteins%3A%20The%20inequitable%20outcomes%20of%20early%20high%20achievers,-Scott%20Imberman&text=To%20shed%20more%20light%20on,or%20English%20language%20arts%20exams.) [纽约市 m 市长比尔·白思豪(Bill De Blasio)推出了一项彻底淘汰纽约天才节目](https://www.nytimes.com/2021/10/08/nyregion/gifted-talented-nyc-schools.html)——[的计划，该计划后来被悄悄搁置](https://ny.chalkbeat.org/2022/4/6/23013451/nyc-gifted-and-talented-programs-admissions-changes) 。
 
 Watch
 
@@ -12,7 +12,7 @@ Watch
 
 在美国的许多地区，天才教育是特殊教育计划的一部分，这并没有让它看起来像是一种“地位的象征”，而是更多的是为那些不符合同龄人平均模式的学生提供的便利。
 
-智力上有天赋的学生 [的标准因州或地区](https://hechingerreport.org/proof-points-what-research-tells-us-about-gifted-education/)而异，但是根据某种评估，有天赋的人口通常占学生人口的10%、5%，甚至1% 。有时，整个学生群体会同时接受测试，比如二年级的州测试，或者学生会被老师或家长“提名”,由学校心理学家或天才专家进行测试。偶尔，学校会接受私人评估。通常个人或私人测试包括类型的智商测试(确定某人是否是天才的测试)，但近年来，其他测试 [如渡鸦](https://www.pearsonassessments.com/store/usassessments/en/Store/Professional-Assessments/Cognition-%26-Neuro/Non-Verbal-Ability/Raven%27s-Progressive-Matrices-%7C-Clinical-Edition/p/100001960.html) ，旨在更具包容性和公平性，已被用于识别天才学生。
+智力上有天赋的学生 [的标准因州或地区](https://hechingerreport.org/proof-points-what-research-tells-us-about-gifted-education/)而异，但是根据某种评估，有天赋的人口通常占学生人口的 10%、5%，甚至 1% 。有时，整个学生群体会同时接受测试，比如二年级的州测试，或者学生会被老师或家长“提名”,由学校心理学家或天才专家进行测试。偶尔，学校会接受私人评估。通常个人或私人测试包括类型的智商测试(确定某人是否是天才的测试)，但近年来，其他测试 [如渡鸦](https://www.pearsonassessments.com/store/usassessments/en/Store/Professional-Assessments/Cognition-%26-Neuro/Non-Verbal-Ability/Raven%27s-Progressive-Matrices-%7C-Clinical-Edition/p/100001960.html) ，旨在更具包容性和公平性，已被用于识别天才学生。
 
 如果一个孩子在一个或多个学科领域领先于同龄人，他通常会被提名为天才儿童。我作为一名天才教育专家工作了几年，我们让老师填写清单来提名或帮助我们识别天才学生。 [类似的名单](https://www.pvschools.net/academics/gifted/parent-resources/characteristics-and-signs-of-giftedness) 在所有学校都有。
 
@@ -26,7 +26,7 @@ Watch
 *   喜欢独立工作
 *   敏锐的幽默感
 *   关于一个或多个主题的大型信息库，包括拥有异常大的词汇量或关于他们通常所学领域之外的事物的大量事实
-*   [高地 y敏感](https://lifehacker.com/find-out-if-youre-a-highly-sensitive-person-with-this-1497152169)
+*   [高地 y 敏感](https://lifehacker.com/find-out-if-youre-a-highly-sensitive-person-with-this-1497152169)
 *   能够领会更深层次的含义
 *   对美、艺术和美学敏感
 *   问了很多问题

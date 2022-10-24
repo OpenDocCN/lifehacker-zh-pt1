@@ -1,6 +1,6 @@
 # 用“一格法”整理你的厨房
 
-> 原文:[https://life hacker . com/declutter-your-kitchen-with-one-shelf-method-1847063968](https://lifehacker.com/declutter-your-kitchen-with-the-one-shelf-method-1847063968)
+> 原文：<https://lifehacker.com/declutter-your-kitchen-with-the-one-shelf-method-1847063968>
 
 不管是因为有太多有情感价值的物品，还是因为你已经有一段时间没有扔东西了，清理都是很难的。然而，当厨房变得杂乱时，它可能比拥挤的壁橱或车库更糟糕，因为它开始影响你一天多次使用的空间的功能。
 
@@ -28,7 +28,7 @@ Watch
 
 ## 如何防止未来厨房变得杂乱
 
-一旦你处理掉所有你不需要的东西，清理空间，重新整理你的架子和抽屉。Neat项目有一个方便的清单，可以帮助你完成清理过程:
+一旦你处理掉所有你不需要的东西，清理空间，重新整理你的架子和抽屉。Neat 项目有一个方便的清单，可以帮助你完成清理过程:
 
 > *   Collect cleaning supplies.
 > *   Clean one area at a time: remove everything and wipe the inside.
@@ -36,4 +36,4 @@ Watch
 > *   Organize cabinets, drawers and counters.
 > *   Put the items back in a newer, organized area.
 
-重新整理的时候，买 [的清理箱](https://www.bedbathandbeyond.com/store/product/idesign-trade-stackable-clear-cabinet-bin/5273679?skuId=66763598&enginename=google&mcid=PS_googlepla_nonbrand_kitchenaccessories_local&product_id=66763598&adtype=pla&product_channel=local&adpos=&creative=232742510629&device=c&matchtype=&network=g&utm_campaignid=71700000037211742&utm_adgroupid=58700004142062446&targetid=92700034063189766&gclid=Cj0KCQjwzYGGBhCTARIsAHdMTQw6Hmfgl3Fx_w5zLHGsfeZHfB2c9Nha-yc6C4pAVtZDKiyBzQAQZ5UaAosVEALw_wcB&gclsrc=aw.ds) 和存放物品的篮子这样它们就可以重新被看到，还有u se [的抽屉整理器](https://www.containerstore.com/s/kitchen/kitchen-drawer-organizers/12) 方便取用。这将有助于防止未来的混乱，并使你下次清理厨房变得更加容易。
+重新整理的时候，买 [的清理箱](https://www.bedbathandbeyond.com/store/product/idesign-trade-stackable-clear-cabinet-bin/5273679?skuId=66763598&enginename=google&mcid=PS_googlepla_nonbrand_kitchenaccessories_local&product_id=66763598&adtype=pla&product_channel=local&adpos=&creative=232742510629&device=c&matchtype=&network=g&utm_campaignid=71700000037211742&utm_adgroupid=58700004142062446&targetid=92700034063189766&gclid=Cj0KCQjwzYGGBhCTARIsAHdMTQw6Hmfgl3Fx_w5zLHGsfeZHfB2c9Nha-yc6C4pAVtZDKiyBzQAQZ5UaAosVEALw_wcB&gclsrc=aw.ds) 和存放物品的篮子这样它们就可以重新被看到，还有 u se [的抽屉整理器](https://www.containerstore.com/s/kitchen/kitchen-drawer-organizers/12) 方便取用。这将有助于防止未来的混乱，并使你下次清理厨房变得更加容易。

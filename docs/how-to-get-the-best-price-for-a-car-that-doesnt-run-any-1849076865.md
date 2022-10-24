@@ -1,8 +1,8 @@
 # 如何为一辆不再跑的车争取最优惠的价格
 
-> 原文:[https://life hacker . com/how-to-get-the-best-price for a car-that-non-run-any-1849076865](https://lifehacker.com/how-to-get-the-best-price-for-a-car-that-doesnt-run-any-1849076865)
+> 原文：<https://lifehacker.com/how-to-get-the-best-price-for-a-car-that-doesnt-run-any-1849076865>
 
-汽车是糟糕的投资。 [新车在第一年贬值约20-30%](https://www.nerdwallet.com/article/insurance/car-depreciation#:~:text=New%2Dcar%20depreciation&text=Your%20car's%20value%20decreases%20around,more%20of%20their%20initial%20value.)，之后就一直贬值。最终，你的车在转售潜力方面触底，并在下降到最终形式之前滑行一段时间:beater。当然，一辆车的价值不仅仅是用金钱来衡量的。还有你从中获得的用途，许多人非常乐意驾驶一辆旧车，只要它能发挥预期的功能。
+汽车是糟糕的投资。 [新车在第一年贬值约 20-30%](https://www.nerdwallet.com/article/insurance/car-depreciation#:~:text=New%2Dcar%20depreciation&text=Your%20car's%20value%20decreases%20around,more%20of%20their%20initial%20value.)，之后就一直贬值。最终，你的车在转售潜力方面触底，并在下降到最终形式之前滑行一段时间:beater。当然，一辆车的价值不仅仅是用金钱来衡量的。还有你从中获得的用途，许多人非常乐意驾驶一辆旧车，只要它能发挥预期的功能。
 
 Watch
 

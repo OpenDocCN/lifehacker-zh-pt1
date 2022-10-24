@@ -1,8 +1,8 @@
 # 对过敏人群来说最好(也是最差)的室内植物
 
-> 原文:[https://life hacker . com/the-best and-worth-house plants-for-people-with-allerg-1848648538](https://lifehacker.com/the-best-and-worst-houseplants-for-people-with-allerg-1848648538)
+> 原文：<https://lifehacker.com/the-best-and-worst-houseplants-for-people-with-allerg-1848648538>
 
-如果你是大约6000万美国人 中的一员，患有过敏性鼻炎——也被称为“花粉热”——你可能会想尽一切办法避免打喷嚏、流鼻涕、眼睛发痒、头痛和其他由这种疾病引起的恼人和破坏性症状。
+如果你是大约 6000 万美国人 中的一员，患有过敏性鼻炎——也被称为“花粉热”——你可能会想尽一切办法避免打喷嚏、流鼻涕、眼睛发痒、头痛和其他由这种疾病引起的恼人和破坏性症状。
 
 Watch
 

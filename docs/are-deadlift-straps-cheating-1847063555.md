@@ -1,6 +1,6 @@
 # 硬拉带是作弊吗？
 
-> 原文:[https://life hacker . com/are-dy lift-straps-checking-1847063555](https://lifehacker.com/are-deadlift-straps-cheating-1847063555)
+> 原文：<https://lifehacker.com/are-deadlift-straps-cheating-1847063555>
 
 硬拉是你可能在健身房做过的最大的举重之一，因为你的臀部、背部和腿部包含了人体内最强壮的肌肉。结合他们的力量，你可以移动很多铁。但是对我们许多人来说，有一个薄弱环节:你的握力。
 
@@ -12,11 +12,11 @@ Watch
 
 为了确定某件事是否是作弊，我们需要决定适用什么规则。让我们来看看最引人注目的两项硬拉运动的规则:举重和大力士。
 
-在举重中，带子是不合法的。(这里是[《USAPL规则手册》](https://www.usapowerlifting.com/wp-content/uploads/2021/04/USAPL-Rulebook-v2021.1.pdf) ，例如:T 从第18页开始，这里有一个允许的“个人装备”清单，它不包括肩带。)看看这个 [视频，截至视频制作时，每个重量级的世界纪录保持者](https://www.youtube.com/watch?v=QtilmrA9jHA) 有N个用带子拉着其中一个。
+在举重中，带子是不合法的。(这里是[《USAPL 规则手册》](https://www.usapowerlifting.com/wp-content/uploads/2021/04/USAPL-Rulebook-v2021.1.pdf) ，例如:T 从第 18 页开始，这里有一个允许的“个人装备”清单，它不包括肩带。)看看这个 [视频，截至视频制作时，每个重量级的世界纪录保持者](https://www.youtube.com/watch?v=QtilmrA9jHA) 有 N 个用带子拉着其中一个。
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-rVic26as9Ns&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-rVic26as9Ns&start=0) 
 
-但在强人身上，他们经常是这样。(大力士的规则没有标准化，所以没有一致的规则手册，但推广者通常允许在大多数硬拉中使用皮带。)下面是 [Lucy Underdown拉300公斤创最近纪录](https://www.youtube.com/watch?v=rVic26as9Ns)；你可以看到她在坐下来开始拉之前，把带子绕在横杆上。
+但在强人身上，他们经常是这样。(大力士的规则没有标准化，所以没有一致的规则手册，但推广者通常允许在大多数硬拉中使用皮带。)下面是 [Lucy Underdown 拉 300 公斤创最近纪录](https://www.youtube.com/watch?v=rVic26as9Ns)；你可以看到她在坐下来开始拉之前，把带子绕在横杆上。
 
 但是，如果你独自一人在健身房，没有人拿着规则手册跟着你，所以你必须自己做决定。
 
@@ -37,4 +37,4 @@ Watch
 *   如果你要做一些高重复率的动作，你知道这会使你的握力疲劳，考虑使用带子。(例如，阿曼的硬拉或划船。)
 *   之后(或分开几天)进行握力训练，因为专门的训练会帮助你的握力变得更强。我们有 [的指导来提高你的硬拉抓地力](https://lifehacker.com/how-to-get-a-stronger-support-grip-for-deadlifts-and-ha-1841519693) 。
 
-我差不多就是干这个的。我在练习符合比赛标准的举重(如硬拉或抓举)时不使用吊带，但我确实在我的运动包 里放了一双 [，用于超负荷工作(如重拉行李架)或高重复工作(如阿曼的10组硬拉)。我也经常做握力训练，结果这些年来我的硬拉力量增加了，*和*我的握力变得更强了。如果你使用正确，背带是一个很好的训练工具。](https://lifehacker.com/these-are-the-10-best-things-in-my-gym-bag-1844325969)
+我差不多就是干这个的。我在练习符合比赛标准的举重(如硬拉或抓举)时不使用吊带，但我确实在我的运动包 里放了一双 [，用于超负荷工作(如重拉行李架)或高重复工作(如阿曼的 10 组硬拉)。我也经常做握力训练，结果这些年来我的硬拉力量增加了，*和*我的握力变得更强了。如果你使用正确，背带是一个很好的训练工具。](https://lifehacker.com/these-are-the-10-best-things-in-my-gym-bag-1844325969)

@@ -1,8 +1,8 @@
 # 你的求职充满了绝望
 
-> 原文:[https://life hacker . com/your-job-search-reeks-of-desiress-1847330666](https://lifehacker.com/your-job-search-reeks-of-desperation-1847330666)
+> 原文：<https://lifehacker.com/your-job-search-reeks-of-desperation-1847330666>
 
-我们都见过:一个职业熟人在找工作，在社交媒体上公开而戏剧性地发泄，希望有人雇用他们。我们自己可能就是那个人。就我而言，我有一个熟人，他每周都会在LinkedIn上更新一条提醒，没错，他们仍处于失业状态——并附带说明，他们已经有六个月或七个月(等等)没有拿到双周工资了。
+我们都见过:一个职业熟人在找工作，在社交媒体上公开而戏剧性地发泄，希望有人雇用他们。我们自己可能就是那个人。就我而言，我有一个熟人，他每周都会在 LinkedIn 上更新一条提醒，没错，他们仍处于失业状态——并附带说明，他们已经有六个月或七个月(等等)没有拿到双周工资了。
 
 Watch
 

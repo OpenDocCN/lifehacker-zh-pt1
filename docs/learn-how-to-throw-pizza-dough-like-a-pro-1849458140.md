@@ -1,6 +1,6 @@
 # 如何像专业人士一样扔披萨面团
 
-> 原文:[https://the take out . com/learn-how-to-throw-pizza-dough-like-a-pro-1849458140](https://thetakeout.com/learn-how-to-throw-pizza-dough-like-a-pro-1849458140)
+> 原文：<https://thetakeout.com/learn-how-to-throw-pizza-dough-like-a-pro-1849458140>
 
 正如许多读者所知，我是一名( [主要是](https://thetakeout.com/work-in-restaurants-covid-no-mask-capacity-restrictio-1847144157) )前比萨店老板。人们总喜欢问我的一件事是，我是否知道如何把比萨饼面团抛向空中，就像你在电影和一些著名的比萨饼店看到的那样。保利·吉安诺内，保利·吉比萨店的创始人(我在芝加哥保利·吉的洛根广场工作)，通常不鼓励这种做法。他会说:“扔是为了表演。反正我还是做了。
 
@@ -20,7 +20,7 @@ Watch
 
 <figcaption class="sc-1ptbguh-0 hxeMec caption">Original Throw Dough</figcaption> 
 
-这些工具很有趣，你可以在网上得到它们。 [亚马逊卖一个 13" 圆](https://www.amazon.com/Pizza-gomma-Spinning-Dough-inch/dp/B08QZXQZ2R/?asc_campaign=InlineText&asc_refurl=https://thetakeout.com/learn-how-to-throw-pizza-dough-like-a-pro-1849458140&asc_source=&tag=kinjatakeoutlink-20)37美元，或者你可以通过 [美国披萨团队的在线商店](https://store.uspizzateam.com/ProductDetails.asp?ProductCode=throw%5Fdough)25美元得到一个类似的13 "的，如果你想在家里学习如何扔披萨面团。我必须警告你，它们有点脆弱；如果你用你的指尖不停地在半空中戳东西，你就有戳破它的风险。(这些事情现实的另一种方式。)
+这些工具很有趣，你可以在网上得到它们。 [亚马逊卖一个 13" 圆](https://www.amazon.com/Pizza-gomma-Spinning-Dough-inch/dp/B08QZXQZ2R/?asc_campaign=InlineText&asc_refurl=https://thetakeout.com/learn-how-to-throw-pizza-dough-like-a-pro-1849458140&asc_source=&tag=kinjatakeoutlink-20)37 美元，或者你可以通过 [美国披萨团队的在线商店](https://store.uspizzateam.com/ProductDetails.asp?ProductCode=throw%5Fdough)25 美元得到一个类似的 13 "的，如果你想在家里学习如何扔披萨面团。我必须警告你，它们有点脆弱；如果你用你的指尖不停地在半空中戳东西，你就有戳破它的风险。(这些事情现实的另一种方式。)
 
 ## 如何像专业人士一样扔披萨面团
 
@@ -28,4 +28,4 @@ Watch
 
 在面团落下的过程中，你可以让它落在你的指关节后面，用你的指尖轻轻戳它(这是一个只有扔面团时才最理想的动作)，或者用你的手掌重新启动，让乐趣继续下去。一个真正的面团会很快伸展到滑稽的比例，如果你很好，这些东西会变得像纸一样薄，而且绝对巨大。最终它会撕裂，那时你可能会哭，也可能不会哭。显然，一个投掷面团不会变得更大，因为它是由硅树脂制成的，但你可以从它身上无限地投掷——或者至少理论上是，因为它们最终会因磨损而分解。
 
-老实说，扔披萨面团就像听起来一样有趣。在家里，面团更多的是一种珍贵的资源，因为它可能注定是晚餐，所以我真的不推荐它作为一种家庭烹饪技术。但是如果你想试着在不损失一顿饭的情况下扔面团，那就给自己弄一个练习版来玩玩。而且如果你没有很高的天花板，我强烈建议你只在外面练习，因为在开始的时候，灾难是不可避免的。通过练习，你会看起来像一个pizzaiolo大师，并有一个真正具体的派对技巧展示给你的朋友。或者你可以像我一样在披萨店找份工作。
+老实说，扔披萨面团就像听起来一样有趣。在家里，面团更多的是一种珍贵的资源，因为它可能注定是晚餐，所以我真的不推荐它作为一种家庭烹饪技术。但是如果你想试着在不损失一顿饭的情况下扔面团，那就给自己弄一个练习版来玩玩。而且如果你没有很高的天花板，我强烈建议你只在外面练习，因为在开始的时候，灾难是不可避免的。通过练习，你会看起来像一个 pizzaiolo 大师，并有一个真正具体的派对技巧展示给你的朋友。或者你可以像我一样在披萨店找份工作。

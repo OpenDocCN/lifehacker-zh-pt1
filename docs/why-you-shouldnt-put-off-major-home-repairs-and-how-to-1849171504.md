@@ -1,12 +1,12 @@
 # 为什么你不应该推迟主要的家庭维修(以及如何对它们进行优先排序)
 
-> 原文:[https://life hacker . com/why-you-should-put-off-major-home-repair-and-how-to-1849171504](https://lifehacker.com/why-you-shouldnt-put-off-major-home-repairs-and-how-to-1849171504)
+> 原文：<https://lifehacker.com/why-you-shouldnt-put-off-major-home-repairs-and-how-to-1849171504>
 
 乍得罗伯逊媒体 支付主要的房屋维修费用，比如漏水的屋顶或坏了的热水器，绝对不是拥有房屋令人兴奋的部分。如果你打算花钱，你可能更喜欢做一些有趣的事情，比如升级你的户外空间或者改造你的厨房。
 
 Watch
 
-不幸的是，最不吸引人的项目往往也是最关键的项目——也是最快速的项目——然而许多房主却因为财务问题而放弃了这些项目。 [根据最近的一项民意调查](https://www.cnbc.com/2022/06/17/homeowners-delay-big-purchases-improvement-projects-due-to-inflation.html) ，43%的房主因通货膨胀而推迟了房屋装修或维修。随着住宅建设成本上涨19%，房主们看到一些计划内(和计划外)项目的成本上升。
+不幸的是，最不吸引人的项目往往也是最关键的项目——也是最快速的项目——然而许多房主却因为财务问题而放弃了这些项目。 [根据最近的一项民意调查](https://www.cnbc.com/2022/06/17/homeowners-delay-big-purchases-improvement-projects-due-to-inflation.html) ，43%的房主因通货膨胀而推迟了房屋装修或维修。随着住宅建设成本上涨 19%，房主们看到一些计划内(和计划外)项目的成本上升。
 
 虽然推迟大型昂贵的项目是有道理的，但从长远来看，这样做实际上可能会让你付出更多。例如，在早期请专业人士来修理漏水可能比修理和更换被洪水或霉菌损坏的东西要便宜。
 

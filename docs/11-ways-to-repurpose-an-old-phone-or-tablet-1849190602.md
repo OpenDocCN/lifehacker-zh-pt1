@@ -1,26 +1,26 @@
-# 重新利用旧手机或平板电脑的11种方法
+# 重新利用旧手机或平板电脑的 11 种方法
 
-> 原文:[https://life hacker . com/11-ways-to-purpose-a-old-phone-or-table t-1849190602](https://lifehacker.com/11-ways-to-repurpose-an-old-phone-or-tablet-1849190602)
+> 原文：<https://lifehacker.com/11-ways-to-repurpose-an-old-phone-or-tablet-1849190602>
 
 技术动作*快*。每年都有新产品上市，每一款都比前一款更大更好。除非你在买新设备之前把所有的设备都转卖了，否则很可能你的垃圾抽屉底部至少有一部旧智能手机或平板电脑积满了灰尘。然而，这并不是必须的:旧的手机和平板电脑仍然有足够的生命力，即使它们不能做新设备所能做的一切。
 
-自从 [苹果*在经历了大约*八年*之后，终于不再支持我的iPad Air 2*](https://lifehacker.com/these-apple-devices-won-t-get-software-updates-anymore-1849033297) *以来，我一直在思考如何让我的老技术派上用场。虽然我今年早些时候升级到了新的iPad，但我仍然拥有Air 2。它可能会很慢，不会运行 [iPadOS 16](https://lifehacker.com/the-best-new-features-in-ios-16-and-ipados-16-1849023814) ，但它仍然是一个功能正常的iPad。我可以把它卖了赚点外快，但我更想把它投入使用。*
+自从 [苹果*在经历了大约*八年*之后，终于不再支持我的 iPad Air 2*](https://lifehacker.com/these-apple-devices-won-t-get-software-updates-anymore-1849033297) *以来，我一直在思考如何让我的老技术派上用场。虽然我今年早些时候升级到了新的 iPad，但我仍然拥有 Air 2。它可能会很慢，不会运行 [iPadOS 16](https://lifehacker.com/the-best-new-features-in-ios-16-and-ipados-16-1849023814) ，但它仍然是一个功能正常的 iPad。我可以把它卖了赚点外快，但我更想把它投入使用。*
 
- *在过去十年的大部分时间里，手机都有坚固的摄像头。事实上，它们这么长时间以来一直很好，以至于藏在你抽屉里的iPhone 6可能比你现在的笔记本电脑有更好的摄像头。因此，有一些简单的方法可以将你的 [iPhone](https://lifehacker.com/how-to-turn-your-iphone-into-a-free-high-res-webcam-1847639807) 或 [Android](https://lifehacker.com/how-to-turn-your-android-phone-into-a-free-high-res-web-1847624930) 设备用作你电脑的网络摄像头。
+ *在过去十年的大部分时间里，手机都有坚固的摄像头。事实上，它们这么长时间以来一直很好，以至于藏在你抽屉里的 iPhone 6 可能比你现在的笔记本电脑有更好的摄像头。因此，有一些简单的方法可以将你的 [iPhone](https://lifehacker.com/how-to-turn-your-iphone-into-a-free-high-res-webcam-1847639807) 或 [Android](https://lifehacker.com/how-to-turn-your-android-phone-into-a-free-high-res-web-1847624930) 设备用作你电脑的网络摄像头。
 
-虽然一些让智能手机支持网络摄像头的软件也适用于平板电脑，但这肯定是一个笨拙的解决方案。根据你的平板电脑有多旧，你可以简单地将你的平板电脑用作专用视频通话工具。I 安装Zoom、Teams或Skype，方便访问最流行的视频通话应用，或者使用FaceTime或Google Duo等内置选项。
+虽然一些让智能手机支持网络摄像头的软件也适用于平板电脑，但这肯定是一个笨拙的解决方案。根据你的平板电脑有多旧，你可以简单地将你的平板电脑用作专用视频通话工具。I 安装 Zoom、Teams 或 Skype，方便访问最流行的视频通话应用，或者使用 FaceTime 或 Google Duo 等内置选项。
 
-仪表板摄像头是在发生车祸时保护自己的一个很好的方法，但是它们并不便宜。将一部旧手机安装在你汽车的仪表板上可以为这个问题提供一个免费的解决方案(当然，减去安装成本)。你可以甚至下载应用程序，这些应用程序将帮助你的智能手机感觉更像一个专用的dashcam，例如用于 [iOS](https://apps.apple.com/us/app/driver-dash-cam-cloud-sync/id1415557883) 和 [Android](https://play.google.com/store/apps/details?id=com.trydriver.driver) 的驱动程序。这些选项带有云存储支持视频录制和潜在碰撞警报等功能，但这些功能通常是有代价的。
+仪表板摄像头是在发生车祸时保护自己的一个很好的方法，但是它们并不便宜。将一部旧手机安装在你汽车的仪表板上可以为这个问题提供一个免费的解决方案(当然，减去安装成本)。你可以甚至下载应用程序，这些应用程序将帮助你的智能手机感觉更像一个专用的 dashcam，例如用于 [iOS](https://apps.apple.com/us/app/driver-dash-cam-cloud-sync/id1415557883) 和 [Android](https://play.google.com/store/apps/details?id=com.trydriver.driver) 的驱动程序。这些选项带有云存储支持视频录制和潜在碰撞警报等功能，但这些功能通常是有代价的。
 
-对于一个完全免费的选择，我建议你只需使用手机内置的录像机。也就是说，你需要降低视频质量以优先考虑存储空间:你可能不需要以60 fps的速度拍摄4K的日常旅行，因为1080p甚至720p都可以显示相同的路线。现在当有人当着你的面砍伤并声称是你的错，你会有视频证据证明不是这样。除非真的是你的错。
+对于一个完全免费的选择，我建议你只需使用手机内置的录像机。也就是说，你需要降低视频质量以优先考虑存储空间:你可能不需要以 60 fps 的速度拍摄 4K 的日常旅行，因为 1080p 甚至 720p 都可以显示相同的路线。现在当有人当着你的面砍伤并声称是你的错，你会有视频证据证明不是这样。除非真的是你的错。
 
-如果你的手机*真的*旧了，它可能仍然有耳机插孔(除非它是一款 [罕见的新款手机，仍然有端口](https://lifehacker.com/7-of-the-best-smartphones-that-still-have-the-headphone-1847511629) )。这使得它很容易成为专用DJ设备的选择。无论你是想在派对上连接扬声器，还是坐在朋友的车里，你都可以通过蓝牙和aux来播放音乐。虽然 [Spotify不能运行至少不能运行 iOS 13](https://support.spotify.com/us/article/supported-devices-for-spotify/) 的iPhones，但它支持Android设备，一直到5.0版本。如果你有一部运行iOS 12或更早版本的iPhone，Apple Music可能是你的最佳选择。
+如果你的手机*真的*旧了，它可能仍然有耳机插孔(除非它是一款 [罕见的新款手机，仍然有端口](https://lifehacker.com/7-of-the-best-smartphones-that-still-have-the-headphone-1847511629) )。这使得它很容易成为专用 DJ 设备的选择。无论你是想在派对上连接扬声器，还是坐在朋友的车里，你都可以通过蓝牙和 aux 来播放音乐。虽然 [Spotify 不能运行至少不能运行 iOS 13](https://support.spotify.com/us/article/supported-devices-for-spotify/) 的 iPhones，但它支持 Android 设备，一直到 5.0 版本。如果你有一部运行 iOS 12 或更早版本的 iPhone，Apple Music 可能是你的最佳选择。
 
 平板电脑不太便于携带，但由于他们中的许多人至今仍有耳机插孔，当在家听音乐时，它可以提供与旧手机相同的便利。
 
 平板电脑是伟大的媒体消费设备，当它们变老时，这一点并不一定会改变。只要你的流媒体服务仍然支持该设备，你就可以在平板电脑上欣赏你最喜欢的节目和电影，即使其制造商已经停止发布更新。
 
-即使流行的服务在未来停止支持你的设备，你仍然可以播放之前从第三方商店购买的节目和电影，比如iOS和iPadOS上的iTunes，以及Android上的Play Store。如果你有其他来源的视频，像VLC这样的开源视频播放器是一个很好的解决方案。
+即使流行的服务在未来停止支持你的设备，你仍然可以播放之前从第三方商店购买的节目和电影，比如 iOS 和 iPadOS 上的 iTunes，以及 Android 上的 Play Store。如果你有其他来源的视频，像 VLC 这样的开源视频播放器是一个很好的解决方案。
 
 一台旧平板电脑(甚至一部旧手机)可以被重新利用，以随时显示特定的、不断变化的信息。也许你想要一个专用的天气预报机器来了解一天的天气情况，或者你想要一个智能日历放在你的桌子上，这样你就可以随时知道接下来会发生什么。
 
@@ -28,17 +28,17 @@
 
 如果你拥有智能家居产品，你就会知道摆弄它们有多有趣。任何拥有智能灯的人都可以通过随意改变灯泡的颜色来赢得客人的喝彩，但产品线远远不止于此。几乎你家里所有的电器都有智能版本； i 如果你全力以赴，那么一次就要管理很多设备。
 
-要控制所有这些智能技术，你可以依靠当前智能手机和平板电脑上的应用程序，但有一个问题:如果不能访问你的手机或平板电脑，就很难控制智能设备。如果它们连接到智能扬声器，语音控制就会弥合这一差距。然而，如果你没有智能音箱，或者每次想关灯的时候都不想说话，那么可以将一部 n旧手机或平板电脑改装成专用的智能家居控制器。
+要控制所有这些智能技术，你可以依靠当前智能手机和平板电脑上的应用程序，但有一个问题:如果不能访问你的手机或平板电脑，就很难控制智能设备。如果它们连接到智能扬声器，语音控制就会弥合这一差距。然而，如果你没有智能音箱，或者每次想关灯的时候都不想说话，那么可以将一部 n 旧手机或平板电脑改装成专用的智能家居控制器。
 
 P 把设备放在你家的户外，任何需要控制你的智能设备的人都可以接触到。只需轻敲几下，他们就可以调整需要调整的地方，而不需要使用你的主手机或在你的谷歌主页上发出命令。
 
 为什么止步于智能家居？同样，您可以将手机或平板电脑设置为电视、流媒体设备、游戏系统以及连接到家庭娱乐系统的任何其他设备的通用遥控器。将设备放在茶几上以便于使用，这样任何想看电视或玩游戏的人都可以拿起你的旧手机或平板电脑来看电视或玩游戏。
 
-这里有大量的选项可以选择，将你的设备变成一个通用遥控器，就像电视遥控器用于 [iOS](https://apps.apple.com/us/app/tv-remote-universal-control/id1539090879) 和 [Android](https://play.google.com/store/apps/details?id=tv.remote.universal.control) 。根据您的设备，可能还会有第一方选项，如Roku应用程序或iOS和iPadOS上的Apple TV远程控制中心磁贴。如果你想用手机或平板电脑控制你的PlayStation或Xbox，包括用那些设备玩游戏，你可以用那些设备的第一方应用来实现:索尼的PS Remote Play用于 [iOS](https://apps.apple.com/us/app/ps-remote-play/id1436192460) 和 [Android](https://play.google.com/store/apps/details?id=com.playstation.remoteplay) ，微软的Xbox用于 [iOS](https://apps.apple.com/us/app/xbox/id736179781) 和 [Android](https://play.google.com/store/apps/details?id=com.microsoft.xboxone.smartglass) 。
+这里有大量的选项可以选择，将你的设备变成一个通用遥控器，就像电视遥控器用于 [iOS](https://apps.apple.com/us/app/tv-remote-universal-control/id1539090879) 和 [Android](https://play.google.com/store/apps/details?id=tv.remote.universal.control) 。根据您的设备，可能还会有第一方选项，如 Roku 应用程序或 iOS 和 iPadOS 上的 Apple TV 远程控制中心磁贴。如果你想用手机或平板电脑控制你的 PlayStation 或 Xbox，包括用那些设备玩游戏，你可以用那些设备的第一方应用来实现:索尼的 PS Remote Play 用于 [iOS](https://apps.apple.com/us/app/ps-remote-play/id1436192460) 和 [Android](https://play.google.com/store/apps/details?id=com.playstation.remoteplay) ，微软的 Xbox 用于 [iOS](https://apps.apple.com/us/app/xbox/id736179781) 和 [Android](https://play.google.com/store/apps/details?id=com.microsoft.xboxone.smartglass) 。
 
-我的车没有CarPlay、或Android Auto，或任何类型的多媒体显示器。因此，我非常喜欢使用智能手机作为替代品。我使用无线充电车载支架，通过蓝牙连接手机，用它来进行GPS、音乐和其他免提通信。
+我的车没有 CarPlay、或 Android Auto，或任何类型的多媒体显示器。因此，我非常喜欢使用智能手机作为替代品。我使用无线充电车载支架，通过蓝牙连接手机，用它来进行 GPS、音乐和其他免提通信。
 
-然而，这同样适用于平板电脑:如果你有一台在家不常使用的平板电脑，你可以把它当作一个大屏幕解决方案。我也考虑过用我的旧iPad 做同样的事情:买 [一个平板电脑支架](https://tinyurl.com/sm6t6kf9) ，从大型谷歌地图体验中受益，然后在不使用的时候把iPad藏起来(你不会希望你的车成为他们 ves 的容易目标)。较小的平板电脑，如iPad mini，可能会更好地工作，但只要设备不阻挡您查看关键控制或信息(或者，嗯，道路)，您就可以很好地工作。
+然而，这同样适用于平板电脑:如果你有一台在家不常使用的平板电脑，你可以把它当作一个大屏幕解决方案。我也考虑过用我的旧 iPad 做同样的事情:买 [一个平板电脑支架](https://tinyurl.com/sm6t6kf9) ，从大型谷歌地图体验中受益，然后在不使用的时候把 iPad 藏起来(你不会希望你的车成为他们 ves 的容易目标)。较小的平板电脑，如 iPad mini，可能会更好地工作，但只要设备不阻挡您查看关键控制或信息(或者，嗯，道路)，您就可以很好地工作。
 
 对于父母来说，一部备用的智能手机或平板电脑可能是一个完美的儿童安全设备。它不是全新的，所以你不必担心它会被损坏。与此同时，大多数智能手机和平板电脑一直都有家长控制，这意味着您可以为您的孩子设置所有合适的限制。
 
@@ -46,12 +46,12 @@ P 把设备放在你家的户外，任何需要控制你的智能设备的人都
 
 这些高质量的智能手机和平板电脑相机可以再次投入使用。虽然它们是很棒的网络摄像头和仪表板摄像头，但它们也能为你的家庭提供可靠的安全摄像头。
 
-你可以在你的当前手机和旧手机上下载一个类似AlfredCamera的应用程序，用于 [iOS](https://apps.apple.com/us/app/alfred-home-security-camera/id966460837) 或 [Android](https://play.google.com/store/search?q=alfred+home+security&c=apps) 以建立两者之间的连接。把你的旧手机放在某种支架上，你就可以全天候访问它的摄像头。这是一个很好的解决方案，无论出于什么原因，它都可以帮你照看你的宠物或你家的任何地方。
+你可以在你的当前手机和旧手机上下载一个类似 AlfredCamera 的应用程序，用于 [iOS](https://apps.apple.com/us/app/alfred-home-security-camera/id966460837) 或 [Android](https://play.google.com/store/search?q=alfred+home+security&c=apps) 以建立两者之间的连接。把你的旧手机放在某种支架上，你就可以全天候访问它的摄像头。这是一个很好的解决方案，无论出于什么原因，它都可以帮你照看你的宠物或你家的任何地方。
 
-这些应用程序对高清视频和保存的视频记录等功能收取额外费用，但通常情况下免费层随时提供标准质量的视频访问。同样，像dashcam提示一样，您也可以在离开时录制房间，然后在回来时查看磁带。
+这些应用程序对高清视频和保存的视频记录等功能收取额外费用，但通常情况下免费层随时提供标准质量的视频访问。同样，像 dashcam 提示一样，您也可以在离开时录制房间，然后在回来时查看磁带。
 
 如果你的手机或平板电脑很旧，但还没旧到那种程度，你可以把它当作一个专门的测试版。传统的建议是不要在你的主要设备上安装测试版软件，因为操作系统正在测试中，因此不稳定。你可以使用大多数人还没有的新功能，但你的手机或平板电脑可能无法正常工作。
 
-将这些风险推给一个你一开始并不使用的设备是更好的权衡。您可以尽早尝试即将推出的功能，而不必担心任何负面影响。如果你的iPhone 8运行iOS 16测试版 时崩溃 [也没关系，如果你的iPhone 13仍然运行稳定版本的iOS。](https://lifehacker.com/how-to-install-the-ios-16-and-ipados-16-betas-1849023051)
+将这些风险推给一个你一开始并不使用的设备是更好的权衡。您可以尽早尝试即将推出的功能，而不必担心任何负面影响。如果你的 iPhone 8 运行 iOS 16 测试版 时崩溃 [也没关系，如果你的 iPhone 13 仍然运行稳定版本的 iOS。](https://lifehacker.com/how-to-install-the-ios-16-and-ipados-16-betas-1849023051)
 
-(这条建议可能更适用于苹果产品，而不是安卓产品，因为苹果往往比安卓原始设备制造商对其设备的支持时间更长。iPhone 8上支持苹果的iOS 16，iPadOS 16支持第五代iPad，这两款都是苹果在2017年发布的。)*
+(这条建议可能更适用于苹果产品，而不是安卓产品，因为苹果往往比安卓原始设备制造商对其设备的支持时间更长。iPhone 8 上支持苹果的 iOS 16，iPadOS 16 支持第五代 iPad，这两款都是苹果在 2017 年发布的。)*

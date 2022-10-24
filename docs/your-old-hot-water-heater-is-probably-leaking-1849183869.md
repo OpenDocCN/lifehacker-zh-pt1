@@ -1,8 +1,8 @@
 # 你的旧热水器可能漏水了
 
-> 原文:[https://life hacker . com/your-old-hot-water-heater-is-probably-leaking-1849183869](https://lifehacker.com/your-old-hot-water-heater-is-probably-leaking-1849183869)
+> 原文：<https://lifehacker.com/your-old-hot-water-heater-is-probably-leaking-1849183869>
 
-热水器是一种家用电器，你往往会忘记，直到出了问题。很容易让几年——甚至可能是10年或20年——过去而不去关注它。但是如果你有一个传统的热水器(不是那种 [的新型无水箱](https://lifehacker.com/you-should-really-consider-a-tankless-water-heater-1848038857) )并且它已经老化了，如果/当它开始漏水的时候不要惊讶。
+热水器是一种家用电器，你往往会忘记，直到出了问题。很容易让几年——甚至可能是 10 年或 20 年——过去而不去关注它。但是如果你有一个传统的热水器(不是那种 [的新型无水箱](https://lifehacker.com/you-should-really-consider-a-tankless-water-heater-1848038857) )并且它已经老化了，如果/当它开始漏水的时候不要惊讶。
 
 Watch
 
@@ -10,7 +10,7 @@ Watch
 
 ## 热水器能用多久？
 
-无水箱热水器的部分吸引力在于它们通常可以使用至少20年。另一方面，传统的水箱式热水器、、[一般能使用8到12年](https://www.bobvila.com/articles/how-long-does-a-water-heater-last/)、——这取决于它们的维护方式和当地供水中的矿物质含量。
+无水箱热水器的部分吸引力在于它们通常可以使用至少 20 年。另一方面，传统的水箱式热水器、、[一般能使用 8 到 12 年](https://www.bobvila.com/articles/how-long-does-a-water-heater-last/)、——这取决于它们的维护方式和当地供水中的矿物质含量。
 
 ## 为什么我的热水器漏水？
 
@@ -26,7 +26,7 @@ Watch
 
 ### 降温减压安全阀
 
-[降温减压安全阀](https://www.thespruce.com/tandp-relief-valve-hot-water-heater-1825057#:~:text=A%20T%26P%20valve%20is%20a,operating%20limits%2C%20usually%20150%20psi.) (通常称为“T & P阀”)是一个安全装置，用于释放油箱中的多余压力。阀门本身通常位于热水器的顶部或侧面，连接一根细管(金属或塑料),指向地面。检查一下看起来泄漏是否来自那个管道，再一次，用棉签确定管道内部是否潮湿。
+[降温减压安全阀](https://www.thespruce.com/tandp-relief-valve-hot-water-heater-1825057#:~:text=A%20T%26P%20valve%20is%20a,operating%20limits%2C%20usually%20150%20psi.) (通常称为“T & P 阀”)是一个安全装置，用于释放油箱中的多余压力。阀门本身通常位于热水器的顶部或侧面，连接一根细管(金属或塑料),指向地面。检查一下看起来泄漏是否来自那个管道，再一次，用棉签确定管道内部是否潮湿。
 
 阀门可不是闹着玩的，所以如果看起来是你的泄漏源，打电话给专业人士评估情况。如有必要，他们可以更换阀门和/或管道。
 

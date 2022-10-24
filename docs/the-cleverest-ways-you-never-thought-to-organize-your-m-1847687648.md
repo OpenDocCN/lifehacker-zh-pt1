@@ -1,6 +1,6 @@
 # 你从未想过的整理凌乱衣柜的最聪明的方法
 
-> 原文:[https://life hacker . com/the-cleverest-ways-you-never-thought-organize-you-m-1847687648](https://lifehacker.com/the-cleverest-ways-you-never-thought-to-organize-your-m-1847687648)
+> 原文：<https://lifehacker.com/the-cleverest-ways-you-never-thought-to-organize-your-m-1847687648>
 
 如果你每次走进衣橱都感到一丝挫败感——衣服在地板上，没有足够的空间，未包装的盒子——我们来看你。除了安装架子和把过季的衣服放在贴有标签的箱子里直到你再次需要它们的老办法之外，看看这些简单的储藏技巧，它们可以立即改变你的衣柜的外观和感觉。
 
@@ -10,13 +10,13 @@ Watch
 
 如此基础，却又如此实用。使用一个 [宜家书柜](https://www.ikea.com/us/en/p/kallax-shelf-unit-white-10409932/) (或更多，视可用空间而定)，打造一个开放式小房间的仙境。把当季的衣服放在眼睛的高度，把几个月不用的衣服放在底层架子上。这是一种高效、廉价的整理衣服的方式，而且实际上是查看衣服。
 
-## 用什么样的方式来训练T2
+## 用什么样的方式来训练 T2
 
-想让你的衣架更有活力吗？ [系上浴帘挂钩](https://www.pinterest.com/pin/210543351304160327/) 。合上的那种类型的T4是理想的围巾环；开口挂钩是存放皮带或背心的绝佳选择(便于拆卸)。一定要把这个衣架放在壁橱挂杆的末端，这样更容易看到，也更有功能。
+想让你的衣架更有活力吗？ [系上浴帘挂钩](https://www.pinterest.com/pin/210543351304160327/) 。合上的那种类型的 T4 是理想的围巾环；开口挂钩是存放皮带或背心的绝佳选择(便于拆卸)。一定要把这个衣架放在壁橱挂杆的末端，这样更容易看到，也更有功能。
 
-## 使用s oda拉环挂钩
+## 使用 s oda 拉环挂钩
 
-你知道当你看到如此简单而有效的东西时，你会立刻感到困惑，为什么你自己从来没有想到过？这是其中的一次。(不是喝汽水的？没问题。任何LaCroix，Spindrift，或昨晚的白爪的标签都可以。)
+你知道当你看到如此简单而有效的东西时，你会立刻感到困惑，为什么你自己从来没有想到过？这是其中的一次。(不是喝汽水的？没问题。任何 LaCroix，Spindrift，或昨晚的白爪的标签都可以。)
 
 ## 使用线盒分隔器
 
@@ -24,7 +24,7 @@ Watch
 
 ## 为珠宝使用一块木板
 
-在你的车库里创造奇迹的东西也能让你在衣橱里免受挫折。不要在成堆打结的项链和无底的手镯中寻找答案，在你的壁橱墙上挂一个钉板，挂上“J形”钉板钩，看着你的珠宝让头疼消失。见[此处](https://wallpegstore.com/pegboards-jewelry-organization/)见想象各种可能性。
+在你的车库里创造奇迹的东西也能让你在衣橱里免受挫折。不要在成堆打结的项链和无底的手镯中寻找答案，在你的壁橱墙上挂一个钉板，挂上“J 形”钉板钩，看着你的珠宝让头疼消失。见[此处](https://wallpegstore.com/pegboards-jewelry-organization/)见想象各种可能性。
 
 ## 穿完东西就翻衣架
 
@@ -32,7 +32,7 @@ Watch
 
 ## 挂好你的包
 
-当然，你可以把各式各样的手提袋、手提包和挎包随意地藏在房子里的各个壁橱里。*或*，你可以把它们集中在一个地方，用S形挂钩把它们挂在挂衣杆上，再也不用担心那个该死的白色腕带在哪里了。
+当然，你可以把各式各样的手提袋、手提包和挎包随意地藏在房子里的各个壁橱里。*或*，你可以把它们集中在一个地方，用 S 形挂钩把它们挂在挂衣杆上，再也不用担心那个该死的白色腕带在哪里了。
 
 ## 将你的鞋子放在相反的方向
 
@@ -40,4 +40,4 @@ Watch
 
 ## 利用*所有*墙壁空间
 
-你衣柜门的背面对你的衣柜有什么用？窗帘杆下方或上方的墙面空间呢？什么都没有？是时候让它们发挥作用了。在任何未使用的空间安装一个 [毛巾杆](https://www.bedbathandbeyond.com/store/category/bath/bathroom-hardware/towel-bars/15029) 作为个性化的配件悬挂站。挂上浴帘挂钩、S形挂钩、或者甚至一个 [淋浴篮](https://www.amazon.com/Spectrum-Diversified-Vintage-Storage-Industrial/dp/B01J7Z9ZF4/ref=as_li_ss_tl?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/the-cleverest-ways-you-never-thought-to-organize-your-m-1847687648&asc_source=&keywords=wire basket&language=en_US&linkCode=sl1&linkId=c8dc70b0040184f2ce9b916511144880&qid=1552993563&s=gateway&sr=8-10&tag=kinjalifehackerlink-20) 来装皮带、袜子、帽子、工艺用品、掌上游戏机以及任何你不想再在地板上看到的东西。这不是加州壁橱，但这是一个很好的开始。
+你衣柜门的背面对你的衣柜有什么用？窗帘杆下方或上方的墙面空间呢？什么都没有？是时候让它们发挥作用了。在任何未使用的空间安装一个 [毛巾杆](https://www.bedbathandbeyond.com/store/category/bath/bathroom-hardware/towel-bars/15029) 作为个性化的配件悬挂站。挂上浴帘挂钩、S 形挂钩、或者甚至一个 [淋浴篮](https://www.amazon.com/Spectrum-Diversified-Vintage-Storage-Industrial/dp/B01J7Z9ZF4/ref=as_li_ss_tl?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/the-cleverest-ways-you-never-thought-to-organize-your-m-1847687648&asc_source=&keywords=wire basket&language=en_US&linkCode=sl1&linkId=c8dc70b0040184f2ce9b916511144880&qid=1552993563&s=gateway&sr=8-10&tag=kinjalifehackerlink-20) 来装皮带、袜子、帽子、工艺用品、掌上游戏机以及任何你不想再在地板上看到的东西。这不是加州壁橱，但这是一个很好的开始。

@@ -1,8 +1,8 @@
 # 为什么你应该在月亮不圆的时候去看它
 
-> 原文:[https://life hacker . com/why-you-should-see-the-moon-when-it ' s-full-1848363559](https://lifehacker.com/why-you-should-look-at-the-moon-when-its-not-full-1848363559)
+> 原文：<https://lifehacker.com/why-you-should-look-at-the-moon-when-its-not-full-1848363559>
 
-经常阅读Lifehacker的读者会知道 [我们是太空](https://lifehacker.com/life-in-general/stuff-we-love/space) 的忠实粉丝，经常发布即将到来的天文事件，包括满月、流星雨和有趣的行星排列。
+经常阅读 Lifehacker 的读者会知道 [我们是太空](https://lifehacker.com/life-in-general/stuff-we-love/space) 的忠实粉丝，经常发布即将到来的天文事件，包括满月、流星雨和有趣的行星排列。
 
 Watch
 
@@ -16,6 +16,6 @@ Watch
 
 ## 尝试使用日间视觉
 
-为了更好地看到月亮的四分之一圆缺，天文杂志 的 [编辑有一个建议:在你身后打开一盏中等亮度的白光灯(大约60瓦)。](https://astronomy.com/magazine/space-and-beyond-box/2019/12/10-tips-for-observing-the-moon) 
+为了更好地看到月亮的四分之一圆缺，天文杂志 的 [编辑有一个建议:在你身后打开一盏中等亮度的白光灯(大约 60 瓦)。](https://astronomy.com/magazine/space-and-beyond-box/2019/12/10-tips-for-observing-the-moon) 
 
 “增加白光抑制了眼睛在夜间适应黑暗的倾向，”他们写道。非暗适应导致眼睛使用正常的白天视觉，这比暗适应的夜视质量更高。所以，你会看到更多的细节，因为你用的是你眼睛更好的部分。"

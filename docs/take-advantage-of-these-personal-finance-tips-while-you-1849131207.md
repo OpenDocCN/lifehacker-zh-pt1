@@ -1,12 +1,12 @@
 # 趁你还单身，好好利用这些个人理财建议吧
 
-> 原文:[https://life hacker . com/take-advantage-of-these-personal-finance-tips-while-you-1849131207](https://lifehacker.com/take-advantage-of-these-personal-finance-tips-while-you-1849131207)
+> 原文：<https://lifehacker.com/take-advantage-of-these-personal-finance-tips-while-you-1849131207>
 
-当你单身时，很容易失去对预算的控制，甚至觉得自己一开始就不需要预算。约会之夜，一个人的外卖，没有人分享流媒体订阅...单身的代价会迅速增加。没有第二份收入，你必须在如何储蓄上有点创意。同时，你可以自由地让T2发挥创造力，因为你可以独立地做出财务决定。
+当你单身时，很容易失去对预算的控制，甚至觉得自己一开始就不需要预算。约会之夜，一个人的外卖，没有人分享流媒体订阅...单身的代价会迅速增加。没有第二份收入，你必须在如何储蓄上有点创意。同时，你可以自由地让 T2 发挥创造力，因为你可以独立地做出财务决定。
 
 Watch
 
-我与个人理财专家Jen Smith进行了交谈，她是Instagram上的 [、@frugalfriendspodcast](https://www.instagram.com/frugalfriendspodcast/) 、和、T5【现代婚姻】的共同主持人，她分享了她作为一个单身人士管理你的财务的顶级技巧。
+我与个人理财专家 Jen Smith 进行了交谈，她是 Instagram 上的 [、@frugalfriendspodcast](https://www.instagram.com/frugalfriendspodcast/) 、和、T5【现代婚姻】的共同主持人，她分享了她作为一个单身人士管理你的财务的顶级技巧。
 
 ## 用实惠的选择平衡您的社交生活
 
@@ -16,7 +16,7 @@ Watch
 
 ## **分析你可以削减的地方**
 
-史密斯说，至少检查一下你过去90天的支出，看看你的钱到底去了哪里。当谈到“削减开支”的想法时，许多人感到恐慌，认为他们的生活方式将不得不彻底改变。史密斯说，这是一种恐惧反应，通常情况并非如此。“你认为你需要削减的第一件事，”比如你每天的咖啡或每周的快乐时光，“通常可能是最后一件事。”史密斯分享道，在审视了他们的消费习惯后，大多数人发现他们可以首先削减他们甚至没有意识到他们在浪费钱的领域(想到了 [被忽视的订阅](https://lifehacker.com/use-a-subscription-manager-to-stop-paying-for-services-1849121341) )。
+史密斯说，至少检查一下你过去 90 天的支出，看看你的钱到底去了哪里。当谈到“削减开支”的想法时，许多人感到恐慌，认为他们的生活方式将不得不彻底改变。史密斯说，这是一种恐惧反应，通常情况并非如此。“你认为你需要削减的第一件事，”比如你每天的咖啡或每周的快乐时光，“通常可能是最后一件事。”史密斯分享道，在审视了他们的消费习惯后，大多数人发现他们可以首先削减他们甚至没有意识到他们在浪费钱的领域(想到了 [被忽视的订阅](https://lifehacker.com/use-a-subscription-manager-to-stop-paying-for-services-1849121341) )。
 
 这里的一个独特优势是，当你不需要考虑其他人的因素或进行冗长的讨论时，选择如何和在哪里削减会容易得多。
 

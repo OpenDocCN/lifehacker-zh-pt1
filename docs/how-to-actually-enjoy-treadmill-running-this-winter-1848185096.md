@@ -1,6 +1,6 @@
 # 如何在这个冬天真正享受跑步机跑步
 
-> 原文:[https://life hacker . com/how-to-really-enjoy-running-this-winter-1848185096](https://lifehacker.com/how-to-actually-enjoy-treadmill-running-this-winter-1848185096)
+> 原文：<https://lifehacker.com/how-to-actually-enjoy-treadmill-running-this-winter-1848185096>
 
 跑步是令人振奋的:感觉风吹过你的头发，你的身体与你脚下的土地连接在一起，这是一个机会去审视你周围的世界和你内心的世界。当然，除非天气糟糕。然后就该在室内预定了，打大家的“最爱”有氧机，跑步机。
 
@@ -14,9 +14,9 @@ Watch
 
 ## **忽略卡路里计数器**
 
-如上所述，室内和室外跑步不会有很大的不同，尽管你的跑步机内置的卡路里计数器和你的智能手表的数据可能会有所不同。Lifehacker资深健康编辑Beth Skwarecki [是这样解释的](https://lifehacker.com/dont-trust-the-calorie-count-on-the-elliptical-machine-1834283499) :
+如上所述，室内和室外跑步不会有很大的不同，尽管你的跑步机内置的卡路里计数器和你的智能手表的数据可能会有所不同。Lifehacker 资深健康编辑 Beth Skwarecki [是这样解释的](https://lifehacker.com/dont-trust-the-calorie-count-on-the-elliptical-machine-1834283499) :
 
-> 除非一个科学家整天带着电脑和氧气面罩跟着你，否则你只能得到一个非常粗略的数字*可能是*。健身器材通常会高估你消耗的卡路里，因为，嘿，大数字会让顾客开心。所以，如果你从你的椭圆和Fitbit得到不同的数字，用较低的数字。但实际的获胜举措可能是 [根本不计算活动卡路里](https://vitals.lifehacker.com/for-accurate-calorie-counts-don-t-track-your-activitie-1769445569) 。
+> 除非一个科学家整天带着电脑和氧气面罩跟着你，否则你只能得到一个非常粗略的数字*可能是*。健身器材通常会高估你消耗的卡路里，因为，嘿，大数字会让顾客开心。所以，如果你从你的椭圆和 Fitbit 得到不同的数字，用较低的数字。但实际的获胜举措可能是 [根本不计算活动卡路里](https://vitals.lifehacker.com/for-accurate-calorie-counts-don-t-track-your-activitie-1769445569) 。
 
 将时间、距离、速度和倾斜度等指标放在手边当然会有所帮助，但可以考虑关掉或贴上卡路里计数。
 

@@ -1,10 +1,10 @@
-# 健身后你一直感到疲劳和酸痛的9个原因
+# 健身后你一直感到疲劳和酸痛的 9 个原因
 
-> 原文:[https://life hacker . com/9-理由-你下班后一直感到疲劳和酸痛i-1848006094](https://lifehacker.com/9-reasons-youre-tired-and-sore-all-the-time-after-worki-1848006094)
+> 原文：<https://lifehacker.com/9-reasons-youre-tired-and-sore-all-the-time-after-worki-1848006094>
 
 锻炼是一项艰苦的工作，但它也有自己的解药:你越努力，事情就应该感觉越容易，你举起的次数越多，你就越不容易酸痛。这意味着如果你锻炼完后一直感到疲劳和酸痛，那一定是出了什么问题。让我们一起弄清楚那是什么——以及该怎么办— 。
 
-谈到健康，一致性 [是最重要的事情](https://lifehacker.com/consistency-is-the-solution-to-most-of-your-fitness-pro-1845417358) 。每周四天，每周四天，遵循一个还算正常的程序，比做一个真正伟大的程序的d ay 1而永远抽不出时间d ay 2要好。
+谈到健康，一致性 [是最重要的事情](https://lifehacker.com/consistency-is-the-solution-to-most-of-your-fitness-pro-1845417358) 。每周四天，每周四天，遵循一个还算正常的程序，比做一个真正伟大的程序的 d ay 1 而永远抽不出时间 d ay 2 要好。
 
 这在处理疼痛时尤为关键。多亏了一种叫做 [重复回合效应](https://lifehacker.com/how-to-not-be-sore-all-the-time-1846400202) 的现象，当你第二次做同样(或类似)的锻炼时，你实际上不会感到酸痛。第一次会痛，但第二次会好很多。问题是，如果你等一个星期再做第二天的事，很多保护就会消失，你会发现自己陷入一个循环，因为你感到痛苦而休假，然后又因为休假太多而感到痛苦。
 
@@ -18,13 +18,13 @@
 
 食物是燃料，健康的运动员最终会吃很多。但是，如果你在锻炼的同时试图减肥，或者如果你因为 [你认为高热量食物不“健康”](https://lifehacker.com/healthy-eating-is-not-the-same-as-dieting-1847957005) 而避免高热量食物，你可能会破坏你在健身房的进步。
 
-如果你不是超级瘦或者体重过轻，适度的卡路里摄入不足绝对可以和在健身房努力锻炼相兼容。但是你不能降低到1200卡路里，并期望每天都有能量进行交叉训练。
+如果你不是超级瘦或者体重过轻，适度的卡路里摄入不足绝对可以和在健身房努力锻炼相兼容。但是你不能降低到 1200 卡路里，并期望每天都有能量进行交叉训练。
 
 除了食物摄入不足带来的问题，如果你没有摄入足够的碳水化合物也会有问题。我们吃的碳水化合物变成血糖，我们在运动时使用；它们也可以成为肌糖原，另一种重要的燃料。
 
-有可能适应在运动中使用更多的脂肪和更少的葡萄糖，一些T2运动员采取这种方法。但这并不是对每个人都有效，根据你想做的运动种类，你可能会比不吃碳水化合物的人表现得更好*。*
+有可能适应在运动中使用更多的脂肪和更少的葡萄糖，一些 T2 运动员采取这种方法。但这并不是对每个人都有效，根据你想做的运动种类，你可能会比不吃碳水化合物的人表现得更好*。*
 
-如果你喜欢低碳水化合物的生活方式，你不必完全放弃它；只是 [确保在锻炼前吃点碳水化合物- y零食](https://lifehacker.com/what-to-eat-before-a-morning-workout-1846642881) ，如果你的能量暴涨也不要惊讶。
+如果你喜欢低碳水化合物的生活方式，你不必完全放弃它；只是 [确保在锻炼前吃点碳水化合物- y 零食](https://lifehacker.com/what-to-eat-before-a-morning-workout-1846642881) ，如果你的能量暴涨也不要惊讶。
 
 如果你的主要锻炼形式是跑步之类的东西，你大概知道 [你也应该进行力量训练](https://lifehacker.com/how-runners-can-begin-strength-training-1846954615) 。但是跑步者经常犯这样的错误，用轻重量进行高重复的训练，因为这听起来更像是跑步而不是举重。
 
@@ -36,7 +36,7 @@
 
 锻炼对你的身体很难，但是食物和睡眠有助于你恢复健康。如果你睡眠不足，你会一直感到疲倦，一方面是因为你睡眠不足，另一方面是因为你没有做足够的事情让你的身体自我修复。
 
-如果你想用小工具解决这个问题， [呐喊](https://lifehacker.com/what-its-like-to-track-your-recovery-with-the-whoop-str-1846208997) 和 [乌拉](https://lifehacker.com/what-its-like-to-track-your-recovery-with-the-oura-ring-1846144304) 都承诺跟踪你的睡眠，并将其与你运动后的恢复情况联系起来。或者去low tech】和[早点睡觉](https://lifehacker.com/how-to-reboot-your-sleep-cycle-5548150) 。
+如果你想用小工具解决这个问题， [呐喊](https://lifehacker.com/what-its-like-to-track-your-recovery-with-the-whoop-str-1846208997) 和 [乌拉](https://lifehacker.com/what-its-like-to-track-your-recovery-with-the-oura-ring-1846144304) 都承诺跟踪你的睡眠，并将其与你运动后的恢复情况联系起来。或者去 low tech】和[早点睡觉](https://lifehacker.com/how-to-reboot-your-sleep-cycle-5548150) 。
 
 压力会让我们感到“无聊”如果你工作了一天，你的宠物生病了，你和你的另一半的关系不太好，你可能不想锻炼。这很好——无论你需要什么，都要注意你的心理健康。
 

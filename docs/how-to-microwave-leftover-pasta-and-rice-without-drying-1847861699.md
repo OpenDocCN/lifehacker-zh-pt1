@@ -1,6 +1,6 @@
 # 如何用微波炉加热剩下的意大利面和米饭而不使其变干
 
-> 原文:[https://life hacker . com/how-to-microwave-left-pasta-and-rice-non-drying-1847861699](https://lifehacker.com/how-to-microwave-leftover-pasta-and-rice-without-drying-1847861699)
+> 原文：<https://lifehacker.com/how-to-microwave-leftover-pasta-and-rice-without-drying-1847861699>
 
 最近几周，你可能已经看到了一份在抖音流传的三文鱼饭碗的食谱。在这个食谱中，抖音的用户 [艾米丽·真理子](https://www.tiktok.com/@emilymariko?) 把剩下的三文鱼放在一个盘子里，并用一天前的大米覆盖。然后，她将一块冰块放入米饭中，用一张羊皮纸将其覆盖，然后放入微波炉中加热一分钟。在微波炉中的一分钟内，冰块基本保持完整，产生蒸汽，使剩余的米饭重新水合。
 
@@ -14,11 +14,11 @@ Watch
 
 对于意大利面，如果你需要用微波炉加热剩菜超过一分钟，大约每分钟搅拌一次，并让盯着那个立方体。它有助于将意大利面展开成一薄层，这将有助于它均匀加热，同时也减少了它需要微波的时间。当我用一些剩余的意大利面和蔬菜“肉丸”尝试这种方法时，一分钟就足够了，结果尝起来几乎和新鲜的一样好。
 
-(我将肉丸切成小块，然后用微波炉加热使它们更均匀，尽管另一个窍门是 [在空气油炸锅](https://cleangreensimple.com/article/how-to-reheat-pasta/) 中分别加热它们，直到它们变得又热又脆:在350华氏度下加热3-5分钟应该就可以了。)
+(我将肉丸切成小块，然后用微波炉加热使它们更均匀，尽管另一个窍门是 [在空气油炸锅](https://cleangreensimple.com/article/how-to-reheat-pasta/) 中分别加热它们，直到它们变得又热又脆:在 350 华氏度下加热 3-5 分钟应该就可以了。)
 
 ## **使用湿纸巾**
 
-使用冰块的一个替代方法是在剩下的米饭或面条上撒一点点水，然后用湿纸巾盖上。水分会产生足够的蒸汽来补充剩菜的水分，而纸巾会防止水分流失。Lifehacker的Managing Editor Meghan Walbert最近向我报告说她用剩女Pad Thai尝试了这种方法，结果令人满意。
+使用冰块的一个替代方法是在剩下的米饭或面条上撒一点点水，然后用湿纸巾盖上。水分会产生足够的蒸汽来补充剩菜的水分，而纸巾会防止水分流失。Lifehacker 的 Managing Editor Meghan Walbert 最近向我报告说她用剩女 Pad Thai 尝试了这种方法，结果令人满意。
 
 为了科学的利益，我通过重新加热两批不同的剩余意大利面，比较了使用冰块法和湿纸巾法。在这个测试中，我每一批都用了等量的面粉，在盘子上铺了一层薄薄的意大利面，然后用微波炉加热一分钟。
 
@@ -28,4 +28,4 @@ Watch
 
 ## 如何重新加热奶油酱意大利面
 
-用奶油沙司重新加热意大利面食，如 lfredo或通心粉和奶酪， [更复杂，因为脂肪含量高](https://cleangreensimple.com/article/how-to-reheat-pasta/) 。当高脂肪含量的酱冷却时，它会分离成油和水，所以你需要做大量的*搅拌*和*注意不要水分过多。这也有助于在剩菜中加入一点牛奶。*
+用奶油沙司重新加热意大利面食，如 lfredo 或通心粉和奶酪， [更复杂，因为脂肪含量高](https://cleangreensimple.com/article/how-to-reheat-pasta/) 。当高脂肪含量的酱冷却时，它会分离成油和水，所以你需要做大量的*搅拌*和*注意不要水分过多。这也有助于在剩菜中加入一点牛奶。*

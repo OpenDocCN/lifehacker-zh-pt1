@@ -1,8 +1,8 @@
 # 你应该给你的孩子买台打字机
 
-> 原文:[https://life hacker . com/you-should-buy-your-kid-a typewriter-1846102618](https://lifehacker.com/you-should-buy-your-kid-a-typewriter-1846102618)
+> 原文：<https://lifehacker.com/you-should-buy-your-kid-a-typewriter-1846102618>
 
-上周，当我发出自由职业者推介 的呼吁时，我还要求读者给我发他们想看的帖子或主题想法——即使他们自己不想写。这就是为什么一位名叫安迪的53岁报纸编辑联系我，提出了一个不可否认的好主意:父母应该给他们的孩子买一台打字机。
+上周，当我发出自由职业者推介 的呼吁时，我还要求读者给我发他们想看的帖子或主题想法——即使他们自己不想写。这就是为什么一位名叫安迪的 53 岁报纸编辑联系我，提出了一个不可否认的好主意:父母应该给他们的孩子买一台打字机。
 
 Watch
 
@@ -34,4 +34,4 @@ Watch
 
 还有，你知道什么打字机*没有*吗？一个屏幕！不用给奶奶发短信或给朋友发短信，他们可以打好*的信*发给所爱的人——而*不用盯着另一个屏幕看一会儿。(不管怎样，收到信更有趣。)*
 
-现在，至于*买哪台*打字机，那台 当然有 [的子编辑。或者去当地的旧货店或Facebook Marketplace看看有没有特别便宜的二手选择。](https://www.reddit.com/r/typewriters/comments/eaiwqh/good_typewriter_for_kids/)
+现在，至于*买哪台*打字机，那台 当然有 [的子编辑。或者去当地的旧货店或 Facebook Marketplace 看看有没有特别便宜的二手选择。](https://www.reddit.com/r/typewriters/comments/eaiwqh/good_typewriter_for_kids/)

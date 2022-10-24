@@ -1,6 +1,6 @@
 # 如何阻止你的狗吃草
 
-> 原文:[https://life hacker . com/how-to-stop-your dog-from-吃草-1848671657](https://lifehacker.com/how-to-stop-your-dog-from-eating-grass-1848671657)
+> 原文：<https://lifehacker.com/how-to-stop-your-dog-from-eating-grass-1848671657>
 
 狗和人类一样，更喜欢某些食物。也许你的孩子喜欢一种品牌的粗粮而不是另一种，或者喜欢嚼劲大的食物而不是松脆的。但是草呢？
 
@@ -27,7 +27,7 @@ Watch
 
 ## 如何让你的狗停止吃草
 
-如果你的狗似乎不能得到足够的草，这里有一些方法可以帮助它们戒掉这个习惯， [由AKC](https://www.akc.org/expert-advice/advice/why-does-my-dog-eat-grass/) 提供:
+如果你的狗似乎不能得到足够的草，这里有一些方法可以帮助它们戒掉这个习惯， [由 AKC](https://www.akc.org/expert-advice/advice/why-does-my-dog-eat-grass/) 提供:
 
 1.  确保他们饮食均衡，富含纤维。
 2.  如果他们一天中独处的时间较长，给他们一个玩具或一些可以咀嚼的东西。

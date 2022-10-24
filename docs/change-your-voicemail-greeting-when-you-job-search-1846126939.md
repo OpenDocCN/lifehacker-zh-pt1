@@ -1,8 +1,8 @@
 # 求职时更改你的语音信箱问候语
 
-> 原文:[https://life hacker . com/change-your-voice mail-greeting-when-you-job-search-1846126939](https://lifehacker.com/change-your-voicemail-greeting-when-you-job-search-1846126939)
+> 原文：<https://lifehacker.com/change-your-voicemail-greeting-when-you-job-search-1846126939>
 
-现在比以往任何时候，在找工作的时候，有很多方法可以破坏你自己。社交媒体和数字档案融入了我们生活的方方面面、但 t即使你没有在Twitter或Instagram上发布谴责性的帖子，一个更老的错误仍然存在，如果你不注意的话，你获得新工作的机会可能会毁于一旦:我说的是你愚蠢的、冷漠的语音邮件问候。
+现在比以往任何时候，在找工作的时候，有很多方法可以破坏你自己。社交媒体和数字档案融入了我们生活的方方面面、但 t 即使你没有在 Twitter 或 Instagram 上发布谴责性的帖子，一个更老的错误仍然存在，如果你不注意的话，你获得新工作的机会可能会毁于一旦:我说的是你愚蠢的、冷漠的语音邮件问候。
 
 Watch
 
@@ -12,7 +12,7 @@ Watch
 
 ### 首先，确保你的邮箱没有满
 
-没有什么比一个满满的邮箱更让人尖叫“我没有在一起”了。首先，年轻群体中的大多数人——比如千禧一代和Z世代——并不特别依赖语音邮件。但是雇主总是会给你留语音邮件——所以当他们这样做的时候，你不应该被发现。
+没有什么比一个满满的邮箱更让人尖叫“我没有在一起”了。首先，年轻群体中的大多数人——比如千禧一代和 Z 世代——并不特别依赖语音邮件。但是雇主总是会给你留语音邮件——所以当他们这样做的时候，你不应该被发现。
 
 修复？坐下来，每周清理一次你的语音信箱，如果不是特别堵塞的话，甚至一个月清理一次。
 
@@ -24,7 +24,7 @@ Watch
 
 ### 完全不打招呼可能也一样糟糕
 
-你不会因为一开始没有设置语音信箱而赢得任何喝彩。事实上，这可能会伤害你。正如求职平台Snagajob [的公关主管安德里亚·巴尔杰(Andrea Barger)在2016年](http://snagajob.com/blog/post/voicemail-and-your-job-search) 中写道，没有问候“会让你看起来有点懒惰，会让招聘经理感到沮丧。”
+你不会因为一开始没有设置语音信箱而赢得任何喝彩。事实上，这可能会伤害你。正如求职平台 Snagajob [的公关主管安德里亚·巴尔杰(Andrea Barger)在 2016 年](http://snagajob.com/blog/post/voicemail-and-your-job-search) 中写道，没有问候“会让你看起来有点懒惰，会让招聘经理感到沮丧。”
 
 她继续强调，不仅要有一个问候作为基线，还要注意一个好的问候是如何让你受益的:
 
@@ -34,7 +34,7 @@ Watch
 
 对于我们当中的无知的人来说，有几种方法可以记录一个合适的语音邮件问候。它可以简短而甜蜜，从任何意义上来说都不必过分。
 
-正如 [艾捷拉弗罗斯特](https://blog.hubspot.com/sales/author/aja-frost) [为Hubspot](https://blog.hubspot.com/sales/professional-voicemail-greetings) 所写，你可以根据职业、个人、度假、甚至开玩笑的需要来定制你的问候。但是无论在什么情况下，一个常规的脚本就足够了，她写道:
+正如 [艾捷拉弗罗斯特](https://blog.hubspot.com/sales/author/aja-frost) [为 Hubspot](https://blog.hubspot.com/sales/professional-voicemail-greetings) 所写，你可以根据职业、个人、度假、甚至开玩笑的需要来定制你的问候。但是无论在什么情况下，一个常规的脚本就足够了，她写道:
 
 > 语音邮件问候应该是专业的，但结构可以根据情况而变化。下面是一个语音邮件问候脚本示例:“您好，这里是[公司]的[姓名]。我现在不能接电话。留下你的名字和电话号码，我一有空就给你回电话。谢谢大家。”
 

@@ -1,8 +1,8 @@
 # 协商一份“飞去来往往”的工作，以获得更多的钱和更好的福利
 
-> 原文:[https://life hacker . com/negotiate-a-boomerang-job-for-more-money-and-better-Ben-1848071663](https://lifehacker.com/negotiate-a-boomerang-job-for-more-money-and-better-ben-1848071663)
+> 原文：<https://lifehacker.com/negotiate-a-boomerang-job-for-more-money-and-better-ben-1848071663>
 
-2021年9月，比以往任何时候都多的美国工人辞去了他们的工作 ，导致一些学者推测“回旋镖雇员”(对“返聘者”的一个可爱的名字)将很快变得更加普遍。回旋镖并不是什么新鲜事，尤其是在高流动率的行业——而且在适当的情况下，它对每个参与者都有好处。
+2021 年 9 月，比以往任何时候都多的美国工人辞去了他们的工作 ，导致一些学者推测“回旋镖雇员”(对“返聘者”的一个可爱的名字)将很快变得更加普遍。回旋镖并不是什么新鲜事，尤其是在高流动率的行业——而且在适当的情况下，它对每个参与者都有好处。
 
 Watch
 
@@ -10,7 +10,7 @@ Watch
 
 商业内幕 [在一篇订阅锁定的博客文章](https://www.businessinsider.com/job-market-hiring-trends-expect-boomerang-employees-labor-shortage-great-resignation) 中警告说:“在劳动力短缺的情况下，预计会出现回旋镖。”。“为什么你所有辞职的同事都会回来做‘回旋镖员工’。”"
 
-这些标题有点扭曲了大局。根据 [美国劳工统计局](https://www.bls.gov/news.release/pdf/jolts.pdf) (BLS)的数据，2021年9月，共有1050万个职位空缺，650万人被聘用，620万人离职。我们不知道有多少招聘是重新招聘(或者是谁发起的)，因为BLS不公布这些数字。但是我们*不知道有多少人辞职:440万，占总离职人数的71%,占总就业人数的历史最高值3%。*
+这些标题有点扭曲了大局。根据 [美国劳工统计局](https://www.bls.gov/news.release/pdf/jolts.pdf) (BLS)的数据，2021 年 9 月，共有 1050 万个职位空缺，650 万人被聘用，620 万人离职。我们不知道有多少招聘是重新招聘(或者是谁发起的)，因为 BLS 不公布这些数字。但是我们*不知道有多少人辞职:440 万，占总离职人数的 71%,占总就业人数的历史最高值 3%。*
 
 低工资、高压力的行业，如食品服务、零售和酒店，离职率最高，职位空缺也最多。基本上，数百万人正在放弃他们的劣质工作，因为雇主拒绝让他们变得不那么劣质，所以没有人接受。
 

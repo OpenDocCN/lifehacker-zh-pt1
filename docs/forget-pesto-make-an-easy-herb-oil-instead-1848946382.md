@@ -1,8 +1,8 @@
 # 忘了香蒜沙司吧——做一种简单的香草油
 
-> 原文:[https://life hacker . com/forget-pesto-make-an-easy-herb-oil-instead-1848946382](https://lifehacker.com/forget-pesto-make-an-easy-herb-oil-instead-1848946382)
+> 原文：<https://lifehacker.com/forget-pesto-make-an-easy-herb-oil-instead-1848946382>
 
-“”常常是“我该拿这些枯萎的药草/ [胡萝卜头](https://lifehacker.com/carrot-tops-make-a-surprisingly-good-pesto-1824194408)/大量的罗勒做什么？”很好的回答。将植物部分与奶酪、大蒜、松子和橄榄油混合在一起总是很美味，但是松子和帕尔马很贵，制作read-deal香蒜酱通常需要一定量的测量。这不是香草油的情况，香蒜酱更容易，更便宜，美味的继姐妹。
+“”常常是“我该拿这些枯萎的药草/ [胡萝卜头](https://lifehacker.com/carrot-tops-make-a-surprisingly-good-pesto-1824194408)/大量的罗勒做什么？”很好的回答。将植物部分与奶酪、大蒜、松子和橄榄油混合在一起总是很美味，但是松子和帕尔马很贵，制作 read-deal 香蒜酱通常需要一定量的测量。这不是香草油的情况，香蒜酱更容易，更便宜，美味的继姐妹。
 
 Watch
 

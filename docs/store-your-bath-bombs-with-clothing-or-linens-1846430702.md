@@ -1,6 +1,6 @@
 # 把你的洗澡炸弹和衣服或亚麻布放在一起
 
-> 原文:[https://life hacker . com/store-your-bath-bombs-with clothing-or-linens-1846430702](https://lifehacker.com/store-your-bath-bombs-with-clothing-or-linens-1846430702)
+> 原文：<https://lifehacker.com/store-your-bath-bombs-with-clothing-or-linens-1846430702>
 
 沐浴炸弹有两个主要功能:它们看起来很漂亮，闻起来很香。这些沙质的彩色球体旨在当你把它们扔进浴缸时，将你的浴缸变成一个旋转的、起泡的、看起来迷幻的、有奢华香味的水体，但为了让它们有效地工作你应该尽可能保持它们干燥，直到你准备好使用它们。
 

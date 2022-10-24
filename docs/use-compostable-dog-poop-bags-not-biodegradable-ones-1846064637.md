@@ -1,6 +1,6 @@
 # 使用可堆肥的狗粪袋，而不是可生物降解的
 
-> 原文:[https://life hacker . com/use-compostable-dog-poop-bags-not-biodegradable-ones-1846064637](https://lifehacker.com/use-compostable-dog-poop-bags-not-biodegradable-ones-1846064637)
+> 原文：<https://lifehacker.com/use-compostable-dog-poop-bags-not-biodegradable-ones-1846064637>
 
 当你捡起你的狗的便便时，你帮了每个人一个忙，但是如果你也想帮环境一个忙，你需要使用正确的便便袋。一个普通的旧塑料袋会污染海洋， [窒息动物，毒害土壤](https://greenerideal.com/news/environment/0613-how-do-plastic-bags-affect-our-environment/#:~:text=Plastic%20bags%20tend%20to%20disrupt,and%20often%20choke%20and%20die.) ，所以你可能会使用一个被列为“可生物降解”的塑料袋但并不是所有的包都像它们看起来那样。以下是你如何为你的狗的便便选择合适类型的袋子。
 
@@ -12,7 +12,7 @@ Watch
 
 ### 使用可堆肥的袋子，而不是可生物降解的
 
-选择不同的袋子可能是保护环境最简单的方法。使用可堆肥的袋子，而不是可生物降解的袋子，因为可堆肥的袋子在分解的同时将 [营养物质送回地球](https://www.heritagepaper.net/the-difference-between-biodegradable-and-compostable-packaging-materials/) 。它们通常由土豆淀粉和其他植物材料等食品制成，这有利于它们的适当分解。海洋生物学家Richard Thompson在普利茅斯大学进行了一项关于可生物降解和可堆肥之间差异的 [研究，报告称“在水下环境中，可堆肥袋在三个月内完全消失”，而普通塑料袋和可生物降解袋仍然能够容纳五磅食品杂货。](https://www.waterdocs.ca/water-talk/2019/5/2/do-compostable-and-biodegradable-items-break-down-in-marine-environments)
+选择不同的袋子可能是保护环境最简单的方法。使用可堆肥的袋子，而不是可生物降解的袋子，因为可堆肥的袋子在分解的同时将 [营养物质送回地球](https://www.heritagepaper.net/the-difference-between-biodegradable-and-compostable-packaging-materials/) 。它们通常由土豆淀粉和其他植物材料等食品制成，这有利于它们的适当分解。海洋生物学家 Richard Thompson 在普利茅斯大学进行了一项关于可生物降解和可堆肥之间差异的 [研究，报告称“在水下环境中，可堆肥袋在三个月内完全消失”，而普通塑料袋和可生物降解袋仍然能够容纳五磅食品杂货。](https://www.waterdocs.ca/water-talk/2019/5/2/do-compostable-and-biodegradable-items-break-down-in-marine-environments)
 
 ### 用狗粪制作堆肥和肥料
 

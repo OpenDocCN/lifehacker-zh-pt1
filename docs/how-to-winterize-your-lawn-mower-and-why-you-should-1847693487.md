@@ -1,8 +1,8 @@
 # 如何为你的割草机过冬(以及为什么你应该这样做)
 
-> 原文:[https://life hacker . com/how-to-winter izing-your law-mower-and-why-you-should-1847693487](https://lifehacker.com/how-to-winterize-your-lawn-mower-and-why-you-should-1847693487)
+> 原文：<https://lifehacker.com/how-to-winterize-your-lawn-mower-and-why-you-should-1847693487>
 
-尽管T2的天气仍然像夏天一样，但再过几天秋天就正式开始了。我 f 你有一片草地草坪，你可能不会因为把你的园艺设备放在一边几个月而心碎。
+尽管 T2 的天气仍然像夏天一样，但再过几天秋天就正式开始了。我 f 你有一片草地草坪，你可能不会因为把你的园艺设备放在一边几个月而心碎。
 
 Watch
 

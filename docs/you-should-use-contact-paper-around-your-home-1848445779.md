@@ -1,8 +1,8 @@
 # 你应该在家里使用联系纸
 
-> 原文:[https://life hacker . com/you-should-use-contact-paper-around-your home-1848445779](https://lifehacker.com/you-should-use-contact-paper-around-your-home-1848445779)
+> 原文：<https://lifehacker.com/you-should-use-contact-paper-around-your-home-1848445779>
 
-尽管长期以来，接触纸一直与抽屉和搁板的内衬联系在一起，但它还有更多用途。如果你对它的唯一体验仅限于透明色(用于覆盖你在学校的作业本)、白色和90年代可用的各种彩色图案，你会大吃一惊。
+尽管长期以来，接触纸一直与抽屉和搁板的内衬联系在一起，但它还有更多用途。如果你对它的唯一体验仅限于透明色(用于覆盖你在学校的作业本)、白色和 90 年代可用的各种彩色图案，你会大吃一惊。
 
 Watch
 
@@ -10,7 +10,7 @@ Watch
 
 ## 什么是联系纸？
 
-如果你不熟悉这种产品——它是光滑的，通常一面有图案，另一面有粘合剂——它自20世纪70年代末就出现了。由 [基特里奇公司](https://con-tactbrand.com/pages/about-us) 开发并以他们的[contact品牌](https://con-tactbrand.com/) 销售，它变成了一种面巾纸或施乐的情况，在这里“接触纸”被用来描述不仅由原品牌制造的产品，还包括进入市场的类似粘性衬垫。
+如果你不熟悉这种产品——它是光滑的，通常一面有图案，另一面有粘合剂——它自 20 世纪 70 年代末就出现了。由 [基特里奇公司](https://con-tactbrand.com/pages/about-us) 开发并以他们的[contact 品牌](https://con-tactbrand.com/) 销售，它变成了一种面巾纸或施乐的情况，在这里“接触纸”被用来描述不仅由原品牌制造的产品，还包括进入市场的类似粘性衬垫。
 
 现在有了剥离粘贴壁纸。尤其受租房者欢迎，尽管有 [细微差别](https://www.architecturaldigest.com/story/use-contact-paper-to-beautify-your-apartment) (它更厚，图案更好)，但它本质上是更名的联系纸。今天，我们将讨论该类别的产品。这里有一些在家里使用接触纸(各种形式)的方法(除了给架子和抽屉加衬里)。
 

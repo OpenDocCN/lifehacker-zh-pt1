@@ -1,12 +1,12 @@
 # 你的热燕麦片需要冷冻浆果
 
-> 原文:[https://life hacker . com/you-hot-燕麦片-要人-冷冻-浆果-1849592840](https://lifehacker.com/your-hot-oatmeal-needs-frozen-berries-1849592840)
+> 原文：<https://lifehacker.com/your-hot-oatmeal-needs-frozen-berries-1849592840>
 
 工作日早餐必须满足三个主要标准才能被认为是“好的”它们必须易于快速准备，足够让你吃到午餐，而且足够美味，让你不会在沮丧中开始新的一天。燕麦片在前两种情况下很容易，但通常需要一点帮助才能达到第三种。这是插件进入聊天的地方。
 
 Watch
 
-糖、蜂蜜、坚果、巧克力片和各种水果只是一碗燕麦粥中常见的几种添加物，但冷冻水果是一种具有双重功能的添加物。根据 [这位聪明的Reddit用户](https://www.reddit.com/r/foodhacks/comments/xqjxon/add_frozen_berries_into_your_hot_oatmeal_to/) 的说法，冷冻水果比新鲜东西略胜一筹，至少在早晨时间管理方面是这样的:
+糖、蜂蜜、坚果、巧克力片和各种水果只是一碗燕麦粥中常见的几种添加物，但冷冻水果是一种具有双重功能的添加物。根据 [这位聪明的 Reddit 用户](https://www.reddit.com/r/foodhacks/comments/xqjxon/add_frozen_berries_into_your_hot_oatmeal_to/) 的说法，冷冻水果比新鲜东西略胜一筹，至少在早晨时间管理方面是这样的:
 
 > 在你的热燕麦片中加入冷冻浆果，解冻浆果，同时将燕麦片冷却到可食用的温度
 > 

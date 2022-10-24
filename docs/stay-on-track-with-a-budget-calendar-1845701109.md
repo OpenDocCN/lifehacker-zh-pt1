@@ -1,6 +1,6 @@
 # 按照预算日程表进行
 
-> 原文:[https://life hacker . com/stay-on-track with-a-budget-calendar-1845701109](https://lifehacker.com/stay-on-track-with-a-budget-calendar-1845701109)
+> 原文：<https://lifehacker.com/stay-on-track-with-a-budget-calendar-1845701109>
 
 我们用日历跟踪很多事情:会议、约会、旅行、生日提醒、社交计划——为什么不是我们的预算呢？预算日历作为一种个人理财工具很容易被忽视，但它提供了一种独特的可视化方法来管理你的财务，这种方法在应用程序或电子表格中并不常见。
 
@@ -8,7 +8,7 @@ Watch
 
 ### 什么是阿伦达尔？
 
-它就像一个普通的日历，但每一个账单到期日，租金支付和收入支票都被记录下来，以帮助你了解什么在发生时进来和出去。日历可以在金融应用程序中找到(Doughroller对基于日历的应用程序 进行了很好的细分)，或者作为谷歌日历 制作的 [，或者在巨大的白板或纸上手动创建的。在2020年依赖打印输出可能看起来很奇怪，但这种方法的优势之一是它不是一个应用程序。应用程序很容易被忽视，而钉在软木塞上或展示在冰箱上的打印输出则不太容易被避免。](https://www.doughroller.net/budgeting/using-google-docs-track-cash-flow/#:~:text=Set%20up%20a%20calendar%20just%20for%20your%20budget&text=To%20find%20it%2C%20just%20go%20to%20calendar.google.com.&text=To%20create%20a%20new%20calendar,calendar%2C%20time%20zone%2C%20etc.)
+它就像一个普通的日历，但每一个账单到期日，租金支付和收入支票都被记录下来，以帮助你了解什么在发生时进来和出去。日历可以在金融应用程序中找到(Doughroller 对基于日历的应用程序 进行了很好的细分)，或者作为谷歌日历 制作的 [，或者在巨大的白板或纸上手动创建的。在 2020 年依赖打印输出可能看起来很奇怪，但这种方法的优势之一是它不是一个应用程序。应用程序很容易被忽视，而钉在软木塞上或展示在冰箱上的打印输出则不太容易被避免。](https://www.doughroller.net/budgeting/using-google-docs-track-cash-flow/#:~:text=Set%20up%20a%20calendar%20just%20for%20your%20budget&text=To%20find%20it%2C%20just%20go%20to%20calendar.google.com.&text=To%20create%20a%20new%20calendar,calendar%2C%20time%20zone%2C%20etc.)
 
 当你一直过着一张接一张的生活时，预算日历尤其有用。如果你勤于记录开支，随着时间的推移，你可能会发现你以前没有注意到的间隔的意外开支模式，比如每隔几个月剪一次昂贵的头发，或者去参加婚礼。
 

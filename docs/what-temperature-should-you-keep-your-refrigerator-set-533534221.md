@@ -1,14 +1,14 @@
 # 你的冰箱的理想温度是多少？
 
-> 原文:[https://life hacker . com/what-temperature-should-you-keep-your-crystal-set-533534221](https://lifehacker.com/what-temperature-should-you-keep-your-refrigerator-set-533534221)
+> 原文：<https://lifehacker.com/what-temperature-should-you-keep-your-refrigerator-set-533534221>
 
-你注意到你的牛奶变冷了吗？肉很快变坏？很可能你的冰箱设置了错误的温度。 [FDA建议](https://www.fda.gov/consumers/consumer-updates/are-you-storing-food-safely) 将冰箱温度保持在40°F(4°C)或以下，冰柜温度保持在0°F(-18°C)，以最大限度地保持食物新鲜，并防止可能导致食源性疾病的细菌滋生。这里有更多的建议来帮助你确保你的易腐食品不会腐烂。
+你注意到你的牛奶变冷了吗？肉很快变坏？很可能你的冰箱设置了错误的温度。 [FDA 建议](https://www.fda.gov/consumers/consumer-updates/are-you-storing-food-safely) 将冰箱温度保持在 40°F(4°C)或以下，冰柜温度保持在 0°F(-18°C)，以最大限度地保持食物新鲜，并防止可能导致食源性疾病的细菌滋生。这里有更多的建议来帮助你确保你的易腐食品不会腐烂。
 
 Watch
 
 ### 拿一个冰箱温度计
 
-“我从来不相信一个电器的自报温度；在Stack Exchange的食品安全论坛上， [的一位用户](https://cooking.stackexchange.com/questions/4529/what-temperatures-should-i-keep-my-refrigerator-and-freezer-set-at/4531#comment4400_4542) 建议道:“我已经受够了有热点的烤箱，要时刻保持警惕。”。“有了我们的冰箱，我们的保鲜盒抽屉会定期结冰并部分冷冻我们的蔬菜，有了温度计，我能够确定为什么:下面比冰箱其他部分设定的35华氏度冷得多。至少5-8度。”移动温度计来检查冷点和热点，并相应地安排你的食物。
+“我从来不相信一个电器的自报温度；在 Stack Exchange 的食品安全论坛上， [的一位用户](https://cooking.stackexchange.com/questions/4529/what-temperatures-should-i-keep-my-refrigerator-and-freezer-set-at/4531#comment4400_4542) 建议道:“我已经受够了有热点的烤箱，要时刻保持警惕。”。“有了我们的冰箱，我们的保鲜盒抽屉会定期结冰并部分冷冻我们的蔬菜，有了温度计，我能够确定为什么:下面比冰箱其他部分设定的 35 华氏度冷得多。至少 5-8 度。”移动温度计来检查冷点和热点，并相应地安排你的食物。
 
 ### 让你的冰箱装满
 
@@ -16,7 +16,7 @@ Watch
 
 ### 但是不要吃太多
 
-没错，让冰箱/冰柜保持满满的状态更有效率——但是把它包装得太紧会限制循环和空气流动，最终迫使它更努力地将东西保持在合适的温度下，根据Hunker 的说法 [。另一个风险是:冰箱里塞得太多会堵塞通风口，导致一系列温度和湿度问题，并可能导致一些食物更快变质。](https://www.hunker.com/12592157/can-you-overfill-a-refrigerator)
+没错，让冰箱/冰柜保持满满的状态更有效率——但是把它包装得太紧会限制循环和空气流动，最终迫使它更努力地将东西保持在合适的温度下，根据 Hunker 的说法 [。另一个风险是:冰箱里塞得太多会堵塞通风口，导致一系列温度和湿度问题，并可能导致一些食物更快变质。](https://www.hunker.com/12592157/can-you-overfill-a-refrigerator)
 
 ### 检查通风口
 
@@ -24,14 +24,14 @@ Watch
 
 ### 避开“危险区域”
 
-如果你想确保你的食物没有滋生可能让你生病的有害细菌，那就把它放在寒冷但不够冷的细菌滋生的“危险地带”。 [根据好管家](https://www.goodhousekeeping.com/appliances/refrigerator-reviews/a28496980/best-refrigerator-temperature/) 的说法，理想的冰箱温度在35华氏度(1.6摄氏度)到38华氏度(3.3摄氏度)之间
+如果你想确保你的食物没有滋生可能让你生病的有害细菌，那就把它放在寒冷但不够冷的细菌滋生的“危险地带”。 [根据好管家](https://www.goodhousekeeping.com/appliances/refrigerator-reviews/a28496980/best-refrigerator-temperature/) 的说法，理想的冰箱温度在 35 华氏度(1.6 摄氏度)到 38 华氏度(3.3 摄氏度)之间
 
 ### 了解你的冰箱自然最冷的地方
 
-“在正常使用的情况下，冰箱内的温度会有很大的变化，”[Stack Exchange的](https://cooking.stackexchange.com/questions/4529/what-temperatures-should-i-keep-my-refrigerator-and-freezer-set-at/4531#comment4400_4542)hobodave说。“冰箱最冷的部分是背面和底部。背面是因为那里有冷却元件，底部是因为暖空气上升。如果你不想让它们结霜，那就把它们从冰箱后面移走。”
+“在正常使用的情况下，冰箱内的温度会有很大的变化，”[Stack Exchange 的](https://cooking.stackexchange.com/questions/4529/what-temperatures-should-i-keep-my-refrigerator-and-freezer-set-at/4531#comment4400_4542)hobodave 说。“冰箱最冷的部分是背面和底部。背面是因为那里有冷却元件，底部是因为暖空气上升。如果你不想让它们结霜，那就把它们从冰箱后面移走。”
 
 ### 不要把容易损坏的物品放在门里
 
-冰箱门可能是冰箱里最温暖的地方之一，也是温度波动最大的地方——所以不要在那里存放任何可能变质的东西。“冰箱门上的东西很容易达到59华氏度(15摄氏度)，而且经常如此，”hobodave说。"把牛奶和鸡蛋放在你的门前会大大减少它们的保质期."事实上，对 [和](https://www.wellandgood.com/fridge-food-storage-mistakes/) 来说，营养师丽莎·德法齐奥建议*永远不要在门里存放牛奶、鸡蛋、奶制品或肉类。相反，把这些东西放在冰箱后面，那里温度更低，也更稳定。
+冰箱门可能是冰箱里最温暖的地方之一，也是温度波动最大的地方——所以不要在那里存放任何可能变质的东西。“冰箱门上的东西很容易达到 59 华氏度(15 摄氏度)，而且经常如此，”hobodave 说。"把牛奶和鸡蛋放在你的门前会大大减少它们的保质期."事实上，对 [和](https://www.wellandgood.com/fridge-food-storage-mistakes/) 来说，营养师丽莎·德法齐奥建议*永远不要在门里存放牛奶、鸡蛋、奶制品或肉类。相反，把这些东西放在冰箱后面，那里温度更低，也更稳定。
 
-*这篇故事最初发表于2013年6月，在10月23日更新了更详细的信息和新的标题图像。**
+*这篇故事最初发表于 2013 年 6 月，在 10 月 23 日更新了更详细的信息和新的标题图像。**

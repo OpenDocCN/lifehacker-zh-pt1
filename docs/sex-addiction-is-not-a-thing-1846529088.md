@@ -1,6 +1,6 @@
 # 性瘾不是一件事
 
-> 原文:[https://life hacker . com/sex-addiction-is-not-a-thing-1846529088](https://lifehacker.com/sex-addiction-is-not-a-thing-1846529088)
+> 原文：<https://lifehacker.com/sex-addiction-is-not-a-thing-1846529088>
 
 在亚特兰大 的温泉浴场杀死八人，其中六人是亚裔美国女性的男子告诉警方他有“性瘾”其他男人在犯下强奸或其他罪行后也说过同样的话，但大多数专业人士并不认为性瘾是一种真正的障碍，它当然不能成为一个人做出可怕行为的借口。
 
@@ -8,7 +8,7 @@ Watch
 
 一些声称有性瘾的人可能躲在这个词后面作为借口；其他人可能真的认为自己有问题。(《华盛顿邮报》 [指出](https://www.washingtonpost.com/nation/2021/03/18/sex-addiction-atlanta-shooting-long/#click=https://t.co/kEK5FmaDqr) 泰德·邦迪和哈维·韦恩斯坦都声称自己有性瘾，老虎伍兹 [在几段婚外情后住进了戒毒所](https://www.reuters.com/article/us-woods-addiction/tiger-woods-case-puts-spotlight-on-sex-addiction-idUSTRE61I61S20100219) 。)
 
-但是性瘾是一个过时的诊断，没有出现在当前的精神健康专家诊断手册DSM-5中。正如美国有线电视新闻网解释的那样，所谓的性上瘾 [与我们所知的上瘾](https://www.cnn.com/2021/03/19/health/sex-addiction-explainer-wellness-trnd/index.html) 完全不同。例如，性不会像成瘾药物一样激活大脑中的相同路径，你也不会对它产生耐受性或退出。
+但是性瘾是一个过时的诊断，没有出现在当前的精神健康专家诊断手册 DSM-5 中。正如美国有线电视新闻网解释的那样，所谓的性上瘾 [与我们所知的上瘾](https://www.cnn.com/2021/03/19/health/sex-addiction-explainer-wellness-trnd/index.html) 完全不同。例如，性不会像成瘾药物一样激活大脑中的相同路径，你也不会对它产生耐受性或退出。
 
 ### 如果不是上瘾，人们在经历什么？
 
@@ -24,7 +24,7 @@ Watch
 
 与此同时，美国性教育工作者、顾问和治疗师协会(AASECT)有一个关于性瘾 的 [立场声明，他们在声明中解释了为什么他们不在基于的框架中治疗性行为:](https://www.aasect.org/position-sex-addiction)
 
-> AASECT认为，人们可能会经历与他们的性冲动、想法或行为相关的重大生理、心理、精神和性健康后果。AASECT建议其成员利用不会过度病态化双方同意的性行为的模型。AASECT 1)没有发现足够的经验证据来支持将性成瘾或色情成瘾归类为精神健康障碍，2)没有发现性成瘾培训和治疗方法以及教育教学法能够充分借鉴准确的人类性知识。因此，AASECT的立场是，AASECT不能将与性冲动、想法或行为相关的问题与色情/性成瘾过程联系起来，作为提供性教育、咨询或治疗的标准做法。
+> AASECT 认为，人们可能会经历与他们的性冲动、想法或行为相关的重大生理、心理、精神和性健康后果。AASECT 建议其成员利用不会过度病态化双方同意的性行为的模型。AASECT 1)没有发现足够的经验证据来支持将性成瘾或色情成瘾归类为精神健康障碍，2)没有发现性成瘾培训和治疗方法以及教育教学法能够充分借鉴准确的人类性知识。因此，AASECT 的立场是，AASECT 不能将与性冲动、想法或行为相关的问题与色情/性成瘾过程联系起来，作为提供性教育、咨询或治疗的标准做法。
 
 因此，虽然性上瘾绝对不是犯罪的借口或理由，但人们肯定会有与性和他们对性的感受有关的精神痛苦。正如格拉布斯指出的那样，数百万美国人认为他们的性行为可能已经失控，他们不会在心情不好的时候杀人。
 

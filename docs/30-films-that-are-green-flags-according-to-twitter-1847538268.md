@@ -1,14 +1,14 @@
-# 根据推特，30部电影是“绿色旗帜”
+# 根据推特，30 部电影是“绿色旗帜”
 
-> 原文:[https://life hacker . com/30-films-that-is-green-flags-by-Twitter-1847538268](https://lifehacker.com/30-films-that-are-green-flags-according-to-twitter-1847538268)
+> 原文：<https://lifehacker.com/30-films-that-are-green-flags-according-to-twitter-1847538268>
 
-Twitter用户Cuchillo Lope刚刚在社交媒体平台上无意中扔了一颗炸弹，询问用户哪些类型的电影在被推荐时会让你觉得与推荐者的关系像绿色的旗帜(而不是红色的):
+Twitter 用户 Cuchillo Lope 刚刚在社交媒体平台上无意中扔了一颗炸弹，询问用户哪些类型的电影在被推荐时会让你觉得与推荐者的关系像绿色的旗帜(而不是红色的):
 
  [https://lifehacker.com/embed/inset/iframe?id=twitter-1429492417678303236&autosize=1](https://lifehacker.com/embed/inset/iframe?id=twitter-1429492417678303236&autosize=1) 
 
 有很多深思熟虑的讨论，关于在多大程度上你可以真正根据人们对电影的品味来判断一个人，以及红色或绿色旗帜的概念是否会导致电影叙事的过度简化，并迫使我们在不理解人们喜欢他们所喜欢的东西的原因的情况下对人们的品味做出假设。(也有很多极度愤怒的搏击俱乐部粉丝坚持认为没有红旗这种东西...除非你不喜欢*搏击俱乐部*。老实说，我来这里是为了捍卫这部电影，但现在我在重新思考我的整个场景。)
 
-还有一些人从表面上接受了这个问题，提供给他们温暖模糊的电影，让他们对喜欢他们的人感觉良好。以下是Twitter推出的绿色旗帜电影。你有什么要补充的吗？
+还有一些人从表面上接受了这个问题，提供给他们温暖模糊的电影，让他们对喜欢他们的人感觉良好。以下是 Twitter 推出的绿色旗帜电影。你有什么要补充的吗？
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-yuzXPzgBDvo&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-yuzXPzgBDvo&start=0) 
 
@@ -36,7 +36,7 @@ Twitter用户Cuchillo Lope刚刚在社交媒体平台上无意中扔了一颗炸
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-92a7Hj0ijLs&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-92a7Hj0ijLs&start=0) 
 
-这一条填补了许多许多Twitter用户的空缺，他们列出了一堆不同的宫崎骏电影，或者只是回复了类似“吉卜力工作室的任何东西”对宫崎骏的喜爱至少暗示了一点文化，一点品味，和一颗开放的心，所以我能明白为什么他的电影一再上榜。这里推荐。
+这一条填补了许多许多 Twitter 用户的空缺，他们列出了一堆不同的宫崎骏电影，或者只是回复了类似“吉卜力工作室的任何东西”对宫崎骏的喜爱至少暗示了一点文化，一点品味，和一颗开放的心，所以我能明白为什么他的电影一再上榜。这里推荐。
 
 **流媒体播放地点:** HBO Max(以及许多其他吉卜力电影)
 
@@ -48,13 +48,13 @@ Twitter用户Cuchillo Lope刚刚在社交媒体平台上无意中扔了一颗炸
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-YYsdcBacV2U&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-YYsdcBacV2U&start=0) 
 
-这是最受欢迎的反应之一，这是由沃卓斯基夫妇改编的真人漫画/动画。鉴于这部电影在首次上映时遭到了批评，而 [在票房](https://lifehacker.com/35-box-office-flops-that-are-actually-worth-watching-1846981349) 上一败涂地，这里的绿色旗帜或许是一种迹象，表明一个人有能力超越所有这些，从其生动、糖果色的角度欣赏这部被误解的电影。这里推荐T5T7】。
+这是最受欢迎的反应之一，这是由沃卓斯基夫妇改编的真人漫画/动画。鉴于这部电影在首次上映时遭到了批评，而 [在票房](https://lifehacker.com/35-box-office-flops-that-are-actually-worth-watching-1846981349) 上一败涂地，这里的绿色旗帜或许是一种迹象，表明一个人有能力超越所有这些，从其生动、糖果色的角度欣赏这部被误解的电影。这里推荐 T5T7】。
 
 **流向哪里:**数码租赁
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-A_HjMIjzyMU&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-A_HjMIjzyMU&start=0) 
 
-对外面的史莱克多一点爱，但对T2的史莱克2多一点爱。这公平吗...如果不是更好一点，至少也是一样好。这也证明了有人愿意进行稍微深入的削减，而不是推荐最显而易见的选择。这里推荐T5T7】。
+对外面的史莱克多一点爱，但对 T2 的史莱克 2 多一点爱。这公平吗...如果不是更好一点，至少也是一样好。这也证明了有人愿意进行稍微深入的削减，而不是推荐最显而易见的选择。这里推荐 T5T7】。
 
 **流向哪里:** Hulu
 
@@ -72,7 +72,7 @@ Twitter用户Cuchillo Lope刚刚在社交媒体平台上无意中扔了一颗炸
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-zgyq6YKeIms&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-zgyq6YKeIms&start=0) 
 
-有些人喜欢《哥斯拉》电影，这看起来很公平。即使是最糟糕的西装革履电影的粉丝也可能有一种乐趣。不过，这些电影也有不同之处:1954年的原版是对战后日本社会的黑暗评论，而*摧毁所有怪物*则是一场全面的汉字大战。这部最新的日本哥斯拉(由《霓虹创世纪·福音战士》的创作者庵野秀明执导)兼具两者的元素，是该系列中最好的一部。这里推荐T5T7】。
+有些人喜欢《哥斯拉》电影，这看起来很公平。即使是最糟糕的西装革履电影的粉丝也可能有一种乐趣。不过，这些电影也有不同之处:1954 年的原版是对战后日本社会的黑暗评论，而*摧毁所有怪物*则是一场全面的汉字大战。这部最新的日本哥斯拉(由《霓虹创世纪·福音战士》的创作者庵野秀明执导)兼具两者的元素，是该系列中最好的一部。这里推荐 T5T7】。
 
 **流向哪里:**数码租赁
 
@@ -112,13 +112,13 @@ Twitter用户Cuchillo Lope刚刚在社交媒体平台上无意中扔了一颗炸
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-aKOmGhBOJZI&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-aKOmGhBOJZI&start=0) 
 
-一大堆粉丝回答了T2的线索。但是你的 [首选结局](https://www.cinemablend.com/new/Clue-Ending-Explained-Why-There-3-Endings-What-Happens-Each-69996.html) 有没有说你什么？这里推荐。
+一大堆粉丝回答了 T2 的线索。但是你的 [首选结局](https://www.cinemablend.com/new/Clue-Ending-Explained-Why-There-3-Endings-What-Happens-Each-69996.html) 有没有说你什么？这里推荐。
 
 **在哪里流媒体:** Prime Video，Pluto TV
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-RByrRpURS5s&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-RByrRpURS5s&start=0) 
 
-这是一部深受影迷喜爱的经典喜剧，但绝对不是每个人都看过的。对 *WHAS* 的喜爱可能暗示这个人对喜剧有很好的品味，并且不自命不凡。这里推荐T5T7】。
+这是一部深受影迷喜爱的经典喜剧，但绝对不是每个人都看过的。对 *WHAS* 的喜爱可能暗示这个人对喜剧有很好的品味，并且不自命不凡。这里推荐 T5T7】。
 
 **流向哪里:**数码租赁
 
@@ -144,7 +144,7 @@ Twitter用户Cuchillo Lope刚刚在社交媒体平台上无意中扔了一颗炸
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-u56OqFjs1dg&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-u56OqFjs1dg&start=0) 
 
-成千上万的12月电视节目多少减弱了它的影响，但这是一部比通常记忆中更深刻、更黑暗的电影。怀旧可能会驱使人们回到它身上，但它之所以持续如此之久是有原因的(除了导致它成为电视节目的可疑版权状况之外的原因)...).这里推荐。
+成千上万的 12 月电视节目多少减弱了它的影响，但这是一部比通常记忆中更深刻、更黑暗的电影。怀旧可能会驱使人们回到它身上，但它之所以持续如此之久是有原因的(除了导致它成为电视节目的可疑版权状况之外的原因)...).这里推荐。
 
 **在哪里播放:**黄金视频
 
@@ -156,13 +156,13 @@ Twitter用户Cuchillo Lope刚刚在社交媒体平台上无意中扔了一颗炸
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-vioocIR0gHQ&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-vioocIR0gHQ&start=0) 
 
-特瑞·吉列姆的《巨蟒剧团》和《圣杯》(T1)(他与特瑞·琼斯联合执导)出现了，但不如他的逃避现实的幻想片《T2》()和《时间强盗》(T3)那么频繁。也许是这样，像这样的深切口比大众选择更能告诉你一个人的品味。这里推荐T5T7】。
+特瑞·吉列姆的《巨蟒剧团》和《圣杯》(T1)(他与特瑞·琼斯联合执导)出现了，但不如他的逃避现实的幻想片《T2》()和《时间强盗》(T3)那么频繁。也许是这样，像这样的深切口比大众选择更能告诉你一个人的品味。这里推荐 T5T7】。
 
 **流媒体播放地点:** HBO Max
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-EOKDuFW6XFo&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-EOKDuFW6XFo&start=0) 
 
-我们正在谈论，特别是1997年的白兰地/惠特尼休斯顿/伯娜黛特·皮特丝版本。这里的绿色标志是有人已经确定了*灰姑娘*的最佳版本。这里推荐。
+我们正在谈论，特别是 1997 年的白兰地/惠特尼休斯顿/伯娜黛特·皮特丝版本。这里的绿色标志是有人已经确定了*灰姑娘*的最佳版本。这里推荐。
 
 **在哪里流媒体:**迪士尼+
 

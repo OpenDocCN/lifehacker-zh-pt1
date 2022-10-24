@@ -1,6 +1,6 @@
 # 避免这些让你的家更脏的不良清洁习惯
 
-> 原文:[https://life hacker . com/avoid-these-bad-cleaning-habits-make-your-home-eve-1848676646](https://lifehacker.com/avoid-these-bad-cleaning-habits-that-make-your-home-eve-1848676646)
+> 原文：<https://lifehacker.com/avoid-these-bad-cleaning-habits-that-make-your-home-eve-1848676646>
 
 对大多数人来说，打扫卫生并不是他们心目中的好时光。这是一件苦差事:我们不得不做的事情。在我们寻求尽可能快地从我们的待办事项清单中划掉的过程中，我们可能已经制定了一些策略来帮助减少我们每周在这些任务上花费的时间和精力。
 

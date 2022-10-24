@@ -1,6 +1,6 @@
 # 如何在面试中谈论以前工作中的负面经历
 
-> 原文:[https://life hacker . com/how-to-talk-about-a-negative-experience-at-a-previous-j-1849682645](https://lifehacker.com/how-to-talk-about-a-negative-experience-at-a-previous-j-1849682645)
+> 原文：<https://lifehacker.com/how-to-talk-about-a-negative-experience-at-a-previous-j-1849682645>
 
 在职业生涯的某个阶段，几乎每个员工都会意识到“理想工作”并不存在。即使那些在理论上看起来很完美，看起来是你迄今为止的教育和工作经验的理想顶点，也常常达不到我们的期望。在其他情况下，角色本身很棒，但办公室文化或特别难相处的经理掩盖了好的部分。
 

@@ -1,16 +1,16 @@
-# 11个尺寸对比视频，给你一个新的尺度感
+# 11 个尺寸对比视频，给你一个新的尺度感
 
-> 原文:[https://life hacker . com/11-size-comparison-videos-that-will-give-you-a-new-sens-1846963123](https://lifehacker.com/11-size-comparison-videos-that-will-give-you-a-new-sens-1846963123)
+> 原文：<https://lifehacker.com/11-size-comparison-videos-that-will-give-you-a-new-sens-1846963123>
 
-我第一次听说YouTube上的“尺寸对比”视频是从 [这篇文章发表在*纽约时报*](https://www.nytimes.com/2021/05/21/well/family/youtube-size-comparison-videos-kids.html) 上，作者是一位母亲，她七岁的儿子已经迷上了这些视频。他正处于一个发展的年龄，在这个年龄，孩子们终于能够更容易地按大小分类或量化事物，所以像这样的视频会挠痒痒是有道理的。正如 [珍妮·马德写的](https://www.nytimes.com/2021/05/21/well/family/youtube-size-comparison-videos-kids.html) :
+我第一次听说 YouTube 上的“尺寸对比”视频是从 [这篇文章发表在*纽约时报*](https://www.nytimes.com/2021/05/21/well/family/youtube-size-comparison-videos-kids.html) 上，作者是一位母亲，她七岁的儿子已经迷上了这些视频。他正处于一个发展的年龄，在这个年龄，孩子们终于能够更容易地按大小分类或量化事物，所以像这样的视频会挠痒痒是有道理的。正如 [珍妮·马德写的](https://www.nytimes.com/2021/05/21/well/family/youtube-size-comparison-videos-kids.html) :
 
-> 西北大学的心理学教授Dedre Gentner说，人类在观察模式方面非常出色，他们喜欢类比，即使在年轻的时候也是如此。事实上，她认为这是我们作为一个物种成功的关键。模式对孩子的智力发展也有很大的价值，对科学和数学也很重要。
+> 西北大学的心理学教授 Dedre Gentner 说，人类在观察模式方面非常出色，他们喜欢类比，即使在年轻的时候也是如此。事实上，她认为这是我们作为一个物种成功的关键。模式对孩子的智力发展也有很大的价值，对科学和数学也很重要。
 > 
 > 她说，尺寸比较视频和分类任务不仅展示了物体，还展示了物体之间的联系。
 > 
 > “我认为这是孩子们兴奋的原因之一，”根特纳博士说。“你不断地从对象转移到关系模式。它以一种非常令人满意的方式来理解这个世界。”
 
-我开始搜索这些视频，最初我想和我10岁的儿子分享一些我最喜欢的——但是，我发现自己被迷住了。这些不仅仅让孩子们非常满意，也让我们所有人感到满意。
+我开始搜索这些视频，最初我想和我 10 岁的儿子分享一些我最喜欢的——但是，我发现自己被迷住了。这些不仅仅让孩子们非常满意，也让我们所有人感到满意。
 
 跟我来一场疯狂的攀比之旅吧。
 
@@ -24,7 +24,7 @@
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-MdkOflblzL4&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-MdkOflblzL4&start=0) 
 
-也许你从来没有想过金刚、哥斯拉、星球大战中的外星怪物和棉花糖人在体型上有什么不同——然而，这突然感觉像是值得知道的信息。( [这个视频](https://youtu.be/MdkOflblzL4) 最后也给了我们一个Exogarth和人类的体型对比，区别是...意义重大。)
+也许你从来没有想过金刚、哥斯拉、星球大战中的外星怪物和棉花糖人在体型上有什么不同——然而，这突然感觉像是值得知道的信息。( [这个视频](https://youtu.be/MdkOflblzL4) 最后也给了我们一个 Exogarth 和人类的体型对比，区别是...意义重大。)
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-DI9Y24SKPEg&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-DI9Y24SKPEg&start=0) 
 
@@ -56,6 +56,6 @@
 
  *[https://lifehacker.com/embed/inset/iframe?id=youtube-video-PuTqWxuAazI&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-PuTqWxuAazI&start=0) 
 
-我本打算在10个视频中停下来，但我已经掉进了一个兔子洞，不得不看看在过去的120年里，人类是如何设法 [建造越来越高的摩天大楼](https://www.youtube.com/watch?v=PuTqWxuAazI) 。为什么？他们现在够高了！他们不需要再高了！
+我本打算在 10 个视频中停下来，但我已经掉进了一个兔子洞，不得不看看在过去的 120 年里，人类是如何设法 [建造越来越高的摩天大楼](https://www.youtube.com/watch?v=PuTqWxuAazI) 。为什么？他们现在够高了！他们不需要再高了！
 
-如果你想要更多类似这些的视频，我建议你直接去YouTube 上的 [MetaBallStudios频道；难以置信的东西。](https://www.youtube.com/user/MetaBallStudios)*
+如果你想要更多类似这些的视频，我建议你直接去 YouTube 上的 [MetaBallStudios 频道；难以置信的东西。](https://www.youtube.com/user/MetaBallStudios)*

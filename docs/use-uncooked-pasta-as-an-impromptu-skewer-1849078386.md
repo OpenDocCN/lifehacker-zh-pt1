@@ -1,6 +1,6 @@
 # 用未煮过的意大利面做串烧
 
-> 原文:[https://life hacker . com/use-uncooked-pasta-as-an-即兴串烧-1849078386](https://lifehacker.com/use-uncooked-pasta-as-an-impromptu-skewer-1849078386)
+> 原文：<https://lifehacker.com/use-uncooked-pasta-as-an-impromptu-skewer-1849078386>
 
 有许多食谱要求人们用串肉扦或牙签“固定”某物。像填馅鸡胸肉、肉馅饼和培根包裹之类的东西——很多这样的小食品包裹需要用一点木头来刺，以帮助它们在烹饪时保持形状。但是如果你没有木头了呢？总是有意大利面条(或者意大利面)。
 

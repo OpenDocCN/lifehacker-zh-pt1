@@ -1,6 +1,6 @@
 # 如何让一面便宜的镜子看起来像一件昂贵的古董
 
-> 原文:[https://life hacker . com/how-to-make-a-priest-mirror-look-a-priced-古董-1847618940](https://lifehacker.com/how-to-make-a-cheap-mirror-look-like-a-pricey-antique-1847618940)
+> 原文：<https://lifehacker.com/how-to-make-a-cheap-mirror-look-like-a-pricey-antique-1847618940>
 
 镜子是永恒的家居装饰品，这是有道理的。它们不仅可以让较小的空间看起来更大，增强房间的自然光，还可以与几乎任何设计风格无缝融合。
 
@@ -20,7 +20,7 @@ Watch
 
 ### 如何让相框看起来很旧
 
-有大量的 [技法](https://homeguides.sfgate.com/make-picture-frame-look-antique-35593.html) 为 [时效](https://www.blesserhouse.com/4-thrifted-frames-1-easy-distress/) 帧。但是，如果你正在寻找那种经典的古色古香的金色镜框，Hunker 的Trisha Sprouse建议用镀金蜡给镜框上漆。为了让它看起来更古老，你可以在金蜡上涂一层薄薄的 [深色蜡光](https://www.amazon.com/Chalk-Tique-Dark-Paste-Wax-Distress/dp/B06XRQDCZX/?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-make-a-cheap-mirror-look-like-a-pricey-antique-1847618940&asc_source=&tag=kinjalifehackerlink-20) ，确保进入角落、裂缝和任何缝隙。
+有大量的 [技法](https://homeguides.sfgate.com/make-picture-frame-look-antique-35593.html) 为 [时效](https://www.blesserhouse.com/4-thrifted-frames-1-easy-distress/) 帧。但是，如果你正在寻找那种经典的古色古香的金色镜框，Hunker 的 Trisha Sprouse 建议用镀金蜡给镜框上漆。为了让它看起来更古老，你可以在金蜡上涂一层薄薄的 [深色蜡光](https://www.amazon.com/Chalk-Tique-Dark-Paste-Wax-Distress/dp/B06XRQDCZX/?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-make-a-cheap-mirror-look-like-a-pricey-antique-1847618940&asc_source=&tag=kinjalifehackerlink-20) ，确保进入角落、裂缝和任何缝隙。
 
 ### 如何让镜子看起来显老
 
@@ -28,4 +28,4 @@ Watch
 
 ### 如何将相框变成一面古色古香的镜子
 
-假设你找到了一个完美的古董相框，但它是一个相框，不是镜子。这不是问题。在Hunker 她用宜家的塑料前框展示了如何做到这一点。
+假设你找到了一个完美的古董相框，但它是一个相框，不是镜子。这不是问题。在 Hunker 她用宜家的塑料前框展示了如何做到这一点。

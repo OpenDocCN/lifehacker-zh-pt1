@@ -1,6 +1,6 @@
 # 想想抖音的洋葱三明治
 
-> 原文:[https://life hacker . com/consider-tiktoks-onion-sandwich-1849599118](https://lifehacker.com/consider-tiktoks-onion-sandwich-1849599118)
+> 原文：<https://lifehacker.com/consider-tiktoks-onion-sandwich-1849599118>
 
 很像 [泡菜](https://lifehacker.com/the-pickle-sandwich-deserves-your-respect-1849555654) ，洋葱通常被认为是三明治的配料，而不是菜肴的“肉”。但是(也像泡菜一样)洋葱可以成为三明治秀的明星——如果你花一点时间正确地准备它们。
 

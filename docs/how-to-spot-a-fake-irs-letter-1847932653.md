@@ -1,14 +1,14 @@
 # 如何识别假的国税局信函
 
-> 原文:[https://life hacker . com/how-to-spot-a-fake-IRS-letter-1847932653](https://lifehacker.com/how-to-spot-a-fake-irs-letter-1847932653)
+> 原文：<https://lifehacker.com/how-to-spot-a-fake-irs-letter-1847932653>
 
-美国国税局仍在发送大量与2020年纳税申报表相关的信件，你可能会想知道你收到的信是否合法，而不是骗局。简短的回答是，如果你收到一封要求你提供个人信息或补缴税款的信，直接向国税局核实，但也有其他迹象表明你收到的信不真实。以下是如何识别一封伪造的国税局信函。
+美国国税局仍在发送大量与 2020 年纳税申报表相关的信件，你可能会想知道你收到的信是否合法，而不是骗局。简短的回答是，如果你收到一封要求你提供个人信息或补缴税款的信，直接向国税局核实，但也有其他迹象表明你收到的信不真实。以下是如何识别一封伪造的国税局信函。
 
 Watch
 
 ## **真正的国税局会是什么样子**
 
-IRS信封将包含IRS标志，信函将包含您的部分税务ID号，以及页面右上角或右下角的通知号(CP)或信函号(LTR)。你的信还将包括 [你作为纳税人的权利](https://www.irs.gov/taxpayer-bill-of-rights) (骗子不太可能包括的东西)。就内容而言，这封信会因为几个具体原因发给你:
+IRS 信封将包含 IRS 标志，信函将包含您的部分税务 ID 号，以及页面右上角或右下角的通知号(CP)或信函号(LTR)。你的信还将包括 [你作为纳税人的权利](https://www.irs.gov/taxpayer-bill-of-rights) (骗子不太可能包括的东西)。就内容而言，这封信会因为几个具体原因发给你:
 
 *   你有一笔欠款。
 *   你应该得到更多或更少的退款。
@@ -20,8 +20,8 @@ IRS信封将包含IRS标志，信函将包含您的部分税务ID号，以及页
 
 一封真正的国税局信函绝不会要求你立即付款，也不会强迫你透露你的个人信息。如果你被要求补税，你总是会被给予上诉的步骤。而且你永远不会被要求直接向“国税局”付款——相反，付款总是会被支付给财政部，你可以通过访问[【www.irs.gov】](http://www.irs.gov)(如果信中提到礼品卡呢？算了，那是骗局)。
 
-## **如有疑问，直接向IRS核实**
+## **如有疑问，直接向 IRS 核实**
 
-由于国税局的标志和信件很容易伪造，如果你对信件的真实性有任何怀疑， [Better Business Bureau建议](https://www.youtube.com/watch?v=_X3X8R3SjxM) 前往IRS.gov搜索相关通知或表格编号，并阅读国税局的页面 [了解你的国税局通知或信件](https://www.irs.gov/individuals/understanding-your-irs-notice-or-letter) 。您也可以致电IRS 800-829-1040，以确认信件是真实的(在与IRS代理交谈时，请使用通知或信件编号作为参考)。
+由于国税局的标志和信件很容易伪造，如果你对信件的真实性有任何怀疑， [Better Business Bureau 建议](https://www.youtube.com/watch?v=_X3X8R3SjxM) 前往 IRS.gov 搜索相关通知或表格编号，并阅读国税局的页面 [了解你的国税局通知或信件](https://www.irs.gov/individuals/understanding-your-irs-notice-or-letter) 。您也可以致电 IRS 800-829-1040，以确认信件是真实的(在与 IRS 代理交谈时，请使用通知或信件编号作为参考)。
 
-如果你认为你收到了一封伪造的美国国税局的信，向 [财政税务监察长](https://www.treasury.gov/tigta/contact_report_scam.shtml) 举报，并直接向phishing@irs.gov的国税局举报。
+如果你认为你收到了一封伪造的美国国税局的信，向 [财政税务监察长](https://www.treasury.gov/tigta/contact_report_scam.shtml) 举报，并直接向 phishing@irs.gov 的国税局举报。

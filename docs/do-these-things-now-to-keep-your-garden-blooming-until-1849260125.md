@@ -1,6 +1,6 @@
 # 现在就做这些事情，让你的花园一直开花到秋天
 
-> 原文:[https://life hacker . com/do-things-now-to-keep your garden-blooming-until-1849260125](https://lifehacker.com/do-these-things-now-to-keep-your-garden-blooming-until-1849260125)
+> 原文：<https://lifehacker.com/do-these-things-now-to-keep-your-garden-blooming-until-1849260125>
 
 随着后半个夏天天气变热，你尽一切可能避开炎热，很容易忘记一些重要的任务，这些任务会让你的植物一直坚持到秋天。但是现在修剪树篱和多年生植物，修剪你的香草园，浇水和覆盖将有助于这些植物长出新花和新芽，使秋天更加多彩和美味。下面是现在要做的事情，让你的花园准备好。
 

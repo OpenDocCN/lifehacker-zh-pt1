@@ -1,12 +1,12 @@
-# 8个简单的方法让你的前廊在万圣节变得诡异
+# 8 个简单的方法让你的前廊在万圣节变得诡异
 
-> 原文:[https://life hacker . com/8-easy-ways-to-spookify-your-front-门廊万圣节-1847793526](https://lifehacker.com/8-easy-ways-to-spookify-your-front-porch-for-halloween-1847793526)
+> 原文：<https://lifehacker.com/8-easy-ways-to-spookify-your-front-porch-for-halloween-1847793526>
 
 你家的前廊是不是看起来有点像进入了幽灵季节？你的孩子是不是在求你做比去年更多的*装饰品？如果你想装饰你的入口通道，但又不是超级狡猾，又不想花一大笔钱，这里有一些简单的方法来装饰你的门或让你的前廊更有节日气氛(如果不完全是*邀请* ) 。* 
 
 没有去过充满玉米迷宫、干草骑行和苹果派圈的南瓜地，哪个十月是完整的？从玉米迷宫中获得灵感，在的干草捆顶上摆放各种秋季物品，让你的前门台阶变得光彩夺目(这些物品创造了各种高度，你可以在上面进行装饰)。在 [苹果篮](https://www.michaels.com/chipwood-bushel-basket-with-handle-by-ashland/10038195.html?r=g&cm_mmc=PLASearch-_-google-_-MICH_Shopping_US_N_Storage_N_Smart_LocalOnly_N-_-&Kenshoo_ida=&kpid=go_cmp-10192716657_adg-110379393748_ad-438740538186_pla-1365540123274_dev-c_ext-_prd-10038195&gclid=CjwKCAjw7--KBhAMEiwAxfpkWCGumYWAidEa1k5xCIf9P76g4Sw_luBcOO3jjxn5eAiB720YoI1CRxoCy9UQAvD_BwE) 中使用秋天颜色的菊花，周围放上南瓜、玉米杆或稻草人，营造一种梦幻般的秋天感觉。
 
-一种不吃掉所有糖果的方法？用它为你的前门做彩色花环。首先，收集各种秋季颜色的老式糖果，比如玛丽·简斯、比特·欧·蜜、罗洛斯、维特原味、甜心小圆面包、焦糖奶油和布拉奇硬糖。用白色丝带包裹一个16英寸的泡沫聚苯乙烯花环，用热胶枪将糖果以重叠的方式粘上。最后，在花环的底部系上一个黄色、洋红色、或橙色的蝴蝶结。
+一种不吃掉所有糖果的方法？用它为你的前门做彩色花环。首先，收集各种秋季颜色的老式糖果，比如玛丽·简斯、比特·欧·蜜、罗洛斯、维特原味、甜心小圆面包、焦糖奶油和布拉奇硬糖。用白色丝带包裹一个 16 英寸的泡沫聚苯乙烯花环，用热胶枪将糖果以重叠的方式粘上。最后，在花环的底部系上一个黄色、洋红色、或橙色的蝴蝶结。
 
 (上图是一个类似的，但 [更耗时的版本](https://www.youtube.com/watch?v=BEp1YFuAM0s)需要将橙色、黑色、和白色的丝带绑在一个铁丝圈或一个伸出的衣架上，然后将一颗颗糖果绑在丝带上，稍后由“不给糖就捣蛋”的人切断。)
 

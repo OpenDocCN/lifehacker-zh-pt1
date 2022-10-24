@@ -1,6 +1,6 @@
-# 不用空调保持凉爽的12种方法
+# 不用空调保持凉爽的 12 种方法
 
-> 原文:[https://life hacker . com/top-10-ways-to-stay-cool-with-non-air-conditioning-1782370303](https://lifehacker.com/top-10-ways-to-stay-cool-without-air-conditioning-1782370303)
+> 原文：<https://lifehacker.com/top-10-ways-to-stay-cool-without-air-conditioning-1782370303>
 
 现在夏天已经正式开始，气温(和湿度)也在上升，很多人都想保持凉爽。当然，有些人可以打开空调，但不是每个人都有这个选择。即使你这样做了，你也可能希望在你的 [电费](https://lifehacker.com/save-money-on-your-energy-bill-with-these-simple-change-1790373703) 上省点钱，或者担心 [对环境的影响](https://www.nytimes.com/2016/08/10/science/air-conditioner-global-warming.html) 。这里有一些简单、免费或者至少便宜的保持凉爽的方法，即使没有空调。
 
@@ -32,16 +32,16 @@
 
 如果你确实有一点钱可以花，当外面(和里面)很热的时候，一个可以让你保持凉爽的枕头或床单会有很大的帮助。冷却凝胶枕头相对便宜，很容易找到，而且可以大大提高你的睡眠舒适度。
 
-在床单部，你可以看看180美元的Sheex“北极Aire”床单 ，它保证让你在睡觉时保持凉爽。如果这些超出了你的预算，坚持使用经典的棉质床单是个不错的选择；目标有很多 [大、实惠的选项](https://www.target.com/c/sheets-pillowcases-bedding-home/cotton-percale/-/N-5xtuvZ82z0s?type=products&facetRecovery=true&lnk=Crispcoolpercal) 。
+在床单部，你可以看看 180 美元的 Sheex“北极 Aire”床单 ，它保证让你在睡觉时保持凉爽。如果这些超出了你的预算，坚持使用经典的棉质床单是个不错的选择；目标有很多 [大、实惠的选项](https://www.target.com/c/sheets-pillowcases-bedding-home/cotton-percale/-/N-5xtuvZ82z0s?type=products&facetRecovery=true&lnk=Crispcoolpercal) 。
 
 无论你是在购买特制的床单和枕头，还是只是把自己的毛巾扔进冰箱，了解你身体的最佳冷却点 都会有所帮助。在你的脖子、手腕、手肘内侧或膝盖后部挂一块凉毛巾会比在你的额头上挂一块更快地帮助你降低体温(即使这样做感觉很好)。这将帮助你充分利用你的冷敷布或半冰冻水瓶。
 
-永远不要低估裸体和微湿的力量。将一点裸露的湿气与你旁边的风扇或DIY空调结合起来，你就有了一个放松的方法。
+永远不要低估裸体和微湿的力量。将一点裸露的湿气与你旁边的风扇或 DIY 空调结合起来，你就有了一个放松的方法。
 
 当然，这里的关键是要确保天气不要太潮湿，否则当你在风扇下干燥时，或者当你头上的湿毛巾慢慢变干时，你就不会得到那种可爱的蒸发效果。拉上窗帘，打开室内风扇，冲个冷水澡——也许再来几杯冷水和一杯冰沙——毫无疑问，你会保持凉爽。
 
 这不是每个人都可以选择的，但是安装一个全屋风扇 可以让你的整个家降温，而花费只是中央空调的一小部分。它们比多台空调运行起来更便宜，前期安装成本也不算太低。不幸的是，它们不能给空气除湿，也不能把空气冷却到低于室外温度。如果你的夏天白天又热又干，但是晚上又凉又干，那么一整屋的风扇可能就是你想要的。
 
-*这篇文章最初发表于2016年6月25日，并于2019年6月25日更新，以提供更全面的最新信息。它于2021年6月3日再次更新，以反映Lifehacker当前的风格指南，以及新的照片和更新的链接。*
+*这篇文章最初发表于 2016 年 6 月 25 日，并于 2019 年 6 月 25 日更新，以提供更全面的最新信息。它于 2021 年 6 月 3 日再次更新，以反映 Lifehacker 当前的风格指南，以及新的照片和更新的链接。*
 
  *T3】*

@@ -1,6 +1,6 @@
 # 不同类型的吊灯及其使用方法
 
-> 原文:[https://life hacker . com/the-different-type-of-pendant-lights-and-how-use-th-1847305846](https://lifehacker.com/the-different-types-of-pendant-lights-and-how-to-use-th-1847305846)
+> 原文：<https://lifehacker.com/the-different-types-of-pendant-lights-and-how-to-use-th-1847305846>
 
 吊灯是更新你家的一种简单方式，不需要紧张的重新布线工程。(这也是一种半永久性的改变，你可以在不惹恼房东的情况下给自己的公寓增添个性。) [吊灯](https://www.kaylighting.com/blog/what-is-a-pendant-light/) 有多种形状、尺寸和款式、从烛台和吊灯，到罐形吊灯或古董爱迪生灯泡，更具复古感。每种风格都散发出自己的氛围，并以不同的方式照亮房间。
 
@@ -8,7 +8,7 @@ Watch
 
 这里有不同类型的吊灯，以及如何在家中充分利用吊灯。
 
-## 如何选择一款s hade吊灯
+## 如何选择一款 s hade 吊灯
 
 根据你在灯周围放置的*灯的外观会有很大的变化。灯罩吊灯 [在灯罩](https://www.thisoldhouse.com/lighting/21018461/all-about-pendant-lights) 底部有一个开口，一般悬挂在天花板上方一个空间处。(对于无电线悬挂的灯具，您需要在天花板上安装一个— 或— 挂钩，将灯具挂在所需区域。)但是色调选择本身是你可以在风格和氛围上获得真正创意的地方。*
 
@@ -24,7 +24,7 @@ Watch
 
 多灯泡吊灯通常由三个灯泡 [通过一个水平臂](https://www.fatshackvintage.com.au/blogs/vintage-industrial-interior-design-blog/types-of-pendant-lighting-how-to-use-them) 连接，这样可以让它们覆盖更大的区域。这些灯通常出现在厨房岛的上方，为准备食物提供充足的光线，或者出现在地下室酒吧的上方。
 
-更多的现代风格也倾向于远离直线结构的T2，T4可能在两个不同的臂上有三个向相反方向的灯泡。这款吊坠可以成为的一件 [功能艺术品](https://www.lightology.com/index.php?module=prod_detail&prod_id=984173&option_id=984175&utm_content=C78713AGCL&gclid=Cj0KCQjwub-HBhCyARIsAPctr7xMtjeQn9mMGETeWPaBKZXCobegzDulSpwwWUHhrbdC1Cc3wdjqZAoaAjBbEALw_wcB) 。
+更多的现代风格也倾向于远离直线结构的 T2，T4 可能在两个不同的臂上有三个向相反方向的灯泡。这款吊坠可以成为的一件 [功能艺术品](https://www.lightology.com/index.php?module=prod_detail&prod_id=984173&option_id=984175&utm_content=C78713AGCL&gclid=Cj0KCQjwub-HBhCyARIsAPctr7xMtjeQn9mMGETeWPaBKZXCobegzDulSpwwWUHhrbdC1Cc3wdjqZAoaAjBbEALw_wcB) 。
 
 ## 如何悬挂插线吊灯
 

@@ -1,6 +1,6 @@
 # 如何在帝王蝶的年度迁徙中发现它们
 
-> 原文:[https://life hacker . com/how-to-spot-monarch-butterflies-on-they-annual-migrati-1847959861](https://lifehacker.com/how-to-spot-monarch-butterflies-on-their-annual-migrati-1847959861)
+> 原文：<https://lifehacker.com/how-to-spot-monarch-butterflies-on-their-annual-migrati-1847959861>
 
 像生活在美国北部(或加拿大任何地方)的一些人一样，帝王蝶喜欢每年冬天去南方。谁能责怪他们呢？在寒冷潮湿的月份生活在这里对我们来说很棘手，更不用说翅膀这么薄的东西了。
 

@@ -1,6 +1,6 @@
 # 脱离现实的成年人对儿童文化的指导:迪米特雷斯库夫人和剪影
 
-> 原文:[https://life hacker . com/the-out-of-touch-成人-儿童-文化-女士-米蒂指南-1846203777](https://lifehacker.com/the-out-of-touch-adults-guide-to-kid-culture-lady-dimi-1846203777)
+> 原文：<https://lifehacker.com/the-out-of-touch-adults-guide-to-kid-culture-lady-dimi-1846203777>
 
 本周的年轻人隐秘国度之旅展示了互联网随机性的一个抓包。我将定义一些俚语，告诉你变态男人如何在网上毁掉一切，并向你介绍一位在睡梦中成名的网络明星。所有这些，再加上一个九英尺高的吸血鬼宝贝。
 
@@ -8,15 +8,15 @@ Watch
 
 ### **与世隔绝的成年人的基本俚语**
 
-试图给孩子们使用的俚语下定义是一件吃力不讨好的事情。这不是你和我应该理解和使用的语言，我们从来没有把它做对，当我们尝试的时候，我们看起来就像neo maxi zoom dweebies。所以，即使你不应该使用下面的任何一个词，以下是这些天孩子们在社交媒体上的抨击:
+试图给孩子们使用的俚语下定义是一件吃力不讨好的事情。这不是你和我应该理解和使用的语言，我们从来没有把它做对，当我们尝试的时候，我们看起来就像 neo maxi zoom dweebies。所以，即使你不应该使用下面的任何一个词，以下是这些天孩子们在社交媒体上的抨击:
 
-首席执行官:对你来说，首席执行官意味着一家公司的“首席执行官,但对孩子们来说，首席执行官通常是老板。所以你可能是化妆品公司的首席执行官或者是堡垒之夜T4的首席执行官。
+首席执行官:对你来说，首席执行官意味着一家公司的“首席执行官,但对孩子们来说，首席执行官通常是老板。所以你可能是化妆品公司的首席执行官或者是堡垒之夜 T4 的首席执行官。
 
 **PFP** :资料图片。(不知道为什么不只是“PP”，就接受吧。)
 
 Simp :在那些想要贬低对方的男人中很流行的一个词，意思是“绝望的家伙，他会想尽一切办法让一个女孩喜欢他”，甚至只是“失败者”
 
-Stan既可用作动词，也可用作名词，“Stan”的意思是粉丝，要么是过分痴迷的粉丝，要么就是超级粉丝。
+Stan 既可用作动词，也可用作名词，“Stan”的意思是粉丝，要么是过分痴迷的粉丝，要么就是超级粉丝。
 
 **汗流浃背**:在游戏文化中，“汗流浃背”指的是某人把事情看得太严重:“我们正试图在我们中间玩一个休闲游戏*，这种汗流浃背的努力表现得好像是世界末日一样。”*
 
@@ -26,28 +26,28 @@ Stan既可用作动词，也可用作名词，“Stan”的意思是粉丝，要
 
 ### ***本周的可怕男性行为:侧影挑战***
 
-*男人是个错误。我本来打算写一个TikTokers们热衷的新趋势，名为“the [剪影挑战](https://www.tiktok.com/tag/silhouettechallenge) ”，用户拍摄自己在门口跳舞和摆姿势的片段，然后使用红色视频滤镜将他们的剪影放进去。这是一个有趣的，性感的，甚至可能是赋权的趋势…直到粘糊糊的家伙破坏了它。*
+*男人是个错误。我本来打算写一个 TikTokers 们热衷的新趋势，名为“the [剪影挑战](https://www.tiktok.com/tag/silhouettechallenge) ”，用户拍摄自己在门口跳舞和摆姿势的片段，然后使用红色视频滤镜将他们的剪影放进去。这是一个有趣的，性感的，甚至可能是赋权的趋势…直到粘糊糊的家伙破坏了它。*
 
-*当这个挑战开始流行起来时，小兵们开始在YouTube和Reddit上发布教程，解释如何改变这些视频的设置，以从根本上移除滤镜，在未经用户同意的情况下暴露用户的身体，所以大多数人都停止了这样做。*
+*当这个挑战开始流行起来时，小兵们开始在 YouTube 和 Reddit 上发布教程，解释如何改变这些视频的设置，以从根本上移除滤镜，在未经用户同意的情况下暴露用户的身体，所以大多数人都停止了这样做。*
 
 *互联网上的恐怖分子，我们需要谈谈:你有一个完全可以接受的和有趣的方式来挑逗抖音用户，得到他们的同意和安慰，而你却把它搞砸了。你可以只留下这样的评论，“你真棒！”继续和你在一起。但是不，你一定要毁了它。请以后不要做这种事情。还有:没人喜欢你。*
 
 ### ***本周在可怕的公寓里***
 
-*我住在一个私人热带岛屿上一个由铂金建造的庞大庄园里，这个岛屿也是由铂金建造的，但我记得我大学毕业后住在狭窄、糟糕的公寓里，我几乎买不起。如果你正在寻找一些反怀旧的东西，或者你只是想看看年轻人有多糟糕，那就看看 [@Newyorkcityrealtor的视频](https://www.tiktok.com/@newyorkcityrealtor?is_copy_url=1&is_from_webapp=v1) 吧，这是他见过的最糟糕的公寓。*
+*我住在一个私人热带岛屿上一个由铂金建造的庞大庄园里，这个岛屿也是由铂金建造的，但我记得我大学毕业后住在狭窄、糟糕的公寓里，我几乎买不起。如果你正在寻找一些反怀旧的东西，或者你只是想看看年轻人有多糟糕，那就看看 [@Newyorkcityrealtor 的视频](https://www.tiktok.com/@newyorkcityrealtor?is_copy_url=1&is_from_webapp=v1) 吧，这是他见过的最糟糕的公寓。*
 
-*你潜在的新家位于纽约市的西村，月租金为1650美元——这是一个牢房大小的单间，没有炉子，没有烤箱，只有一个小壁橱。没有浴室:你可以和公寓大楼的其他人共用走廊尽头的厕所，如果你想洗澡，那就在走廊尽头的另一个房间里，你们也可以共用。所以，很像县监狱，没有免费餐。* 
+*你潜在的新家位于纽约市的西村，月租金为 1650 美元——这是一个牢房大小的单间，没有炉子，没有烤箱，只有一个小壁橱。没有浴室:你可以和公寓大楼的其他人共用走廊尽头的厕所，如果你想洗澡，那就在走廊尽头的另一个房间里，你们也可以共用。所以，很像县监狱，没有免费餐。* 
 
 ### *本周热门视频:令人捧腹的梦游*
 
 *在网上出名是如此容易，你甚至可以在睡梦中做到。问问加拿大安大略省的塞利纳·迈尔斯就知道了，她的抖音， [@Celinaspookyboo](https://www.tiktok.com/@celinaspookyboo?lang=en) ，因为她搞笑又恐怖的梦游滑稽动作而爆红。*
 
-*塞利纳的成名始于去年12月，当时她发布了一段自己在酒店的视频。 梦游之后，她在走廊上醒来，一丝不挂，被锁在房间外面。在超过500万人观看了酒店视频后，迈尔斯意识到了她睡眠障碍中的娱乐潜力，所以她在房子内外安装了夜视摄像头，并开始发布她半夜滑稽动作的视频。迈尔斯醒着的时候很搞笑，但睡着的时候更搞笑。她 [把啤酒罐扔到草坪上](https://www.tiktok.com/@celinaspookyboo/video/6920444199426870533?referer_url=https%3A%2F%2Fdk79lclgtez2i.cloudfront.net%2F&referer_video_id=6920444199426870533)[和一只填充章鱼](https://www.tiktok.com/@celinaspookyboo/video/6925286087933938949?referer_url=https%3A%2F%2Fdk79lclgtez2i.cloudfront.net%2F&referer_video_id=6909725952322915589&is_copy_url=1&is_from_webapp=v1) 打架，除此之外合法地过着她的梦想。看看她的抖音，明白我的意思了。*
+*塞利纳的成名始于去年 12 月，当时她发布了一段自己在酒店的视频。 梦游之后，她在走廊上醒来，一丝不挂，被锁在房间外面。在超过 500 万人观看了酒店视频后，迈尔斯意识到了她睡眠障碍中的娱乐潜力，所以她在房子内外安装了夜视摄像头，并开始发布她半夜滑稽动作的视频。迈尔斯醒着的时候很搞笑，但睡着的时候更搞笑。她 [把啤酒罐扔到草坪上](https://www.tiktok.com/@celinaspookyboo/video/6920444199426870533?referer_url=https%3A%2F%2Fdk79lclgtez2i.cloudfront.net%2F&referer_video_id=6920444199426870533)[和一只填充章鱼](https://www.tiktok.com/@celinaspookyboo/video/6925286087933938949?referer_url=https%3A%2F%2Fdk79lclgtez2i.cloudfront.net%2F&referer_video_id=6909725952322915589&is_copy_url=1&is_from_webapp=v1) 打架，除此之外合法地过着她的梦想。看看她的抖音，明白我的意思了。*
 
 ### *本周在电子游戏中:高个子吸血鬼偷血，心脏*
 
 *游戏互联网恋爱了。他们痴迷的对象是迪米特雷斯库女士，一位神秘的吸血鬼女性，她将出现在卡普空公司即将推出的恐怖游戏《生化危机村》中。*
 
-*以下是我们对游戏世界新女友的了解:她的风格介于哥特风格和20世纪40年代的女继承人之间，包括时髦的帽子、松散的卷发、优雅的珍珠项链和长长的烟嘴。她和她的两个杀人不眨眼的女儿住在一栋阴森的老房子里。她像弗莱迪·克鲁格一样有可伸缩的爪子，她有9.5英尺高。*
+*以下是我们对游戏世界新女友的了解:她的风格介于哥特风格和 20 世纪 40 年代的女继承人之间，包括时髦的帽子、松散的卷发、优雅的珍珠项链和长长的烟嘴。她和她的两个杀人不眨眼的女儿住在一栋阴森的老房子里。她像弗莱迪·克鲁格一样有可伸缩的爪子，她有 9.5 英尺高。*
 
-*《生化危机村》要到5月7日才会上映，所以我们对Dimitrescu的唯一了解是最近的一部《T2》《T3》《T4》《生化危机村》预告片，但这并没有阻止网络对她的猛烈抨击。Lady Dimitrescu [粉丝艺术](https://twitter.com/Logancure/status/1356424245069414401/photo/1)[粉丝理论](https://www.republicworld.com/technology-news/gaming/resident-evil-village-lady-dimitrescu-daughters-are-they-really-her-daughters.html)[cosplay](https://twitter.com/daniellednicola/status/1354231556265680898?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1354231556265680898%7Ctwgr%5E%7Ctwcon%5Es1_&ref_url=https%3A%2F%2Fwww.polygon.com%2F2021%2F2%2F2%2F22261459%2Fresident-evil-village-lady-dimitrescu-how-tall-height-capcom)满天飞。在推特上查看[# LadyDimitrescu](https://twitter.com/hashtag/LadyDimitrescu?src=hashtag_click)获得源源不断的荣耀，高大的吸血鬼女士致敬。*
+*《生化危机村》要到 5 月 7 日才会上映，所以我们对 Dimitrescu 的唯一了解是最近的一部《T2》《T3》《T4》《生化危机村》预告片，但这并没有阻止网络对她的猛烈抨击。Lady Dimitrescu [粉丝艺术](https://twitter.com/Logancure/status/1356424245069414401/photo/1)[粉丝理论](https://www.republicworld.com/technology-news/gaming/resident-evil-village-lady-dimitrescu-daughters-are-they-really-her-daughters.html)[cosplay](https://twitter.com/daniellednicola/status/1354231556265680898?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1354231556265680898%7Ctwgr%5E%7Ctwcon%5Es1_&ref_url=https%3A%2F%2Fwww.polygon.com%2F2021%2F2%2F2%2F22261459%2Fresident-evil-village-lady-dimitrescu-how-tall-height-capcom)满天飞。在推特上查看[# LadyDimitrescu](https://twitter.com/hashtag/LadyDimitrescu?src=hashtag_click)获得源源不断的荣耀，高大的吸血鬼女士致敬。*

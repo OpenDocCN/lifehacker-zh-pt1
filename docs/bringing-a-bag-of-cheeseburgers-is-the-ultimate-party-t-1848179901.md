@@ -1,6 +1,6 @@
 # 带一袋芝士汉堡是派对上最棒的把戏
 
-> 原文:[https://life hacker . com/bring-a-bag-of-cheese burgs-is-the-ultimate-party-t-1848179901](https://lifehacker.com/bringing-a-bag-of-cheeseburgers-is-the-ultimate-party-t-1848179901)
+> 原文：<https://lifehacker.com/bringing-a-bag-of-cheeseburgers-is-the-ultimate-party-t-1848179901>
 
 说到家常便饭，很难比得上教堂晚餐，尤其是如果你在南部或中西部。砂锅菜，各种油炸食品， [水果沙拉](https://lifehacker.com/an-ode-to-ambrosia-the-salad-you-make-with-cool-whip-1848027156) ，还有一整张桌子的甜点——每个人都带着他们的游戏，每个人都满载而归。
 
@@ -14,4 +14,4 @@ Watch
 
 没有人会对一袋奶酪汉堡生气，大多数人都很高兴。奶酪汉堡含有大量的蛋白质、脂肪和碳水化合物，非常适合用来喝派对酒。(如果你的派对伙伴可能会对汉堡的牛肉部分感到愤怒，你可以带一袋不可能的巨无霸汉堡。)
 
-不一定非要麦当劳，但是我发现简单的快餐汉堡玩的最好。麦当劳的芝士汉堡也可以很好地重新加热——只需在微波炉中加热40秒——派对结束后，你的客人可以带走，在自己舒适的家中享用。(如果一个芝士汉堡都算不上是不错的派对礼物，我不知道什么才是。)
+不一定非要麦当劳，但是我发现简单的快餐汉堡玩的最好。麦当劳的芝士汉堡也可以很好地重新加热——只需在微波炉中加热 40 秒——派对结束后，你的客人可以带走，在自己舒适的家中享用。(如果一个芝士汉堡都算不上是不错的派对礼物，我不知道什么才是。)

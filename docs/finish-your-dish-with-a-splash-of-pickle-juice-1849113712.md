@@ -1,6 +1,6 @@
 # 用一点泡菜汁结束你的菜
 
-> 原文:[https://life hacker . com/finish-your-dish with-splash-of-pickle-juice-1849113712](https://lifehacker.com/finish-your-dish-with-a-splash-of-pickle-juice-1849113712)
+> 原文：<https://lifehacker.com/finish-your-dish-with-a-splash-of-pickle-juice-1849113712>
 
 知道如何 [完成一道菜](https://lifehacker.com/what-it-means-to-finish-a-dish-1797691879) 是伟大的家庭厨师与普通厨师的区别。对细节的额外关注不仅会让你的食物味道更好，还会让你觉得它是有意的和完整的。如果你的饭是一句话，点睛之笔就是句号，或者可能是感叹号。挤一点柠檬(或酸橙)是常见的收尾动作，但泡菜汁也可以起到类似的效果——如果更咸的话。
 

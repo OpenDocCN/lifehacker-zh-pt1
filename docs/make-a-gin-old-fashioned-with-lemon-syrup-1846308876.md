@@ -1,6 +1,6 @@
 # 用柠檬糖浆制作一种老式杜松子酒
 
-> 原文:[https://life hacker . com/make-a gin-old-fashied-with the lemon-糖浆-1846308876](https://lifehacker.com/make-a-gin-old-fashioned-with-lemon-syrup-1846308876)
+> 原文：<https://lifehacker.com/make-a-gin-old-fashioned-with-lemon-syrup-1846308876>
 
 传统的烈酒通常是用棕色液体制成的深色饮料，但基本形式——酒精、糖、苦味剂、Ice——可以用于任何高质量的烈酒，甚至是的淡色烈酒。真正好的杜松子酒不需要太多其他东西——这就是马提尼如此受欢迎的原因——但是老式杜松子酒的美，或者任何老式的，在于它容易制造。(我对杜松子酒的热爱只能与我对不做事的热爱相媲美。)
 
@@ -10,8 +10,8 @@ Watch
 
 然后，我将一茶匙由此制成的糖浆与几盎司亨德里克的月球杜松子酒混合，这种酒缺少最初的黄瓜味道，但用更多的柑橘来弥补。(完全披露:他们把这种杜松子酒送给了我。)然而，任何杜松子酒都可以和这种糖浆搭配，因为柠檬和杜松子酒是两种很好的味道，可以很好地相处。你可以搅拌所有的东西(加冰)并用一个大的立方体过滤成一个低球，或者你可以直接在玻璃杯中制作，然后加入碎冰稀释并原地冷冻。(我几乎总是选择后一个选项，因为这是最简单的。)为了让这种阳光、甜蜜的食物变得足够传统，你需要:
 
-*   2盎司杜松子酒
-*   1茶匙 [柠檬糖浆](https://www.seriouseats.com/recipes/2016/03/fresh-lemon-syrup-recipe.html)
-*   三破折号Angostura bitter
+*   2 盎司杜松子酒
+*   1 茶匙 [柠檬糖浆](https://www.seriouseats.com/recipes/2016/03/fresh-lemon-syrup-recipe.html)
+*   三破折号 Angostura bitter
 
 将所有材料倒入低杯搅拌，然后加入大量碎冰再次搅拌。这种饮料开始会有点热，但随着冰的融化会变得柔和，在我看来，这是旅程的一部分。

@@ -1,6 +1,6 @@
 # 完美主义者如何学会授权和放弃一些控制
 
-> 原文:[https://life hacker . com/how-完美主义者-可以学习授权和放弃-1846945765](https://lifehacker.com/how-perfectionists-can-learn-to-delegate-and-relinquish-1846945765)
+> 原文：<https://lifehacker.com/how-perfectionists-can-learn-to-delegate-and-relinquish-1846945765>
 
 任何领导过团队的人都知道，成为一名高效的管理者不仅仅是确保完成工作和实现目标。但对于完美主义者来说，工作的这些方面可能特别具有挑战性——因为保证一切都符合他们标准的唯一方法是自己动手(或至少仔细检查)。换句话说，一些完美主义者可能很难授权，因此，他们发现自己过度扩张，可能处于精疲力竭的边缘。
 

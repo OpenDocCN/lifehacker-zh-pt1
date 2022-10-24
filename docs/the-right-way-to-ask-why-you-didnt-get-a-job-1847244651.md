@@ -1,6 +1,6 @@
 # 问你为什么没找到工作的正确方式
 
-> 原文:[https://life hacker . com/the-right-way-to-ask-why you-not-get-a job-1847244651](https://lifehacker.com/the-right-way-to-ask-why-you-didnt-get-a-job-1847244651)
+> 原文：<https://lifehacker.com/the-right-way-to-ask-why-you-didnt-get-a-job-1847244651>
 
 求职面试的过程本身就像是一份工作，尤其是当它持续几周或几个月，需要你投入精力完成无数你希望证明自己价值的任务时。
 

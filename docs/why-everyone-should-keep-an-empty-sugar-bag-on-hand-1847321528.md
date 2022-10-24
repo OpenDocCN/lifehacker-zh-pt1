@@ -1,16 +1,16 @@
 # 为什么每个人都应该准备一个空糖包
 
-> 原文:[https://life hacker . com/why-every one-should-keep a-a-empty-sugar-bag-on-hand-1847321528](https://lifehacker.com/why-everyone-should-keep-an-empty-sugar-bag-on-hand-1847321528)
+> 原文：<https://lifehacker.com/why-everyone-should-keep-an-empty-sugar-bag-on-hand-1847321528>
 
-我一直在与我的囤积倾向作斗争，这就是为什么我通常会避开“旧麻花领带的10大用途”这种类型的技巧——然而我在这里告诉你，手边要有一个空的糖包，尤其是如果你有点笨拙(或者有笨拙的孩子、笨拙的宠物或笨拙的另一半)。
+我一直在与我的囤积倾向作斗争，这就是为什么我通常会避开“旧麻花领带的 10 大用途”这种类型的技巧——然而我在这里告诉你，手边要有一个空的糖包，尤其是如果你有点笨拙(或者有笨拙的孩子、笨拙的宠物或笨拙的另一半)。
 
 Watch
 
-这是一个关于健康和安全的建议，通过 [我最喜欢的一个推特好友](https://twitter.com/zigged) 告诉我们，他身边放着一个空糖袋，唯一的目的就是处理碎玻璃。(我的Twitter朋友真的有最好的黑客！)
+这是一个关于健康和安全的建议，通过 [我最喜欢的一个推特好友](https://twitter.com/zigged) 告诉我们，他身边放着一个空糖袋，唯一的目的就是处理碎玻璃。(我的 Twitter 朋友真的有最好的黑客！)
 
  [https://lifehacker.com/embed/inset/iframe?id=twitter-1417170620979322888&autosize=1](https://lifehacker.com/embed/inset/iframe?id=twitter-1417170620979322888&autosize=1) 
 
-正如Sacha在她的推文中解释的那样，厚的双层纸袋比塑料袋更安全地存放碎玻璃。当我问Sacha她是从哪里得到这个想法的，她告诉我这是她自己聪明的大脑想出来的:
+正如 Sacha 在她的推文中解释的那样，厚的双层纸袋比塑料袋更安全地存放碎玻璃。当我问 Sacha 她是从哪里得到这个想法的，她告诉我这是她自己聪明的大脑想出来的:
 
 > 我自己想到的！来自一个有囤积倾向的家庭+在质量控制实验室工作时被灌输安全思维=偶尔像这样的家庭黑客。
 

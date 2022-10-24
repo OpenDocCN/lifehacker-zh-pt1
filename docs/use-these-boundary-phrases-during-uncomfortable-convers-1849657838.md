@@ -1,6 +1,6 @@
 # 在不舒服的对话中使用这些“界限短语”
 
-> 原文:[https://life hacker . com/use-these-boundary-phrases-during-unless-convers-1849657838](https://lifehacker.com/use-these-boundary-phrases-during-uncomfortable-convers-1849657838)
+> 原文：<https://lifehacker.com/use-these-boundary-phrases-during-uncomfortable-convers-1849657838>
 
 不管是你的同事、兄弟姐妹，还是一个陌生人闲聊:大多数人不是故意越界的。(话说回来，家人确实知道如何激怒你。重要的是 [设定不同的个人界限](https://lifehacker.com/the-five-types-of-personal-boundaries-and-how-to-set-t-1847349639)——第一步是了解你自己以及你个人在不同行为之间的界限。但当有人严重越轨时，大声说出来是一回事；那更无害的越界呢？那快速的下流笑话呢，或者稍微让人不舒服的私人问题呢？
 
@@ -10,7 +10,7 @@ Watch
 
 ## 使用这些短语在对话中设定界限
 
-[在本次抖音](https://www.tiktok.com/@kami_orange/video/7152967173953047854?_r=1&_t=8WS0y3oGrCo&is_from_webapp=v1&item_id=7152967173953047854) 中，边界教练兼内容创作者卡米橙使用了“Hmmm。说起来多奇怪啊？”作为一个去边界短语的例子。Orange还指出，并不是所有的短语都适用于每种情况或每种关系。例如，当有人问了一个过于私人的问题时，说“*问了一个多么奇怪的问题*”可能有用，但面对种族主义者的评论，这可能不够。在使用自动驾驶仪响应之前，你必须运用你的判断力。
+[在本次抖音](https://www.tiktok.com/@kami_orange/video/7152967173953047854?_r=1&_t=8WS0y3oGrCo&is_from_webapp=v1&item_id=7152967173953047854) 中，边界教练兼内容创作者卡米橙使用了“Hmmm。说起来多奇怪啊？”作为一个去边界短语的例子。Orange 还指出，并不是所有的短语都适用于每种情况或每种关系。例如，当有人问了一个过于私人的问题时，说“*问了一个多么奇怪的问题*”可能有用，但面对种族主义者的评论，这可能不够。在使用自动驾驶仪响应之前，你必须运用你的判断力。
 
 这里有一些例子来开始建立你的个人界限短语库:
 

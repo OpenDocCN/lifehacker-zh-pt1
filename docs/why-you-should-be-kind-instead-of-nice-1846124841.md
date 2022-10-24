@@ -1,6 +1,6 @@
 # 为什么你应该善良而不是善良
 
-> 原文:[https://life hacker . com/why-you-should-be-than-of-nice-1846124841](https://lifehacker.com/why-you-should-be-kind-instead-of-nice-1846124841)
+> 原文：<https://lifehacker.com/why-you-should-be-kind-instead-of-nice-1846124841>
 
 人们感觉，尤其是在过去的一年里，人们似乎并没有对彼此特别友好。这段时间一直在努力，很难鼓起足够的社交风度向那个在他们的草坪上撒满了你鄙视的政治标志的邻居挥手问好。但是无论如何，现在可能是时候重新评估美好的价值了——因为*善良*更重要，它们不是一回事。
 

@@ -1,6 +1,6 @@
 # 什么是稳定性鞋，它们真的重要吗？
 
-> 原文:[https://life hacker . com/what-is-stability-shoes-and-do-they-matter-1849615594](https://lifehacker.com/what-are-stability-shoes-and-do-they-really-matter-1849615594)
+> 原文：<https://lifehacker.com/what-are-stability-shoes-and-do-they-really-matter-1849615594>
 
 不同跑鞋上宣传的功能太多了，很难分辨出哪些对你的舒适度和性能有影响，哪些无关紧要。上周，我们谈到了 [脚跟脚尖下降](https://lifehacker.com/what-is-heel-toe-drop-and-does-it-matter-for-runners-1849596301) 的重要性，今天，我们来谈谈稳定性。
 

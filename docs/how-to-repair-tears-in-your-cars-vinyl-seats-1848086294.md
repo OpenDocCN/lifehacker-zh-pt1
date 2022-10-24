@@ -1,6 +1,6 @@
 # 如何修复汽车塑料座椅上的裂缝
 
-> 原文:[https://life hacker . com/how-to-repair-tears-in-your-cars-vinyl-seats-1848086294](https://lifehacker.com/how-to-repair-tears-in-your-cars-vinyl-seats-1848086294)
+> 原文：<https://lifehacker.com/how-to-repair-tears-in-your-cars-vinyl-seats-1848086294>
 
 随着时间的推移，一辆车会经历很多——引擎盖下的破损，车身上的划痕和凹痕，以及内部的磨损。这包括座位上的裂缝和洞，无论它们是由织物、皮革还是乙烯基制成，都可能发生。
 

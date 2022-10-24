@@ -1,16 +1,16 @@
 # 以下是选举日可能会发生的事情:第一部分
 
-> 原文:[https://www . the root . com/heres-what-possible-will-possible-happen-on-election-day-1845384398](https://www.theroot.com/heres-what-will-likely-happen-on-election-day-1845384398)
+> 原文：<https://www.theroot.com/heres-what-will-likely-happen-on-election-day-1845384398>
 
-2020年11月3日星期二，美国将选出下一任美国总统。
+2020 年 11 月 3 日星期二，美国将选出下一任美国总统。
 
 Watch
 
 也许吧。
 
-2020年的选举比美国历史上任何一次选举都充满了更多的不可知因素。我们不仅不知道是唐纳德·约翰·川普还是小约瑟夫·罗比内特·拜登将成为美国的下一任总统，而且我们甚至不知道*什么时候才能知道*。我们甚至不能确定下一任总统是由选民、选举团、国会还是最高法院选出的。
+2020 年的选举比美国历史上任何一次选举都充满了更多的不可知因素。我们不仅不知道是唐纳德·约翰·川普还是小约瑟夫·罗比内特·拜登将成为美国的下一任总统，而且我们甚至不知道*什么时候才能知道*。我们甚至不能确定下一任总统是由选民、选举团、国会还是最高法院选出的。
 
-为了减轻这种不确定性， *The Root* 编辑了这个由两部分组成的，对选举日以及11月第一个星期二之后的日子的最佳猜测预测。这一分析来自几个月的研究、研讨会和对该国一些顶尖专家在其领域的采访，包括:
+为了减轻这种不确定性， *The Root* 编辑了这个由两部分组成的，对选举日以及 11 月第一个星期二之后的日子的最佳猜测预测。这一分析来自几个月的研究、研讨会和对该国一些顶尖专家在其领域的采访，包括:
 
 *   **阿斯彭研究所:**阿斯彭数字公司的“为竞选做准备”项目
 *   **莎莉·布兹比:**美联社高级副总裁兼执行主编
@@ -22,53 +22,53 @@ Watch
 *   Mary McCord: 乔治敦法学院宪法倡导和保护研究所法律主任
 *   Elie Mystal: 法律学者和国家司法记者
 *   **马尔科姆·南斯:**前反恐和情报官员，《T2》一书的作者
-*   **国家选举危机工作组** *:一个由50多名选举法、选举管理、国家安全、网络安全、投票权、民权、技术、媒体、公共卫生和应急反应方面的专家组成的*跨党派小组
+*   **国家选举危机工作组** *:一个由 50 多名选举法、选举管理、国家安全、网络安全、投票权、民权、技术、媒体、公共卫生和应急反应方面的专家组成的*跨党派小组
 *   斯坦福大学法学院詹姆斯·b·麦克拉奇法学教授
 *   **维维安·席勒:**阿斯彭数字公司执行董事
 
-### **美国东部时间11月3日上午8点:投票开始**
+### **美国东部时间 11 月 3 日上午 8 点:投票开始**
 
 如果你是昨晚成功睡了一觉的少数幸运美国人之一，你可能会注意到今年投票的等待时间明显缩短了。然而，你不应该假设人们没有参与这一重要的民主实践；今年人潮稀少有一个很好的原因:
 
 很多人已经投票了。
 
-根据 [选举项目](http://www.electproject.org/early_2016) ，大约[140万美国人](https://www.huffpost.com/entry/early-voting-more-states_b_12517738) 在2016年10月16日前已经投票。到目前为止，超过3500万 的早期选民已经为2020年的选举投票，这一速度无疑将超过2016年的4700万早期投票。这种缺席投票和邮寄投票的雪崩肯定会影响你当地选区的队伍...
+根据 [选举项目](http://www.electproject.org/early_2016) ，大约[140 万美国人](https://www.huffpost.com/entry/early-voting-more-states_b_12517738) 在 2016 年 10 月 16 日前已经投票。到目前为止，超过 3500 万 的早期选民已经为 2020 年的选举投票，这一速度无疑将超过 2016 年的 4700 万早期投票。这种缺席投票和邮寄投票的雪崩肯定会影响你当地选区的队伍...
 
 除非你是黑人。
 
-**为什么我们认为这会发生:**在全国范围内，提前投票总数已经超过2016年总投票率的25%。
+**为什么我们认为这会发生:**在全国范围内，提前投票总数已经超过 2016 年总投票率的 25%。
 
 ### **中午:投票站的问题**
 
 每一项关于投票等待时间的学术严谨、同行评议的研究都得出结论，在非洲裔美国人聚居的选区，人们等待投票的时间要长得多。
 
-[2012年](https://www.stephenpettigrew.com/articles/pettigrew-2017-psq.pdf) 大选期间，据报道黑人选民平均要等26分钟才能投票，而白人选民只等了大约12分钟。加州大学洛杉矶分校 [对2016年大选等待时间的研究](https://www.theroot.com/study-black-people-wait-longer-to-vote-1838853772) 使用了美国11万人中80%的手机地理定位数据。其结论是，黑人社区选民的平均等待时间比白人社区选民的平均等待时间长29%。全国黑人选民在投票前等待30分钟以上的可能性比其他人群高79%。
+[2012 年](https://www.stephenpettigrew.com/articles/pettigrew-2017-psq.pdf) 大选期间，据报道黑人选民平均要等 26 分钟才能投票，而白人选民只等了大约 12 分钟。加州大学洛杉矶分校 [对 2016 年大选等待时间的研究](https://www.theroot.com/study-black-people-wait-longer-to-vote-1838853772) 使用了美国 11 万人中 80%的手机地理定位数据。其结论是，黑人社区选民的平均等待时间比白人社区选民的平均等待时间长 29%。全国黑人选民在投票前等待 30 分钟以上的可能性比其他人群高 79%。
 
-2016年，佛罗里达州的黑人选民将选票 [不成比例地投给了](https://www.nytimes.com/2001/11/12/us/examining-vote-patterns-ballots-cast-blacks-older-voters-were-tossed-far-greater.html) 。格鲁吉亚人报道说，有几十年历史的选举软件不知何故在2018年中期选举中 [切换了他们的选票](https://www.theroot.com/black-voters-in-georgia-say-something-funny-is-going-on-1829979736) 。发生这种情况是因为黑人占多数的选区也更有可能拥有[更少的投票工作人员](https://bipartisanpolicy.org/wp-content/uploads/2019/03/Improving-The-Voter-Experience-Reducing-Polling-Place-Wait-Times-by-Measuring-Lines-and-Managing-Polling-Place-Resources.pdf)[纽约时报](https://www.nytimes.com/2001/11/12/us/examining-vote-patterns-ballots-cast-blacks-older-voters-were-tossed-far-greater.html) 报道。
+2016 年，佛罗里达州的黑人选民将选票 [不成比例地投给了](https://www.nytimes.com/2001/11/12/us/examining-vote-patterns-ballots-cast-blacks-older-voters-were-tossed-far-greater.html) 。格鲁吉亚人报道说，有几十年历史的选举软件不知何故在 2018 年中期选举中 [切换了他们的选票](https://www.theroot.com/black-voters-in-georgia-say-something-funny-is-going-on-1829979736) 。发生这种情况是因为黑人占多数的选区也更有可能拥有[更少的投票工作人员](https://bipartisanpolicy.org/wp-content/uploads/2019/03/Improving-The-Voter-Experience-Reducing-Polling-Place-Wait-Times-by-Measuring-Lines-and-Managing-Polling-Place-Resources.pdf)[纽约时报](https://www.nytimes.com/2001/11/12/us/examining-vote-patterns-ballots-cast-blacks-older-voters-were-tossed-far-greater.html) 报道。
 
 根据 [布伦南中心](https://www.brennancenter.org/issues/ensure-every-american-can-vote) 、 [两党政策中心](https://bipartisanpolicy.org/wp-content/uploads/2019/03/Improving-The-Voter-Experience-Reducing-Polling-Place-Wait-Times-by-Measuring-Lines-and-Managing-Polling-Place-Resources.pdf) 、麻省理工学院和...嗯，*各位。你应该会看到像全美有色人种协进会法律辩护和教育基金会(LDEF)和依法争取公民权利律师委员会这样的组织请求法院颁布禁令，以保护选民的权利，并在人满为患的选区延长投票时间。*
 
-领导LDEF打击选民压制的Sherrilyn Ifill指出，黑人选民更有可能被迫投临时票，在大多数州，临时票在选举之夜不计算在内。
+领导 LDEF 打击选民压制的 Sherrilyn Ifill 指出，黑人选民更有可能被迫投临时票，在大多数州，临时票在选举之夜不计算在内。
 
 “在许多年里，这并不是什么大事，因为选举并没有那么接近，”伊菲尔解释道。“但是在一些州和司法管辖区，选举可能会很接近，即使是临时选票也将是至关重要的...因此，我们将再次施压，确保临时投票的非裔美国选民有机会在后端处理这些选票。”
 
 为什么我们认为会发生这种情况:在美国历史上，从来没有一次选举中黑人选民获得了平等的投票箱。
 
-### 美国东部时间下午3点:投票站发生恐吓和暴力事件的报道
+### 美国东部时间下午 3 点:投票站发生恐吓和暴力事件的报道
 
 我们采访的每一位专家都说，我们应该预料到在选举日会有某种程度的暴力或选民恐吓。
 
 特朗普总统呼吁他的支持者在投票站出现，并" [非常仔细地观察](https://www.nbcnews.com/news/us-news/trump-s-call-supporters-watch-polls-very-carefully-raises-concerns-n1241613) "已经引起了公民民兵组织、特朗普支持者和骄傲男孩等白人至上主义组织的注意，总统指示他们" [下台"，但仍然是"袖手旁观](https://www.theroot.com/proud-boys-celebrate-trumps-call-to-stand-back-and-stan-1845229838) 。"
 
-根据司法部T3[的说法，联邦法律禁止任何“恐吓、威胁或胁迫某人”干涉投票权的活动。然而，没有法律阻止个人或团体出现在公共场所，形成专家所说的*力量投射游行*——一种常用于向普通公民灌输恐惧的策略。由于管理民兵组织行为的法律在各州有所不同，再加上一些州允许在投票点公开持枪，吉福德法律中心和乔治敦法律学院都指出，在选举日携带武器的私人准军事巡逻人员是非常真实的。](https://www.justice.gov/criminal/file/1029066/download)
+根据司法部 T3[的说法，联邦法律禁止任何“恐吓、威胁或胁迫某人”干涉投票权的活动。然而，没有法律阻止个人或团体出现在公共场所，形成专家所说的*力量投射游行*——一种常用于向普通公民灌输恐惧的策略。由于管理民兵组织行为的法律在各州有所不同，再加上一些州允许在投票点公开持枪，吉福德法律中心和乔治敦法律学院都指出，在选举日携带武器的私人准军事巡逻人员是非常真实的。](https://www.justice.gov/criminal/file/1029066/download)
 
-安全和情报专家Malcolm Nance告诉《The Root》“我认为他们可以在选举日通过力量投射游行来进行恐吓，而不会受到惩罚。
+安全和情报专家 Malcolm Nance 告诉《The Root》“我认为他们可以在选举日通过力量投射游行来进行恐吓，而不会受到惩罚。
 
 南希说，军事情报官员目睹了世界各地的独裁政权使用这种策略，包括俄罗斯和伊斯兰国。南希还指出，执法人员往往同情这些团体，并认为他们是亲警察的“友军”。
 
 “但如果有大范围或零星的暴力事件，或者如果有大规模枪击事件，美国所有其他警察都会对这些人持悲观态度，”南希补充道。“但即使警方做出回应，这种事情已经发生的事实可能会阻止人们前往投票站。”
 
-“我们应该记住，恐吓不只是针对独立的民兵组织，”Sherrilyn Ifill解释说。“坦率地说，我们也对国家行为者感到关切。嗯，你听到总统说要带走警长之类的。我们也在关注这一点。”
+“我们应该记住，恐吓不只是针对独立的民兵组织，”Sherrilyn Ifill 解释说。“坦率地说，我们也对国家行为者感到关切。嗯，你听到总统说要带走警长之类的。我们也在关注这一点。”
 
 然而，南希指出，特朗普号召治安官出现在投票站与执法无关。相反，这是对日益壮大的右翼" [宪法警长运动](https://www.politico.com/magazine/story/2017/09/01/joe-arpaio-pardon-sheriffs-movement-215566) "的一种警告，该运动植根于这样一种信念，即自封的警长拥有最高的执法权力——凌驾于当地警察、州警察甚至联邦执法官员之上。
 
@@ -79,9 +79,9 @@ Watch
 *   司法部
 *   [联邦调查局](https://www.fbi.gov/news/pressrel/press-releases/fbi-warns-voters-about-election-crimes-ahead-of-the-november-2020-election)
 *   安全部
-*   联邦调查局、DOJ和DHS警告过我们的真正的民兵组织 。
+*   联邦调查局、DOJ 和 DHS 警告过我们的真正的民兵组织 。
 
-美国东部时间下午6点:计票开始
+美国东部时间下午 6 点:计票开始
 
 大选之夜我们可能不会有选举结果。
 
@@ -89,11 +89,11 @@ Watch
 
 我知道我刚刚解释了数百万人如何在这次选举中提前投票。我知道我说过今年队伍会更短。然而，在一场预计投票率创纪录的选举中，只有少数几个州允许官员在选举日之前开始清点他们的早期选票，根据全国州议会委员会 的数据。此外，许多允许广泛提前投票和缺席选项的州——包括其结果对总统选举至关重要的州——直到投票结束后*才被允许开始计票。*
 
-“想象一下，如果50%的选民同时出现在一个选区，将会出现什么样的混乱，”格雷森解释说。“好吧，这基本上就是县办公室或市办公室将要发生的事情，在那里他们内部也算。所有的选票都会进来，他们需要更多的人和设备。对于许多管辖区来说，他们以前从未这样做过，他们无法从选举日投票中节省资金，因为他们不知道谁会亲自投票。所以这是一个真正的挑战。”
+“想象一下，如果 50%的选民同时出现在一个选区，将会出现什么样的混乱，”格雷森解释说。“好吧，这基本上就是县办公室或市办公室将要发生的事情，在那里他们内部也算。所有的选票都会进来，他们需要更多的人和设备。对于许多管辖区来说，他们以前从未这样做过，他们无法从选举日投票中节省资金，因为他们不知道谁会亲自投票。所以这是一个真正的挑战。”
 
-为什么我们认为会发生这种情况:你必须计算选票，只有16个州允许官员在选举日之前开始计算他们的早期选票。
+为什么我们认为会发生这种情况:你必须计算选票，只有 16 个州允许官员在选举日之前开始计算他们的早期选票。
 
-### 东部时间晚上9点:没有人知道任何事情
+### 东部时间晚上 9 点:没有人知道任何事情
 
 睡前想知道非官方结果，看新闻就行了吧？或者你可以看看投票后的民意调查。另外，互联网什么都知道！
 
@@ -101,13 +101,13 @@ Watch
 
 由于如此多的提前投票、亲自投票人数的增加以及它们之间的比例都没有先例，媒体不太可能提前宣布选举，因为即使有投票后民意调查和统计数据，他们也不能确定这意味着什么。
 
-Sally Buzbee负责监管美联社的全球新闻业务和来自全球250个地点的记者的新闻内容。她警告说，这次选举将揭示一个全新的世界，在这个世界中，新闻媒体在政治竞争中给出任何明确的迹象之前都会非常谨慎。Buzbee很快指出新闻媒体不会“召集”选举；他们只预测赢家。
+Sally Buzbee 负责监管美联社的全球新闻业务和来自全球 250 个地点的记者的新闻内容。她警告说，这次选举将揭示一个全新的世界，在这个世界中，新闻媒体在政治竞争中给出任何明确的迹象之前都会非常谨慎。Buzbee 很快指出新闻媒体不会“召集”选举；他们只预测赢家。
 
-Buzbee指出:“我们无法预测赢家，也无法称比赛为，除非我们确定某人确实在数学上赢了，或者他们知道他们没有数学上的胜利之路。”“需要记住的一件非常重要的事情是，一般来说，大多数州，不是全部，但大多数倾向于最后统计邮寄选票；有时这可能是选举日之后的几天。过去几年，这种情况经常发生。”
+Buzbee 指出:“我们无法预测赢家，也无法称比赛为，除非我们确定某人确实在数学上赢了，或者他们知道他们没有数学上的胜利之路。”“需要记住的一件非常重要的事情是，一般来说，大多数州，不是全部，但大多数倾向于最后统计邮寄选票；有时这可能是选举日之后的几天。过去几年，这种情况经常发生。”
 
-为什么Buzbee觉得有必要这么说？
+为什么 Buzbee 觉得有必要这么说？
 
-嗯，佐治亚州、宾夕法尼亚州、德克萨斯州和威斯康星州是拜登和特朗普争夺270张选举人票的关键州，但在选举早上之前，它们不能合法地开始计算早期选票。佛罗里达州和亚利桑那州可以在选举前几周开始计票，但即使投票结束，也可能势均力敌。
+嗯，佐治亚州、宾夕法尼亚州、德克萨斯州和威斯康星州是拜登和特朗普争夺 270 张选举人票的关键州，但在选举早上之前，它们不能合法地开始计算早期选票。佛罗里达州和亚利桑那州可以在选举前几周开始计票，但即使投票结束，也可能势均力敌。
 
 另外，你知道...
 
@@ -115,7 +115,7 @@ Buzbee指出:“我们无法预测赢家，也无法称比赛为，除非我们�
 
 这可能需要几个小时。
 
-**为什么我们认为这将会发生:**T2的大多数州直到投票结束才会开始计票。在 [至关重要的州](https://www.ncsl.org/research/elections-and-campaigns/vopp-table-11-receipt-and-postmark-deadlines-for-absentee-ballots.aspx) 像宾夕法尼亚、德克萨斯和内华达将在选举日之后统计收到的邮寄选票*，*根据来自 [州立法机关全国委员会](https://www.ncsl.org/research/elections-and-campaigns/vopp-table-16-when-absentee-mail-ballot-processing-and-counting-can-begin.aspx) 的数据。
+**为什么我们认为这将会发生:**T2 的大多数州直到投票结束才会开始计票。在 [至关重要的州](https://www.ncsl.org/research/elections-and-campaigns/vopp-table-11-receipt-and-postmark-deadlines-for-absentee-ballots.aspx) 像宾夕法尼亚、德克萨斯和内华达将在选举日之后统计收到的邮寄选票*，*根据来自 [州立法机关全国委员会](https://www.ncsl.org/research/elections-and-campaigns/vopp-table-16-when-absentee-mail-ballot-processing-and-counting-can-begin.aspx) 的数据。
 
 ### 午夜东部时间:事情变得疯狂
 
@@ -123,7 +123,7 @@ Buzbee指出:“我们无法预测赢家，也无法称比赛为，除非我们�
 
 我们怎么能如此确定这些事件会发生呢？
 
-因为它们总是发生。从数学上讲，由易犯错误的人操作的成千上万个不同的投票系统、软件和投票站都完美地工作是不可能的。每逢选举日，机器都会出故障。总有一个错误的计数，摊牌和投票机仍然在Windows 95上运行Microsoft Word，这将给某人一个“404没有计算”的错误。
+因为它们总是发生。从数学上讲，由易犯错误的人操作的成千上万个不同的投票系统、软件和投票站都完美地工作是不可能的。每逢选举日，机器都会出故障。总有一个错误的计数，摊牌和投票机仍然在 Windows 95 上运行 Microsoft Word，这将给某人一个“404 没有计算”的错误。
 
 但是，由于特朗普总统的言论让人们对计票的合法性产生了怀疑，这可能会让一些人认为有人在捣鬼。没有迹象表明特朗普不会在选举之夜继续延续这种叙事，这可能会引发内乱。
 
@@ -133,7 +133,7 @@ Buzbee指出:“我们无法预测赢家，也无法称比赛为，除非我们�
 
 > 好吧，让我们看看事实:
 > 
-> 特朗普诋毁玛克辛·沃特斯、埃里克·霍尔德和国会民主党人。突然， [管状炸弹出现在他们的邮件里。](https://www.theroot.com/a-black-woman-reported-the-magabomber-to-twitter-twitt-1830054451) 他谈到了波特兰和 [骄傲的男孩子们表现出来的](https://www.theroot.com/portland-ore-police-investigating-white-suspect-in-ca-1844908388) 。他呼吁“法律和秩序”在威斯康星州和 [凯尔里顿豪斯杀死两个人](https://www.theroot.com/media-and-law-enforcement-response-to-white-vigilante-s-1844867688) 。他发推特说“解放密歇根”，人们拿着长枪出现，计划 [绑架州长](https://www.theroot.com/more-than-a-dozen-people-charged-in-plot-to-kidnap-mich-1845316822) 。你能想出一个有人没有认真对待的威胁吗？所以，问题不是为什么我认为香草ISIS——我是这么称呼他们的——会在选举日出现。
+> 特朗普诋毁玛克辛·沃特斯、埃里克·霍尔德和国会民主党人。突然， [管状炸弹出现在他们的邮件里。](https://www.theroot.com/a-black-woman-reported-the-magabomber-to-twitter-twitt-1830054451) 他谈到了波特兰和 [骄傲的男孩子们表现出来的](https://www.theroot.com/portland-ore-police-investigating-white-suspect-in-ca-1844908388) 。他呼吁“法律和秩序”在威斯康星州和 [凯尔里顿豪斯杀死两个人](https://www.theroot.com/media-and-law-enforcement-response-to-white-vigilante-s-1844867688) 。他发推特说“解放密歇根”，人们拿着长枪出现，计划 [绑架州长](https://www.theroot.com/more-than-a-dozen-people-charged-in-plot-to-kidnap-mich-1845316822) 。你能想出一个有人没有认真对待的威胁吗？所以，问题不是为什么我认为香草 ISIS——我是这么称呼他们的——会在选举日出现。
 > 
 > 问题是*为什么有人认为他们不会？*
 

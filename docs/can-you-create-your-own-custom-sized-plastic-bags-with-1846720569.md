@@ -1,6 +1,6 @@
 # 你能用热刀制作你自己定制尺寸的塑料袋吗？
 
-> 原文:[https://life hacker . com/can-you-create-your-own-custom-size-plastic-bags-with-1846720569](https://lifehacker.com/can-you-create-your-own-custom-sized-plastic-bags-with-1846720569)
+> 原文：<https://lifehacker.com/can-you-create-your-own-custom-sized-plastic-bags-with-1846720569>
 
 你知道我们从抖音获得最好的想法，所以当我们看到最近的视频 [询问你最喜欢的黑客](https://www.instagram.com/reel/CL4v5ADgeTp/?igshid=8p7h8epoyxyk) 时，我们必须测试它。
 

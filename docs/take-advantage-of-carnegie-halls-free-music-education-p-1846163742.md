@@ -1,8 +1,8 @@
 # 利用卡内基音乐厅的免费儿童音乐教育项目
 
-> 原文:[https://life hacker . com/take-advantage-of-Carnegie-halls-free-music-education-p-1846163742](https://lifehacker.com/take-advantage-of-carnegie-halls-free-music-education-p-1846163742)
+> 原文：<https://lifehacker.com/take-advantage-of-carnegie-halls-free-music-education-p-1846163742>
 
-如果说我们从20世纪90年代的经典作品如*《第二幕姐妹:重拾习惯》*和*荷兰先生的作品*中学到了什么，那就是音乐教育可以改变孩子们的生活(剧透一下:也可以改变他们的老师)，但它往往资金严重不足。资金状况并没有真正改善，但在近一年的时间里，学校为全国各地的学生提供了不同的服务。
+如果说我们从 20 世纪 90 年代的经典作品如*《第二幕姐妹:重拾习惯》*和*荷兰先生的作品*中学到了什么，那就是音乐教育可以改变孩子们的生活(剧透一下:也可以改变他们的老师)，但它往往资金严重不足。资金状况并没有真正改善，但在近一年的时间里，学校为全国各地的学生提供了不同的服务。
 
 Watch
 
@@ -18,7 +18,7 @@ Watch
 
 音乐探索者计划包括各种活动、各种不同的艺术家和数字音乐会，包括以下内容:
 
-*   来自波多黎各 的 [bomba和plena的一堂课，结果通过写作和绘画创造了自己的“歌唱报”](https://www.youtube.com/watch?v=2FQRRyTs4GY&feature=emb_logo)
+*   来自波多黎各 的 [bomba 和 plena 的一堂课，结果通过写作和绘画创造了自己的“歌唱报”](https://www.youtube.com/watch?v=2FQRRyTs4GY&feature=emb_logo)
 *   [嘻哈灵魂科学实验室](https://www.carnegiehall.org/Education/Programs/Musical-Explorers/For-Families/Soul-Science-Lab)
 *   一堂课 [【交际舞】来自美国西南部](https://www.carnegiehall.org/Education/Programs/Musical-Explorers/For-Families/Martha) 的土著人
 *   一场 [数字音乐会体验](https://www.youtube.com/watch?v=StGBegbji0M&feature=emb_logo) 以希腊民谣、马里传统音乐和印度古典音乐为特色。

@@ -1,12 +1,12 @@
 # 假装自己是树，和孩子一起练习正念
 
-> 原文:[https://life hacker . com/practice-mindfulness-with-your-kids-by-casing-to-be 1845131014](https://lifehacker.com/practice-mindfulness-with-your-kids-by-pretending-to-be-1845131014)
+> 原文：<https://lifehacker.com/practice-mindfulness-with-your-kids-by-pretending-to-be-1845131014>
 
 我们知道正念能在多大程度上帮助缓解我们孩子(和我们自己)的压力、焦虑或注意力不集中——尤其是在像这些这样的时刻。然而，让我们的孩子接受这样的 练习，需要一点创造力。即使是你在自己的正念程序中使用的最简单的咒语、呼吸练习或身体扫描技术也可能直接越过他们的头顶，让他们感到厌烦，甚至比你开始时更加烦躁。
 
 Watch
 
-这就是作家Steph Fairyington在和她4岁的女儿Marty一起尝试冥想和感恩时遇到的问题。(很自然，马蒂借此机会强调了她的愚蠢，大声说她是多么感谢冰淇淋和屁——因为谁不是呢？)所以，费英顿踏上了一段旅程，想弄清楚如何将马蒂对富有想象力的游戏的爱好融入到正念练习中。
+这就是作家 Steph Fairyington 在和她 4 岁的女儿 Marty 一起尝试冥想和感恩时遇到的问题。(很自然，马蒂借此机会强调了她的愚蠢，大声说她是多么感谢冰淇淋和屁——因为谁不是呢？)所以，费英顿踏上了一段旅程，想弄清楚如何将马蒂对富有想象力的游戏的爱好融入到正念练习中。
 
 经过一些研究和对专家的采访，她给《华盛顿邮报》的写道，她准备将一个计划付诸实施——通过伪装成树木:
 

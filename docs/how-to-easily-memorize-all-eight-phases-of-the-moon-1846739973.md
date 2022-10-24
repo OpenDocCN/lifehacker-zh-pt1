@@ -1,6 +1,6 @@
 # 如何轻松记住月亮的八个相位
 
-> 原文:[https://life hacker . com/how-to-easy-memoring-all-eight-phases of-the-moon-1846739973](https://lifehacker.com/how-to-easily-memorize-all-eight-phases-of-the-moon-1846739973)
+> 原文：<https://lifehacker.com/how-to-easily-memorize-all-eight-phases-of-the-moon-1846739973>
 
 大多数人对月球的了解是，它绕着地球转，可能有也可能没有一张巨大的脸刻在上面。但是这个发光的球体包含许多外行天文学家可能感兴趣的天体，了解它的相位是一个很好的起点。记住一个简单的记忆方法可以帮助你成为一名业余伽利略，或者至少给朋友或约会对象留下深刻印象。
 
@@ -12,7 +12,7 @@ Watch
 
 满月之后，随着它远离地球，球体的光线开始逐渐变暗，直到它再次以它的光辉让我们高兴(即，又一个满月)。
 
-月球在其27天的周期中呈现八个不同的阶段， [由美国宇航局在此提炼:](https://spaceplace.nasa.gov/moon-phases/en/)
+月球在其 27 天的周期中呈现八个不同的阶段， [由美国宇航局在此提炼:](https://spaceplace.nasa.gov/moon-phases/en/)
 
 *   新月
 *   上蜡新月形
@@ -23,7 +23,7 @@ Watch
 *   下弦
 *   渐亏的新月
 
-因为如果没有一点帮助，你可能很难记住这些术语，所以有一个有用的首字母缩略词可以用来记住月亮的顺序。正如网站 [Star in a Star指出的](https://starinastar.com/moon-phases-names-an-easy-way-to-remember/) ，你可以通过短语“永远不能停止获取食物”来记住月亮的顺序，如果通过每个单词的第一个字母来读，则代表**新月、新月、四分之一、凸起**和**完整**(即NCQGF)。
+因为如果没有一点帮助，你可能很难记住这些术语，所以有一个有用的首字母缩略词可以用来记住月亮的顺序。正如网站 [Star in a Star 指出的](https://starinastar.com/moon-phases-names-an-easy-way-to-remember/) ，你可以通过短语“永远不能停止获取食物”来记住月亮的顺序，如果通过每个单词的第一个字母来读，则代表**新月、新月、四分之一、凸起**和**完整**(即 NCQGF)。
 
 当然，月亮的亏面开始发挥作用，这需要你颠倒字母的顺序——FGQCN——代表**满月、凸月、四分之一月、新月、**和**新**。
 
@@ -35,7 +35,7 @@ Watch
 
 一个完整的“O”代表一个上弦月和一个满月，而“C”代表一个下弦月、下弦月或新月，后者看起来最像“C”
 
-当然，一旦你从南半球看月亮，这一切都变得相反了。正如 [EarthSky对](https://earthsky.org/astronomy-essentials/do-we-all-see-the-same-moon-phase#:~:text=The%20change%20in%20orientation%20leads,features%20in%20the%20images%20below.) 的解释:“北半球和南半球的观测者看到的月亮显然是上下颠倒的。”
+当然，一旦你从南半球看月亮，这一切都变得相反了。正如 [EarthSky 对](https://earthsky.org/astronomy-essentials/do-we-all-see-the-same-moon-phase#:~:text=The%20change%20in%20orientation%20leads,features%20in%20the%20images%20below.) 的解释:“北半球和南半球的观测者看到的月亮显然是上下颠倒的。”
 
 ### 了解凸月是关键
 

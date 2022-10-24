@@ -1,6 +1,6 @@
 # 如何用“医院角”做床
 
-> 原文:[https://life hacker . com/how-to-make-a bed-a-how-bed-with-hospital-corners-1849429531](https://lifehacker.com/how-to-make-a-bed-with-hospital-corners-1849429531)
+> 原文：<https://lifehacker.com/how-to-make-a-bed-with-hospital-corners-1849429531>
 
 除了喜欢一定硬度的床垫和由某些材料制成而不是由其他材料制成的床单之外，大多数人对床的制作方式也有偏好。用宋飞的话来说:一个“塔克”或者一个“不塔克”
 
@@ -12,7 +12,7 @@ Watch
 
 ## 什么是医院角落？
 
-也被称为“军事角”和“斜接角”，这种铺床技术包括使用一系列折叠和褶缝将平板固定在床垫上。即使在20世纪50年代 [合身的床单变得随处可见](https://royalalbertamuseum.ca/blog/fitted-sheet-alberta-invention-and-folding-nightmare) 之后，医疗机构仍然广泛使用医院的角落来更换病床上的床单 [而不必移动行动不便的患者](https://cnatraininghelp.com/cna-skills/making-an-occupied-bed/) 。
+也被称为“军事角”和“斜接角”，这种铺床技术包括使用一系列折叠和褶缝将平板固定在床垫上。即使在 20 世纪 50 年代 [合身的床单变得随处可见](https://royalalbertamuseum.ca/blog/fitted-sheet-alberta-invention-and-folding-nightmare) 之后，医疗机构仍然广泛使用医院的角落来更换病床上的床单 [而不必移动行动不便的患者](https://cnatraininghelp.com/cna-skills/making-an-occupied-bed/) 。
 
 ## 如何用医院墙角做床
 

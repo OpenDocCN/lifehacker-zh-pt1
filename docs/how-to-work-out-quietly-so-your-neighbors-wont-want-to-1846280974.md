@@ -1,6 +1,6 @@
 # 如何安静地工作，这样你的邻居就不会想杀你
 
-> 原文:[https://life hacker . com/how-to-work-out-quiet-so-your-neighbors-wont-want-to-1846280974](https://lifehacker.com/how-to-work-out-quietly-so-your-neighbors-wont-want-to-1846280974)
+> 原文：<https://lifehacker.com/how-to-work-out-quietly-so-your-neighbors-wont-want-to-1846280974>
 
 在家锻炼很方便，但肯定会很吵。在健身舞蹈课上，你可以尽情地跳跃和跺脚，如果你在合适的健身房，甚至可以 [放下杠铃](https://vitals.lifehacker.com/sometimes-its-okay-to-drop-the-weights-1837481047) 。但是在家里，你楼下的邻居或者熟睡的小孩可能不会同意。相反，根据你的环境来调整你的锻炼。
 
@@ -10,7 +10,7 @@ Watch
 
 许多锻炼视频都标有“低冲击”的标签，以更好地适应那些跑步或跳跃时没有疼痛的人的膝盖。但由于它们主要是消除有弹性的动作，当你想原地踏步而不是跳上跳下时，它们也很有用。
 
-一些舞蹈和HIIT视频会提供低冲击选项作为锻炼的一部分(例如，跨进和走出弓箭步，而不是跳跃弓箭步)。一旦你看到了一些典型的修改，你可以把它们带到你看的任何视频中。
+一些舞蹈和 HIIT 视频会提供低冲击选项作为锻炼的一部分(例如，跨进和走出弓箭步，而不是跳跃弓箭步)。一旦你看到了一些典型的修改，你可以把它们带到你看的任何视频中。
 
 ### 在铺有地毯的房间里锻炼
 

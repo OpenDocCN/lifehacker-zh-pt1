@@ -1,6 +1,6 @@
 # 如何在冬季提高你花园的土壤质量
 
-> 原文:[https://life hacker . com/how-to-improve-your garden-soil-quality-over the winter-1848197329](https://lifehacker.com/how-to-improve-your-garden-soil-quality-over-the-winter-1848197329)
+> 原文：<https://lifehacker.com/how-to-improve-your-garden-soil-quality-over-the-winter-1848197329>
 
 在你清理完床铺，把水管和大部分工具放好之后，你可能会想，除此之外，你没有别的办法让你的花园在春天获得成功。但事实并非如此。
 
@@ -22,6 +22,6 @@ Watch
 
 > 好的土壤是有生命的，充满了微生物，它们与你种植的一切植物的根系建立了复杂的共生关系。他们成为彼此茁壮成长的关键。这些微生物需要食物，没有比堆肥更好的食物来喂养它们了。
 
-如果你还没有堆肥，你很幸运:Lifehacker有一堆关于如何堆肥的(室内和室外)。
+如果你还没有堆肥，你很幸运:Lifehacker 有一堆关于如何堆肥的(室内和室外)。
 
 对于那些在室外堆肥的人来说， [韦伯斯特说](https://www.familyhandyman.com/article/how-to-improve-garden-soil-in-winter/) 重要的是要记住，较冷的温度会减缓分解过程，所以把你的 [、【褐色】、](https://lifehacker.com/the-best-and-worst-foods-for-composting-1847396396) 剁碎成更小的碎片，以帮助它们更快地分解。

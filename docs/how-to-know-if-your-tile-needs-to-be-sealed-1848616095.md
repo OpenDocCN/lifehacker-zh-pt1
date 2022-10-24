@@ -1,6 +1,6 @@
 # 如何知道你的瓷砖是否需要密封
 
-> 原文:[https://life hacker . com/how-to-know-if-your ' s tile-need-to-sealed-1848616095](https://lifehacker.com/how-to-know-if-your-tile-needs-to-be-sealed-1848616095)
+> 原文：<https://lifehacker.com/how-to-know-if-your-tile-needs-to-be-sealed-1848616095>
 
 瓷砖美观、耐用，是宿醉时睡觉的绝佳材料。这是厨房、浴室和泥室等潮湿区域的自然选择，因为它能很好地耐受水，并且易于清洁。瓷砖非常耐用，看起来不受灰尘和污垢的影响，事实上，我们有时会错误地认为它不需要任何真正的维护——只要把它贴在墙上或地板上就可以了，对吗？
 

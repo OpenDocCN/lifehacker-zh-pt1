@@ -1,12 +1,12 @@
 # 首先摘下植物底部的西红柿
 
-> 原文:[https://life hacker . com/pick-the-tomatos-at-the-bottom-of-your-plant-first-1847350384](https://lifehacker.com/pick-the-tomatoes-at-the-bottom-of-your-plant-first-1847350384)
+> 原文：<https://lifehacker.com/pick-the-tomatoes-at-the-bottom-of-your-plant-first-1847350384>
 
 今年是我当园丁的第一年。我认为一切都很顺利，尤其是当你想到我有一段的历史，杀死每一种我试图保持存活的室内植物(甚至是空气植物)。很快我将培育出和 玉米、西红柿和数量多得离谱的西红柿，我很兴奋。
 
 Watch
 
-尽管我学到了很多东西，我还是不愿意写任何关于园艺的东西，因为这是一个非常复杂的主题，而且对它感兴趣的人都非常T2(我不想惹恼他们)。但是昨天我在推特上看到了这个小提示，说实话，它太好了，不能不分享。
+尽管我学到了很多东西，我还是不愿意写任何关于园艺的东西，因为这是一个非常复杂的主题，而且对它感兴趣的人都非常 T2(我不想惹恼他们)。但是昨天我在推特上看到了这个小提示，说实话，它太好了，不能不分享。
 
  [https://lifehacker.com/embed/inset/iframe?id=twitter-1418309022143455238&autosize=1](https://lifehacker.com/embed/inset/iframe?id=twitter-1418309022143455238&autosize=1) 
 

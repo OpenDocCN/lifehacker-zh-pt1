@@ -1,6 +1,6 @@
 # 用发带挂一条孩子可以拿到的毛巾
 
-> 原文:[https://life hacker . com/use-a hair-tie-to-hang-a毛巾-your-kid-can-reach-1846220819](https://lifehacker.com/use-a-hair-tie-to-hang-a-towel-your-kid-can-reach-1846220819)
+> 原文：<https://lifehacker.com/use-a-hair-tie-to-hang-a-towel-your-kid-can-reach-1846220819>
 
 对于小孩子来说，即使是最基本的家务也是一个挑战。这至少在一定程度上是因为住宅是为了让中等身材的成年人最有效地使用而建造的——从台面和水槽到马桶和门把手的所有东西都被放置在最适合我们舒适的高度，这通常意味着它们太高了，小孩子无法舒适地够到。在手巾架太高的情况下，这可能意味着毛巾被反复拉下，使用，然后丢弃在水槽或地板上。
 

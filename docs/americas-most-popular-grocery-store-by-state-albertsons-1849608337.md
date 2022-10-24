@@ -1,15 +1,15 @@
 # 每个州最受欢迎的杂货店
 
-> 原文:[https://the take out . com/Americas-most-popular-杂货店-by-state-albertsons-1849608337](https://thetakeout.com/americas-most-popular-grocery-store-by-state-albertsons-1849608337)
+> 原文：<https://thetakeout.com/americas-most-popular-grocery-store-by-state-albertsons-1849608337>
 
-杂货店:巨大的地域差异。尽管我们喜欢阐述关于 [哪一个是最好的](https://thetakeout.com/which-grocery-store-is-best-1839802456) ，Iinformation insightsplatformWiseVoter最近通过各州实际的客流量调查了 [最受欢迎的杂货店](https://wisevoter.com/report/most-popular-grocery-store-by-state/) 。据该网站称，自去年以来，杂货店的客流量增加了2.9%。以下是关于上面这张地图的一些其他有趣的花絮:
+杂货店:巨大的地域差异。尽管我们喜欢阐述关于 [哪一个是最好的](https://thetakeout.com/which-grocery-store-is-best-1839802456) ，Iinformation insightsplatformWiseVoter 最近通过各州实际的客流量调查了 [最受欢迎的杂货店](https://wisevoter.com/report/most-popular-grocery-store-by-state/) 。据该网站称，自去年以来，杂货店的客流量增加了 2.9%。以下是关于上面这张地图的一些其他有趣的花絮:
 
-*   艾伯森清理了西部的大片区域，Hy- Vee占据了M idwest 的大部分，Meijer、Kroger、Safeway、和Food Lion在各自的区域占据主导地位。
+*   艾伯森清理了西部的大片区域，Hy- Vee 占据了 M idwest 的大部分，Meijer、Kroger、Safeway、和 Food Lion 在各自的区域占据主导地位。
 *   明智的选民报告列出了每个州最受欢迎的五家杂货店(或者至少是最常光顾的)，怀俄明州只有一家，而北达科他州只有两家，分别是和。这两个州都有艾伯森位居榜首； 北达科他州也有弗雷德。缅因州也只有两家商店上市:乔氏和冯斯。所有这些都非常不同，但相似之处在于，这些商店听起来都像是由一个强大的农产品主经营的。
-*   在马里兰州和弗吉尼亚州有一家名为Harris Teeter的杂货店，这是了解杂货店可以有全名的一种令人难以置信的方式。一个杂货店就可以叫“Rima Parikh ”？名人知道这件事吗？这对他们来说到底是不是一个商机？如果你可以去一个叫“丹尼斯·罗德曼”的地方摘橘子，会怎么样？
+*   在马里兰州和弗吉尼亚州有一家名为 Harris Teeter 的杂货店，这是了解杂货店可以有全名的一种令人难以置信的方式。一个杂货店就可以叫“Rima Parikh ”？名人知道这件事吗？这对他们来说到底是不是一个商机？如果你可以去一个叫“丹尼斯·罗德曼”的地方摘橘子，会怎么样？
 *   说到听起来像某人全名的商店，小猪扭扭应该是全国性的。更多的杂货店应该有动物相关的名字。美食之狮不是小猪扭扭，但至少它很有趣！
 *   珠宝-奥斯科至高无上！珠宝-奥斯科至高无上！(我来自伊利诺伊州。)
-*   乔氏在加利福尼亚州和缅因州的客流量都位居第一，在其他几个州(T4)的客流量也排在前五名。作为一个小吃商场，这是有道理的，但就产品而言，我总是发现TJ有点缺乏。也许这因地点而异，或者也许是因为我的记忆被我20出头时在那里买的大量袋装冷冻意大利面玷污了。
+*   乔氏在加利福尼亚州和缅因州的客流量都位居第一，在其他几个州(T4)的客流量也排在前五名。作为一个小吃商场，这是有道理的，但就产品而言，我总是发现 TJ 有点缺乏。也许这因地点而异，或者也许是因为我的记忆被我 20 出头时在那里买的大量袋装冷冻意大利面玷污了。
 
 Watch
 

@@ -1,12 +1,12 @@
 # 不同类型的疗法(以及它们是如何工作的)
 
-> 原文:[https://life hacker . com/the-different-type-of-therapy-and-how-they-they-works-1847279080](https://lifehacker.com/the-different-types-of-therapy-and-how-they-work-1847279080)
+> 原文：<https://lifehacker.com/the-different-types-of-therapy-and-how-they-work-1847279080>
 
-我们中的许多人，总有一天会需要治疗来度过困难时期。然而，治疗不是放之四海而皆准的方法，也不是每个治疗师都适合每个病人。有许多不同的疗法可供选择，从认知行为疗法到EMDR，再到心理动力学。
+我们中的许多人，总有一天会需要治疗来度过困难时期。然而，治疗不是放之四海而皆准的方法，也不是每个治疗师都适合每个病人。有许多不同的疗法可供选择，从认知行为疗法到 EMDR，再到心理动力学。
 
 Watch
 
-如果你对所有的选择感到困惑，你不需要T2。是的，有许多不同类型的治疗，但区别并没有你想象的那么严格，因为许多治疗师至少在两种方法上受过训练。
+如果你对所有的选择感到困惑，你不需要 T2。是的，有许多不同类型的治疗，但区别并没有你想象的那么严格，因为许多治疗师至少在两种方法上受过训练。
 
 ## 治疗师经常在治疗类型之间切换
 
@@ -30,19 +30,19 @@ Watch
 
 ## **什么是认知行为疗法？**
 
-[认知行为疗法](https://www.apa.org/ptsd-guideline/patients-and-families/cognitive-behavioral) 是一种较为知名的疗法，用于治疗抑郁症、焦虑症、物质滥用、婚姻问题、饮食失调以及严重精神疾病等问题。CBT致力于改变功能失调的思维和行为模式，并帮助患者创造应对技能。
+[认知行为疗法](https://www.apa.org/ptsd-guideline/patients-and-families/cognitive-behavioral) 是一种较为知名的疗法，用于治疗抑郁症、焦虑症、物质滥用、婚姻问题、饮食失调以及严重精神疾病等问题。CBT 致力于改变功能失调的思维和行为模式，并帮助患者创造应对技能。
 
 ## **什么是认知加工疗法？**
 
-[认知处理疗法](https://www.apa.org/ptsd-guideline/treatments/cognitive-processing-therapy) y是CBT的一个子集，有助于减轻后创伤应激障碍(PTSD)的症状。CPT的工作原理是帮助病人学会识别和修正对他们的创伤无益的信念。
+[认知处理疗法](https://www.apa.org/ptsd-guideline/treatments/cognitive-processing-therapy) y 是 CBT 的一个子集，有助于减轻后创伤应激障碍(PTSD)的症状。CPT 的工作原理是帮助病人学会识别和修正对他们的创伤无益的信念。
 
 ## **什么是辩证行为疗法？**
 
 [辩证行为疗法](https://www.psychologytoday.com/us/therapy-types/dialectical-behavior-therapy) 通过专注于四个关键领域:正念、痛苦承受力、情绪调节和人际关系有效性，帮助患者管理痛苦的情绪，减少关系中的冲突。
 
-## 什么是EMDR？
+## 什么是 EMDR？
 
-[EMDR疗法](https://www.apa.org/ptsd-guideline/treatments/eye-movement-reprocessing) 是眼球运动脱敏和再加工的简称，通过鼓励患者短暂专注于创伤记忆来治疗症状，同时体验双侧刺激，通常通过眼球运动，减少记忆的生动性和情感性。
+[EMDR 疗法](https://www.apa.org/ptsd-guideline/treatments/eye-movement-reprocessing) 是眼球运动脱敏和再加工的简称，通过鼓励患者短暂专注于创伤记忆来治疗症状，同时体验双侧刺激，通常通过眼球运动，减少记忆的生动性和情感性。
 
 ## 什么是家庭治疗？
 

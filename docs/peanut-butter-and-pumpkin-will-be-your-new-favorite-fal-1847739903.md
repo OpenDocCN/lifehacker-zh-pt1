@@ -1,8 +1,8 @@
 # 花生酱和南瓜将会是你秋季的新宠三明治
 
-> 原文:[https://life hacker . com/peanut-butter-and-pumpkin-will-be-your ' s new-fall-1847739903](https://lifehacker.com/peanut-butter-and-pumpkin-will-be-your-new-favorite-fal-1847739903)
+> 原文：<https://lifehacker.com/peanut-butter-and-pumpkin-will-be-your-new-favorite-fal-1847739903>
 
-正如我们在外卖店的同事指出的，在我们所有人的 中都有一个 [怪异的花生酱三明治。对我母亲来说，这意味着在她20年公立学校教师生涯的每一天，她都要带一份花生酱和泡菜三明治作为午餐*。正如她经常指出的，她从来不担心有人偷她的午餐。*](https://thetakeout.com/weird-peanut-butter-sandwich-bacon-mayo-chia-1839445425) 
+正如我们在外卖店的同事指出的，在我们所有人的 中都有一个 [怪异的花生酱三明治。对我母亲来说，这意味着在她 20 年公立学校教师生涯的每一天，她都要带一份花生酱和泡菜三明治作为午餐*。正如她经常指出的，她从来不担心有人偷她的午餐。*](https://thetakeout.com/weird-peanut-butter-sandwich-bacon-mayo-chia-1839445425) 
 
 Watch
 
@@ -20,10 +20,10 @@ Watch
 
 ## 佐料
 
-*   2汤匙天然奶油花生酱
-*   2汤匙罐装南瓜
-*   1汤匙蜂蜜
-*   1/2茶匙南瓜派香料
+*   2 汤匙天然奶油花生酱
+*   2 汤匙罐装南瓜
+*   1 汤匙蜂蜜
+*   1/2 茶匙南瓜派香料
 *   切片香蕉(可选)
 *   四片面包(最好是烤面包)
 

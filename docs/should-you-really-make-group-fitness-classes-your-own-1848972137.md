@@ -1,12 +1,12 @@
 # 你真的应该让集体健身课成为“你自己的”吗？
 
-> 原文:[https://life hacker . com/should-you-really-make-group-fitness-classes-your-own-1848972137](https://lifehacker.com/should-you-really-make-group-fitness-classes-your-own-1848972137)
+> 原文：<https://lifehacker.com/should-you-really-make-group-fitness-classes-your-own-1848972137>
 
-在一个完美的世界里，健康应该归结为建立一种习惯和挑战你的身体[。可惜，](https://lifehacker.com/dont-overthink-these-things-when-youre-getting-into-fit-1848957097) [a组健身班](https://lifehacker.com/how-to-join-a-group-fitness-class-alone-1841581847) 很少是完美世界。无论你是报名参加 [普拉提](https://lifehacker.com/what-to-know-your-first-time-at-pilates-class-1825362143)[Crossfit](https://lifehacker.com/what-to-know-your-first-time-trying-crossfit-1820799104)，还是任何其他 [团体锻炼体验](https://lifehacker.com/when-group-classes-help-and-when-they-hurt-1706231508) ，都很容易让你的小我碍事。
+在一个完美的世界里，健康应该归结为建立一种习惯和挑战你的身体[。可惜，](https://lifehacker.com/dont-overthink-these-things-when-youre-getting-into-fit-1848957097) [a 组健身班](https://lifehacker.com/how-to-join-a-group-fitness-class-alone-1841581847) 很少是完美世界。无论你是报名参加 [普拉提](https://lifehacker.com/what-to-know-your-first-time-at-pilates-class-1825362143)[Crossfit](https://lifehacker.com/what-to-know-your-first-time-trying-crossfit-1820799104)，还是任何其他 [团体锻炼体验](https://lifehacker.com/when-group-classes-help-and-when-they-hurt-1706231508) ，都很容易让你的小我碍事。
 
 Watch
 
-这个帖子的灵感来自于 [这个r/Yoga thread](https://www.reddit.com/r/yoga/comments/uhfwpf/does_this_annoy_you_students_not_following_the/) ，在这里，当其他人在集体瑜伽课上做自己的姿势而忽视指导时，发帖人很恼火。对面在r/Crossfit，有一种 [常见的](https://www.reddit.com/r/crossfit/comments/2hvwj0/fellow_crossfitters_cheating_during_wods_should/) [抱怨](https://www.reddit.com/r/crossfit/comments/lntwwr/anyone_else_feel_like_cheating_is_out_of_control/) 关于看别人 [【作弊】自己健身](https://www.reddit.com/r/crossfit/comments/cky7mn/cheating_at_wods/) 。我很同情这种挫败感:为什么别人可以创造令人印象深刻的数字，而你是遵守规则的笨蛋？
+这个帖子的灵感来自于 [这个 r/Yoga thread](https://www.reddit.com/r/yoga/comments/uhfwpf/does_this_annoy_you_students_not_following_the/) ，在这里，当其他人在集体瑜伽课上做自己的姿势而忽视指导时，发帖人很恼火。对面在 r/Crossfit，有一种 [常见的](https://www.reddit.com/r/crossfit/comments/2hvwj0/fellow_crossfitters_cheating_during_wods_should/) [抱怨](https://www.reddit.com/r/crossfit/comments/lntwwr/anyone_else_feel_like_cheating_is_out_of_control/) 关于看别人 [【作弊】自己健身](https://www.reddit.com/r/crossfit/comments/cky7mn/cheating_at_wods/) 。我很同情这种挫败感:为什么别人可以创造令人印象深刻的数字，而你是遵守规则的笨蛋？
 
 这就是为什么你应该控制自己的判断，学会在任何一种集体锻炼中关注自己。
 
@@ -28,7 +28,7 @@ Watch
 
 然而，在同一个例子中，假设屏住五次呼吸对你来说太有挑战性或者太无聊了。尽你所能做一个合适的替换，比如在那段时间内保持一个相邻的姿势。
 
-在像Crossfit这样竞争更加激烈的环境中，看到其他人“作弊”是再平常不过的事情了他们会牺牲自己的状态，然后报告破纪录的重复次数。**这个人只是在欺骗自己**(假设你没有欺骗团队成员或在比赛中主动接受评判)。所以，如果这个人是你:问问你自己，为什么你觉得有必要关注数字而不是锻炼的质量。你在阻碍自己的进步，不管是身体上还是精神上。
+在像 Crossfit 这样竞争更加激烈的环境中，看到其他人“作弊”是再平常不过的事情了他们会牺牲自己的状态，然后报告破纪录的重复次数。**这个人只是在欺骗自己**(假设你没有欺骗团队成员或在比赛中主动接受评判)。所以，如果这个人是你:问问你自己，为什么你觉得有必要关注数字而不是锻炼的质量。你在阻碍自己的进步，不管是身体上还是精神上。
 
 ## 如果修饰语困扰你:关注你自己
 
@@ -36,7 +36,7 @@ Watch
 
 除非对你的锻炼有害，否则不值得说出来。如果这有助于培养你的判断力，那么这样想:当你注意到有人在锻炼中作弊或自私地炫耀时，团队中的其他人很可能也注意到了，也是。
 
-不过，总的来说，讨厌的人是练习成为一个更有风度的人的绝佳机会。一位自称是瑜伽老师的Reddit评论者这样说:
+不过，总的来说，讨厌的人是练习成为一个更有风度的人的绝佳机会。一位自称是瑜伽老师的 Reddit 评论者这样说:
 
 “也许他们需要修改以适应伤病，就像其他人说的那样。也许他们的肩膀受伤了，他们正在添加一个捆绑或扭转，试图放松它。也许他们在上课中途意识到他们的腿筋真的很紧，因为他们在睡觉前要放松一下，所以他们想消除这种紧张。也许他们独自生活，在家工作，而上课对他们来说更多的是人际关系，而不是遵循老师的指导。也许他们刚刚学会如何做倒立，他们真的很自豪，并想向他们认为会理解他们兴奋的人炫耀一下。也许他们真的更喜欢强流课程，但他们做两份工作，这是唯一适合他们的上课时间。”
 

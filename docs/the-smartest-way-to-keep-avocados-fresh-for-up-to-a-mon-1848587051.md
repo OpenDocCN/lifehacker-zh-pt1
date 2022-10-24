@@ -1,8 +1,8 @@
 # 保持鳄梨新鲜长达一个月的最聪明方法[更新]
 
-> 原文:[https://life hacker . com/the-smartest-way-to-up-a-mon-1848587051](https://lifehacker.com/the-smartest-way-to-keep-avocados-fresh-for-up-to-a-mon-1848587051)
+> 原文：<https://lifehacker.com/the-smartest-way-to-keep-avocados-fresh-for-up-to-a-mon-1848587051>
 
-*更新，2022年6月1日:FDA* [*建议不要将鳄梨储存在水中*](https://lifehacker.com/why-you-shouldnt-store-your-avocados-in-water-after-all-1849001266?rev=1654102413314) *，因为这可能会导致李斯特菌和其他有机体的细菌生长，潜在地使你生病。冷藏鳄梨不加水也没关系。原文如下。*
+*更新，2022 年 6 月 1 日:FDA* [*建议不要将鳄梨储存在水中*](https://lifehacker.com/why-you-shouldnt-store-your-avocados-in-water-after-all-1849001266?rev=1654102413314) *，因为这可能会导致李斯特菌和其他有机体的细菌生长，潜在地使你生病。冷藏鳄梨不加水也没关系。原文如下。*
 
 Watch
 
@@ -16,7 +16,7 @@ Watch
 
 正如她的照片所展示的那样，她能够将整个鳄梨浸泡在水中，在冰箱里储存几个星期。正如最近一篇 [文章](https://food52.com/blog/27146-tiktok-avocado-storage-hack) 中所报道的 [The Kitchn](https://www.thekitchn.com/) ，这一黑客行为在推特上被多人证实是合法的，其中包括作家 [阿什利·福特](https://twitter.com/iSmashFizzle) 。
 
-在Southern Living 的另一篇 [文章中，他们进一步测试了这种技术，看看它与在柜台上或冰箱里储存鳄梨相比如何，但没有将它们浸泡在水中。根据他们的说法，将鳄梨储存在冰箱里的水中，可以显著延长鳄梨成熟的时间。柜台上的鳄梨变坏的最快，干的鳄梨在冰箱里保存的时间稍长，但放在冰箱里的水中的鳄梨保持新鲜的时间最长。](https://www.southernliving.com/food/fruits/avocado/storing-avocados-in-water)
+在 Southern Living 的另一篇 [文章中，他们进一步测试了这种技术，看看它与在柜台上或冰箱里储存鳄梨相比如何，但没有将它们浸泡在水中。根据他们的说法，将鳄梨储存在冰箱里的水中，可以显著延长鳄梨成熟的时间。柜台上的鳄梨变坏的最快，干的鳄梨在冰箱里保存的时间稍长，但放在冰箱里的水中的鳄梨保持新鲜的时间最长。](https://www.southernliving.com/food/fruits/avocado/storing-avocados-in-water)
 
 ## **如何让你的鳄梨更快成熟**
 

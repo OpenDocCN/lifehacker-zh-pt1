@@ -1,6 +1,6 @@
 # 你应该在奶酪薯片里炸东西
 
-> 原文:[https://life hacker . com/you-should-fry-stuff-stuff-your ' s cheese-crips-1847712396](https://lifehacker.com/you-should-fry-stuff-in-your-cheese-crisps-1847712396)
+> 原文：<https://lifehacker.com/you-should-fry-stuff-in-your-cheese-crisps-1847712396>
 
 很难出错，又名奶酪薯片，又名一堆在锅里炸过的碎奶酪，所以你会觉得你在吃比一堆碎奶酪更美味的东西。这是一种非常完美的小吃，我不认为还有比更好的了，直到我的朋友丹妮尔给我发了一张抖音，上面有一个人在做“墨西哥辣香肠脆皮奶酪”
 
@@ -12,4 +12,4 @@ Watch [https://lifehacker.com/embed/inset/iframe?id=tiktok-6999327381303332101&a
 
 即使你没有空气油炸锅，你也应该把东西放进你的冰箱里。我用不粘锅做，这很简单。只需在中火上撒一些奶酪( [)最好是预先切好丝的](https://lifehacker.com/two-tips-for-better-cheese-crisps-1792797028) )到锅中，确保在一些丝之间留有间隙，以帮助创建一个松脆的网状结构。然后加上你的“东西”我点了培根片和切得很细的葱。像凯文的意大利辣香肠这样油腻的肉效果特别好，因为它们释放的油脂有助于油炸奶酪。
 
-一旦奶酪变成金棕色，就把它从锅里拿出来，转移到盘子里，让它完全变脆。我做了很多frico，也吃过很多frico，我发现木质筷子很容易拿走。重复，直到你没有奶酪了，然后去买更多的奶酪。
+一旦奶酪变成金棕色，就把它从锅里拿出来，转移到盘子里，让它完全变脆。我做了很多 frico，也吃过很多 frico，我发现木质筷子很容易拿走。重复，直到你没有奶酪了，然后去买更多的奶酪。

@@ -1,6 +1,6 @@
 # 停止杀死室内植物(转而创造一个自我维持的生态圈)
 
-> 原文:[https://life hacker . com/stop-killing-house plants-create-a-self-sustain-ecos-1848018886](https://lifehacker.com/stop-killing-houseplants-create-a-self-sustaining-ecos-1848018886)
+> 原文：<https://lifehacker.com/stop-killing-houseplants-create-a-self-sustaining-ecos-1848018886>
 
 尽管我会努力让我的室内植物存活，但我不是一个天生的植物妈妈。如果你也同样无能，但仍想在家中保留一小块自然，让我向你展示:光荣的生态圈。
 
@@ -16,7 +16,7 @@ Watch
 
 你可以了解 [它们如何在这里工作](https://eco-sphere.com/care/) 的科学，但你需要知道的是，当它们被正确设置时，一个生态圈自身的植物、沉积物和动物提供了环境生存所需的一切。它们不需要喂养、过滤或除了阳光之外的任何东西来茁壮成长，它们可以持续几年。
 
-生态球也很时髦。一整年，我都收到针对封闭生态系统的定向广告 [你可以购买](https://eco-sphere.com/about-the-ecosphere-closed-ecosystem/) 并直接送货上门，但就个人而言，我更感兴趣的是自己动手制作的成就感。但是，如果你在寻找一种有保证的美感，网上就不缺乏生态圈(尤其是在Etsy这样的手工艺网站上)。
+生态球也很时髦。一整年，我都收到针对封闭生态系统的定向广告 [你可以购买](https://eco-sphere.com/about-the-ecosphere-closed-ecosystem/) 并直接送货上门，但就个人而言，我更感兴趣的是自己动手制作的成就感。但是，如果你在寻找一种有保证的美感，网上就不缺乏生态圈(尤其是在 Etsy 这样的手工艺网站上)。
 
 ## 制作自己生态圈的(简要)指南
 

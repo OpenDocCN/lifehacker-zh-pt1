@@ -1,6 +1,6 @@
 # 不涉及耳朵的十种令人惊讶的使用棉签的方法
 
-> 原文:[https://life hacker . com/10-surprise-ways-to-use-q-tips-that-done-contain-your-1849500647](https://lifehacker.com/10-surprising-ways-to-use-q-tips-that-dont-involve-your-1849500647)
+> 原文：<https://lifehacker.com/10-surprising-ways-to-use-q-tips-that-dont-involve-your-1849500647>
 
 棉签是为了某个目的 [而经常购买的一系列产品中的一种，它们明确地*而不是*用于](https://www.washingtonpost.com/news/wonk/wp/2016/01/20/we-have-a-q-tips-problem/) (说真的——[不要用它们清理耳朵](https://lifehacker.com/how-to-clean-your-ears-if-youre-not-supposed-to-use-q-t-1839961798) )。但是如果你不应该用棉签清理耳朵，那它们有什么意义呢？嗯，它们最初被推销为一种安全的方式，可以用你需要的所有东西擦洗婴儿，而且它们显然与许多美容产品一起使用。但是普通的棉签比你想象的有更多的用途。
 
@@ -14,7 +14,7 @@ Watch
 
 ## 细节设计
 
-棉签绝对是任何特写细节的理想选择。Q-tips和一点清洁溶液非常适合进入任何微小的缝隙或裂缝，以消除灰尘和污垢。可以用棉签有效清洁的东西不胜枚举:吹风机、空调通风口、耳塞(很快就会变成耳朵污垢的噩梦)、电灯开关、键盘等等。
+棉签绝对是任何特写细节的理想选择。Q-tips 和一点清洁溶液非常适合进入任何微小的缝隙或裂缝，以消除灰尘和污垢。可以用棉签有效清洁的东西不胜枚举:吹风机、空调通风口、耳塞(很快就会变成耳朵污垢的噩梦)、电灯开关、键盘等等。
 
 ## 画笔
 

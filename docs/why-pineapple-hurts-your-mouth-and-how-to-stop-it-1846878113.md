@@ -1,6 +1,6 @@
 # 菠萝为什么会伤嘴(以及如何阻止)
 
-> 原文:[https://life hacker . com/why-菠萝伤你的嘴和如何停止它-1846878113](https://lifehacker.com/why-pineapple-hurts-your-mouth-and-how-to-stop-it-1846878113)
+> 原文：<https://lifehacker.com/why-pineapple-hurts-your-mouth-and-how-to-stop-it-1846878113>
 
 任何在一堆新鲜菠萝中艰难前行的人都很可能感受到它的刺痛。吃太多的水果会让你的嘴有被刮伤的感觉，当你考虑到水果应该是“对你有益”的时候，这就是相当的背叛。
 

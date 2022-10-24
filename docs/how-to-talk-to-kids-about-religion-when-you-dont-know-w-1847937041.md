@@ -1,12 +1,12 @@
 # 当你不知道该说什么时，如何和孩子谈论宗教
 
-> 原文:[https://life hacker . com/how-to-talk-to-kids-when you-not-know-w-1847937041](https://lifehacker.com/how-to-talk-to-kids-about-religion-when-you-dont-know-w-1847937041)
+> 原文：<https://lifehacker.com/how-to-talk-to-kids-about-religion-when-you-dont-know-w-1847937041>
 
-“上帝是什么？我们死后会发生什么？我们为什么不像爷爷奶奶那样去教堂呢？”不管你是否信教，处理孩子提出的关于信仰的令人惊讶的问题会让你措手不及。幸运的是，作家兼育儿专家温迪·托马斯·拉塞尔已经亲身经历过这一经历，并有一些深刻的建议可以分享。请听最新一集的 *The Upgrade* 听Wendy讨论与孩子讨论不同宗教时的最佳方法和心态，如何帮助孩子理解信仰与事实或虚构之间的区别，以及开始讨论信仰概念的理想年龄。
+“上帝是什么？我们死后会发生什么？我们为什么不像爷爷奶奶那样去教堂呢？”不管你是否信教，处理孩子提出的关于信仰的令人惊讶的问题会让你措手不及。幸运的是，作家兼育儿专家温迪·托马斯·拉塞尔已经亲身经历过这一经历，并有一些深刻的建议可以分享。请听最新一集的 *The Upgrade* 听 Wendy 讨论与孩子讨论不同宗教时的最佳方法和心态，如何帮助孩子理解信仰与事实或虚构之间的区别，以及开始讨论信仰概念的理想年龄。
 
 Watch
 
-温迪是一名前记者，也是独立图书出版商Brown Paper Press的创始人，著有《放松，这只是上帝:当你不信教时，如何和为什么与你的孩子谈论宗教》 *，*以及屡获殊荣的 [*ParentShift:将改变你抚养孩子方式的十个普遍真理*](https://www.amazon.com/ParentShift-Universal-Truths-Change-Raise/dp/194193210X/ref=tmm_pap_swatch_0?_encoding=UTF8&asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-talk-to-kids-about-religion-when-you-dont-know-w-1847937041&asc_source=&qid=&sr=&tag=kinjalifehackerlink-20) *。*
+温迪是一名前记者，也是独立图书出版商 Brown Paper Press 的创始人，著有《放松，这只是上帝:当你不信教时，如何和为什么与你的孩子谈论宗教》 *，*以及屡获殊荣的 [*ParentShift:将改变你抚养孩子方式的十个普遍真理*](https://www.amazon.com/ParentShift-Universal-Truths-Change-Raise/dp/194193210X/ref=tmm_pap_swatch_0?_encoding=UTF8&asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-talk-to-kids-about-religion-when-you-dont-know-w-1847937041&asc_source=&qid=&sr=&tag=kinjalifehackerlink-20) *。*
 
 [https://art19.com/shows/96bf1671-b079-4f44-b7d2-e95d655de263/episodes/35aab92a-205e-4412-ac02-02c535c46391/embed](https://art19.com/shows/96bf1671-b079-4f44-b7d2-e95d655de263/episodes/35aab92a-205e-4412-ac02-02c535c46391/embed)
 
@@ -26,7 +26,7 @@ T2】
 
 温迪，关于找到合适的年龄开始和孩子谈论宗教:
 
-> 我想我有两个答案，因为我不认为有一个完美的答案。一是你可以等他们提出来。以我的经验，你应该已经准备好答案了。所以，也许你会事先考虑到这一点，然后当他们提出来时，你可以说，“太好了，我很高兴你提出来，让我们谈谈吧。”你可以这么做。或者你可以从他们理解事实虚构和信仰之间的区别开始。这就是为什么这是一个如此有趣的游戏，就像四岁的时候，他们对超自然现象和类似的大主题表现出兴趣，我的意思是，我觉得一般来说四至五岁将是黄金时间，但它可能会早一点，也可能会晚一点。我认为你对孩子有所了解，他们也对此感兴趣。所以这就是为什么我不认为有一个完美的答案，但我认为在这个年龄，这真的很好。你不想等太久，因为根据我的经验，他们会在12点左右停止听你说话。你不再影响他们了。
+> 我想我有两个答案，因为我不认为有一个完美的答案。一是你可以等他们提出来。以我的经验，你应该已经准备好答案了。所以，也许你会事先考虑到这一点，然后当他们提出来时，你可以说，“太好了，我很高兴你提出来，让我们谈谈吧。”你可以这么做。或者你可以从他们理解事实虚构和信仰之间的区别开始。这就是为什么这是一个如此有趣的游戏，就像四岁的时候，他们对超自然现象和类似的大主题表现出兴趣，我的意思是，我觉得一般来说四至五岁将是黄金时间，但它可能会早一点，也可能会晚一点。我认为你对孩子有所了解，他们也对此感兴趣。所以这就是为什么我不认为有一个完美的答案，但我认为在这个年龄，这真的很好。你不想等太久，因为根据我的经验，他们会在 12 点左右停止听你说话。你不再影响他们了。
 
 想听更多温迪关于和孩子谈论宗教的精彩建议，我们建议听完整集。
 

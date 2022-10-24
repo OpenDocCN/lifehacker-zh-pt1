@@ -1,18 +1,18 @@
 # 如果你被困在汹涌的人群中，像在《星际世界》中一样，该怎么办
 
-> 原文:[https://life hacker . com/what-do-if-you-ever-do-if-if-you-ever-tweet-in-a-urging-crowd-Li-1848034255](https://lifehacker.com/what-to-do-if-youre-ever-trapped-in-a-surging-crowd-li-1848034255)
+> 原文：<https://lifehacker.com/what-to-do-if-youre-ever-trapped-in-a-surging-crowd-li-1848034255>
 
-上周，在休斯顿天文节上的一场Travis Scott表演中，当拥挤的人群涌向舞台时，8人死亡，数百人受伤。许多与会者上传了令人不安、令人恐惧的片段，这些片段显示，斯科特继续表演时，音乐会观众在努力寻求帮助。随着悲剧的发生，需要追究责任，从荒谬的 [邪恶的阴谋论](https://www.theguardian.com/us-news/2021/nov/09/astroworld-disaster-fuels-wave-of-satanic-conspiracy-theories-on-tiktok) ，到——更恰当地说——事件组织者的毫无准备。目前已有超过20起诉讼指控组织者未能采取简单的人群控制措施或工作人员不当。
+上周，在休斯顿天文节上的一场 Travis Scott 表演中，当拥挤的人群涌向舞台时，8 人死亡，数百人受伤。许多与会者上传了令人不安、令人恐惧的片段，这些片段显示，斯科特继续表演时，音乐会观众在努力寻求帮助。随着悲剧的发生，需要追究责任，从荒谬的 [邪恶的阴谋论](https://www.theguardian.com/us-news/2021/nov/09/astroworld-disaster-fuels-wave-of-satanic-conspiracy-theories-on-tiktok) ，到——更恰当地说——事件组织者的毫无准备。目前已有超过 20 起诉讼指控组织者未能采取简单的人群控制措施或工作人员不当。
 
 Watch
 
 如果做得好，成为一大群人中的一员会是一次令人振奋的经历。但是当一群人开始感到危险的时候呢？你怎么知道人群太密集了？有什么方法可以在一大堆人推你的时候保持安全呢？
 
-虽然被困在一大群人中的想法看起来很无助，但作为一个个体，在这种情况下有一些保护自己的技巧。2019年，我们采访了人群专家保罗·韦特海默，他讲述了 [如何在人群拥挤](https://lifehacker.com/how-to-survive-a-human-stampede-1832365793) 中幸存下来。鉴于最近的悲剧，这里有一些在人群中保持安全的额外建议。
+虽然被困在一大群人中的想法看起来很无助，但作为一个个体，在这种情况下有一些保护自己的技巧。2019 年，我们采访了人群专家保罗·韦特海默，他讲述了 [如何在人群拥挤](https://lifehacker.com/how-to-survive-a-human-stampede-1832365793) 中幸存下来。鉴于最近的悲剧，这里有一些在人群中保持安全的额外建议。
 
 ## 注意，并准备好在第一个危险信号出现时离开
 
-柏林研究人群行为的科学家迈赫迪·穆萨德[告诉NPR](https://www.npr.org/2021/11/09/1053828800/astroworld-travis-scott-crowd-safety-tips) “最重要的建议是要意识到如果你周围的人群太密集可能会有危险。”Moussaï检测人群密度的建议是检查你是否能感觉到人们同时在你的肩膀和身体的其他部位挤压你。如果四面八方都有压力，而你还有时间移动，那么你应该“离开”...那是一个警报信号。”相信你的直觉，趁还来得及，利用好退路。
+柏林研究人群行为的科学家迈赫迪·穆萨德[告诉 NPR](https://www.npr.org/2021/11/09/1053828800/astroworld-travis-scott-crowd-safety-tips) “最重要的建议是要意识到如果你周围的人群太密集可能会有危险。”Moussaï检测人群密度的建议是检查你是否能感觉到人们同时在你的肩膀和身体的其他部位挤压你。如果四面八方都有压力，而你还有时间移动，那么你应该“离开”...那是一个警报信号。”相信你的直觉，趁还来得及，利用好退路。
 
 ## **不要惊慌，保存氧气**
 
@@ -26,7 +26,7 @@ Watch
 
 ## **随波逐流**
 
-在与NPR 的采访 [中，赛义德解释了人群运动的动态:](https://www.npr.org/2021/11/09/1053828800/astroworld-travis-scott-crowd-safety-tips)
+在与 NPR 的采访 [中，赛义德解释了人群运动的动态:](https://www.npr.org/2021/11/09/1053828800/astroworld-travis-scott-crowd-safety-tips)
 
 > 在人群中，一切都是连锁反应。当你推你的邻居时，他们会推他们自己的邻居，最终会遇到障碍。然后推力被放大——它会回到你身上……在最糟糕的时刻，你会同时有多个推力波。这就是我们所说的人群动荡。你不想在两个波交叉的地方，因为压力来自相反的方向，那真的很危险。
 

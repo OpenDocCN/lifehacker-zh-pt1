@@ -1,8 +1,8 @@
 # 当你已经没有主意的时候，这个夏天该怎么对待你的孩子
 
-> 原文:[https://life hacker . com/what-do-with-your-kids-this-summer-when-you-ve-run-o-1849332390](https://lifehacker.com/what-to-do-with-your-kids-this-summer-when-you-ve-run-o-1849332390)
+> 原文：<https://lifehacker.com/what-to-do-with-your-kids-this-summer-when-you-ve-run-o-1849332390>
 
-你可能已经在夏天达到了这一点，当孩子们失去了他们对无限的屏幕时间，水球比赛，甚至是学校第一次放学时的游泳池的无拘无束的兴奋。(你已经失去了冷静裁判任天堂Switch时间和谁有更多零食的争吵的所有欲望。)这里有一些有用的、低维护成本的想法，可以打破夏季的沉闷，让小家伙们有事可做，而不用长途旅行、大量的金钱或Pinterest的学位。
+你可能已经在夏天达到了这一点，当孩子们失去了他们对无限的屏幕时间，水球比赛，甚至是学校第一次放学时的游泳池的无拘无束的兴奋。(你已经失去了冷静裁判任天堂 Switch 时间和谁有更多零食的争吵的所有欲望。)这里有一些有用的、低维护成本的想法，可以打破夏季的沉闷，让小家伙们有事可做，而不用长途旅行、大量的金钱或 Pinterest 的学位。
 
 Watch
 

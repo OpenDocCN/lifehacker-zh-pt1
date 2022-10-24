@@ -1,12 +1,12 @@
 # 如何让你的旧衣服远离垃圾填埋场
 
-> 原文:[https://life hacker . com/how-to-keep-your-old-clothing-out-of-the-fill-1848243520](https://lifehacker.com/how-to-keep-your-old-clothing-out-of-the-landfill-1848243520)
+> 原文：<https://lifehacker.com/how-to-keep-your-old-clothing-out-of-the-landfill-1848243520>
 
-大约一年一次，我清理衣柜里所有我不想要的衣服，不管是不再合身的牛仔裤，还是我已经穿得破烂不堪的t恤，或者是那件古怪的裙子，T2当时看起来是个好主意，但最终却成了中世纪的酷刑。保存其中一些物品很诱人，因为相信它*可能*有一天会有用，但我们都知道真相:那不太可能，与此同时，它是我不需要的额外杂物。
+大约一年一次，我清理衣柜里所有我不想要的衣服，不管是不再合身的牛仔裤，还是我已经穿得破烂不堪的 t 恤，或者是那件古怪的裙子，T2 当时看起来是个好主意，但最终却成了中世纪的酷刑。保存其中一些物品很诱人，因为相信它*可能*有一天会有用，但我们都知道真相:那不太可能，与此同时，它是我不需要的额外杂物。
 
 Watch
 
-摆脱旧衣服的主要挑战是以一种环境可持续的方式做到这一点，因为我们的衣服造成了大量的污染。纺织厂造成了大约五分之一的工业水污染， 使用了大约20，000种化学物质，其中许多对人体有害。据估计，纺织业也占全球碳排放量的10%。到了该扔掉这些旧衣服的时候，只有大约16%的旧衣服被回收利用，其余的要么被扔进垃圾填埋场，要么被焚化。
+摆脱旧衣服的主要挑战是以一种环境可持续的方式做到这一点，因为我们的衣服造成了大量的污染。纺织厂造成了大约五分之一的工业水污染， 使用了大约 20，000 种化学物质，其中许多对人体有害。据估计，纺织业也占全球碳排放量的 10%。到了该扔掉这些旧衣服的时候，只有大约 16%的旧衣服被回收利用，其余的要么被扔进垃圾填埋场，要么被焚化。
 
 所以，在你直奔垃圾站之前，考虑一下这些重复使用或回收旧衣服的方法。
 
@@ -14,7 +14,7 @@ Watch
 
 对于完好的，比较新的衣服，可以试着卖。这不仅能让你的旧衣服免于被填埋，还能给另一个人一个机会去买二手的，而不是新的，同时还能为你赚点外快。
 
-一些更受欢迎的出售旧衣服的网上选择 包括ThredUp、Depop、Poshmark和Vinted。如果你想留在当地，你也可以寻找任何寄售商店购买旧衣服。
+一些更受欢迎的出售旧衣服的网上选择 包括 ThredUp、Depop、Poshmark 和 Vinted。如果你想留在当地，你也可以寻找任何寄售商店购买旧衣服。
 
 ## **捐赠**
 
@@ -30,4 +30,4 @@ Watch
 
 ## **回收**
 
-不幸的是，回收旧衣服并不像把它扔进T2的回收箱那么简单。然而，回收纺织品是可能的——只是比回收玻璃或报纸稍微复杂一点。要找到你附近的纺织品回收中心，你可以使用 [Earth911](https://earth911.com/recycling-guide/how-to-recycle-clothing-accessories/) 的 [回收定位器](https://earth911.com/recycling-guide/how-to-recycle-clothing-accessories/#recycling-locator) 工具。也有付费的项目，比如TerraCycle，它提供了一个 [ZeroWaste纺织箱](https://zerowasteboxes.terracycle.com/products/fabrics-and-clothing-zero-waste-boxes) ，你在里面装满旧衣物，送进去，他们会帮你回收。
+不幸的是，回收旧衣服并不像把它扔进 T2 的回收箱那么简单。然而，回收纺织品是可能的——只是比回收玻璃或报纸稍微复杂一点。要找到你附近的纺织品回收中心，你可以使用 [Earth911](https://earth911.com/recycling-guide/how-to-recycle-clothing-accessories/) 的 [回收定位器](https://earth911.com/recycling-guide/how-to-recycle-clothing-accessories/#recycling-locator) 工具。也有付费的项目，比如 TerraCycle，它提供了一个 [ZeroWaste 纺织箱](https://zerowasteboxes.terracycle.com/products/fabrics-and-clothing-zero-waste-boxes) ，你在里面装满旧衣物，送进去，他们会帮你回收。

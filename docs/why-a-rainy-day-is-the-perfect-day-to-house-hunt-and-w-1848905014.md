@@ -1,6 +1,6 @@
 # 为什么下雨天是找房子的最佳时机(以及你在那里要找什么)
 
-> 原文:[https://life hacker . com/why-a-rain-day-is-the-fect-day-to-house-hunt-and-w-1848905014](https://lifehacker.com/why-a-rainy-day-is-the-perfect-day-to-house-hunt-and-w-1848905014)
+> 原文：<https://lifehacker.com/why-a-rainy-day-is-the-perfect-day-to-house-hunt-and-w-1848905014>
 
 在目前的市场上买房需要各种竞争优势，当你和其他潜在买家竞争时，似乎一刻也不能浪费。这意味着风雨无阻地参加开放参观和展览。
 

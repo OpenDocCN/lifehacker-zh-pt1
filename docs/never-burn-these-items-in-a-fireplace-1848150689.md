@@ -1,12 +1,12 @@
 # 切勿在壁炉中燃烧这些物品
 
-> 原文:[https://life hacker . com/never-burn-these-items-in-a-fire-1848150689](https://lifehacker.com/never-burn-these-items-in-a-fireplace-1848150689)
+> 原文：<https://lifehacker.com/never-burn-these-items-in-a-fireplace-1848150689>
 
 现在在许多地区是壁炉季节，这(希望)意味着蜷缩在温暖的壁炉前度过舒适的夜晚。或者，也许你正在打扫卫生，无意中发现了一堆前任的来信和礼物，出于其他不那么舒适的原因，你感到那股暖流在向你招手。
 
 Watch
 
-如果你有一个真正的烧木头的壁炉，你确实需要给它添柴——b但事实证明，你不能随便放入任何木头(或其他材料)做的东西就收工。事实上，根据Carol J. Alexander 在《农民年鉴》中的一篇文章 [，有一个完整的清单列出了木材和其他物品永远不应该进入壁炉。以下是远离这些火焰的方法。](https://www.farmersalmanac.com/fireplace-tips-65919)
+如果你有一个真正的烧木头的壁炉，你确实需要给它添柴——b 但事实证明，你不能随便放入任何木头(或其他材料)做的东西就收工。事实上，根据 Carol J. Alexander 在《农民年鉴》中的一篇文章 [，有一个完整的清单列出了木材和其他物品永远不应该进入壁炉。以下是远离这些火焰的方法。](https://www.farmersalmanac.com/fireplace-tips-65919)
 
 ## 潮湿或未风干的木材
 
@@ -26,7 +26,7 @@ Watch
 
 ## 印刷、彩色或涂层纸制品
 
-用普通的旧黑白报纸生火是可以的， [亚历山大说](https://www.farmersalmanac.com/fireplace-tips-65919) ，但是上面有任何印刷、着色或涂层的纸制品不应该放在壁炉里。即使它们是用大豆墨水打印的，纸张也可能含有颜料和其他添加剂，。据Alexander称，用于加厚礼品包装和直邮传单的涂层也不能完全燃烧。
+用普通的旧黑白报纸生火是可以的， [亚历山大说](https://www.farmersalmanac.com/fireplace-tips-65919) ，但是上面有任何印刷、着色或涂层的纸制品不应该放在壁炉里。即使它们是用大豆墨水打印的，纸张也可能含有颜料和其他添加剂，。据 Alexander 称，用于加厚礼品包装和直邮传单的涂层也不能完全燃烧。
 
 ## 塑料
 

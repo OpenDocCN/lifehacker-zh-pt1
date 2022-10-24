@@ -1,6 +1,6 @@
 # 什么是宫廷肉汤，你应该如何使用它？
 
-> 原文:[https://life hacker . com/what-is-court-bouillon-and-how-you-using-it-1848680921](https://lifehacker.com/what-is-court-bouillon-and-how-should-you-use-it-1848680921)
+> 原文：<https://lifehacker.com/what-is-court-bouillon-and-how-should-you-use-it-1848680921>
 
 从来没有人形容我“微妙”或“克制”，我有一种倾向，倾向于强烈的和(有时)与我的个性一样两极分化的风味特征。我喜欢大量的盐、酸、鲜味，以及美拉德反应带来的那些美丽的深色、烤味，但我仍然能够欣赏*简单*和*细微差别*。
 
@@ -16,9 +16,9 @@ Watch
 
 ## 如何制作宫廷肉汤
 
-这种东西有很多食谱，我觉得没有必要重新发明这个非常古老和受人尊敬的轮子。Epicurious有 [一个体面的](https://www.epicurious.com/recipes/food/views/court-bouillon-15210) ，就像 [云杉吃](https://www.thespruceeats.com/court-bouillon-recipe-996162) 一样，翻翻法国烹饪书你就能找到上百种迭代和变化。翻阅几本，找一本听起来很诱人的。
+这种东西有很多食谱，我觉得没有必要重新发明这个非常古老和受人尊敬的轮子。Epicurious 有 [一个体面的](https://www.epicurious.com/recipes/food/views/court-bouillon-15210) ，就像 [云杉吃](https://www.thespruceeats.com/court-bouillon-recipe-996162) 一样，翻翻法国烹饪书你就能找到上百种迭代和变化。翻阅几本，找一本听起来很诱人的。
 
-一旦你有了一个食谱，它就像切蔬菜一样简单，把你的小捆香草绑在一起，然后把所有的东西都放在一个汤锅里。将锅里的东西烧开，转小火慢炖，让它冒泡至少10分钟，或者一个小时。煨的时间因食谱不同而有很大差异，但我喜欢至少炖半个小时。(拿不准的时候，就给肉汤尝一点味道；你希望你的肉汤足够美味，以真正赋予你的蛋白质风味)。
+一旦你有了一个食谱，它就像切蔬菜一样简单，把你的小捆香草绑在一起，然后把所有的东西都放在一个汤锅里。将锅里的东西烧开，转小火慢炖，让它冒泡至少 10 分钟，或者一个小时。煨的时间因食谱不同而有很大差异，但我喜欢至少炖半个小时。(拿不准的时候，就给肉汤尝一点味道；你希望你的肉汤足够美味，以真正赋予你的蛋白质风味)。
 
 ## 如何使用宫廷肉汤
 

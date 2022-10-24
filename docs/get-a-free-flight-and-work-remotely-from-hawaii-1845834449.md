@@ -1,27 +1,27 @@
 # 获得免费机票，在夏威夷远程工作
 
-> 原文:[https://life hacker . com/get-a-free-flight-and-work-from-Hawaii-1845834449](https://lifehacker.com/get-a-free-flight-and-work-remotely-from-hawaii-1845834449)
+> 原文：<https://lifehacker.com/get-a-free-flight-and-work-remotely-from-hawaii-1845834449>
 
 如果你是一个厌倦了家里同一个阴暗角落的远程工作者，为什么不收拾行装搬到夏威夷去呢？政府计划为那些愿意在瓦胡岛生活和工作并为该州经济做出贡献的人提供州外偏远地区工人免费往返的机票。
 
 Watch
 
-一个名为“ [搬运工和沙卡斯](https://www.moversandshakas.org/) ”的临时居留项目正在接受第一批申请人，直到12月15日。你可以在这里 应用。最初将选择50人，尽管后来的申请者将被轮流接受。该计划还提供住宿和工作场所的折扣。
+一个名为“ [搬运工和沙卡斯](https://www.moversandshakas.org/) ”的临时居留项目正在接受第一批申请人，直到 12 月 15 日。你可以在这里 应用。最初将选择 50 人，尽管后来的申请者将被轮流接受。该计划还提供住宿和工作场所的折扣。
 
 根据该计划的常见问题，理想的候选人“是一个全职员工，可以灵活地在任何地方工作，生活在‘阿罗哈精神’中，并希望将自己投入到他们选择称为家的社区中。”
 
 ### 有什么好处？
 
-这并不是一个真正的收获，但如果被选中，你将有望加入该州的 [承诺我们的](https://www.moversandshakas.org/wp-content/uploads/2020/11/Pono-Pledge.pdf) 计划，该计划包括通过当地非营利组织，如夏威夷商会或夏威夷女童子军来志愿服务几个小时，以改善当地社区。夏威夷受到了疫情w 的打击，旅游业 ( [失业率为14.3%](https://www.hawaiinewsnow.com/2020/11/20/hawaiis-unemployment-rate-highest-nation-second-consecutive-month/) )
+这并不是一个真正的收获，但如果被选中，你将有望加入该州的 [承诺我们的](https://www.moversandshakas.org/wp-content/uploads/2020/11/Pono-Pledge.pdf) 计划，该计划包括通过当地非营利组织，如夏威夷商会或夏威夷女童子军来志愿服务几个小时，以改善当地社区。夏威夷受到了疫情 w 的打击，旅游业 ( [失业率为 14.3%](https://www.hawaiinewsnow.com/2020/11/20/hawaiis-unemployment-rate-highest-nation-second-consecutive-month/) )
 
-“除了为我们的当地企业带来宝贵的美元，真正的价值是带来有才华的知识工作者，他们将通过志愿者工作帮助建设我们的社区，并使我们的经济更具弹性，”该计划的创始人Richard Matsui[告诉CNN](https://www.cnn.com/2020/12/05/business/hawaii-free-trip-remote-workers-trnd/index.html) 。
+“除了为我们的当地企业带来宝贵的美元，真正的价值是带来有才华的知识工作者，他们将通过志愿者工作帮助建设我们的社区，并使我们的经济更具弹性，”该计划的创始人 Richard Matsui[告诉 CNN](https://www.cnn.com/2020/12/05/business/hawaii-free-trip-remote-workers-trnd/index.html) 。
 
 ### **要求和其他考虑事项**
 
 除了分享你的时间和技能，这个项目在申请前还有一些其他的要求和考虑。
 
-*   你必须是一个在美国的远程工作者，并且至少18岁。
+*   你必须是一个在美国的远程工作者，并且至少 18 岁。
 *   该项目不支持持工作签证在美国工作的人。
 *   如果被选中，你将有不到一个月的时间搬到夏威夷。
-*   参与者需要在夏威夷度过至少连续30天。
-*   虽然夏威夷的人均艾滋病感染率是全国最低的，但旅行限制仍然存在。当你到达时，必须进行14天的检疫，尽管在离开前向国家提供的阴性测试可能会允许游客和居民绕过检疫要求。
+*   参与者需要在夏威夷度过至少连续 30 天。
+*   虽然夏威夷的人均艾滋病感染率是全国最低的，但旅行限制仍然存在。当你到达时，必须进行 14 天的检疫，尽管在离开前向国家提供的阴性测试可能会允许游客和居民绕过检疫要求。

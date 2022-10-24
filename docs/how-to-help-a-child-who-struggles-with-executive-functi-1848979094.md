@@ -1,6 +1,6 @@
 # 如何帮助一个在执行功能上挣扎的孩子
 
-> 原文:[https://life hacker . com/how-to-help-a child-who-struggles-executive-functi-1848979094](https://lifehacker.com/how-to-help-a-child-who-struggles-with-executive-functi-1848979094)
+> 原文：<https://lifehacker.com/how-to-help-a-child-who-struggles-with-executive-functi-1848979094>
 
 执行功能可以被认为是 [大脑的管理者:](https://www.understood.org/en/articles/what-is-executive-function) It 是我们如何确定优先事项，制定如何完成工作的计划，并针对意外的复杂情况进行调整。做到这一点需要工作记忆、情绪自我调节和控制我们注意力的能力。有些孩子，尤其是患有多动症的孩子，可能会在执行功能上有困难。
 

@@ -1,6 +1,6 @@
 # 如何把你的花园软管变成压力清洗机
 
-> 原文:[https://life hacker . com/how-to-turn-your-garden-how-how-how-to-how-turn-your-garden-hose-a pressure-washer-1849165239](https://lifehacker.com/how-to-turn-your-garden-hose-into-a-pressure-washer-1849165239)
+> 原文：<https://lifehacker.com/how-to-turn-your-garden-hose-into-a-pressure-washer-1849165239>
 
 我算不上一个家政女神——我讨厌 [打扫](https://lifehacker.com/home/cleaning) ，我对放任自流 [收拾碗筷](https://lifehacker.com/the-life-changing-magic-of-tidying-up-mind-hacking-adv-1749135755) ，和我拿不满意从[厕所——擦洗](https://lifehacker.com/yes-you-can-clean-a-toilet-with-mouthwash-and-alka-sel-1840831991) 干得好。但有时，正如玛丽·波平斯所说，当有一项工作必须完成时，其中就有乐趣。提示我最喜欢的拖延工具:抖音清洁工具 [像这个](https://www.tiktok.com/@ocwarrior19/video/7110020140049239339?_t=8TIRts35lON&_r=1) ，它把一根软管和一些 肥皂变成一个压力垫圈。
 

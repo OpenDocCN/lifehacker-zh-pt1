@@ -1,6 +1,6 @@
 # 如何改善你们关系中的沟通
 
-> 原文:[https://life hacker . com/how-to-improve-communication-in-your-relationship-1849453668](https://lifehacker.com/how-to-improve-communication-in-your-relationship-1849453668)
+> 原文：<https://lifehacker.com/how-to-improve-communication-in-your-relationship-1849453668>
 
 显然，沟通是恋爱关系中的关键——那么如果你发现自己处于一段没有真正对话的恋爱关系中，你会怎么做？首先，我重要的是要记住这并不罕见。如果你已经谈过恋爱，尤其是长期的关系，很可能你已经经历了某种形式的沟通障碍。舒适的沉默是正常的，但是如果你们的关系完全沉默，或者除了逻辑和表面的话题，你们不能谈论任何其他事情，这可能意味着一个你不想忽视的更深层次的问题。
 

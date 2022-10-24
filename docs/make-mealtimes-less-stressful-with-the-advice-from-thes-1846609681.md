@@ -1,6 +1,6 @@
 # 根据这些播客的建议，减少用餐时间的压力
 
-> 原文:[https://life hacker . com/make-meal time-less-with-the-s-1846609681](https://lifehacker.com/make-mealtimes-less-stressful-with-the-advice-from-thes-1846609681)
+> 原文：<https://lifehacker.com/make-mealtimes-less-stressful-with-the-advice-from-thes-1846609681>
 
 当我们想为我们的孩子找到欣赏食物的新方法时，我们经常求助于烹饪书来寻求指导，或者在互联网上寻找最新的食物趋势。但是现在，我们也可以转向智能手机上的播客应用程序，从父母和专业人士那里获得建议，帮助我们让孩子摆脱那种烹饪习惯，让每个人的用餐时间都不那么紧张。
 
@@ -32,7 +32,7 @@ Watch
 
 ****伴随着确保他们的孩子获得适当营养而来的所有混乱和社交焦虑，作为一个管饲儿童的父母可能会有压力。但是让他们放弃更传统的用餐体验也带来了一系列挑战。****
 
-****主持人和喂养专家Jennifer Berry和Heidi Liefer Moreland邀请他们的客人分享实用指南，这些指南消除了父母经常收到的相互矛盾的信息，并有助于揭示许多父母和医生仍在寻找如何治疗的疾病。一位苹果播客评论者甚至写道*地铁到餐桌*“让我所有的感觉正常化”抚养一个依赖地铁的孩子。****
+****主持人和喂养专家 Jennifer Berry 和 Heidi Liefer Moreland 邀请他们的客人分享实用指南，这些指南消除了父母经常收到的相互矛盾的信息，并有助于揭示许多父母和医生仍在寻找如何治疗的疾病。一位苹果播客评论者甚至写道*地铁到餐桌*“让我所有的感觉正常化”抚养一个依赖地铁的孩子。****
 
 ### ****[](https://podcasts.apple.com/us/podcast/pinna-originals-playlist/id1292020504?i=1000507045001)****
 

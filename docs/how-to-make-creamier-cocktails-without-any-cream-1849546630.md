@@ -1,6 +1,6 @@
 # 如何制作不加任何奶油的“奶油”鸡尾酒
 
-> 原文:[https://life hacker . com/how-to-make-creamier-cocktails-no-any-cream-1849546630](https://lifehacker.com/how-to-make-creamier-cocktails-without-any-cream-1849546630)
+> 原文：<https://lifehacker.com/how-to-make-creamier-cocktails-without-any-cream-1849546630>
 
 除了 [玉米牛奶潘趣酒](https://lifehacker.com/were-drinking-corn-milk-punch-now-1844804596) 之外，奶油鸡尾酒真的不是我的菜。向一杯乙醇中加入全脂乳制品会引起一些凝结的问题，但是一半&一半和奶油的沉重感让我很难享受它们。尽管如此，不可否认的是，一丝奶油可以让鸡尾酒更圆润，更令人满意的粘度。
 
@@ -12,7 +12,7 @@ Watch
 
 乳酸是发酵的副产品，它赋予了酸奶和开菲尔等发酵乳制品独特的味道。它大部分是酸的，但酸的方式让你的嘴想起那些你通常会发现它的培养乳制品。
 
-根据 [PUNCH](https://punchdrink.com/articles/lactic-acid-simple-syrup-drink-hack/) 的说法，将乳酸溶解在简单的糖浆中是创造不含任何奶油的奶油口感的最佳方式。最受欢迎的版本通常由香草豆制成。PUNCH有两个香草乳酸糖浆的配方: [一个简单的](https://punchdrink.com/recipes/natasha-davids-vanilla-lactic-syrup/) 你可以用搅拌器制作，而 [一个更复杂的](https://punchdrink.com/recipes/vanilla-lactic-syrup/) 需要一个浸泡循环器和一点过滤。
+根据 [PUNCH](https://punchdrink.com/articles/lactic-acid-simple-syrup-drink-hack/) 的说法，将乳酸溶解在简单的糖浆中是创造不含任何奶油的奶油口感的最佳方式。最受欢迎的版本通常由香草豆制成。PUNCH 有两个香草乳酸糖浆的配方: [一个简单的](https://punchdrink.com/recipes/natasha-davids-vanilla-lactic-syrup/) 你可以用搅拌器制作，而 [一个更复杂的](https://punchdrink.com/recipes/vanilla-lactic-syrup/) 需要一个浸泡循环器和一点过滤。
 
 这种糖浆特别适合与水果酸味搭配——想想橙子、草莓和菠萝——创造出奶油味，并使更酸的水果味道更加圆润。
 
@@ -20,12 +20,12 @@ Watch
 
 我曾经写过在 之前，在 [中加入布拉塔水，这一定是我一直以来最喜欢的派对把戏之一(饮料类)。正如我之前解释的那样，剩余的包装水不仅让你的鸡尾酒感觉圆润、滑腻，而且一点也不厚重，它创造了一种超级稳定的无蛋泡沫:](https://lifehacker.com/make-frothy-egg-free-cocktails-using-burrata-water-1836286151)
 
-> 我在 [中加入了建议盎司的布拉塔水，这是潘趣酒](https://punchdrink.com/recipes/gin-sour/) 中简单的杜松子酒酸味配方，然后把所有东西都摇在一起——首先不加冰(这被称为“干摇”)，然后再加冰。泡沫非常稳定——能保持20分钟！——乳清增加了令人愉快的奶油质地和轻微的咸味。
+> 我在 [中加入了建议盎司的布拉塔水，这是潘趣酒](https://punchdrink.com/recipes/gin-sour/) 中简单的杜松子酒酸味配方，然后把所有东西都摇在一起——首先不加冰(这被称为“干摇”)，然后再加冰。泡沫非常稳定——能保持 20 分钟！——乳清增加了令人愉快的奶油质地和轻微的咸味。
 
 制作你自己的奶油、泡沫、无蛋鸡尾酒很容易。只需使用这个即插即用的公式:
 
-*   2盎司酒(杜松子酒和威士忌是这里的经典)
-*   1盎司布拉塔水
-*   3/4盎司柠檬汁
-*   3/4盎司简单糖浆
-*   在鸡尾酒调酒器中混合所有东西，不加冰摇30秒。加入冰块——我喜欢用一个巨大的立方体——用力摇晃，直到摇动器变得非常冷。滤入一个双座玻璃杯，惊叹于泡沫，然后享用。
+*   2 盎司酒(杜松子酒和威士忌是这里的经典)
+*   1 盎司布拉塔水
+*   3/4 盎司柠檬汁
+*   3/4 盎司简单糖浆
+*   在鸡尾酒调酒器中混合所有东西，不加冰摇 30 秒。加入冰块——我喜欢用一个巨大的立方体——用力摇晃，直到摇动器变得非常冷。滤入一个双座玻璃杯，惊叹于泡沫，然后享用。

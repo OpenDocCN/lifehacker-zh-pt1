@@ -1,6 +1,6 @@
 # 停止将衣服存放在塑料干洗袋中(改用这种替代品)
 
-> 原文:[https://life hacker . com/stop-storing-ways-in-plastic-dry-cleaning-bags-and-1849508740](https://lifehacker.com/stop-storing-clothes-in-plastic-dry-cleaning-bags-and-1849508740)
+> 原文：<https://lifehacker.com/stop-storing-clothes-in-plastic-dry-cleaning-bags-and-1849508740>
 
 当你从干洗店取衣服时，它们通常装在薄而透明的塑料服装袋里。一旦你把它们带回家，简单地把它们放进你的壁橱里，放进包里是有意义的。毕竟，这些衣服是你花钱请别人清洗的，所以它们一定是值得投资的，是你想要保护的东西。
 

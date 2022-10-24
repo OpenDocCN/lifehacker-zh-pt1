@@ -1,6 +1,6 @@
 # 如何让你的狗或猫远离郊狼
 
-> 原文:[https://life hacker . com/how-to-keep your-dog-or-cat-safe from the coyotes-1848446293](https://lifehacker.com/how-to-keep-your-dog-or-cat-safe-from-coyotes-1848446293)
+> 原文：<https://lifehacker.com/how-to-keep-your-dog-or-cat-safe-from-coyotes-1848446293>
 
 虽然我们可能会将郊狼与沙漠、山脉或走鹃生活的任何地方联系起来，但它们很有可能就在你所在的地区或附近。不管你是住在郊区、乡下，甚至是城市，都没关系，因为 [郊狼的适应性很强](https://www.desertmuseum.org/kids/oz/long-fact-sheets/coyote.php#:~:text=Coyotes%20are%20known%20for%20how,well%20as%20in%20populated%20neighborhoods.) 它们能在各种气候下安家。
 
@@ -18,7 +18,7 @@ Watch
 
 事实证明，每年的这个时候，郊狼 的出现通常会有一个 [高峰。这是因为郊狼的繁殖季节从一月中旬开始，一直持续到二月底。所以现在。](https://www.wcpo.com/news/local-news/coyotes-spotted-in-greater-cincinnati-area)
 
-“一种动物正在经历它们的繁殖求偶期和领地意识，当它们和它们的同伴四处走动时，它们更容易被发现，”布雷特·贝蒂，俄亥俄州自然资源部野生动物管理部门的主管告诉WCPO的记者。
+“一种动物正在经历它们的繁殖求偶期和领地意识，当它们和它们的同伴四处走动时，它们更容易被发现，”布雷特·贝蒂，俄亥俄州自然资源部野生动物管理部门的主管告诉 WCPO 的记者。
 
 ## 不要把宠物的食物放在外面
 

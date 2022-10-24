@@ -1,8 +1,8 @@
 # 每餐都加入枫糖浆
 
-> 原文:[https://the take out . com/how-to-use-of-maple-糖浆-in-eat-meal-recipe-ideas-1849457445](https://thetakeout.com/how-to-use-maple-syrup-in-every-meal-recipe-ideas-1849457445)
+> 原文：<https://thetakeout.com/how-to-use-maple-syrup-in-every-meal-recipe-ideas-1849457445>
 
-我住在佛蒙特州，这片土地上有 [枫树](https://thetakeout.com/get-a-head-start-on-fall-flavors-with-maple-cream-1849451695) 。我们有枫糖、枫糖饼干、枫糖汽水，当然还有枫糖浆。*大量*枫糖浆。2022年，美国农业部国家农业统计局 [报告](https://www.nass.usda.gov/Statistics_by_State/New_England_includes/Publications/Current_News_Release/2022/Vermont_2022_Maple_Production.pdf) 佛蒙特州当年生产255万加仑枫糖浆 — 比前一年增加80万加仑。该州是美国枫糖浆的 [主要生产商，自1916年以来一直如此(虽然在1918年和1926年——尴尬！).](https://agriculture.vermont.gov/agency-agriculture-food-markets-news/vermont-sugar-season-sweet-success)
+我住在佛蒙特州，这片土地上有 [枫树](https://thetakeout.com/get-a-head-start-on-fall-flavors-with-maple-cream-1849451695) 。我们有枫糖、枫糖饼干、枫糖汽水，当然还有枫糖浆。*大量*枫糖浆。2022 年，美国农业部国家农业统计局 [报告](https://www.nass.usda.gov/Statistics_by_State/New_England_includes/Publications/Current_News_Release/2022/Vermont_2022_Maple_Production.pdf) 佛蒙特州当年生产 255 万加仑枫糖浆 — 比前一年增加 80 万加仑。该州是美国枫糖浆的 [主要生产商，自 1916 年以来一直如此(虽然在 1918 年和 1926 年——尴尬！).](https://agriculture.vermont.gov/agency-agriculture-food-markets-news/vermont-sugar-season-sweet-success)
 
 Watch
 
@@ -28,11 +28,11 @@ Watch
 
 枫糖浆与香草冰淇淋搭配很好，这可能是显而易见的选择，但它也与咖啡冰淇淋搭配得很好，这让我想到了我的下一个与冰淇淋相关的话题:如果你在佛蒙特州，一定要给自己买一份枫糖冰淇淋，这是佛蒙特州人 [乐意向你推荐的东西，](https://twitter.com/libbychambe/status/1559949775922991112?s=20&t=Vc_HVvvff-dDvV3QKetDqg) 因为我们真的相信它的存在意味着我们发明了地球上最美妙的东西，而且我们喜欢告诉人们。
 
-“Creemee ”是佛蒙特州“软冰淇淋”的代名词，。虽然我们有经典的巧克力、香草和麻花冰淇淋可供选择，但当地的Creemee小摊提供枫糖冰淇淋也很常见。有时，他们还会提供一种咖啡口味，你可以 — ，也可以 — 搭配枫叶。
+“Creemee ”是佛蒙特州“软冰淇淋”的代名词，。虽然我们有经典的巧克力、香草和麻花冰淇淋可供选择，但当地的 Creemee 小摊提供枫糖冰淇淋也很常见。有时，他们还会提供一种咖啡口味，你可以 — ，也可以 — 搭配枫叶。
 
 ## 混合糖浆和蔬菜
 
-我最喜欢的秋季配菜之一是烤块根蔬菜，通常是土豆、胡萝卜和甜菜的组合，但我有时也会在组合中加入T2欧洲防风草和T4。这道令人愉快、丰盛的配菜的许多食谱包括作为甜味剂的枫糖浆；就像腌泡汁和沙拉酱一样，这里的糖浆不会导致菜肴过甜。取而代之的是，我只是添加了一点流行的味道，这种味道和你烤块根蔬菜时外部的焦糖化非常相配。如果你想在家尝试，这里有一份来自佛蒙特州丰收山农场的 [食谱](https://harvesthillfarmvt.com/recipes/beets/maple-roasted-root-vegetables/) 。
+我最喜欢的秋季配菜之一是烤块根蔬菜，通常是土豆、胡萝卜和甜菜的组合，但我有时也会在组合中加入 T2 欧洲防风草和 T4。这道令人愉快、丰盛的配菜的许多食谱包括作为甜味剂的枫糖浆；就像腌泡汁和沙拉酱一样，这里的糖浆不会导致菜肴过甜。取而代之的是，我只是添加了一点流行的味道，这种味道和你烤块根蔬菜时外部的焦糖化非常相配。如果你想在家尝试，这里有一份来自佛蒙特州丰收山农场的 [食谱](https://harvesthillfarmvt.com/recipes/beets/maple-roasted-root-vegetables/) 。
 
 ## 直接喝你的糖浆
 

@@ -1,8 +1,8 @@
 # 豆蔻是新的肉桂
 
-> 原文:[https://life hacker . com/cardamom-is-the-new-cinnamon-1849596493](https://lifehacker.com/cardamom-is-the-new-cinnamon-1849596493)
+> 原文：<https://lifehacker.com/cardamom-is-the-new-cinnamon-1849596493>
 
-豆蔻作为烘焙香料值得更多的爱。它独特而多样，温暖而大胆，适合甜食和美味的食物。虽然你可能还没有用豆蔻做菜，但你可能以前吃过，藏在酱汁中或混合到面团中，并想知道厨师是如何实现这种特殊风味的。肉桂将永远在我们的橱柜中占有一席之地，但现在是时候为另一个1.5英寸的香料罐腾出空间了。
+豆蔻作为烘焙香料值得更多的爱。它独特而多样，温暖而大胆，适合甜食和美味的食物。虽然你可能还没有用豆蔻做菜，但你可能以前吃过，藏在酱汁中或混合到面团中，并想知道厨师是如何实现这种特殊风味的。肉桂将永远在我们的橱柜中占有一席之地，但现在是时候为另一个 1.5 英寸的香料罐腾出空间了。
 
 Watch
 
@@ -10,11 +10,11 @@ Watch
 
 小豆蔻是一种绿色的豆荚，里面有黑色的小种子。通常你可以买到三种不同形式的香料——干的，完整的豆荚，未研磨的黑种子，或研磨成粉末的黑种子。根据你的烹饪方式，你可能想要三种准备都有。豆蔻的味道不同寻常，但当你品尝它时，你会有一种见到老朋友的感觉。像香料侍酒师一样分解它:它带有常青树的花香，浓郁，并保持柔软的薄荷醇般的余味。
 
-它在不同菜肴中的应用令人惊讶，小豆蔻确实与其他香料搭配得很好。虽然豆蔻本身非常好，但它也可以成为其他香料之后的一种丰富的填充香气。在世界各地的甜味和咸味应用中，你可以在hearty、温热食谱中找到它，如 [印度murgh masala](https://www.archanaskitchen.com/murgh-masala-recipe-chicken-legs-in-a-spicy-sauce) 、 [泰国massaman](https://www.templeofthai.com/recipes/massaman_curry.php) 、 [尼日利亚泡芙](https://www.diasporaco.com/blogs/recipes/yewande-komolafes-cardamom-puff-puffs) 和 [瑞典Kardemummabullar](https://skandibaking.com/kardemummabullar-swedish-cardamom-buns/) 。
+它在不同菜肴中的应用令人惊讶，小豆蔻确实与其他香料搭配得很好。虽然豆蔻本身非常好，但它也可以成为其他香料之后的一种丰富的填充香气。在世界各地的甜味和咸味应用中，你可以在 hearty、温热食谱中找到它，如 [印度 murgh masala](https://www.archanaskitchen.com/murgh-masala-recipe-chicken-legs-in-a-spicy-sauce) 、 [泰国 massaman](https://www.templeofthai.com/recipes/massaman_curry.php) 、 [尼日利亚泡芙](https://www.diasporaco.com/blogs/recipes/yewande-komolafes-cardamom-puff-puffs) 和 [瑞典 Kardemummabullar](https://skandibaking.com/kardemummabullar-swedish-cardamom-buns/) 。
 
 ## “香料女王”从何说起
 
-肉桂、苹果和豆蔻是极好的搭档，如果你不习惯和“香料女王”一起工作，我建议你从那里开始。如果你正在做一个用肉桂做的苹果蛋糕，也加入一点豆蔻粉；o r大胆一试，用豆蔻代替肉桂。你不会失望的。任何尝试豆蔻的人都应该从食谱要求的一半量的肉桂粉开始。豆蔻初看起来可能很浓，所以如果肉桂面包食谱需要两汤匙肉桂，就用一汤匙豆蔻，不管你是用香料替代还是和肉桂一起添加。
+肉桂、苹果和豆蔻是极好的搭档，如果你不习惯和“香料女王”一起工作，我建议你从那里开始。如果你正在做一个用肉桂做的苹果蛋糕，也加入一点豆蔻粉；o r 大胆一试，用豆蔻代替肉桂。你不会失望的。任何尝试豆蔻的人都应该从食谱要求的一半量的肉桂粉开始。豆蔻初看起来可能很浓，所以如果肉桂面包食谱需要两汤匙肉桂，就用一汤匙豆蔻，不管你是用香料替代还是和肉桂一起添加。
 
 要做一个简单的甜味配料，把这种豆蔻糖撒在 [涂黄油的吐司](https://lifehacker.com/you-should-fry-your-cinnamon-toast-1849542344) 上，压在饼干面团上，或者拌入大米布丁或燕麦片中。将两种成分放入碗中混合，或者为了便于保存，将它们倒入有盖的罐子中并摇晃。我喜欢把我的黄油曲奇基础配方 放在这种豆蔻糖里，和咖啡一起享受美味。
 
@@ -23,6 +23,6 @@ Watch
 #### 成分:
 
 *   杯装砂糖
-*   2茶匙磨碎的绿色豆蔻
+*   2 茶匙磨碎的绿色豆蔻
 
 将两种成分放入容器中，搅拌直至混合。洒在从冰淇淋到苹果饼的所有东西上。

@@ -1,12 +1,12 @@
 # 如何储备防辐射掩体储藏室
 
-> 原文:[https://life hacker . com/how-to-stock-a-fallout-shelter-pantry-1818917188](https://lifehacker.com/how-to-stock-a-fallout-shelter-pantry-1818917188)
+> 原文：<https://lifehacker.com/how-to-stock-a-fallout-shelter-pantry-1818917188>
 
 所以，你想建一个核辐射掩蔽所。你并不孤单:民用[炸弹](https://risingsbunkers.com/) [防空洞](http://ultimatebunker.com/) [建筑](http://www.utahsheltersystems.com/) [工业](http://www.hardenedstructures.com/) 在过去十年里一直在稳步增长，以满足需求，过去的事件点燃了 [全面的市场繁荣](http://www.chicagotribune.com/business/ct-bomb-shelter-business-20170828-story.html) ，更不用说疫情和选举了。
 
 Watch
 
-无论你走的是D.I.Y .路线，还是选择配备防爆门和空气过滤系统的定制选项，你都需要食物——而且是大量的食物——才能生存。你的掩体的餐具区需要凉爽、黑暗、通风良好；它还应该包括各种各样的干货、罐头食品和预制食品，如。这里有一些让你开始的建议。
+无论你走的是 D.I.Y .路线，还是选择配备防爆门和空气过滤系统的定制选项，你都需要食物——而且是大量的食物——才能生存。你的掩体的餐具区需要凉爽、黑暗、通风良好；它还应该包括各种各样的干货、罐头食品和预制食品，如。这里有一些让你开始的建议。
 
 ### 储备足够的水
 
@@ -20,7 +20,7 @@ Watch
 
 ### 为罐头食品指定一个凉爽的地方
 
-蛋白质是人类饮食中不可或缺的一部分，许多罐头食品富含蛋白质。罐装的豆类、炖菜、辣椒、汤和鱼都很容易买到，并且可以安全储存大约五年。炼乳和/或淡炼乳也是不错的选择，美味的含钠罐头肉也是不错的选择，比如咸牛肉、火腿和维也纳香肠。炎热的环境(80华氏度或更高)会缩短罐头食品的保质期，所以保持你的食物储存区域通风良好，并尽可能保持凉爽——60华氏度是非常理想的，但越凉越好。
+蛋白质是人类饮食中不可或缺的一部分，许多罐头食品富含蛋白质。罐装的豆类、炖菜、辣椒、汤和鱼都很容易买到，并且可以安全储存大约五年。炼乳和/或淡炼乳也是不错的选择，美味的含钠罐头肉也是不错的选择，比如咸牛肉、火腿和维也纳香肠。炎热的环境(80 华氏度或更高)会缩短罐头食品的保质期，所以保持你的食物储存区域通风良好，并尽可能保持凉爽——60 华氏度是非常理想的，但越凉越好。
 
 如果你自己做罐头，彻底检查并遵循美国农业部家庭食品保存指南以确保安全。除了多余的热量，任何储存在玻璃器皿中的东西都必须避光，所以在你的食物储存设置中也要考虑到这一点。
 
@@ -30,7 +30,7 @@ Watch
 
 ### 保存预先做好的饭菜
 
-我不是灵媒，但后世界末日时代的生活方式似乎不太可能一直允许人们有时间烹饪干豆。这就是为什么你应该储备一些MREs和其他速食。大多数军品商店都有真货，但我对背包品牌Mountain House的完全着迷。我能让你对一个 [【以防万一】早餐桶](https://www.amazon.com/Mountain-House-Just-Breakfast-Bucket/dp/B00GH501T2/ref=sr_1_17?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-stock-a-fallout-shelter-pantry-1818917188&asc_source=&ie=UTF8&keywords=mountain house&qid=1506631009&sr=8-17&tag=kinjalifehackerlink-20) 感兴趣吗？一罐十磅重的饼干和肉汁怎么样？即使你只吃了大量的食物，我还是建议你买一些应急口粮，比如这些3600卡路里的食物。如果有一个时候你不想饿着肚子(或者，你知道，真的饿死)，那就是在核冬天。
+我不是灵媒，但后世界末日时代的生活方式似乎不太可能一直允许人们有时间烹饪干豆。这就是为什么你应该储备一些 MREs 和其他速食。大多数军品商店都有真货，但我对背包品牌 Mountain House 的完全着迷。我能让你对一个 [【以防万一】早餐桶](https://www.amazon.com/Mountain-House-Just-Breakfast-Bucket/dp/B00GH501T2/ref=sr_1_17?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-stock-a-fallout-shelter-pantry-1818917188&asc_source=&ie=UTF8&keywords=mountain house&qid=1506631009&sr=8-17&tag=kinjalifehackerlink-20) 感兴趣吗？一罐十磅重的饼干和肉汁怎么样？即使你只吃了大量的食物，我还是建议你买一些应急口粮，比如这些 3600 卡路里的食物。如果有一个时候你不想饿着肚子(或者，你知道，真的饿死)，那就是在核冬天。
 
 ### 拥有一些精心挑选的小奢侈品
 
@@ -40,4 +40,4 @@ Watch
 
 作为一名公寓居住者，我已经接受了我不应该在世界末日中幸存的事实；我的计划是带很多酒去拥挤的地下时代派对。房主们，你们的辐射掩蔽所情况如何？如果你自己建了一个——即使只是你地下室的一个指定角落——我也想听听它的全部内容。
 
-*这篇文章最初发表于2017年，并于2020年11月4日更新，增加了新的链接和新的标题图像，并符合当前的Lifehacker风格指南。最初是作为* [*复古周*](https://lifehacker.com/c/retro-week) *的一部分发表的。*
+*这篇文章最初发表于 2017 年，并于 2020 年 11 月 4 日更新，增加了新的链接和新的标题图像，并符合当前的 Lifehacker 风格指南。最初是作为* [*复古周*](https://lifehacker.com/c/retro-week) *的一部分发表的。*

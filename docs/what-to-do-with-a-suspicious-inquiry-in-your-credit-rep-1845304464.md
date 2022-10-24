@@ -1,6 +1,6 @@
 # 如何处理信用报告中的可疑查询
 
-> 原文:[https://life hacker . com/what-to-do-with-a-suspective-inquiry-in-your-credit-rep-1845304464](https://lifehacker.com/what-to-do-with-a-suspicious-inquiry-in-your-credit-rep-1845304464)
+> 原文：<https://lifehacker.com/what-to-do-with-a-suspicious-inquiry-in-your-credit-rep-1845304464>
 
 比方说，你正在看你的信用报告，发现一个你不认识的信用查询。一个不熟悉的查询不一定意味着它是未经授权的，但它值得研究。你可以这么做。
 
@@ -21,7 +21,7 @@ Watch
 
 ### **如果调查是欺诈性的，向联邦贸易委员会举报**
 
-如果在与贷款人交谈后，你怀疑身份被盗，向FTC 报告身份被盗 [，FTC](https://www.identitytheft.gov)[将帮助你](https://www.consumer.ftc.gov/blog/2017/04/most-id-theft-victims-dont-need-police-report) 使用个人恢复计划恢复和保护你的身份。
+如果在与贷款人交谈后，你怀疑身份被盗，向 FTC 报告身份被盗 [，FTC](https://www.identitytheft.gov)[将帮助你](https://www.consumer.ftc.gov/blog/2017/04/most-id-theft-victims-dont-need-police-report) 使用个人恢复计划恢复和保护你的身份。
 
 ### **联系征信机构**
 

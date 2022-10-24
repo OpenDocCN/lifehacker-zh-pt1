@@ -1,6 +1,6 @@
 # 在你的“休息日”做些什么，这样你就不会觉得它们是一种浪费
 
-> 原文:[https://life hacker . com/what-to-do-on-your-rest-days-so-dont-feel-a-w-1846877458](https://lifehacker.com/what-to-do-on-your-rest-days-so-they-dont-feel-like-a-w-1846877458)
+> 原文：<https://lifehacker.com/what-to-do-on-your-rest-days-so-they-dont-feel-like-a-w-1846877458>
 
 健身程序通常按周组织。例如，你可以在一个三天或五天的计划中举重，把中间的几天作为“休息日”。但是休息*到底是什么意思呢？那些日子你不必只是在沙发上放松；你有选择。*
 
@@ -12,7 +12,7 @@ Watch
 
 我认为，三个 -和四个 -和五个日节目如此受欢迎有两个主要原因。首先是时间安排:不是每个人都能每天抽出时间锻炼。然而，我们大多数人一周能坚持三天。
 
-休息日的另一个原因是它们是管理我们工作总量的工具。以 [couch-to-5k跑步程序](https://vitals.lifehacker.com/all-the-questions-youll-have-when-you-start-couch-to-5k-1830857969) 为例。它让你放松，一周只有三天的短距离跑步。 [过快增加你的跑步里程会让你受伤](https://vitals.lifehacker.com/how-to-avoid-injuries-as-a-beginning-runner-1833906254) ，但是对大多数初学者来说，一周三天是个不错的开始。
+休息日的另一个原因是它们是管理我们工作总量的工具。以 [couch-to-5k 跑步程序](https://vitals.lifehacker.com/all-the-questions-youll-have-when-you-start-couch-to-5k-1830857969) 为例。它让你放松，一周只有三天的短距离跑步。 [过快增加你的跑步里程会让你受伤](https://vitals.lifehacker.com/how-to-avoid-injuries-as-a-beginning-runner-1833906254) ，但是对大多数初学者来说，一周三天是个不错的开始。
 
 或者考虑举重项目:一些项目通过每天给你不同的身体部位来管理工作量(腿部日、胸部日等等)。其他人会让你用重物锻炼全身，但一周只有几次。中间的日子是你的休息日。
 
@@ -32,9 +32,9 @@ Watch
 
 ### 不过，保持简单
 
-对所有这些的告诫是 [确保你不要做太多，以免干扰你的主要训练](https://vitals.lifehacker.com/stop-working-out-so-much-on-your-rest-days-1778354349) 。想在深蹲日和硬拉日之间轻松慢跑20分钟吗？当然，没问题。10英里长跑？那可能是个坏主意。
+对所有这些的告诫是 [确保你不要做太多，以免干扰你的主要训练](https://vitals.lifehacker.com/stop-working-out-so-much-on-your-rest-days-1778354349) 。想在深蹲日和硬拉日之间轻松慢跑 20 分钟吗？当然，没问题。10 英里长跑？那可能是个坏主意。
 
-合适的运动量取决于你的身体适应了什么。如果你是一个长期跑步者，也许你可以跑10英里而不会累垮自己。如果你每天骑自行车去上班，你不必仅仅因为今天是“休息日”就开车去上班。运用你的判断力。
+合适的运动量取决于你的身体适应了什么。如果你是一个长期跑步者，也许你可以跑 10 英里而不会累垮自己。如果你每天骑自行车去上班，你不必仅仅因为今天是“休息日”就开车去上班。运用你的判断力。
 
 ### 你可以休息，但仍然保持你的常规
 

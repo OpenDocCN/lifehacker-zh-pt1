@@ -1,6 +1,6 @@
 # 种植这些本地植物来替代入侵植物
 
-> 原文:[https://life hacker . com/grow-these-native-alternatives-to-invasive-plants-1848564989](https://lifehacker.com/grow-these-native-alternatives-to-invasive-plants-1848564989)
+> 原文：<https://lifehacker.com/grow-these-native-alternatives-to-invasive-plants-1848564989>
 
 随着春天的临近，你开始考虑在即将到来的生长季节，你将在你的花园和/或院子里种植什么，有很多要考虑的:从你想种植的食物种类，到你最喜欢的花卉和灌木，到最容易种植的植物。
 
@@ -37,7 +37,7 @@ Watch
 
 ### 燃烧灌木卫矛
 
-*   **可取特征**:充满活力的f 全彩
+*   **可取特征**:充满活力的 f 全彩
 *   **本土植物替代品**:流苏蓝星(*安索妮娅)、*胡氏蓝星(*安索妮娅·胡布丽希提伊)、*女巫桤木(*福瑟吉尔拉·加德纳伊)、*栎叶绣球(*槲叶绣球)、*脚镣灌木、*总状白果、*沼泽山楂(*荚蒾属)、*箭木荚蒾
 
 你可以在该机构的网站上找到 [的完整图表和更多信息](https://www.fs.fed.us/wildflowers/Native_Plant_Materials/Native_Gardening/alternatives.shtml) 。

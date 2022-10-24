@@ -1,6 +1,6 @@
 # 羊皮纸和铝箔如何选择
 
-> 原文:[https://life hacker . com/how-to-choose with a羊皮纸和铝箔-1846635447](https://lifehacker.com/how-to-choose-between-parchment-paper-and-aluminum-foil-1846635447)
+> 原文：<https://lifehacker.com/how-to-choose-between-parchment-paper-and-aluminum-foil-1846635447>
 
 在很多情况下，羊皮纸和铝箔是可以互换的。这两种纸都可以用来给烤盘加衬，防止食物粘在锅上(也便于清理)，但我的厨房里总是放着这两种纸，因为羊皮纸可以做箔纸做不到的事情，反之亦然。而且，尽管我们有相当广泛的关于厨房卷饼[种类](https://skillet.lifehacker.com/aluminum-foil-is-more-awesome-than-people-give-it-credi-1729690242?rev=1441839153308) 的指南，还是有一些通用指南可以帮助你在两者之间做出选择。
 
@@ -14,7 +14,7 @@ Watch
 
 ### 想想温度
 
-羊皮纸可以承受高达420℉的温度，这远远高于烘烤大多数东西的温度范围。而且，虽然它不像 [蜡纸](https://lifehacker.com/whats-the-difference-between-parchment-and-wax-paper-1818731711) (永远不应该放进烤箱)，但从技术上来说，它仍然是*纸*，不应该用来制作小包装的土豆(或其他任何东西)，然后扔在烤架上。那是箔纸的工作。然而，两者都可以用来烤鱼——通常在375℉-400℉的温度范围内烹饪——尽管烤鱼有一点更令人愉快(这是法语中“羊皮纸”的意思)。
+羊皮纸可以承受高达 420℉的温度，这远远高于烘烤大多数东西的温度范围。而且，虽然它不像 [蜡纸](https://lifehacker.com/whats-the-difference-between-parchment-and-wax-paper-1818731711) (永远不应该放进烤箱)，但从技术上来说，它仍然是*纸*，不应该用来制作小包装的土豆(或其他任何东西)，然后扔在烤架上。那是箔纸的工作。然而，两者都可以用来烤鱼——通常在 375℉-400℉的温度范围内烹饪——尽管烤鱼有一点更令人愉快(这是法语中“羊皮纸”的意思)。
 
 ### 想想粘性
 

@@ -1,6 +1,6 @@
 # 如果警察给你一张搜查令，该做什么(和不该做什么)
 
-> 原文:[https://life hacker . com/what-to-do-and-not-do-if-the-police-hand-you-a-search-1848995409](https://lifehacker.com/what-to-do-and-not-do-if-the-police-hand-you-a-search-1848995409)
+> 原文：<https://lifehacker.com/what-to-do-and-not-do-if-the-police-hand-you-a-search-1848995409>
 
 让警察 [带着搜查令出现在你家门口](https://lifehacker.com/what-to-do-and-not-do-when-a-cop-knocks-on-your-door-1848980595) 可不是大多数守法公民会做的准备。一般的假设是，如果你不参与犯罪，你永远也不会在一群警察洗劫你房子的时候去袖手旁观。但是想象不到的事情不代表永远不会发生，做好心理准备会严重影响结果。
 

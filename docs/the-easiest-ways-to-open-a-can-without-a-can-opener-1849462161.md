@@ -1,12 +1,12 @@
 # 不用开罐器打开罐头的最简单方法
 
-> 原文:[https://life hacker . com/the-easy-ways-to-opening-a-can-without-a-can-a-can-founder-1849462161](https://lifehacker.com/the-easiest-ways-to-open-a-can-without-a-can-opener-1849462161)
+> 原文：<https://lifehacker.com/the-easiest-ways-to-open-a-can-without-a-can-opener-1849462161>
 
-生活的一个基本规则是，有了合适的工具，一切都很容易，没有工具，几乎不可能。一个很好的例子就是开罐器:尽管我们从1962年起就有了 [拉环设计，你仍然可以在杂货店的货架上找到很多罐头食品，但却没有这种简单的进步——如果你有一个罐头食品，却缺少一个](https://industrialphysics.com/knowledgebase/articles/history-of-the-can-timeline/#:~:text=1960%20%E2%80%93%20Easy%2Dopen%20can%20introduced,the%20aluminium%20easy%2Dopen%20end.) [开罐器](https://lifehacker.com/filling-meals-you-can-make-with-a-can-opener-and-a-micr-1844871517) ，你会很快明白无用的定义。
+生活的一个基本规则是，有了合适的工具，一切都很容易，没有工具，几乎不可能。一个很好的例子就是开罐器:尽管我们从 1962 年起就有了 [拉环设计，你仍然可以在杂货店的货架上找到很多罐头食品，但却没有这种简单的进步——如果你有一个罐头食品，却缺少一个](https://industrialphysics.com/knowledgebase/articles/history-of-the-can-timeline/#:~:text=1960%20%E2%80%93%20Easy%2Dopen%20can%20introduced,the%20aluminium%20easy%2Dopen%20end.) [开罐器](https://lifehacker.com/filling-meals-you-can-make-with-a-can-opener-and-a-micr-1844871517) ，你会很快明白无用的定义。
 
 Watch
 
-这并不意味着这是不可能的——毕竟，罐头是被设计来打开的，即使在你花了15分钟去敲打和诅咒它之后，它看起来不太像是真的。毕竟，开罐器只是一个锋利的刀片轮，可以切开罐盖上的封口——大多数没有开罐器的开罐器的主要问题是，他们采用了错误的物理力量。锤子会对你的罐子造成很大的伤害，但它可能不会以任何有用的方式打开它。以下是不用开罐器打开罐头的最聪明和最简单的方法(并且在这个过程中不会切掉手指)。
+这并不意味着这是不可能的——毕竟，罐头是被设计来打开的，即使在你花了 15 分钟去敲打和诅咒它之后，它看起来不太像是真的。毕竟，开罐器只是一个锋利的刀片轮，可以切开罐盖上的封口——大多数没有开罐器的开罐器的主要问题是，他们采用了错误的物理力量。锤子会对你的罐子造成很大的伤害，但它可能不会以任何有用的方式打开它。以下是不用开罐器打开罐头的最聪明和最简单的方法(并且在这个过程中不会切掉手指)。
 
 ### 如何不用任何工具打开罐头
 
@@ -22,4 +22,4 @@ Watch
 
 一把锋利、坚固的刀最容易刺穿盖子(美工刀也能完成这项工作)，但使用起来有点危险——如果你的手滑了一下，很容易伤到自己。如果你有一把 [平头螺丝刀](https://youtu.be/tpgj5V26vFg) (锤子可选)，稍微安全一点的做法是用螺丝刀的尖端轻敲易拉罐的边缘，直到你能够将它插入你刚刚创建的唇下，然后将顶部剥开。
 
-还有勺子法，这种方法需要你沿着罐头 的内边缘打磨勺子 [的边缘，直到它变形，然后插入勺子的尖端并上下摇动，以切开密封，直到你有一个足够大的开口。这需要更多的技巧和努力，但是如果你不知何故缺少任何种类的刀或螺丝刀，但碰巧有勺子，这是很好的了解——j必须小心这产生的锋利边缘。](https://youtu.be/T3okpVROAUM)
+还有勺子法，这种方法需要你沿着罐头 的内边缘打磨勺子 [的边缘，直到它变形，然后插入勺子的尖端并上下摇动，以切开密封，直到你有一个足够大的开口。这需要更多的技巧和努力，但是如果你不知何故缺少任何种类的刀或螺丝刀，但碰巧有勺子，这是很好的了解——j 必须小心这产生的锋利边缘。](https://youtu.be/T3okpVROAUM)

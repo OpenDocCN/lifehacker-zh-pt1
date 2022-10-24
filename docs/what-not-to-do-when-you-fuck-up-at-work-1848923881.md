@@ -1,6 +1,6 @@
 # 当你在工作中搞砸了，不要做什么
 
-> 原文:[https://life hacker . com/what-not-to-do what-what-when-you-fuck-up-on-work-1848923881](https://lifehacker.com/what-not-to-do-when-you-fuck-up-at-work-1848923881)
+> 原文：<https://lifehacker.com/what-not-to-do-when-you-fuck-up-at-work-1848923881>
 
 我们都会犯错，但是知道如何克服错误是一项被严重低估的技能 。我们最近报道了 [如何在工作中搞砸了](https://lifehacker.com/how-to-save-your-career-after-screwing-up-at-work-1848818330) 之后挽救你的职业生涯，但是在你犯错之后，你有哪些*不应该*做对的事情呢？尤其是在工作场所，在你犯了一个错误后，你做了什么和不做什么会造成或破坏一件大事。
 

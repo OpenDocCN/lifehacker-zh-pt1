@@ -1,24 +1,24 @@
-# 如何在Windows 10中找到丢失的“系统”控制面板
+# 如何在 Windows 10 中找到丢失的“系统”控制面板
 
-> 原文:[https://life hacker . com/how-to-find-the-missing-system-control-panel-in-windows-1846036161](https://lifehacker.com/how-to-find-the-missing-system-control-panel-in-windows-1846036161)
+> 原文：<https://lifehacker.com/how-to-find-the-missing-system-control-panel-in-windows-1846036161>
 
-如果你一直在更新你的Windows，很有可能你安装了微软2020年10月的一系列调整和修复——假设你 [没有被阻止](https://www.windowscentral.com/heres-why-you-might-be-blocked-getting-windows-10-october-2020-update) 这样做。高级用户可能注意到的一个大变化是从控制面板上移除了老式系统窗口。
+如果你一直在更新你的 Windows，很有可能你安装了微软 2020 年 10 月的一系列调整和修复——假设你 [没有被阻止](https://www.windowscentral.com/heres-why-you-might-be-blocked-getting-windows-10-october-2020-update) 这样做。高级用户可能注意到的一个大变化是从控制面板上移除了老式系统窗口。
 
 Watch
 
 之前的链接会将您带到如下所示的屏幕:
 
-现在你被铲到Windows 10的“关于”设置页面，看起来像这样:
+现在你被铲到 Windows 10 的“关于”设置页面，看起来像这样:
 
 我不介意变化，因为你仍然可以找到和以前一样的信息，只是重组了。然而，我有点恼火的是，你不能调整设置为默认的老派窗口，如果你喜欢的话。但是由于三个小的变通办法，你仍然可以访问我们都知道和喜欢的旧系统控制面板——目前。
 
 * * *
 
-要开始，在Windows 10中拉起**控制面板**。不要点击**系统**，会在**设置** app中启动**关于**窗口。相反，把**系统**链接拖到你的任务栏。这将把图标*固定到任务栏的*上，这正是你想要的。右键单击它，它应该是这样的:
+要开始，在 Windows 10 中拉起**控制面板**。不要点击**系统**，会在**设置** app 中启动**关于**窗口。相反，把**系统**链接拖到你的任务栏。这将把图标*固定到任务栏的*上，这正是你想要的。右键单击它，它应该是这样的:
 
 点击**系统**，像变魔术一样，老派的**系统**窗口会再次出现:
 
-所有的链接都正常工作，因为这是你多年来在Windows中使用的同一个经典系统窗口。是不是很可爱？
+所有的链接都正常工作，因为这是你多年来在 Windows 中使用的同一个经典系统窗口。是不是很可爱？
 
 * * *
 

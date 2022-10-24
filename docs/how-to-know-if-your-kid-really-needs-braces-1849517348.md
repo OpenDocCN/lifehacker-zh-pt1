@@ -1,8 +1,8 @@
 # 如何知道你的孩子是否真的需要牙套
 
-> 原文:[https://life hacker . com/how-to-know-if-your kid-really-needs-brasses-1849517348](https://lifehacker.com/how-to-know-if-your-kid-really-needs-braces-1849517348)
+> 原文：<https://lifehacker.com/how-to-know-if-your-kid-really-needs-braces-1849517348>
 
-牙套对孩子来说是一件很常见的事情，你孩子的牙医可能会建议你在某个时候去咨询正牙医生。(美国正牙医师协会 [建议](https://lifehacker.com/before-your-kid-gets-braces-consider-these-five-factor-1830828291) 在7岁前做这个。)但是你的孩子真的*需要*牙套吗？
+牙套对孩子来说是一件很常见的事情，你孩子的牙医可能会建议你在某个时候去咨询正牙医生。(美国正牙医师协会 [建议](https://lifehacker.com/before-your-kid-gets-braces-consider-these-five-factor-1830828291) 在 7 岁前做这个。)但是你的孩子真的*需要*牙套吗？
 
 Watch
 

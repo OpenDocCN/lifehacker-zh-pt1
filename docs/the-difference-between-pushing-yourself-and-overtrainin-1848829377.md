@@ -1,32 +1,32 @@
 # 鞭策自己和过度训练综合症的区别
 
-> 原文:[https://life hacker . com/the-difference of-pushing yourself and-overtrainin in-1848829377](https://lifehacker.com/the-difference-between-pushing-yourself-and-overtrainin-1848829377)
+> 原文：<https://lifehacker.com/the-difference-between-pushing-yourself-and-overtrainin-1848829377>
 
 作为一名马拉松运动员，我知道将身体推向极限是什么感觉。我知道当你感觉身体强壮时，你会渴望多跑一英里，或者在一场大赛前挤出最后一次长跑。我也知道勉强避免因为加油和恢复不足而导致严重的倦怠和受伤是什么感觉。
 
 Watch
 
-如果你是任何类型的运动员，你可能都见过“过度训练”的警告一些跑步者忽略了过度 [的迹象，直到他们的身体关闭以示抗议](https://www.buzzfeednews.com/article/briannasacks/overtraining-syndrome-burnout-rest) 。虽然你很难在举重房找到我，Lifehacker的高级健康编辑 [Beth Skwarecki](https://lifehacker.com/author/bethskwhttps://lifehacker.com/author/bethskw) 指出，许多去健身房的人会说这样的话，“你不能连续两天进行力量训练，否则你会过度训练。”过度训练和一般的疲劳有什么不同？
+如果你是任何类型的运动员，你可能都见过“过度训练”的警告一些跑步者忽略了过度 [的迹象，直到他们的身体关闭以示抗议](https://www.buzzfeednews.com/article/briannasacks/overtraining-syndrome-burnout-rest) 。虽然你很难在举重房找到我，Lifehacker 的高级健康编辑 [Beth Skwarecki](https://lifehacker.com/author/bethskwhttps://lifehacker.com/author/bethskw) 指出，许多去健身房的人会说这样的话，“你不能连续两天进行力量训练，否则你会过度训练。”过度训练和一般的疲劳有什么不同？
 
 术语“过度训练”被认为是“疲劳”和“酸痛”，而事实上，过度训练综合征(OTS)是一种严重的、长达数月的医学疾病——只有耐力运动员有充分的记录。以下是你需要了解的关于让你的身体承受压力到真正的过度训练综合症的程度，以及如果这种情况发生在你身上你应该怎么做。
 
 ## 什么导致过度训练综合症(OTS)
 
-OTS是过度运动而没有充分休息的。这就是困惑和错误信息出现的地方:到底什么算“过度”训练，什么算“充分”恢复？在进入更多细节之前，可以肯定地说，你不会因为连续两天举重而冒患上严重OTS的风险。甚至 [一周六天，对于有准备的运动员来说，都可以是一个合适的重量训练频率](https://journals.lww.com/acsm-msse/Fulltext/2009/03000/Progression_Models_in_Resistance_Training_for.26.aspx) 。
+OTS 是过度运动而没有充分休息的。这就是困惑和错误信息出现的地方:到底什么算“过度”训练，什么算“充分”恢复？在进入更多细节之前，可以肯定地说，你不会因为连续两天举重而冒患上严重 OTS 的风险。甚至 [一周六天，对于有准备的运动员来说，都可以是一个合适的重量训练频率](https://journals.lww.com/acsm-msse/Fulltext/2009/03000/Progression_Models_in_Resistance_Training_for.26.aspx) 。
 
 ### 过度训练与过度训练
 
 你需要鞭策自己才能看到收获，对吗？在变得严重有害之前，以一种战术上有利的方式推动你的身体有一个相当宽的门槛。
 
-与过度训练不同，“过度”是一个更通用的术语，指做了超出你能力范围的工作。在许多体育运动中，练习“功能性过度运动”是很常见的，这是你有目的地比你之前可以恢复的更努力地工作——关键是——在几天或几周后减少你的工作量。当一名运动员连续几周或几个月过度训练时，他们有可能因为过度训练而导致身体崩溃。更具体地说， [本指南的表1](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC3435910/)列出了功能性过度(好)、非功能性过度(坏)和过度训练综合症(真的不好)之间的区别。
+与过度训练不同，“过度”是一个更通用的术语，指做了超出你能力范围的工作。在许多体育运动中，练习“功能性过度运动”是很常见的，这是你有目的地比你之前可以恢复的更努力地工作——关键是——在几天或几周后减少你的工作量。当一名运动员连续几周或几个月过度训练时，他们有可能因为过度训练而导致身体崩溃。更具体地说， [本指南的表 1](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC3435910/)列出了功能性过度(好)、非功能性过度(坏)和过度训练综合症(真的不好)之间的区别。
 
-更多术语注释:过度训练综合征不同于运动中的(红色-S)和 [女运动员三联征](https://www.aafp.org/afp/2000/0601/p3357.html#:~:text=The%20female%20athlete%20triad%20is,devastating%20for%20the%20female%20athlete.) 。与目前关于OTS的假设相比，RED-S更关注营养摄入，尽管这些情况的原因和症状自然是密切相关的。
+更多术语注释:过度训练综合征不同于运动中的(红色-S)和 [女运动员三联征](https://www.aafp.org/afp/2000/0601/p3357.html#:~:text=The%20female%20athlete%20triad%20is,devastating%20for%20the%20female%20athlete.) 。与目前关于 OTS 的假设相比，RED-S 更关注营养摄入，尽管这些情况的原因和症状自然是密切相关的。
 
 ## 如何判断你是否训练过度
 
 如果你一直在努力训练，并注意到表现下降，你可能有过度训练的风险。
 
-#### **OTS的征兆(根据** [**嘶**](https://www.hss.edu/article_overtraining.asp#:~:text=Overtraining%20syndrome%20occurs%20when%20an,succeed%20in%20your%20chosen%20sport.) **和** [**国家医学图书馆**](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC3435910/) **)**
+#### **OTS 的征兆(根据** [**嘶**](https://www.hss.edu/article_overtraining.asp#:~:text=Overtraining%20syndrome%20occurs%20when%20an,succeed%20in%20your%20chosen%20sport.) **和** [**国家医学图书馆**](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC3435910/) **)**
 
 *   锻炼后异常的肌肉酸痛
 *   无法在以前可控制的水平上训练或比赛
@@ -42,7 +42,7 @@ OTS是过度运动而没有充分休息的。这就是困惑和错误信息出�
 *   便秘；腹泻
 *   长期全身疲劳
 
-如果你认为你可能患有OTS，你应该联系运动医学专业人士，他们可以让你走上康复的轨道。
+如果你认为你可能患有 OTS，你应该联系运动医学专业人士，他们可以让你走上康复的轨道。
 
 ## 从过度训练综合症中恢复
 

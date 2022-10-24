@@ -1,6 +1,6 @@
 # 你需要做这些美味的松饼
 
-> 原文:[https://life hacker . com/you-need-to-make the-somative-crumpets-1849585719](https://lifehacker.com/you-need-to-make-these-savory-crumpets-1849585719)
+> 原文：<https://lifehacker.com/you-need-to-make-these-savory-crumpets-1849585719>
 
 鸡蛋和烤面包往往是我的早餐选择。任何数量的食物伴侣都可以加入这个派对，但美味的蛋白质碳水化合物伙伴关系总是占据着上风。也就是说，这个联盟的祝酒词每天都在变化，这取决于我冰箱里有什么，最近，那是松饼。大多数人认为松饼有点甜，最好搭配黄油和果酱。虽然这是一种美味的做法，但如果裹上松软的鸡蛋和咸鳄梨会更好。让我们做美味的松饼吧。
 
@@ -10,9 +10,9 @@ Watch
 
 松饼比英国松饼有更浓的酵母味，我更喜欢它，因为它给我一种酸面团的感觉，尽管它并不酸。这种弹性使海绵状的圆形井成为美味的应用，大量的孔使它成为捕捉咸黄油或胶粘蛋黄的完美容器。即使在第二天烘烤后，松饼的外部仍然很脆，但内部仍然有弹性，所以你永远不会有尖锐的裂缝刮到你的上颚，每一口都不会遇到什么阻力。你感觉不像是一只撕咬你早餐的土狼，而更像是一个为你的一天做准备的人。
 
-当然，你可以在许多杂货店的冷藏区买到包装好的 松饼，但是它们不会像你在家里按照下面的食谱做的那样新鲜。面团很简单，虽然它们用酵母部分发酵，但你只需让混合物静置20-30分钟，而不是两个小时。面糊得到了发酵粉的帮助，发酵粉允许在短时间内有大量的孔，还有酵母发出的温暖的麦芽味。
+当然，你可以在许多杂货店的冷藏区买到包装好的 松饼，但是它们不会像你在家里按照下面的食谱做的那样新鲜。面团很简单，虽然它们用酵母部分发酵，但你只需让混合物静置 20-30 分钟，而不是两个小时。面糊得到了发酵粉的帮助，发酵粉允许在短时间内有大量的孔，还有酵母发出的温暖的麦芽味。
 
-要做松饼，将所有的原料倒入搅拌碗中，充分搅拌大约两分钟。面糊的厚度与薄煎饼面糊相似，但更容易制作。盖上盖子，放在温暖的地方。我倾向于把开着灯的微波炉用作 [打样箱](https://lifehacker.com/turn-your-microwave-into-a-makeshift-bread-dough-proofe-1691374971) 。在打样的20分钟里，给一些 [金属环](https://www.amazon.com/Norpro-3776-Stainless-English-Muffin/dp/B07BB54V8S/ref=asc_df_B07BB54V8S/?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/you-need-to-make-these-savory-crumpets-1849585719&asc_source=&hvadid=242030261655&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=9004365&hvnetw=g&hvpone=&hvpos=&hvptwo=&hvqmt=&hvrand=4305490122374757188&hvtargid=pla-437003169559&linkCode=df0&psc=1&tag=kinjalifehackerlink-20) 涂上黄油。(我知道，谁有金属环？如果你没有这样的戒指，你可以使用梅森罐盖的套筒部分。)加热煎锅，在中间放少量黄油。中火加热，将涂有黄油的戒指放在煎锅上，舀入大约一杯面糊。(如果你用的是罐盖环，从边缘朝下开始。)面糊会开始煮，在靠近金属的边缘形成孔洞。烹饪松饼大约两分钟，或者直到一些中心气泡破裂，开始变干。翻转前取下戒指(但如果你用的是罐子盖，翻转后取下)。翻转松饼，再煮一分钟。
+要做松饼，将所有的原料倒入搅拌碗中，充分搅拌大约两分钟。面糊的厚度与薄煎饼面糊相似，但更容易制作。盖上盖子，放在温暖的地方。我倾向于把开着灯的微波炉用作 [打样箱](https://lifehacker.com/turn-your-microwave-into-a-makeshift-bread-dough-proofe-1691374971) 。在打样的 20 分钟里，给一些 [金属环](https://www.amazon.com/Norpro-3776-Stainless-English-Muffin/dp/B07BB54V8S/ref=asc_df_B07BB54V8S/?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/you-need-to-make-these-savory-crumpets-1849585719&asc_source=&hvadid=242030261655&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=9004365&hvnetw=g&hvpone=&hvpos=&hvptwo=&hvqmt=&hvrand=4305490122374757188&hvtargid=pla-437003169559&linkCode=df0&psc=1&tag=kinjalifehackerlink-20) 涂上黄油。(我知道，谁有金属环？如果你没有这样的戒指，你可以使用梅森罐盖的套筒部分。)加热煎锅，在中间放少量黄油。中火加热，将涂有黄油的戒指放在煎锅上，舀入大约一杯面糊。(如果你用的是罐盖环，从边缘朝下开始。)面糊会开始煮，在靠近金属的边缘形成孔洞。烹饪松饼大约两分钟，或者直到一些中心气泡破裂，开始变干。翻转前取下戒指(但如果你用的是罐子盖，翻转后取下)。翻转松饼，再煮一分钟。
 
 下面的食谱是用百里香做的，但是你可以用任何你喜欢的切碎的香草代替。或者干脆把它完全抛开，做一个简单的松饼，给自己以后一些选择。松饼在开始变干之前，可以在冰箱里保存五天，并盖上盖子。如果有剩菜，我建议冷冻。然后你可以在你想要的时候拿出一个放在烤面包机里烤五分钟。它们可以冷冻保存两个月。
 
@@ -20,19 +20,19 @@ Watch
 
 #### 【使六】配料(T0):
 
-*   200毫升温水(大约3汤匙加入杯中)
-*   1茶匙干酵母(我用的是 [SAF酵母](https://shop.kingarthurbaking.com//items/saf-red-instant-yeast?gclid=CjwKCAjwvsqZBhAlEiwAqAHEld9C9VtTrKWUsqnXr13BVxfJUEJIlantSjb6HAPTAduRy2auAYOinhoC9vMQAvD_BwE) )
-*   1杯面粉
+*   200 毫升温水(大约 3 汤匙加入杯中)
+*   1 茶匙干酵母(我用的是 [SAF 酵母](https://shop.kingarthurbaking.com//items/saf-red-instant-yeast?gclid=CjwKCAjwvsqZBhAlEiwAqAHEld9C9VtTrKWUsqnXr13BVxfJUEJIlantSjb6HAPTAduRy2auAYOinhoC9vMQAvD_BwE) )
+*   1 杯面粉
 *   茶匙盐
 *   茶匙糖
-*   1茶匙发酵粉
-*   1汤匙百里香叶
+*   1 茶匙发酵粉
+*   1 汤匙百里香叶
 
 将水和酵母加入一个中等大小的碗中。让酵母发酵一两分钟，然后搅拌。向碗中依次加入面粉、盐、糖和发酵粉。将混合物连续搅拌两到三分钟，以增强面筋强度。加入百里香，轻轻搅拌，直到混合。
 
-盖上碗，放在温暖的地方休息20-30分钟。同时准备金属环。
+盖上碗，放在温暖的地方休息 20-30 分钟。同时准备金属环。
 
-给两个3英寸的金属环涂上黄油。与其吝啬这里的黄油，不如多涂一些。
+给两个 3 英寸的金属环涂上黄油。与其吝啬这里的黄油，不如多涂一些。
 
 当面糊顶部有很多泡沫时，将不粘锅放入中火加热。加入豌豆大小的黄油涂在锅底，在锅上放一个金属环。加入大约一杯百里香面糊。它会起泡，边缘会变成棕色——你现在可以把戒指摘下来了。(如果你使用的是梅森罐盖套，翻转面饼后取下环。)
 

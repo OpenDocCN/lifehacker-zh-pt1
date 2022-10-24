@@ -1,6 +1,6 @@
 # 生土豆能解决太咸的食物吗？
 
-> 原文:[https://life hacker . com/can-a-raw-potato-fix-food-that-that-sally-1846619925](https://lifehacker.com/can-a-raw-potato-fix-food-thats-too-salty-1846619925)
+> 原文：<https://lifehacker.com/can-a-raw-potato-fix-food-thats-too-salty-1846619925>
 
 我更有可能过度调味而不是调味不足。我喜欢盐，可能比大多数人都喜欢，偶尔盐瓶会离开我。不幸的是，一旦氯化钠接触到你的食物，就很难去除了(尤其是当你在做沙司、汤或者其他主要是流质的食物时)。
 

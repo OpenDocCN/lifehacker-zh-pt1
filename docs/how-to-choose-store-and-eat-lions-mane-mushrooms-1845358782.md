@@ -1,6 +1,6 @@
 # 如何选择、储存和食用狮鬃菇
 
-> 原文:[https://life hacker . com/how-to-choose-store-and-eat-lions-mane-蘑菇-1845358782](https://lifehacker.com/how-to-choose-store-and-eat-lions-mane-mushrooms-1845358782)
+> 原文：<https://lifehacker.com/how-to-choose-store-and-eat-lions-mane-mushrooms-1845358782>
 
 如果你最近经常去农贸市场(或者住在杂货店附近)，你可能会看到它们。它们看起来像苍白的小动物——蓬松柔软，有点可爱——但它们是蘑菇，而且它们有邪恶的一面(它们谋杀树木)。
 

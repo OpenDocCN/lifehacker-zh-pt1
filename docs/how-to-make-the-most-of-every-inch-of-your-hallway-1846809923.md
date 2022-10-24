@@ -1,12 +1,12 @@
 # 如何充分利用走廊的每一寸空间
 
-> 原文:[https://life hacker . com/how-to-make-the-most the-inch-your-hallow-1846809923](https://lifehacker.com/how-to-make-the-most-of-every-inch-of-your-hallway-1846809923)
+> 原文：<https://lifehacker.com/how-to-make-the-most-of-every-inch-of-your-hallway-1846809923>
 
 如果你住在一所大房子里，你可能会把你的走廊看作是那些需要吸尘的额外空间，只是把你从家里的一个地方带到另一个地方。但如果你住在公寓或小房子里，走廊是你绝对应该充分利用的宝贵空间。
 
 Watch
 
-但是不管你家的大小如何，你都可以利用走廊做更多的事情——至少从装饰的角度来看。在最近为Hunker 撰写的一篇文章中，Siobhan Murphy为你家这一未被充分利用的部分提供了一些想法。
+但是不管你家的大小如何，你都可以利用走廊做更多的事情——至少从装饰的角度来看。在最近为 Hunker 撰写的一篇文章中，Siobhan Murphy 为你家这一未被充分利用的部分提供了一些想法。
 
 ### 如何最大限度地发挥门厅的潜力
 

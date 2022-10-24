@@ -1,12 +1,12 @@
-# 10种不用尝就能吃更多蔬菜的方法
+# 10 种不用尝就能吃更多蔬菜的方法
 
-> 原文:[https://the take out . com/10-ways-to-eat-more-vegeties-without-taste-1848622647](https://thetakeout.com/10-ways-to-eat-more-veggies-without-tasting-them-1848622647)
+> 原文：<https://thetakeout.com/10-ways-to-eat-more-veggies-without-tasting-them-1848622647>
 
-如果一天一个苹果可以让医生远离你，那么一把菠菜更能击退电话推销员。蔬菜是健康饮食的重要组成部分，其 [被证明对从血压到消化的一切都有积极影响](https://www.hsph.harvard.edu/nutritionsource/what-should-you-eat/vegetables-and-fruits/) 。我们都知道吃蔬菜的重要性；即便如此，吃推荐的每天2.5杯蔬菜的可能会令人惊讶地棘手，尤其是如果你对自然糖果的味道不感兴趣的话。幸运的是，有很多方法可以将蔬菜偷偷放进日常菜肴中。你可能尝不到它们，但你仍然会从中获益。
+如果一天一个苹果可以让医生远离你，那么一把菠菜更能击退电话推销员。蔬菜是健康饮食的重要组成部分，其 [被证明对从血压到消化的一切都有积极影响](https://www.hsph.harvard.edu/nutritionsource/what-should-you-eat/vegetables-and-fruits/) 。我们都知道吃蔬菜的重要性；即便如此，吃推荐的每天 2.5 杯蔬菜的可能会令人惊讶地棘手，尤其是如果你对自然糖果的味道不感兴趣的话。幸运的是，有很多方法可以将蔬菜偷偷放进日常菜肴中。你可能尝不到它们，但你仍然会从中获益。
 
  [https://thetakeout.com/embed/inset/iframe?id=tiktok-6798685504662457606&autosize=1](https://thetakeout.com/embed/inset/iframe?id=tiktok-6798685504662457606&autosize=1) 
 
-磨碎的胡萝卜有一种温和的味道，可以无缝地融入从肉卷到松饼的所有食物中。如果你喜欢这种味道，你可以将半杯磨碎的胡萝卜扔到bulgogi碗里，进行即时纹理注入——但也很容易将胡萝卜藏在丰盛的菜肴中。没有食品加工机？没问题。只需将你的奶酪磨碎机放在一个大碗上，磨碎一天。
+磨碎的胡萝卜有一种温和的味道，可以无缝地融入从肉卷到松饼的所有食物中。如果你喜欢这种味道，你可以将半杯磨碎的胡萝卜扔到 bulgogi 碗里，进行即时纹理注入——但也很容易将胡萝卜藏在丰盛的菜肴中。没有食品加工机？没问题。只需将你的奶酪磨碎机放在一个大碗上，磨碎一天。
 
 我们知道，我们知道——这并不是一个突破性的建议。但是如果你是第一次接触绿色冰沙，你会惊讶地发现用水果味掩盖蔬菜的味道是多么容易。试着将一把菠菜和椰子汁混合，然后加入香蕉、蓝莓和草莓。你会忘记菠菜就在那里。
 

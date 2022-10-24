@@ -1,8 +1,8 @@
 # 这些房屋翻新将使你的房子更能抵御热浪
 
-> 原文:[https://life hacker . com/these-home-renovations-will-make-your ' s house-more-heat-w-1849319759](https://lifehacker.com/these-home-renovations-will-make-your-house-more-heat-w-1849319759)
+> 原文：<https://lifehacker.com/these-home-renovations-will-make-your-house-more-heat-w-1849319759>
 
-如果你没注意到的话，我想外面很热。你住在哪里几乎无关紧要——甚至该死的*北极圈*几年前经历了超过100华氏度的，今年夏天热浪已经让欧洲 [、北美、非洲和亚洲](https://earthobservatory.nasa.gov/images/150083/heatwaves-and-fires-scorch-europe-africa-and-asia) 的生活难以忍受。我们知道将会有更多更频繁的热浪，带来更高的温度。虽然我们都从 [中学到了](https://lifehacker.com/impress-yourself-and-others-by-always-having-this-wit-1849314408) a [几个关于](https://lifehacker.com/beat-the-heat-with-these-refreshing-delicious-dishes-1801391993) [在极端高温下幸存](https://lifehacker.com/what-to-do-when-theres-an-excessive-heat-warning-1849148961) 的 教训，但我们已经到了阻止气候变化可能不再是一个选项的地步——现在一切都是准备和规划的问题。如果你现在因为热浪而在家里受苦，情况可能只会变得更糟。
+如果你没注意到的话，我想外面很热。你住在哪里几乎无关紧要——甚至该死的*北极圈*几年前经历了超过 100 华氏度的，今年夏天热浪已经让欧洲 [、北美、非洲和亚洲](https://earthobservatory.nasa.gov/images/150083/heatwaves-and-fires-scorch-europe-africa-and-asia) 的生活难以忍受。我们知道将会有更多更频繁的热浪，带来更高的温度。虽然我们都从 [中学到了](https://lifehacker.com/impress-yourself-and-others-by-always-having-this-wit-1849314408) a [几个关于](https://lifehacker.com/beat-the-heat-with-these-refreshing-delicious-dishes-1801391993) [在极端高温下幸存](https://lifehacker.com/what-to-do-when-theres-an-excessive-heat-warning-1849148961) 的 教训，但我们已经到了阻止气候变化可能不再是一个选项的地步——现在一切都是准备和规划的问题。如果你现在因为热浪而在家里受苦，情况可能只会变得更糟。
 
 Watch
 
@@ -12,7 +12,7 @@ Watch
 
 这似乎是显而易见的，但是如果你仍然开着窗式空调(或者根本没有空调),也许是时候咬紧牙关，在家里安装某种气候控制系统了。在现有的房子里安装中央空调很困难，但是迷你分体式无管道系统在给你的房子降温时非常有效。取消窗户单元也有助于封闭你的房子，让它更容易降温和保持凉爽。安装任何种类的空调都是昂贵的，但是现在就开始计划吧。
 
-## Windows操作系统
+## Windows 操作系统
 
 如果你的窗户很旧(或者很便宜)，更换新的节能窗户是必须的。新窗户不仅可以提供良好的密封，将冷空气挡在里面，将热空气挡在外面，而且阻挡热传递和太阳辐射的玻璃可以首先阻止热量进入室内，使您的冷却费用更低，空调更有效。带有氩气绝缘的低辐射镀膜玻璃可以减少通过窗户进入的英国热量单位(btu)的数量，同时仍然允许大量的阳光进入。如果更换窗户太贵，你可以试着在现有的窗户上贴一层防紫外线膜。不会那么有效，但是会在一定程度上减少热传递。
 

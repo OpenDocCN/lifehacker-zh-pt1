@@ -1,12 +1,12 @@
-# 如何与Ximena Vengoechea进行更深入的对话
+# 如何与 Ximena Vengoechea 进行更深入的对话
 
-> 原文:[https://life hacker . com/how-to-与ximena-vengoeche-1847329721](https://lifehacker.com/how-to-have-deeper-conversations-with-ximena-vengoeche-1847329721)
+> 原文：<https://lifehacker.com/how-to-have-deeper-conversations-with-ximena-vengoeche-1847329721>
 
-我们中的许多人在疫情期间都花了很多时间与世隔绝，所以本周我们在用户研究员兼作家Ximena Vengoechea的帮助下重新学习深度对话的艺术。
+我们中的许多人在疫情期间都花了很多时间与世隔绝，所以本周我们在用户研究员兼作家 Ximena Vengoechea 的帮助下重新学习深度对话的艺术。
 
 Watch
 
-Ximena在为LinkedIn、Twitter和Pinterest等公司进行用户研究时磨练了她的倾听技巧，现在她在自己的新书中分享了这些技巧， [*【听你的:*](https://www.amazon.com/gp/product/0593087054/ref=as_li_tl?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-have-deeper-conversations-with-ximena-vengoeche-1847329721&asc_source=&camp=1789&creative=9325&creativeASIN=0593087054&ie=UTF8&linkCode=as2&linkId=e799672e6db40b48eb60b15aae216f56&tag=kinjalifehackerlink-20) [*【找回失去的真正联系的艺术】*](https://www.amazon.com/gp/product/0593087054/ref=as_li_tl?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-have-deeper-conversations-with-ximena-vengoeche-1847329721&asc_source=&camp=1789&creative=9325&creativeASIN=0593087054&ie=UTF8&linkCode=as2&linkId=e799672e6db40b48eb60b15aae216f56&tag=kinjalifehackerlink-20) *。*听一听Ximena给出了一些绝妙的建议，告诉你如何问正确的问题来促成一场更有趣的对话，如何成为一个更开放、更有同情心的倾听者，以及如何在需要时优雅地退出对话。
+Ximena 在为 LinkedIn、Twitter 和 Pinterest 等公司进行用户研究时磨练了她的倾听技巧，现在她在自己的新书中分享了这些技巧， [*【听你的:*](https://www.amazon.com/gp/product/0593087054/ref=as_li_tl?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-have-deeper-conversations-with-ximena-vengoeche-1847329721&asc_source=&camp=1789&creative=9325&creativeASIN=0593087054&ie=UTF8&linkCode=as2&linkId=e799672e6db40b48eb60b15aae216f56&tag=kinjalifehackerlink-20) [*【找回失去的真正联系的艺术】*](https://www.amazon.com/gp/product/0593087054/ref=as_li_tl?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-have-deeper-conversations-with-ximena-vengoeche-1847329721&asc_source=&camp=1789&creative=9325&creativeASIN=0593087054&ie=UTF8&linkCode=as2&linkId=e799672e6db40b48eb60b15aae216f56&tag=kinjalifehackerlink-20) *。*听一听 Ximena 给出了一些绝妙的建议，告诉你如何问正确的问题来促成一场更有趣的对话，如何成为一个更开放、更有同情心的倾听者，以及如何在需要时优雅地退出对话。
 
 [https://art19.com/shows/96bf1671-b079-4f44-b7d2-e95d655de263/episodes/c779bb17-86ad-4e6c-8f3b-5d6ae9ca4adb/embed](https://art19.com/shows/96bf1671-b079-4f44-b7d2-e95d655de263/episodes/c779bb17-86ad-4e6c-8f3b-5d6ae9ca4adb/embed)
 
@@ -16,7 +16,7 @@ T2】
 
 ## **本周集锦**
 
-### **摘自Ximena Vengoechea访谈**
+### **摘自 Ximena Vengoechea 访谈**
 
 好的倾听心态到底是什么样的:
 
@@ -30,7 +30,7 @@ T2】
 
 > 所以我们可能有一个了解某人的目标，或者一个了解某人的目标。这些问题可以用来实现这个目标。但是我们也需要跟踪其他人的情况。他们开始提供越来越小的回应了吗？他们是不是因为我们不停地问他们问题，而他们却给我们一段一段的回答而喘不过气来？我认为关注这些暗示可能是一个信号，让我们可以稍微往后靠一点，或者开始从我们自己的角度提供一些东西。我认为这在谈话中很重要。有两个方面。有倾听的一面。有说话的一面。你希望有一个给予和接受。然后我要说的另一件事是，我认为对这种本能有帮助的，特别是，弄清楚对方在这次谈话中的需求是什么。因为当我们问所有的问题时，那可能源于我们自己的需要...我们想让他们感到舒适。我们想在一定程度上了解他们。但是对方也有需求。所以你真的想在谈话中为这两种需求留出空间。这需要一点平衡。
 
-想听更多Ximena关于更深层次对话艺术的建议，我们推荐听完整集。
+想听更多 Ximena 关于更深层次对话艺术的建议，我们推荐听完整集。
 
 ### 情节抄本
 

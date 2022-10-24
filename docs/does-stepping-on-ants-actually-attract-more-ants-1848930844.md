@@ -1,6 +1,6 @@
 # 踩蚂蚁真的会引来更多的蚂蚁吗？
 
-> 原文:[https://life hacker . com/does-stepping-on-ants-actually-attract-more-ants-1848930844](https://lifehacker.com/does-stepping-on-ants-actually-attract-more-ants-1848930844)
+> 原文：<https://lifehacker.com/does-stepping-on-ants-actually-attract-more-ants-1848930844>
 
 每年大约在这个时候，当我家的门打开时，我们开始依靠窗外春天的新鲜空气生存，孩子们每天都在吃西瓜和冰棍(吸引了许多六条腿的小入侵者)，我想知道:踩蚂蚁会吸引更多的蚂蚁是真的吗？因为，作为我家厨房的主要清洁工，我是默认的首席蚂蚁黑仔。
 

@@ -1,6 +1,6 @@
 # 如何给你的天花板做模板(以及为什么你应该这样做)
 
-> 原文:[https://life hacker . com/how-to-stencil-your-ceiling-and-why-you-should-1848505031](https://lifehacker.com/how-to-stencil-your-ceiling-and-why-you-should-1848505031)
+> 原文：<https://lifehacker.com/how-to-stencil-your-ceiling-and-why-you-should-1848505031>
 
 天花板经常是我们家中被忽视的元素，但是一点点纹理或一些颜色确实可以为房间增添不少色彩。如果压制的锡天花板超出了你的预算，有更简单的方法来添加一些昂贵的外观细节，而不会超出你的预算。以下是如何实现完全符合你风格的快速更新。
 

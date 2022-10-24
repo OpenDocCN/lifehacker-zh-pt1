@@ -1,6 +1,6 @@
 # 谣言是真的，你真的可以在蛋黄酱中煎鸡蛋
 
-> 原文:[https://life hacker . com/the-rumors-is-true-you-true-can-fry a egg in-mayon-1847949171](https://lifehacker.com/the-rumors-are-true-you-really-can-fry-an-egg-in-mayon-1847949171)
+> 原文：<https://lifehacker.com/the-rumors-are-true-you-really-can-fry-an-egg-in-mayon-1847949171>
 
 蛋黄酱是由鸡蛋制成的，经常被用在以鸡蛋为特色的菜肴中，尤其是煮熟的鸡蛋。从 [到](https://www.youtube.com/watch?v=2oo6iEqkFnI) 的蛋黄酱，这种组合受到很多人的喜爱(和厌恶)。
 

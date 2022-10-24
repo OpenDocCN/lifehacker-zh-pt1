@@ -1,6 +1,6 @@
 # 如何避免社交疲劳，还能做个好朋友
 
-> 原文:[https://life hacker . com/how-to-avoid-social-exhaust-and-being-an-good-frie-1849462162](https://lifehacker.com/how-to-avoid-social-exhaustion-and-still-be-a-good-frie-1849462162)
+> 原文：<https://lifehacker.com/how-to-avoid-social-exhaustion-and-still-be-a-good-frie-1849462162>
 
 全球疫情让我们充分认识到社交是多么令人疲惫不堪——即使是和你真心喜欢的人。当然，这是内向的人一直都知道的，但现在，在过去两年半的时间里，大多数人至少有一段时间没有和朋友在一起，其他人对这种感觉有了更好的了解。
 

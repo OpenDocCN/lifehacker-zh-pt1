@@ -1,6 +1,6 @@
 # 如何为重返办公室的隐性成本做预算
 
-> 原文:[https://life hacker . com/how-to-budget-the-hidden-cost-of-return-an-o-1847543245](https://lifehacker.com/how-to-budget-for-the-hidden-costs-of-returning-to-an-o-1847543245)
+> 原文：<https://lifehacker.com/how-to-budget-for-the-hidden-costs-of-returning-to-an-o-1847543245>
 
 对我们许多人来说，在家工作是对我们职业生活的一种预算友好的调整。除去任何初始的家庭办公室设置——特别是如果你的雇主没有提供财政支持的话——你可能没有很多与着装、通勤和社交相关的日常开支。但是，如果重返办公室迫在眉睫，你可能要提前计划一些面对面工作的隐性成本。这里有几个项目可以列入你的预算。
 
@@ -22,7 +22,7 @@ Watch
 
 ## 计划加餐和社交活动
 
-在Zoom happy hour期间，和你的同事在酒吧喝一杯比你冰箱里的啤酒更贵，所以如果你打算开始亲自社交，确保你为此做好预算。咖啡、午餐和其他不在家准备的食物以及下班后的活动也是如此。
+在 Zoom happy hour 期间，和你的同事在酒吧喝一杯比你冰箱里的啤酒更贵，所以如果你打算开始亲自社交，确保你为此做好预算。咖啡、午餐和其他不在家准备的食物以及下班后的活动也是如此。
 
 ## 当然，还要为其他琐事做预算
 

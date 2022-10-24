@@ -1,6 +1,6 @@
 # 青少年可能真的会看这些来自计划生育的性教育视频
 
-> 原文:[https://life hacker . com/tenes-may-actually-watch-these-ed-videos-from-PLA-1847007278](https://lifehacker.com/teens-might-actually-watch-these-sex-ed-videos-from-pla-1847007278)
+> 原文：<https://lifehacker.com/teens-might-actually-watch-these-sex-ed-videos-from-pla-1847007278>
 
 我们知道，不仅仅是一个人与我们的孩子谈论性是很重要的，还有很多的闲聊:谈论他们的身体、青春期、性和同意，从他们小的时候开始，随着年龄的增长扩展这些话题。然而，即使我们从一开始就对我们的孩子开诚布公，即使他们知道他们可以在任何需要交谈的时候来找我们，仍然有一些问题他们不太可能向我们寻求答案。这就是为什么我们需要计划生育的额外支持。
 

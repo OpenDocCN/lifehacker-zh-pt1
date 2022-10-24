@@ -1,6 +1,6 @@
 # 如何打造一个缝隙花园
 
-> 原文:[https://life hacker . com/how-to-make-a-crawl-garden-1849379857](https://lifehacker.com/how-to-make-a-crevice-garden-1849379857)
+> 原文：<https://lifehacker.com/how-to-make-a-crevice-garden-1849379857>
 
 在许多类型的景观美化中，多样性是关键。基于创建不同高度、颜色和纹理的区域来做出决定。在过去的几年里，缝隙花园变得越来越受欢迎，因为它们提供了上述所有功能，也是景观的焦点，而且一旦建成，维护起来相对容易。这里有一些关于如何建造裂缝花园的知识。
 

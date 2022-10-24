@@ -1,8 +1,8 @@
 # 如何让你的狗停止对邮递员吠叫
 
-> 原文:[https://life hacker . com/how-to-get-your-dog-stop-barking-in-mail-carrier-1849576069](https://lifehacker.com/how-to-get-your-dog-to-stop-barking-at-the-mail-carrier-1849576069)
+> 原文：<https://lifehacker.com/how-to-get-your-dog-to-stop-barking-at-the-mail-carrier-1849576069>
 
-狗和邮递员之间的关系很复杂。作为一个常见的电视比喻，它经常被用来搞笑，但对于仅在2021年就被狗袭击的美国大约5400名邮政员工 来说，它是一个严重的工作风险。
+狗和邮递员之间的关系很复杂。作为一个常见的电视比喻，它经常被用来搞笑，但对于仅在 2021 年就被狗袭击的美国大约 5400 名邮政员工 来说，它是一个严重的工作风险。
 
 Watch
 
@@ -16,7 +16,7 @@ Watch
 
 进入:邮递员和其他送货的人。他们来到你的住所——通常到你家门口——放下邮件或包裹，然后立即离开。
 
-如果你的狗在送货员到达时就开始吠叫(或者，在某些情况下，在此之前，如果他们能够识别USPS或FedEx卡车的刹车声，例如，他们会认为他们凶猛的吠叫达到了目的——导致邮递员逃离他们的财产——他们再次成功地捍卫了他们的家园和家人。
+如果你的狗在送货员到达时就开始吠叫(或者，在某些情况下，在此之前，如果他们能够识别 USPS 或 FedEx 卡车的刹车声，例如，他们会认为他们凶猛的吠叫达到了目的——导致邮递员逃离他们的财产——他们再次成功地捍卫了他们的家园和家人。
 
 但是这种情况特别棘手的是，邮递员可能一周有六天都来你家，正如美国养犬俱乐部(AKC)指出的，“这为强化这种行为提供了完美的训练刺激。”
 
@@ -24,19 +24,19 @@ Watch
 
 在例行公事地用它们的吠叫赶走邮递员后，你的狗可能对它们赶走这个持续入侵者的能力非常满意——不幸的是，这使得它很难停下来。
 
-另外，正如 [MSPCA注释](https://www.mspca.org/pet_resources/barking-basics/#:~:text=Dogs%20learn%20very%20quickly%20that,mailman%20comes%20to%20the%20door.) 的那样，这是一种“警报吠叫”，是一种自然行为，和不可能完全消除。但是，是可以控制的。以下是一些你可以尝试的策略，由狗专家和动物行为学家提供:
+另外，正如 [MSPCA 注释](https://www.mspca.org/pet_resources/barking-basics/#:~:text=Dogs%20learn%20very%20quickly%20that,mailman%20comes%20to%20the%20door.) 的那样，这是一种“警报吠叫”，是一种自然行为，和不可能完全消除。但是，是可以控制的。以下是一些你可以尝试的策略，由狗专家和动物行为学家提供:
 
 ### 拥有“安静”的命令
 
-MSPCA的 [建议](https://www.mspca.org/pet_resources/barking-basics/#:~:text=Dogs%20learn%20very%20quickly%20that,mailman%20comes%20to%20the%20door.) 教你的狗一个“安静”的命令。为此，让某人走过你的房子或开始接近你的家，触发你的狗叫。在狗叫了三四声后，给它们看一份真正特别的食物(比如鸡肉、奶酪或它们喜欢的食物)。当它们停止吠叫以获得奖励时，说“安静”，然后给它们奖励。
+MSPCA 的 [建议](https://www.mspca.org/pet_resources/barking-basics/#:~:text=Dogs%20learn%20very%20quickly%20that,mailman%20comes%20to%20the%20door.) 教你的狗一个“安静”的命令。为此，让某人走过你的房子或开始接近你的家，触发你的狗叫。在狗叫了三四声后，给它们看一份真正特别的食物(比如鸡肉、奶酪或它们喜欢的食物)。当它们停止吠叫以获得奖励时，说“安静”，然后给它们奖励。
 
 重复这个练习，直到你给你的狗“安静”的命令，他们已经停止叫了十几次。一旦你的狗已经掌握了对待安静下来，尝试使用命令，而不显示他们对待，看看他们是否停止吠叫。如果他们这样做了，给他们一点奖励。
 
-根据认证动物行为学家和AKC家庭狗的主管玛丽·伯奇博士的说法，关键是要让你的狗相信，它们因*没有*回应而得到的回报比吠叫赶走它们的敌人更令人满意。
+根据认证动物行为学家和 AKC 家庭狗的主管玛丽·伯奇博士的说法，关键是要让你的狗相信，它们因*没有*回应而得到的回报比吠叫赶走它们的敌人更令人满意。
 
 ### 让他们工作
 
-你也可以试着给你的狗一份“工作”，让它们在每日邮件递送期间有事可做，根据 [AKC专家](https://www.akc.org/expert-advice/training/why-does-my-dog-bark-at-the-mail-carrier/) 的说法。例如，一些人训练他们的狗在邮递员接近时抓住玩具并进入另一个房间。
+你也可以试着给你的狗一份“工作”，让它们在每日邮件递送期间有事可做，根据 [AKC 专家](https://www.akc.org/expert-advice/training/why-does-my-dog-bark-at-the-mail-carrier/) 的说法。例如，一些人训练他们的狗在邮递员接近时抓住玩具并进入另一个房间。
 
 当然，对于一些狗来说，在那一刻，对送货员吠叫是它们的最高优先级，所以当它们相信自己有真正的工作要做时，它们可能对玩具或假工作不感兴趣。
 
@@ -52,4 +52,4 @@ MSPCA的 [建议](https://www.mspca.org/pet_resources/barking-basics/#:~:text=Do
 
 ### 忽略狗叫声
 
-如果邮递员来的时候你碰巧在家，试着忽略你的狗和它们的叫声，而不是用你的注意力来奖励它们。同样，不要对你的狗大喊大叫，让它停止吠叫:你可能会认为这是对它们行为的消极回应，并责骂它们，但很有可能它们会认为这是关注(和/或认为你在和它们玩耍)，因此，根据AKC ，这是一种奖励 [。](https://www.akc.org/expert-advice/training/why-does-my-dog-bark-at-the-mail-carrier/)
+如果邮递员来的时候你碰巧在家，试着忽略你的狗和它们的叫声，而不是用你的注意力来奖励它们。同样，不要对你的狗大喊大叫，让它停止吠叫:你可能会认为这是对它们行为的消极回应，并责骂它们，但很有可能它们会认为这是关注(和/或认为你在和它们玩耍)，因此，根据 AKC ，这是一种奖励 [。](https://www.akc.org/expert-advice/training/why-does-my-dog-bark-at-the-mail-carrier/)

@@ -1,6 +1,6 @@
 # 用以下三种方法之一追踪你的植物护理
 
-> 原文:[https://life hacker . com/track-your-plant-care-with-this-thats-methods-1847096818](https://lifehacker.com/track-your-plant-care-with-one-of-these-three-methods-1847096818)
+> 原文：<https://lifehacker.com/track-your-plant-care-with-one-of-these-three-methods-1847096818>
 
 有些植物喜欢夏天在户外；其他的 [处理不了阳光直射](https://lifehacker.com/these-indoor-plants-love-direct-sunlight-1847051422) 。有些需要每天浇水，而 [有些很少需要](https://lifehacker.com/how-to-keep-a-succulent-alive-because-its-trickier-tha-1846917775)。为了跟上，使用追踪器可以帮助你记录一些基本的护理信息，这样你的植物就可以在你忙碌的时间表和复杂的护理中存活。这里有几个方法可以做到。
 
@@ -20,9 +20,9 @@ Watch
 
 不过，要小心那些让你为基本服务支付过高费用的应用程序。有些人声称能够发现和诊断某些植物疾病，但当我在我最近生病的肉质植物上尝试时，我发现这并不准确。尽管一些植物应用程序存在故障，但其他应用程序已被证明在 [发现有毒植物](https://link.springer.com/article/10.1007/s13181-020-00803-6) 并提供准确的植物识别方面是有效的。
 
-## 为你的工厂护理程序使用一个专门的s 预表单
+## 为你的工厂护理程序使用一个专门的 s 预表单
 
-如果你更倾向于数字化，但又不愿意在你的名册上添加另一个应用程序，试着建立一个电子表格。你可以为不同的工厂细节设置不同的标签——一个标签是水，另一个是肥料，等等。将保存在你喜欢的云服务上，这样你就可以和离家在外时照顾你的植物的人分享电子表格。您可以从头开始制作电子表格或在线寻找 [模板](https://www.poweredbytofu.com/garden-planning-spreadsheet/) 。一些专门的植物护理模板可能要花钱，却不如 [低至6](https://www.etsy.com/listing/816057764/house-plant-care-excel-spreadsheet) 美元。
+如果你更倾向于数字化，但又不愿意在你的名册上添加另一个应用程序，试着建立一个电子表格。你可以为不同的工厂细节设置不同的标签——一个标签是水，另一个是肥料，等等。将保存在你喜欢的云服务上，这样你就可以和离家在外时照顾你的植物的人分享电子表格。您可以从头开始制作电子表格或在线寻找 [模板](https://www.poweredbytofu.com/garden-planning-spreadsheet/) 。一些专门的植物护理模板可能要花钱，却不如 [低至 6](https://www.etsy.com/listing/816057764/house-plant-care-excel-spreadsheet) 美元。
 
 ## 用一本老式的日志记录你的植物护理
 

@@ -1,6 +1,6 @@
-# 你在熟食店不知不觉变成混蛋的6种方式
+# 你在熟食店不知不觉变成混蛋的 6 种方式
 
-> 原文:[https://the take out . com/how-to-order-in-杂货店-熟食店-无粗鲁-1849627537](https://thetakeout.com/how-to-order-at-grocery-store-deli-without-being-rude-1849627537)
+> 原文：<https://thetakeout.com/how-to-order-at-grocery-store-deli-without-being-rude-1849627537>
 
 这里有一句话不会让在熟食柜台工作的人感到震惊:顾客绝对是最糟糕的。对于每一个文明、直率的顾客来说，都有一群没有灵魂、半清醒的傻瓜，他们几乎没有足够的资金来找到熟食店，更不用说 [在“野餐”和“经典”土豆沙拉](https://thetakeout.com/best-potato-salad-deli-styles-ranked-german-vs-american-1849360473) 之间做出选择了。他们会在最糟糕的时刻出现，在整个销售大厅都能被发现，这是一种不顾一切想要激怒你的自然力量。
 

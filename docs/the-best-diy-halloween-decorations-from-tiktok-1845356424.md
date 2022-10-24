@@ -1,6 +1,6 @@
-# 来自抖音的最佳DIY万圣节装饰品
+# 来自抖音的最佳 DIY 万圣节装饰品
 
-> 原文:[https://life hacker . com/the-best-DIY-Halloween-decorations-from-tiktok-1845356424](https://lifehacker.com/the-best-diy-halloween-decorations-from-tiktok-1845356424)
+> 原文：<https://lifehacker.com/the-best-diy-halloween-decorations-from-tiktok-1845356424>
 
 感谢 [即将到来的大选](https://lifehacker.com/how-the-2020-votes-will-be-counted-1845231803) 和疫情，这个十月有望成为历史上最可怕的之一。为什么不用一些有趣的万圣节装饰品来转移你对现实生活中的恐怖的注意力呢？
 
@@ -42,7 +42,7 @@ Watch
 
  [https://lifehacker.com/embed/inset/iframe?id=tiktok-6861238309302193414&autosize=1](https://lifehacker.com/embed/inset/iframe?id=tiktok-6861238309302193414&autosize=1) 
 
-#PlantParents和[tre panation](http://www.bbc.com/earth/story/20160826-why-our-ancestors-drilled-holes-in-each-others-skulls)的粉丝们注意了:这些塑料头骨种植器不仅给你一个喜庆的地方来摆放你的植物，还可以让你尝试世界上最古老的医疗程序之一( [在一个人的头骨上钻孔](https://thereader.mitpress.mit.edu/hole-in-the-head-trepanation) )。
+#PlantParents 和[tre panation](http://www.bbc.com/earth/story/20160826-why-our-ancestors-drilled-holes-in-each-others-skulls)的粉丝们注意了:这些塑料头骨种植器不仅给你一个喜庆的地方来摆放你的植物，还可以让你尝试世界上最古老的医疗程序之一( [在一个人的头骨上钻孔](https://thereader.mitpress.mit.edu/hole-in-the-head-trepanation) )。
 
 ### 幽灵灯笼
 

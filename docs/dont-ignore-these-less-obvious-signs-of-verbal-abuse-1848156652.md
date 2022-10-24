@@ -1,6 +1,6 @@
 # 不要忽视这些不太明显的辱骂迹象
 
-> 原文:[https://life hacker . com/don-ignore-these-less-oblight-signs-of-worldly-abuse-1848156652](https://lifehacker.com/dont-ignore-these-less-obvious-signs-of-verbal-abuse-1848156652)
+> 原文：<https://lifehacker.com/dont-ignore-these-less-obvious-signs-of-verbal-abuse-1848156652>
 
 有时候，当有人对你说话时，很明显是在辱骂你；你感到被贬低、被轻视和/或被操纵。但在其他时候，很难判断针对你的话语是某种批评还是不受欢迎的反馈，或者是真正的口头辱骂。
 
@@ -22,11 +22,11 @@ Watch
 
 ### 间接陈述
 
-这里没有爆炸性的争论。“还有更阴险的言语虐待类型，它们平静地说出来，并被设计成好像在帮助你——解决一个你从来不知道自己有过的问题，”临床心理学家Perpetua Neo告诉Well+Good 。
+这里没有爆炸性的争论。“还有更阴险的言语虐待类型，它们平静地说出来，并被设计成好像在帮助你——解决一个你从来不知道自己有过的问题，”临床心理学家 Perpetua Neo 告诉 Well+Good 。
 
 ### 威胁
 
-根据Neo的说法，任何类型的威胁都应被视为言语虐待——包括对你和他人安全的威胁。
+根据 Neo 的说法，任何类型的威胁都应被视为言语虐待——包括对你和他人安全的威胁。
 
 ### 煤气灯效应
 

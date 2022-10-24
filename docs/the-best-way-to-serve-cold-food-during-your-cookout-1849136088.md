@@ -1,6 +1,6 @@
 # 野炊时供应冷食的最佳方式
 
-> 原文:[https://life hacker . com/the-best-way-to-serve-cold-food-in-you-cooking-1849136088](https://lifehacker.com/the-best-way-to-serve-cold-food-during-your-cookout-1849136088)
+> 原文：<https://lifehacker.com/the-best-way-to-serve-cold-food-during-your-cookout-1849136088>
 
 像汉堡、热狗和鸡肉这样的烤肉往往会成为户外野餐的中心——就像这个假期周末发生的许多事情一样——但配菜才是正餐。因为大多数户外野餐发生在温暖的夏天，所以保持土豆沙拉和凉拌卷心菜等食物凉爽是很棘手的。
 
@@ -10,13 +10,13 @@ Watch
 
 ## 在户外用餐时如何保持冷藏食物的凉爽
 
-这条小贴士自从发布在[@ alifebetterorganized](https://www.tiktok.com/@alifebetterorganized/video/7111131180413586734?_t=8TNdOzfFUBK&_r=1)的抖音账户上后就一直在流传，并且正好赶上了7月4日的假日周末。不要担心你的蛋黄酱沙拉是否放得太久，自己做一个冷却盘。
+这条小贴士自从发布在[@ alifebetterorganized](https://www.tiktok.com/@alifebetterorganized/video/7111131180413586734?_t=8TNdOzfFUBK&_r=1)的抖音账户上后就一直在流传，并且正好赶上了 7 月 4 日的假日周末。不要担心你的蛋黄酱沙拉是否放得太久，自己做一个冷却盘。
 
 首先，准备几个一次性铝锅，确保其中一个足够大，至少能装下另一个铝锅。然后，在最大的平底锅中加入大约一英寸的水，然后放入冰箱。
 
 与此同时，把你的沙拉和其他冷盘放进较小的铝盘里。一旦大锅里的水变成固体冰，就把它从冰箱里拿出来，把小锅放在里面。从那里，你就可以把食物拿到户外去吃了。
 
-但是如果有人端着一碗沙拉出现呢？别担心: [Lifehacker自己的Claire Lower](https://lifehacker.com/keep-food-cold-with-an-ice-filled-shower-cap-1826232087) 对此有一招:
+但是如果有人端着一碗沙拉出现呢？别担心: [Lifehacker 自己的 Claire Lower](https://lifehacker.com/keep-food-cold-with-an-ice-filled-shower-cap-1826232087) 对此有一招:
 
 > 简单地拿一个淋浴帽(便宜的塑料帽效果最好)，舀一些冰进去，然后把一碗食物放进去。将碗边的松紧带拉起来，为你著名的土豆、意大利面或鸡肉沙拉创造一个寒冷的环境。
 

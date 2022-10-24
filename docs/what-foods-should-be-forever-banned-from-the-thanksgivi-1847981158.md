@@ -1,6 +1,6 @@
 # 哪些食物应该永远禁止出现在感恩节餐桌上？
 
-> 原文:[https://life hacker . com/what-foods-should-be-forever-banted from the-thanksgivi-1847981158](https://lifehacker.com/what-foods-should-be-forever-banned-from-the-thanksgivi-1847981158)
+> 原文：<https://lifehacker.com/what-foods-should-be-forever-banned-from-the-thanksgivi-1847981158>
 
 现在十月已经过去了，是时候把注意力转向下一个我们可以尽情享受的节日了:感恩节。虽然万圣节有服装和糖果，圣诞节和光明节有礼物，复活节有一只虚构的小兔子，但感恩节没有特别的角色或惊喜——这里所有的都是食物。(如果你对足球感兴趣的话，我想还有足球。)
 

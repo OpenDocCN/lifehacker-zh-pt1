@@ -1,6 +1,6 @@
-# 每个爸爸都应该听的9个最好的播客
+# 每个爸爸都应该听的 9 个最好的播客
 
-> 原文: [https://lifehacker.com/9每个爸爸都应该听的最佳播客1847283825](https://lifehacker.com/9-of-the-best-podcasts-that-every-dad-should-listen-to-1847283825)
+> 原文：<https://lifehacker.com/9-of-the-best-podcasts-that-every-dad-should-listen-to-1847283825>
 
 爸爸们正赶上妈妈们，他们渴望得到在职场和家庭角色中取得成功的建议。如今，随着各种各样的播客越来越容易获得，父亲们(或准父亲们)有很多节目可以选择，告诉他们如何更好地发挥父亲的作用。
 
@@ -10,7 +10,7 @@
 
 在其中一集里，这位身体力行的演员和他的搭档露丝·威特问大卫·克洛斯，他是如何平衡他作为父亲的高要求工作和他对继承“劣质父亲基因”的恐惧的这位*秀先生*的演员解释了他是如何克服这一点的，以及他与自己父亲之间的问题，这种坦诚令人耳目一新，在其他播客上是听不到的。
 
-父爱和商业世界一样具有挑战性(也令人困惑)，*[*【The Dad Edge播客*](https://podcasts.apple.com/us/podcast/the-dad-edge-podcast-formerly-the-good-dad-project-podcast/id986223478) 帮助听众找到他们的部落，在会议室和客厅释放他们内心的战士。*
+父爱和商业世界一样具有挑战性(也令人困惑)，*[*【The Dad Edge 播客*](https://podcasts.apple.com/us/podcast/the-dad-edge-podcast-formerly-the-good-dad-project-podcast/id986223478) 帮助听众找到他们的部落，在会议室和客厅释放他们内心的战士。*
 
 *主持人拉里·哈格纳带来了从企业家到医疗专业人员的每个人，他们克服了当今家庭面临的障碍，激励听众成为更加全面的个人。如果你曾经被托尼·罗宾斯的研讨会激励过，这就是给你的播客。*
 
@@ -22,12 +22,12 @@
 
 马文·哈里森三年前开始了这个 [*吸毒黑人爸爸*](https://podcasts.apple.com/us/podcast/dope-black-dads-podcast/id1531924169) 播客，不是为了分享育儿技巧，而是为了给黑人爸爸们创造一个安全的空间来讨论男人们现在面临的挑战。这位英国企业家并没有把讨论集中在为为人父母做准备上——也有关于童年迷恋、混血婚姻、威尔和贾达·史密斯的关系状况以及一些父亲与孩子保持联系的困难的有趣、相关和诚实的对话。
 
-如果你想听听英国人对父亲身份的看法，DJ兼新爸爸戴夫·贝瑞向演员、喜剧演员和奥运选手莫·法拉寻求如何成为一名伟大父母的指导和灵感。虽然贝瑞的采访风格给人一种早间电台的感觉 ，但他仍然设法用深思熟虑的问题来打消客人的疑虑，得到坦诚的回答。例如，喜剧演员Rob Beckett与Berry分享了这条建议:如果他想有更多属于自己的时间，他应该尽可能多的呆在浴室里。
+如果你想听听英国人对父亲身份的看法，DJ 兼新爸爸戴夫·贝瑞向演员、喜剧演员和奥运选手莫·法拉寻求如何成为一名伟大父母的指导和灵感。虽然贝瑞的采访风格给人一种早间电台的感觉 ，但他仍然设法用深思熟虑的问题来打消客人的疑虑，得到坦诚的回答。例如，喜剧演员 Rob Beckett 与 Berry 分享了这条建议:如果他想有更多属于自己的时间，他应该尽可能多的呆在浴室里。
 
 尼克·费豪 主持的 [*父系*](https://podcasts.apple.com/us/podcast/paternal/id1287596190) 播客 [在因疫情缺席一年后，迎来了回归。父亲的吸引力来自于与各行各业的父亲们的交谈，主持人的新闻背景给了这个节目一种公共广播的光泽，即告知和娱乐。](https://lifehacker.com/im-paternal-host-nick-firchau-and-this-is-how-i-parent-1828620035)
 
-2021年 第一集 [非常精彩:隔离如何影响父母，包括男性心理健康方面令人震惊的统计数据，以及为什么父亲不寻求帮助来处理他们的压力和焦虑。](https://podcasts.apple.com/us/podcast/40-dr-michael-addis-the-isolation-of-modern-men/id1287596190?i=1000528072600)
+2021 年 第一集 [非常精彩:隔离如何影响父母，包括男性心理健康方面令人震惊的统计数据，以及为什么父亲不寻求帮助来处理他们的压力和焦虑。](https://podcasts.apple.com/us/podcast/40-dr-michael-addis-the-isolation-of-modern-men/id1287596190?i=1000528072600)
 
-当你有一个新玩家加入IRL的时候，你是如何跟上电子娱乐的最新消息的？今年早些时候开始的 [*爸爸游戏播客*](https://podcasts.apple.com/us/podcast/animal-crossing-joins-build-a-bear-and-1987-tmnt-returns/id1550333093?i=1000512628610) ，有所有游戏方面的最新消息和提示，包括让你的孩子在Twitch上安全，最新的口袋妖怪新闻，以及其他更新。这可能是你听到Build-A-Bear新系列*动物穿越*玩具的唯一地方，如果你是一个痴迷于K.K. Slider音乐作品的孩子的父母，这是一件大事。
+当你有一个新玩家加入 IRL 的时候，你是如何跟上电子娱乐的最新消息的？今年早些时候开始的 [*爸爸游戏播客*](https://podcasts.apple.com/us/podcast/animal-crossing-joins-build-a-bear-and-1987-tmnt-returns/id1550333093?i=1000512628610) ，有所有游戏方面的最新消息和提示，包括让你的孩子在 Twitch 上安全，最新的口袋妖怪新闻，以及其他更新。这可能是你听到 Build-A-Bear 新系列*动物穿越*玩具的唯一地方，如果你是一个痴迷于 K.K. Slider 音乐作品的孩子的父母，这是一件大事。
 
-虽然从技术上讲，这不是一个关于父亲身份的播客*，，[，这个Spotify播客由摇滚歌手布鲁斯·斯普林斯汀和前总统巴拉克奥巴马](https://podcasts.apple.com/us/podcast/renegades-born-in-the-usa/id1562920267) 主持，有两集专门讨论两人与父亲的关系 [和](https://podcasts.apple.com/us/podcast/relationships-with-our-fathers-masculinity/id1562920267?i=1000522889146) [当他们开始自己的家庭时的感受](https://podcasts.apple.com/us/podcast/fatherhood/id1562920267?i=1000523628905) 。**
+虽然从技术上讲，这不是一个关于父亲身份的播客*，，[，这个 Spotify 播客由摇滚歌手布鲁斯·斯普林斯汀和前总统巴拉克奥巴马](https://podcasts.apple.com/us/podcast/renegades-born-in-the-usa/id1562920267) 主持，有两集专门讨论两人与父亲的关系 [和](https://podcasts.apple.com/us/podcast/relationships-with-our-fathers-masculinity/id1562920267?i=1000522889146) [当他们开始自己的家庭时的感受](https://podcasts.apple.com/us/podcast/fatherhood/id1562920267?i=1000523628905) 。**

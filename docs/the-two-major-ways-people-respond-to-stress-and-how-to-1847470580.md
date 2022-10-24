@@ -1,6 +1,6 @@
 # 人们应对压力的两种主要方式(以及如何应对你的压力)
 
-> 原文:[https://life hacker . com/the-two-major-ways-people-respond-to-stress and-how-to-1847470580](https://lifehacker.com/the-two-major-ways-people-respond-to-stress-and-how-to-1847470580)
+> 原文：<https://lifehacker.com/the-two-major-ways-people-respond-to-stress-and-how-to-1847470580>
 
 在压力大的时候，人们往往会以两种方式做出反应，要么是过度运转，要么是全力以赴解决所有问题；或功能不全，而冻结到他们无法处理正在发生的事情的程度。这两种反应都不理想，因为功能过剩的人容易精疲力竭，而功能不足的人往往难以处理哪怕是很小的障碍。
 

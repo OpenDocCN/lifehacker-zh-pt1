@@ -1,6 +1,6 @@
 # 当你有了新老板后要做的第一件事
 
-> 原文:[https://life hacker . com/the-first-things-to-do-when-you-get-a-new-boss-1849609688](https://lifehacker.com/the-first-things-to-do-when-you-get-a-new-boss-1849609688)
+> 原文：<https://lifehacker.com/the-first-things-to-do-when-you-get-a-new-boss-1849609688>
 
 找一个新老板可能会很难。培养你的人很可能走了，和对你的公司、团队、工作了解有限的将负责你的日常工作生活。但是在你更新你的简历并开始自己寻找新工作之前，考虑一下这些处理新关系的方法。
 
@@ -10,11 +10,11 @@ Watch
 
 你不想看起来像一个爱管闲事的人，但是要积极主动，安排与新老板一对一的快速会面。理想情况下，他们会在的早些时候开始联系你的团队，自己安排这些会议，但是如果他们不这样做，你应该主动要求在他们的日程表上安排一些时间。
 
-一位Redditor建议 [提前和新人谈谈你的期望](https://www.reddit.com/r/work/comments/s1y2vr/comment/hsbaivt/?utm_source=reddit&utm_medium=web2x&context=3) 和责任。不要带着防御的心态去参加会议，即使你预计你将要和一个风格与你习惯的不同的人打交道。如果你对的改变感到恼火，尽量不要让别人知道；在新领导人面前，敌意不会让你有任何进展。
+一位 Redditor 建议 [提前和新人谈谈你的期望](https://www.reddit.com/r/work/comments/s1y2vr/comment/hsbaivt/?utm_source=reddit&utm_medium=web2x&context=3) 和责任。不要带着防御的心态去参加会议，即使你预计你将要和一个风格与你习惯的不同的人打交道。如果你对的改变感到恼火，尽量不要让别人知道；在新领导人面前，敌意不会让你有任何进展。
 
 ## **为你的第一印象做好准备**
 
-找出你的工作描述。如果你手头没有，向你的人力资源团队要一份你的职责。你还应该准备好 [一份你的成就和成功的清单](https://lifehacker.com/keep-track-of-your-work-accomplishments-throughout-the-1823436243) 与他们分享，这样他们就能看到你取得了成果，擅长你的工作，并且应该(希望)在他们找到新角色的过程中继续你擅长的工作。但是d 也不会去那里仅仅是为了谈论你自己。你需要知道这个新领导是怎么回事，所以提前提出问题。
+找出你的工作描述。如果你手头没有，向你的人力资源团队要一份你的职责。你还应该准备好 [一份你的成就和成功的清单](https://lifehacker.com/keep-track-of-your-work-accomplishments-throughout-the-1823436243) 与他们分享，这样他们就能看到你取得了成果，擅长你的工作，并且应该(希望)在他们找到新角色的过程中继续你擅长的工作。但是 d 也不会去那里仅仅是为了谈论你自己。你需要知道这个新领导是怎么回事，所以提前提出问题。
 
 “基本上，你希望能够起草五到七个问题来帮助新老板的过渡，”赫鲁泰克的 蒂姆·萨克特建议，他是《*人才修复:招聘优秀人才的领导者指南》的作者。*“你喜欢怎样与人交流？他们应该知道哪些你希望在加入这个团队、公司时就知道的事情？如何衡量我们的成功？”
 

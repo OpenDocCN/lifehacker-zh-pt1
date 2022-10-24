@@ -1,6 +1,6 @@
 # 如何为你的车库准备过冬
 
-> 原文:[https://life hacker . com/how-to-prep-your-garage-for-winter-1848126993](https://lifehacker.com/how-to-prep-your-garage-for-winter-1848126993)
+> 原文：<https://lifehacker.com/how-to-prep-your-garage-for-winter-1848126993>
 
 无论你是把你的车库作为一个停车的地方，还是作为一个工作室，现在是时候为冬季做好准备了。但不管怎样，这都是一项艰巨的任务，你可能不知道从哪里开始。
 
@@ -26,7 +26,7 @@ Watch
 
 现在你已经清理了一些杂物，安全地存放了你的化学品和液体，利用任何现有的架子、挂钩或壁架，穿过车库，整理剩下的东西。
 
-如果你的车库里还没有安装这些东西， [Lefton建议](https://www.thedrive.com/maintenance-repair/39311/10-steps-to-get-your-garage-ready-for-winter) 现在就安装，但这可能是一个比更大的项目，你目前无法处理。无论哪种方式，试着尽可能多地离开地面，然后清扫，一边清扫一边检查裂缝、渗漏和害虫的迹象。
+如果你的车库里还没有安装这些东西， [Lefton 建议](https://www.thedrive.com/maintenance-repair/39311/10-steps-to-get-your-garage-ready-for-winter) 现在就安装，但这可能是一个比更大的项目，你目前无法处理。无论哪种方式，试着尽可能多地离开地面，然后清扫，一边清扫一边检查裂缝、渗漏和害虫的迹象。
 
 ## 确保你的冬季工具和用品都在手边
 
@@ -34,7 +34,7 @@ Watch
 
 ## 使车库适应天气
 
-如果你有更多的时间，并想冬季你的车库，现在是时候这样做了。下面是任务 [Lefton推荐](https://www.thedrive.com/maintenance-repair/39311/10-steps-to-get-your-garage-ready-for-winter) :
+如果你有更多的时间，并想冬季你的车库，现在是时候这样做了。下面是任务 [Lefton 推荐](https://www.thedrive.com/maintenance-repair/39311/10-steps-to-get-your-garage-ready-for-winter) :
 
 *   更换旧的挡风雨条(特别是当它随着时间的推移已经收缩或变脆时)
 *   重新填缝门窗

@@ -1,6 +1,6 @@
 # 停止在洗衣机里洗你的棒球帽(改为这样做)
 
-> 原文:[https://life hacker . com/stop-washing-your-baseball-cap-in-the-washing-the-machine-1849077682](https://lifehacker.com/stop-washing-your-baseball-cap-in-the-washing-machine-1849077682)
+> 原文：<https://lifehacker.com/stop-washing-your-baseball-cap-in-the-washing-machine-1849077682>
 
 无论你是每天戴一顶棒球帽，以掩饰糟糕的发型或者最近没有洗澡，还是在儿童户外运动中烘烤食物时遮挡阳光，这种帽子看起来都不是最好的。如果你像我一样，偶尔，当你记起来的时候，你会把它和其他要洗的衣物一起扔进你的洗衣机。但这并不是确保你心爱的大学帽或一生一次的家庭旅行保持原样的最佳方式。以下是正确的洗涤方法。
 
@@ -8,7 +8,7 @@ Watch
 
 ## 如何清洁轻度脏污的棒球帽
 
-如果你的帽子需要快速清洗，最好的方法是用手轻轻地清洗。你需要在一个干净的水槽或水桶里装满冷水和几滴(不含漂白剂的)温和洗涤剂。虽然我们都知道最好的方法是先加入洗涤剂，但是如果你忘记了，用手搅动水产生泡沫。让你的帽子浸泡5-10分钟。
+如果你的帽子需要快速清洗，最好的方法是用手轻轻地清洗。你需要在一个干净的水槽或水桶里装满冷水和几滴(不含漂白剂的)温和洗涤剂。虽然我们都知道最好的方法是先加入洗涤剂，但是如果你忘记了，用手搅动水产生泡沫。让你的帽子浸泡 5-10 分钟。
 
 完成后，用冷水冲洗盖子。用干净的毛巾包住除帽沿以外的所有东西，轻轻挤出多余的水分。悬挂晾干，或者，为了更好地保持形状，用小毛巾、碗或球塞住帽子，让空气干燥。避免放入烘干机。
 
@@ -16,9 +16,9 @@ Watch
 
 如果你在一场艰难的泥地比赛中戴了一顶帽子，或者它被大量的防晒霜、沙子、汗水或其他不确定的气味所困扰，它将需要更深层的清洁。(这次你可能需要手套。)
 
-如上所述，用一个干净的盆或桶冷水开始，但这一次加入一种颜色安全的氧漂白剂，如OxiClean(或者节省几美元和 [用2份水、1份过氧化氢和1份](https://wellnessmama.com/natural-home/homemade-oxyclean/) [洗涤苏打](https://www.walmart.com/ip/Arm-Hammer-Super-Washing-Soda-Detergent-Booster-Household-Cleaner-55oz/19407690?wmlspartner=wlpa&selectedSellerId=0&wl13=2518&adid=2222222227719407690_117755028669_12420145346&wmlspartner=wmtlabs&wl0=&wl1=g&wl2=c&wl3=501107745824&wl4=pla-293946777986&wl5=9003944&wl6=&wl7=&wl8=&wl9=pla&wl10=8175035&wl11=local&wl12=19407690&wl13=2518&veh=sem_LIA&gclid=Cj0KCQjwzLCVBhD3ARIsAPKYTcSAjA9LeXmz4tMzYuyiE8oIHrgL7R6pmXCNh4Sc18NH8TFY3XgDY-waAmAiEALw_wcB&gclsrc=aw.ds)——这与小苏打 不是一回事。)
+如上所述，用一个干净的盆或桶冷水开始，但这一次加入一种颜色安全的氧漂白剂，如 OxiClean(或者节省几美元和 [用 2 份水、1 份过氧化氢和 1 份](https://wellnessmama.com/natural-home/homemade-oxyclean/) [洗涤苏打](https://www.walmart.com/ip/Arm-Hammer-Super-Washing-Soda-Detergent-Booster-Household-Cleaner-55oz/19407690?wmlspartner=wlpa&selectedSellerId=0&wl13=2518&adid=2222222227719407690_117755028669_12420145346&wmlspartner=wmtlabs&wl0=&wl1=g&wl2=c&wl3=501107745824&wl4=pla-293946777986&wl5=9003944&wl6=&wl7=&wl8=&wl9=pla&wl10=8175035&wl11=local&wl12=19407690&wl13=2518&veh=sem_LIA&gclid=Cj0KCQjwzLCVBhD3ARIsAPKYTcSAjA9LeXmz4tMzYuyiE8oIHrgL7R6pmXCNh4Sc18NH8TFY3XgDY-waAmAiEALw_wcB&gclsrc=aw.ds)——这与小苏打 不是一回事。)
 
-让瓶盖在清洗液和水中浸泡大约一个小时。在此期间，您可以通过使用OxiClean和用牙刷擦洗来针对特定的污渍。(就我个人而言，我还会用牙刷擦洗帽子最脏的部分，也就是花所有时间从你额头上吸取汁液、乳液和污垢的帽檐内部。)
+让瓶盖在清洗液和水中浸泡大约一个小时。在此期间，您可以通过使用 OxiClean 和用牙刷擦洗来针对特定的污渍。(就我个人而言，我还会用牙刷擦洗帽子最脏的部分，也就是花所有时间从你额头上吸取汁液、乳液和污垢的帽檐内部。)
 
 一旦盖子清洗干净，用冷水冲洗，然后如上所述擦干。注意:这些说明不适用于带有纸板票据的老式瓶盖。对于这些，用去污剂或温和的洗衣液清洗，但要避免淹没账单。
 

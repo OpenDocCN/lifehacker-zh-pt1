@@ -1,6 +1,6 @@
 # 如何防止砧板翘曲
 
-> 原文:[https://life hacker . com/how-to-keep-your-cut-boards-from-warping-1847049644](https://lifehacker.com/how-to-keep-your-cutting-boards-from-warping-1847049644)
+> 原文：<https://lifehacker.com/how-to-keep-your-cutting-boards-from-warping-1847049644>
 
 扭曲的砧板不仅令人讨厌，而且极其危险。当你切碎和切片时，你的切割板应该稳如磐石；任何不足都会导致灾难。
 

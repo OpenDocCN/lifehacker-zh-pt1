@@ -1,6 +1,6 @@
 # 如何修补墙上的洞
 
-> 原文:[https://life hacker . com/how-to-patch-holes-in-walls-1846486097](https://lifehacker.com/how-to-patch-holes-in-walls-1846486097)
+> 原文：<https://lifehacker.com/how-to-patch-holes-in-walls-1846486097>
 
 想必你也经历过和每个租房者一样的思考过程:“我现在就挂一幅画，等我搬出去的时候再担心吧！谁在乎！”
 

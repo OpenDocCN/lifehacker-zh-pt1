@@ -1,8 +1,8 @@
 # 是时候找个心理医生了
 
-> 原文:[https://life hacker . com/its-time-to-find-a-therapist-1846009669](https://lifehacker.com/its-time-to-find-a-therapist-1846009669)
+> 原文：<https://lifehacker.com/its-time-to-find-a-therapist-1846009669>
 
-在这个以长达10个月的疫情、萎靡不振的经济、政变为标志的时代，我们有点焦虑是有道理的。我们已经被困在里面将近一年了，办公室关闭，企业关闭。鉴于个人甚至强大的机构都无法控制的情况，你可能会觉得有必要向专业人士谈谈吞噬你头脑的混乱旋风。这是个好主意。
+在这个以长达 10 个月的疫情、萎靡不振的经济、政变为标志的时代，我们有点焦虑是有道理的。我们已经被困在里面将近一年了，办公室关闭，企业关闭。鉴于个人甚至强大的机构都无法控制的情况，你可能会觉得有必要向专业人士谈谈吞噬你头脑的混乱旋风。这是个好主意。
 
 Watch
 
@@ -18,11 +18,11 @@ Watch
 
 ### 远程治疗有效吗？
 
-一句话，是的。但是请相信我:去年疫情开始的时候，我的治疗就采用了这种形式，即使是以这种遥远的形式继续这种关系也非常有帮助。去年，当我们所有正常的物理会议场所都转移到网上时，Lifehacker的伊丽莎白·段丽阳 [写了一篇关于远程治疗](https://lifehacker.com/yes-teletherapy-is-effective-heres-what-you-need-to-kn-1843707690) 的解释，应该可以回答你关于这个话题的大部分问题，如果不是全部的话。
+一句话，是的。但是请相信我:去年疫情开始的时候，我的治疗就采用了这种形式，即使是以这种遥远的形式继续这种关系也非常有帮助。去年，当我们所有正常的物理会议场所都转移到网上时，Lifehacker 的伊丽莎白·段丽阳 [写了一篇关于远程治疗](https://lifehacker.com/yes-teletherapy-is-effective-heres-what-you-need-to-kn-1843707690) 的解释，应该可以回答你关于这个话题的大部分问题，如果不是全部的话。
 
 尽管由于政府合规问题和保险公司典型的官僚作风，这种做法过了一段时间才被广泛提供，但远程治疗——以及总体而言的远程医疗——在疫情期间迅速发展。正如段丽阳去年所写的，远程治疗基本上和面对面治疗一样有效:
 
-> 从1996年 开始就有 [关于远程治疗的广泛研究得出结论，它与面对面治疗一样有效，在某些情况下甚至更好(如](https://www.apa.org/monitor/2017/02/online-therapy) [亲子互动训练](https://www.researchgate.net/profile/Sheila_Eyberg/publication/247521569_Parent-Child_Interaction_Training_Effects_on_Family_Functioning/links/5429fac20cf27e39fa8e6e2a/Parent-Child-Interaction-Training-Effects-on-Family-Functioning.pdf) )。
+> 从 1996 年 开始就有 [关于远程治疗的广泛研究得出结论，它与面对面治疗一样有效，在某些情况下甚至更好(如](https://www.apa.org/monitor/2017/02/online-therapy) [亲子互动训练](https://www.researchgate.net/profile/Sheila_Eyberg/publication/247521569_Parent-Child_Interaction_Training_Effects_on_Family_Functioning/links/5429fac20cf27e39fa8e6e2a/Parent-Child-Interaction-Training-Effects-on-Family-Functioning.pdf) )。
 
 ### 基于文本的治疗怎么样？
 
@@ -32,4 +32,4 @@ Watch
 
 但是——这是一个很大的*但是*——短信疗法有它的优势。这是一种在紧急情况下至少获得某种咨询的便利手段，而且也更实惠，通常来说，因为许多服务和应用程序只需要很低的月费，而不是单次会议经常攀升至三位数的费用。此外，文本疗法可能是最好的推荐，作为对真实事物的介绍，特别是对那些可能对临床环境犹豫或怀疑的人。
 
-去年11月，纽约市Lenox Hill医院的临床心理学家Sabrina Romanoff 博士告诉Lifehacker，短信治疗“可以成为个人尝试治疗的机会，并激励他们寻找真正的东西。”
+去年 11 月，纽约市 Lenox Hill 医院的临床心理学家 Sabrina Romanoff 博士告诉 Lifehacker，短信治疗“可以成为个人尝试治疗的机会，并激励他们寻找真正的东西。”

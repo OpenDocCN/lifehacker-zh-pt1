@@ -1,6 +1,6 @@
 # 如何安全地钻入任何墙壁
 
-> 原文:[https://life hacker . com/how-to-safety-drill-into-any-wall-1846799388](https://lifehacker.com/how-to-safely-drill-into-any-wall-1846799388)
+> 原文：<https://lifehacker.com/how-to-safely-drill-into-any-wall-1846799388>
 
 说到 [把东西挂在你的墙壁上](https://lifehacker.com/how-to-hang-pictures-without-destroying-your-walls-5829198) ，粘合剂只能做这么多。如果你需要安全地展示装裱好的艺术品或者安装壁挂式搁板，你可能需要做一些钻孔。以下是如何尽可能安全地做到这一点。
 
@@ -14,11 +14,11 @@ Watch
 
 这是最难的部分。你可能已经对 [寻找墙柱](https://lifehacker.com/how-to-find-a-stud-in-your-wall-with-just-a-magnet-1820008336) 略知一二，但同样重要的是找到管道和电线，这样你就可以避免钻入它们。这不是一门精确的科学，但是使用正确的技术，你至少可以做出一些有根据的猜测。
 
-电线应该沿着墙壁直线上下，直接进入插座，每个插座都有自己的电路。管道也是如此:它们应该以直线的方式水平或垂直地进出水管装置。使用这些指南，您可以消除最危险的领域，并从那里开始。要了解这种方法的实际效果，请查看来自Gosforth Handyman YouTube频道 的详细视频:
+电线应该沿着墙壁直线上下，直接进入插座，每个插座都有自己的电路。管道也是如此:它们应该以直线的方式水平或垂直地进出水管装置。使用这些指南，您可以消除最危险的领域，并从那里开始。要了解这种方法的实际效果，请查看来自 Gosforth Handyman YouTube 频道 的详细视频:
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-DeTXAPYzqpY&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-DeTXAPYzqpY&start=0) 
 
-但事情没那么简单。正如StackExchange用户Ken在2018年关于主题 的一篇帖子中提到的 [，插座通常相互“菊花链”连接，电线在它们之间水平甚至对角延伸:“你永远不知道这些电线是如何在空间中伸展的……除非你在干墙固定之前亲眼看到它们。”](https://diy.stackexchange.com/questions/134656/how-can-i-avoid-wiring-when-drilling-into-walls) 
+但事情没那么简单。正如 StackExchange 用户 Ken 在 2018 年关于主题 的一篇帖子中提到的 [，插座通常相互“菊花链”连接，电线在它们之间水平甚至对角延伸:“你永远不知道这些电线是如何在空间中伸展的……除非你在干墙固定之前亲眼看到它们。”](https://diy.stackexchange.com/questions/134656/how-can-i-avoid-wiring-when-drilling-into-walls) 
 
 从理论上讲，一个可以探测管道和电线的螺柱探测器会非常有用，但它可能只会引起更多的混乱。关于这款价格合理的博世多功能扫描仪 的评论都是*如果你读了手册就会发现很棒，五星*或*我读了手册，这东西仍然认为螺柱是电线；如果可以的话，我会给它打零分。同样的道理也适用于[wala bot](https://amzn.to/3nzrdtX)，一款连接到智能手机的扫描仪——评论表明它可以在薄石膏板上工作，但也仅此而已。*
 

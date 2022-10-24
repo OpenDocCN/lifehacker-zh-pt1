@@ -1,8 +1,8 @@
 # 了解什么是莱姆病，因为它正在上升
 
-> 原文:[https://life hacker . com/what-to-know-about-the-Lyme-disease-because-on-the-ris-1849377916](https://lifehacker.com/what-to-know-about-lyme-disease-because-its-on-the-ris-1849377916)
+> 原文：<https://lifehacker.com/what-to-know-about-lyme-disease-because-its-on-the-ris-1849377916>
 
-莱姆病是最著名的蜱传疾病，比过去更加常见——至少从包含莱姆病诊断的健康保险数据来看是这样。我们在Gizmodo [的朋友最近报道了关于(抱歉)上升的新数据](https://lifehacker.com/know-the-symptoms-of-these-tick-borne-diseases-1836217979) ，这大致与 [CDC估计](https://www.cdc.gov/lyme/stats/humancases.html) 一致。那么你需要知道什么来保持自己的安全和健康呢？
+莱姆病是最著名的蜱传疾病，比过去更加常见——至少从包含莱姆病诊断的健康保险数据来看是这样。我们在 Gizmodo [的朋友最近报道了关于(抱歉)上升的新数据](https://lifehacker.com/know-the-symptoms-of-these-tick-borne-diseases-1836217979) ，这大致与 [CDC 估计](https://www.cdc.gov/lyme/stats/humancases.html) 一致。那么你需要知道什么来保持自己的安全和健康呢？
 
 Watch
 
@@ -36,4 +36,4 @@ Watch
 
 将一系列症状归因于慢性莱姆病已经成为所谓“懂莱姆病”的医疗保健提供者的摇钱树，一些名人和有影响力的人 [已经接受成为莱姆病患者作为他们身份的一部分](https://www.thecut.com/2019/07/what-happens-when-lyme-disease-becomes-an-identity.html) 。
 
-这可能会导致昂贵的治疗过程，包括长期抗生素治疗、补充剂、静脉注射治疗和其他主流医学认为不适合莱姆或ptldT3且实际上可能很危险的治疗。如果你怀疑自己患有莱姆病，去看医生或你信任的提供者，并警惕让你接受昂贵的长期治疗方案的企图。
+这可能会导致昂贵的治疗过程，包括长期抗生素治疗、补充剂、静脉注射治疗和其他主流医学认为不适合莱姆或 ptldT3 且实际上可能很危险的治疗。如果你怀疑自己患有莱姆病，去看医生或你信任的提供者，并警惕让你接受昂贵的长期治疗方案的企图。

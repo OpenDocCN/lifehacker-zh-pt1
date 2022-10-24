@@ -1,6 +1,6 @@
 # 如何避免基于过渡的愤怒
 
-> 原文:[https://life hacker . com/how-to-avoid-transition-based-tantrums-1846363670](https://lifehacker.com/how-to-avoid-transition-based-tantrums-1846363670)
+> 原文：<https://lifehacker.com/how-to-avoid-transition-based-tantrums-1846363670>
 
 初学走路的孩子会因为各种原因发脾气，有合乎逻辑的，也有不合逻辑的。他们可能会因为可以理解的原因大发脾气，因为他们只是在漫长的一天结束后累了，或者他们可能前一秒还好好的，并且非常生气你竟然把他们的牛奶倒进绿色的杯子里，而你应该知道他们想要蓝色的杯子。但是有一件事幼儿的父母可以指望:每当涉及过渡时，发脾气的可能性。
 

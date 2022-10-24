@@ -1,12 +1,12 @@
 # 你应该用商店买的汤团做意大利面沙拉
 
-> 原文:[https://life hacker . com/you-should-make-pasta-salad-with-store-buddy-gnocchi-1847157759](https://lifehacker.com/you-should-make-pasta-salad-with-store-bought-gnocchi-1847157759)
+> 原文：<https://lifehacker.com/you-should-make-pasta-salad-with-store-bought-gnocchi-1847157759>
 
 我不相信声称不喜欢意大利面沙拉的人。面食不错，[mayonnaise](https://lifehacker.com/9-ways-to-unlock-the-power-of-mayonnaise-1847114226)也是。通常还会有其他成分，不是意大利面或蛋黄酱，它们也很好。有时候天气太热，吃不下一碗热气腾腾的意大利面，但我该怎么办呢？六月底到九月初不吃面食？不，我要吃意大利面沙拉。
 
 Watch
 
-就形状而言，我是经典通心粉肘子的忠实粉丝，但任何面条都可以(特别是如果你 [过度烹饪](https://lifehacker.com/imperfect-pasta-is-the-secret-to-perfect-pasta-salad-1834981171) )。但是一种新的面食威胁着沙拉的宝座，这种面食就是T4汤团。
+就形状而言，我是经典通心粉肘子的忠实粉丝，但任何面条都可以(特别是如果你 [过度烹饪](https://lifehacker.com/imperfect-pasta-is-the-secret-to-perfect-pasta-salad-1834981171) )。但是一种新的面食威胁着沙拉的宝座，这种面食就是 T4 汤团。
 
 汤团沙拉有点像土豆沙拉和意大利面沙拉的混合物，非常好吃。这是少数几种不会变脆的意大利面之一，因为它的淀粉在较冷的温度下会凝固，这使它成为完美的提前制作的野餐菜肴——我会稍微变硬，但从来不会变脆。小土豆饺子也有吸收你放进去的任何调料的倾向，这可以防止你的沙拉变得又稀又恶心。汤团煮起来也比其他商店买的意大利面快得多，我喜欢节省时间。
 
@@ -16,21 +16,21 @@ Watch
 
 **对于敷料:**
 
-*   2汤匙橄榄油
-*   2汤匙香醋或红酒醋
+*   2 汤匙橄榄油
+*   2 汤匙香醋或红酒醋
 
-*   1汤匙意大利蘸香料混合物(我现在很喜欢乔氏酱，但是用你最喜欢的
-*   2茶匙蜂蜜或纯糖浆
-*   1茶匙第戎芥末
+*   1 汤匙意大利蘸香料混合物(我现在很喜欢乔氏酱，但是用你最喜欢的
+*   2 茶匙蜂蜜或纯糖浆
+*   1 茶匙第戎芥末
 
 **沙拉:**
 
-*   1磅商店买的汤团
-*   8盎司新鲜马苏里拉奶酪，撕成一口大小的块
-*   1品脱干樱桃番茄，切成两半
-*   2盎司橄榄(自选)，切碎
-*   2盎司意大利腊肠或其他腌肉，切成条状
-*   大约15片罗勒叶，[chiffonaded](https://lifehacker.com/a-visual-reference-for-six-basic-knife-cuts-1702149571)(我知道“chifonade”其实不是一个动词，但你知道我的意思！ )
+*   1 磅商店买的汤团
+*   8 盎司新鲜马苏里拉奶酪，撕成一口大小的块
+*   1 品脱干樱桃番茄，切成两半
+*   2 盎司橄榄(自选)，切碎
+*   2 盎司意大利腊肠或其他腌肉，切成条状
+*   大约 15 片罗勒叶，[chiffonaded](https://lifehacker.com/a-visual-reference-for-six-basic-knife-cuts-1702149571)(我知道“chifonade”其实不是一个动词，但你知道我的意思！ )
 
 将所有调料配料 [加入广口瓶](https://lifehacker.com/a-mason-jar-is-the-only-tool-you-need-for-perfectly-emu-1796819745) 或其他有盖的容器中，盖上盖子，用力摇晃使调料乳化。在你准备剩下的沙拉时，把它放在一边，让味道融合在一起。
 

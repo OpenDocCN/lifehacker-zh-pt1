@@ -1,6 +1,6 @@
 # 如何发现可疑的房东(趁还来得及)
 
-> 原文:[https://life hacker . com/how-to-spot-a-shady-房东，以免为时过晚-1848136583](https://lifehacker.com/how-to-spot-a-shady-landlord-before-it-s-too-late-1848136583)
+> 原文：<https://lifehacker.com/how-to-spot-a-shady-landlord-before-it-s-too-late-1848136583>
 
 随着新年的到来，一系列新签订的租约接踵而至。无论市场状况如何，总有一种风险，那就是，用一个行业术语来说，出售和维护你公寓的人是一个“彻头彻尾的骗子”。(我们中的一些人会认为“可疑房东”这个词是多余的。作为房客的现实是，你必须时刻保持警惕，否则就有被敲竹杠的风险。
 
@@ -10,7 +10,7 @@ Watch
 
 ## **不可退还的押金**
 
-根据芝加哥 的Brabender法律，历史上最常见的租房骗局之一是房东错误地保留租户的保证金。不可退还的押金是引起恐慌的原因。有时，应该是保证金的东西可能会被说成是不可退还的入住费， [，这也是一个骗局](https://www.avail.co/education/articles/non-refundable-move-in-fees-are-they-a-scam) 。这里有 [如何确保你拿回你的保证金](https://lifehacker.com/how-to-make-sure-you-get-your-security-deposit-back-1604938030) 。
+根据芝加哥 的 Brabender 法律，历史上最常见的租房骗局之一是房东错误地保留租户的保证金。不可退还的押金是引起恐慌的原因。有时，应该是保证金的东西可能会被说成是不可退还的入住费， [，这也是一个骗局](https://www.avail.co/education/articles/non-refundable-move-in-fees-are-they-a-scam) 。这里有 [如何确保你拿回你的保证金](https://lifehacker.com/how-to-make-sure-you-get-your-security-deposit-back-1604938030) 。
 
 ## **坚持现金**
 

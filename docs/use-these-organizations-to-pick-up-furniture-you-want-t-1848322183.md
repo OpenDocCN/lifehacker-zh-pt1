@@ -1,12 +1,12 @@
 # 利用这些组织来挑选你想扔掉的家具
 
-> 原文:[https://life hacker . com/use-these-organizations-to-pick-up-furniture-you-want-t-1848322183](https://lifehacker.com/use-these-organizations-to-pick-up-furniture-you-want-t-1848322183)
+> 原文：<https://lifehacker.com/use-these-organizations-to-pick-up-furniture-you-want-t-1848322183>
 
-玛丽·近藤的节目《整理》于1月1日在网飞首映，这并非巧合。今年是2019年，尽管这感觉像是一个不同的时代，一些人仍然带着清理家中杂物和不需要的物品的冲动开始了新的一年。
+玛丽·近藤的节目《整理》于 1 月 1 日在网飞首映，这并非巧合。今年是 2019 年，尽管这感觉像是一个不同的时代，一些人仍然带着清理家中杂物和不需要的物品的冲动开始了新的一年。
 
 Watch
 
-一旦你决定要扔掉什么，问题就变成了如何把它从你的家里拿出来。Lifehacker [在2019年](https://lifehacker.com/what-to-do-with-all-your-stuff-that-doesnt-spark-joy-1831639046) 报道了这一点，但并不是所有提到的策略都对疫情友好。H 在这里，我们将重点介绍一种最简单的方法来移动你家里的东西，并把它们送到可能会使用、欣赏和/或从中受益的人手中:安排一个组织来从你家里拿这些东西。这里有一些要考虑的。
+一旦你决定要扔掉什么，问题就变成了如何把它从你的家里拿出来。Lifehacker [在 2019 年](https://lifehacker.com/what-to-do-with-all-your-stuff-that-doesnt-spark-joy-1831639046) 报道了这一点，但并不是所有提到的策略都对疫情友好。H 在这里，我们将重点介绍一种最简单的方法来移动你家里的东西，并把它们送到可能会使用、欣赏和/或从中受益的人手中:安排一个组织来从你家里拿这些东西。这里有一些要考虑的。
 
 ## 安排提货前要做什么
 
@@ -19,11 +19,11 @@ Watch
 虽然这里列出的大多数非营利组织和服务机构都在全国范围内运作，但并不是每个地方都提供捐赠取件服务，所以你需要从找到一个提供捐赠取件服务的地方开始。以下是一些建议:
 
 *   [**pickumpydonation**](https://www.pickupmydonation.com/):提供免费和“优先”(即付费)提取大型家居物品(需要卡车移动)的服务，捐赠给非营利组织。
-*   [**家具银行网**](https://furniturebanks.org/) :提供免费低价的家具捐赠上门取件送达当地家具银行的服务。目前在34个州实施。
+*   [**家具银行网**](https://furniturebanks.org/) :提供免费低价的家具捐赠上门取件送达当地家具银行的服务。目前在 34 个州实施。
 
 *   [](https://www.habitat.org/stories/does-habitat-offer-furniture-donation-pickup)**:该组织在当地的许多恢复分支机构提供免费的家具和/或其他家居用品的提货服务。政策——如哪些物品可以捐赠，是否提供免费取货——因地点而异，所以请向您所在地区的相关部门查询。**
-*   **[](https://thearc.org/)**:该组织自1950年开始运作，为智力和发育障碍者提供服务和支持，部分得益于他们在全国各地旧货店的利润。找到然后 [联系您当地的分公司](https://thearc.org/find-a-chapter/) 了解如何捐款，以及您所在地区是否有免费接送。****
+*   **[](https://thearc.org/)**:该组织自 1950 年开始运作，为智力和发育障碍者提供服务和支持，部分得益于他们在全国各地旧货店的利润。找到然后 [联系您当地的分公司](https://thearc.org/find-a-chapter/) 了解如何捐款，以及您所在地区是否有免费接送。****
 *   ****[**大哥哥大姐姐基金会**](https://www.bbbsfoundation.org/schedule-a-pickup/) :利用该组织的网站了解你所在的地区是否提供免费捐赠接送服务。虽然他们接受 [各种各样的家居用品](https://www.bbbsfoundation.org/faqs/acceptable-non-acceptable-items/) ，但他们不接受捐赠的家具。****
-*   ****[**越战美国退伍军人**](https://pickupplease.org/about-vva/) :他们的 [皮卡Please](https://pickupplease.org/donation-program/) 服务在美国部分地区运营，免费提供一个人可以轻松提起和携带的小而轻的物品(即没有家具或电器)。每次取件最多可携带25袋或25箱捐赠物品。****
+*   ****[**越战美国退伍军人**](https://pickupplease.org/about-vva/) :他们的 [皮卡 Please](https://pickupplease.org/donation-program/) 服务在美国部分地区运营，免费提供一个人可以轻松提起和携带的小而轻的物品(即没有家具或电器)。每次取件最多可携带 25 袋或 25 箱捐赠物品。****
 
 ****是的，这里没有列出两家主要的旧货店，但是你知道在哪里/如何找到他们。****

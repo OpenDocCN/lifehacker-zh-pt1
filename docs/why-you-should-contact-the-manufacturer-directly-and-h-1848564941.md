@@ -1,6 +1,6 @@
 # 为什么应该直接联系制造商(以及如何联系)
 
-> 原文:[https://life hacker . com/why-you-should-contact-the-manufacturer-and-h-1848564941](https://lifehacker.com/why-you-should-contact-the-manufacturer-directly-and-h-1848564941)
+> 原文：<https://lifehacker.com/why-you-should-contact-the-manufacturer-directly-and-h-1848564941>
 
 在劳动力短缺、持续的供应链问题、破坏性的冬季天气、 [各种](https://lifehacker.com/stop-using-these-recalled-deodorant-sprays-that-have-ca-1848562494) [召回](https://lifehacker.com/dont-use-these-recalled-infant-formulas-fda-says-1848567003) 之间，你可能会发现你的一些畅销产品明显没有出现在你所在地区零售商的货架上。也许你已经尝试过所有 [处理此类短缺的常用方法](https://lifehacker.com/you-can-overcome-your-empty-grocery-store-1848362014) ，包括在网上寻找、与商店经理交朋友以及进行替换。
 
@@ -10,7 +10,7 @@ Watch
 
 ## 尝试联系制造商了解产品短缺信息
 
-如果你真的非常想得到某样东西，而没有其他产品或品牌可以满足你，那就联系生产该项目的公司。例如，如果你想了解Listerine漱口水的最新情况，你可以联系强生公司。
+如果你真的非常想得到某样东西，而没有其他产品或品牌可以满足你，那就联系生产该项目的公司。例如，如果你想了解 Listerine 漱口水的最新情况，你可以联系强生公司。
 
 有时关于制造商的信息——包括如何联系公司——就在产品的标签上。如果没有，快速搜索“[产品名称]的制造商”应该就可以了，还可以调出他们的客户服务部门的联系信息。
 

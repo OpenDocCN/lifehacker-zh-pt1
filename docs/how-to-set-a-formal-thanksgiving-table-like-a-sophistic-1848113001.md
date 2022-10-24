@@ -1,6 +1,6 @@
 # 如何像成熟的成年人一样布置正式的感恩节餐桌
 
-> 原文:[https://life hacker . com/how-to-set-a-formal-thanksgivity-table-like-a-诡辩-1848113001](https://lifehacker.com/how-to-set-a-formal-thanksgiving-table-like-a-sophistic-1848113001)
+> 原文：<https://lifehacker.com/how-to-set-a-formal-thanksgiving-table-like-a-sophistic-1848113001>
 
 一年中最盛大的饮食节日即将来临。你想出了菜单，买了红薯和芽甘蓝，还解冻了火鸡。( [你把火鸡解冻了吧](https://lifehacker.com/what-you-should-do-the-last-few-days-before-thanksgivin-1848104126) ？)围绕主要活动的所有宣传和准备工作，很容易忽略将显示奖金的画布:你的桌子。(如果你不是在正式的就餐环境中长大的话，这也可能令人生畏——我们大多数人都是这样。)以下是如何让你的餐桌和你准备的食物一样优雅。
 
@@ -8,7 +8,7 @@ Watch
 
 ## 器皿摆放的艺术
 
-我们大多数人都知道叉子放在盘子的左边，勺子和刀子放在右边。当这些器具的*数量*增加时，我们的困惑也随之增加。但是，正如礼仪顾问 [帕梅拉·希林斯](https://www.wcspeakers.com/speaker/pamela-hillings/) 告诉 [玛莎·斯图尔特](https://www.marthastewart.com/276333/how-to-set-a-formal-dinner-table?slide=661524a0-c9be-413e-840a-5e1ac7121c85#661524a0-c9be-413e-840a-5e1ac7121c85)“餐桌的摆放是基于逻辑的。”吃饭时，把没用过的餐具放在离我们的盘子3英寸远的地方是没有意义的。这就是为什么餐具是按照从外到内的顺序摆放的；离盘子最远的餐具先用，离盘子最近的最后用。
+我们大多数人都知道叉子放在盘子的左边，勺子和刀子放在右边。当这些器具的*数量*增加时，我们的困惑也随之增加。但是，正如礼仪顾问 [帕梅拉·希林斯](https://www.wcspeakers.com/speaker/pamela-hillings/) 告诉 [玛莎·斯图尔特](https://www.marthastewart.com/276333/how-to-set-a-formal-dinner-table?slide=661524a0-c9be-413e-840a-5e1ac7121c85#661524a0-c9be-413e-840a-5e1ac7121c85)“餐桌的摆放是基于逻辑的。”吃饭时，把没用过的餐具放在离我们的盘子 3 英寸远的地方是没有意义的。这就是为什么餐具是按照从外到内的顺序摆放的；离盘子最远的餐具先用，离盘子最近的最后用。
 
 在盘子的左边，从左到右依次是:鱼叉、沙拉叉、餐叉。(注意:在欧洲，沙拉通常在主菜后吃，这就是为什么你有时会看到沙拉叉放在离盘子最近的地方。如果你觉得特别新奇，你可以自己动手。)在盘子的右侧，从左到右依次放置餐刀、鱼刀和汤勺。(后面是牡蛎叉，如果需要的话。)
 

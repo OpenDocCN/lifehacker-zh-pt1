@@ -1,6 +1,6 @@
 # 不要忽视你的食物处理器活塞上的小孔
 
-> 原文:[https://life hacker . com/don-ignore-the-tiny-hole-in-your-food-processor-plunge-1845130572](https://lifehacker.com/dont-ignore-the-tiny-hole-in-your-food-processor-plunge-1845130572)
+> 原文：<https://lifehacker.com/dont-ignore-the-tiny-hole-in-your-food-processor-plunge-1845130572>
 
 如果你有一台食品加工机——或者即使你没有——你可能知道它有很多部件。碗和盖子是最大的，然后是刀片，粉碎机，切片机，粉碎机和切片机坐在上面的小臂东西(我总是丢失)，最后是活塞——一根塑料管，它可以帮助你将胡萝卜，奶酪，西葫芦或其他任何你想切碎或切片的东西推入并通过饲管。
 

@@ -1,6 +1,6 @@
 # 如何在不破坏家居的情况下悬挂节日装饰品
 
-> 原文:[https://life hacker . com/how-to-decoration-on-the-holiday-1848089533](https://lifehacker.com/how-to-decorate-for-the-holidays-without-destroying-you-1848089533)
+> 原文：<https://lifehacker.com/how-to-decorate-for-the-holidays-without-destroying-you-1848089533>
 
 从花环到灯串，室内室外，节日装饰都是一件麻烦的事情——它们会用不必要的(和永久的)硬件损坏你的墙壁、壁板和门。相反，以下是如何轻松轻松地进行装饰，而不需要额外的孔和永久挂钩，同时还能更好地保护装饰品本身不受天气影响。
 
@@ -8,7 +8,7 @@ Watch
 
 ## 使用可拆卸挂钩
 
-不要使用会在墙上留下洞的钉子或永久挂钩，尝试一种可移动的、 [粘贴式挂钩](https://www.amazon.com/Command-Light-strips-Indoor-CL806-45NA/dp/B076ZRRFD4/ref=asc_df_B076ZRRFD4/?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-decorate-for-the-holidays-without-destroying-you-1848089533&asc_source=&hvadid=231513879295&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=9061081&hvnetw=g&hvpone=&hvpos=&hvptwo=&hvqmt=&hvrand=3479768297664498416&hvtargid=pla-385504554175&linkCode=df0&psc=1&tag=kinjalifehackerlink-20) 。室内的和室外的都有各种各样的形状、尺寸和样式，并且有不同的重量限制。如果你觉得在*找到合适的位置很难，那么* [可调节挂钩](https://www.command.com/3M/en_US/command/products/adjustables/?utm_term=cbg-chim-cmmd-en_us-ba-paidsearch-cpc-google-na-na-na-ne21&ef_id=CjwKCAiA7dKMBhBCEiwAO_crFFTz8UYgyJ7WpqeiI7zJZmOodiL_d95UQYR0cQDD4j6wYh93NyC7LhoC9moQAvD_BwE:G:s&s_kwcid=AL!5388!3!504616897579!e!!g!!removable%20hook&gclid=CjwKCAiA7dKMBhBCEiwAO_crFFTz8UYgyJ7WpqeiI7zJZmOodiL_d95UQYR0cQDD4j6wYh93NyC7LhoC9moQAvD_BwE) 可以在最初的20分钟内重新定位三次，帮助你实现完美的放置。
+不要使用会在墙上留下洞的钉子或永久挂钩，尝试一种可移动的、 [粘贴式挂钩](https://www.amazon.com/Command-Light-strips-Indoor-CL806-45NA/dp/B076ZRRFD4/ref=asc_df_B076ZRRFD4/?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-decorate-for-the-holidays-without-destroying-you-1848089533&asc_source=&hvadid=231513879295&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=9061081&hvnetw=g&hvpone=&hvpos=&hvptwo=&hvqmt=&hvrand=3479768297664498416&hvtargid=pla-385504554175&linkCode=df0&psc=1&tag=kinjalifehackerlink-20) 。室内的和室外的都有各种各样的形状、尺寸和样式，并且有不同的重量限制。如果你觉得在*找到合适的位置很难，那么* [可调节挂钩](https://www.command.com/3M/en_US/command/products/adjustables/?utm_term=cbg-chim-cmmd-en_us-ba-paidsearch-cpc-google-na-na-na-ne21&ef_id=CjwKCAiA7dKMBhBCEiwAO_crFFTz8UYgyJ7WpqeiI7zJZmOodiL_d95UQYR0cQDD4j6wYh93NyC7LhoC9moQAvD_BwE:G:s&s_kwcid=AL!5388!3!504616897579!e!!g!!removable%20hook&gclid=CjwKCAiA7dKMBhBCEiwAO_crFFTz8UYgyJ7WpqeiI7zJZmOodiL_d95UQYR0cQDD4j6wYh93NyC7LhoC9moQAvD_BwE) 可以在最初的 20 分钟内重新定位三次，帮助你实现完美的放置。
 
 除了粘性挂钩，还有一些巧妙的方法来悬挂装饰品，而不需要戳任何实际的洞:你可以为砖块 购买临时 [挂钩，这些挂钩装有弹簧，完全可拆卸。对于门花环，考虑一个挂在门上的，完全不需要在你的门上挂一个挂钩。](https://www.acehardware.com/departments/home-and-decor/holiday/christmas-indoor-decor/9026055?store=16513&gclid=CjwKCAiA7dKMBhBCEiwAO_crFJNL-uuMTd-F-ci7-dfOPSny0ooVVcu0JL7QJYZqesGYkSOyUFbFexoC_VwQAvD_BwE&gclsrc=aw.ds)
 

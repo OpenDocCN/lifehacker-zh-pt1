@@ -1,6 +1,6 @@
 # 为什么幼儿会打自己，该怎么办
 
-> 原文:[https://life hacker . com/why-toddles-hit-self-and-what-do-about-it-1846819736](https://lifehacker.com/why-toddlers-hit-themselves-and-what-to-do-about-it-1846819736)
+> 原文：<https://lifehacker.com/why-toddlers-hit-themselves-and-what-to-do-about-it-1846819736>
 
 我们最近讨论了如果你的孩子 [击打](https://offspring.lifehacker.com/what-to-do-when-your-toddler-is-a-hitter-1846712310) 或 [咬住](https://offspring.lifehacker.com/what-to-do-when-your-toddler-is-a-biter-1846672640) 该怎么办。虽然你当然希望你的可爱的孩子不会是打人或咬人的类型，但你可能也意识到这些是许多初学走路的孩子出于沮丧、为了引起注意，或者因为他们缺乏必要的沟通技巧来表达自己的观点而做的常见事情。然而，你可能没有预料到的是，他们会撞上自己。
 
@@ -20,7 +20,7 @@ Watch
 
 ### 短期内如何处理
 
-如果你的孩子开始打自己，首要任务是1)确保他们的人身安全，2)帮助他们冷静下来。这可能意味着，如果他们的头撞到了一件家具，盖住角落或锋利的边缘，将他们或他们正在使用的任何物体移到够不到的地方，用你的手臂紧紧拥抱他们，这足以防止他们继续撞到自己(但不要太紧)。正如 [Verywell家族](https://www.verywellfamily.com/why-does-my-toddler-hit-himself-4159820) 所推荐的:
+如果你的孩子开始打自己，首要任务是 1)确保他们的人身安全，2)帮助他们冷静下来。这可能意味着，如果他们的头撞到了一件家具，盖住角落或锋利的边缘，将他们或他们正在使用的任何物体移到够不到的地方，用你的手臂紧紧拥抱他们，这足以防止他们继续撞到自己(但不要太紧)。正如 [Verywell 家族](https://www.verywellfamily.com/why-does-my-toddler-hit-himself-4159820) 所推荐的:
 
 > 抓住你的手臂，通过挡住他们的拳头来防止他们打自己是一种选择。这个动作可以是令人欣慰的，可能足以让你的孩子冷静下来，停止自残。目标是为孩子们创造一个安全、充满爱的环境，以减轻他们感受到的痛苦或挫折。
 

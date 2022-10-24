@@ -1,6 +1,6 @@
 # 如何阻止鸟儿啄食你的窗户
 
-> 原文:[https://life hacker . com/how-to-stop-birds-from-pecking-in-your-windows-1846372723](https://lifehacker.com/how-to-stop-birds-from-pecking-at-your-windows-1846372723)
+> 原文：<https://lifehacker.com/how-to-stop-birds-from-pecking-at-your-windows-1846372723>
 
 有时鸟儿会飞进窗户。其他时候，他们可能会栖息在你的窗台外侧，啄一点点。这可能看起来像是他们试图引起你的注意，如果你在过去的一年里一直被困在里面，你甚至可能会忍不住让它进来聊一聊。(但是不要。)
 
@@ -30,7 +30,7 @@ Watch
 
 ### 你如何停止啄食？
 
-这里的关键是让窗户外面不那么闪亮，从而减少反光。首先确定鸟儿通常啄食的地点，然后尝试这些策略中的一种，也是Hunker 提供的 [:](https://www.hunker.com/13717059/how-to-stop-birds-from-attacking-windows)
+这里的关键是让窗户外面不那么闪亮，从而减少反光。首先确定鸟儿通常啄食的地点，然后尝试这些策略中的一种，也是 Hunker 提供的 [:](https://www.hunker.com/13717059/how-to-stop-birds-from-attacking-windows)
 
 > 在该区域临时贴上或粘上窗纱或细网材料，仍然允许光线通过，但阻止潜在的反射。*   Matte plastic sheets, such as those used for drapery, can also be used. For better results, fix the plastic with tape or tack along the top edge of the window, and let it hang freely and float in the breeze. This action scared away the bird of [Since this is not an attractive home decoration, you may want to limit the flapping plastic to the windows facing one side or the backyard.](https://www.hunker.com/13404877/ways-to-scare-away-birds)T11】
 

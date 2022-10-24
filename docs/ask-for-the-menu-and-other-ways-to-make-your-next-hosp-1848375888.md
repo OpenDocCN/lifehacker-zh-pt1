@@ -1,6 +1,6 @@
 # 索要菜单，以及其他让你下次住院更容易忍受的方法
 
-> 原文:[https://life hacker . com/ask for the menu-and-other-ways-make your ' s next-hosp-1848375888](https://lifehacker.com/ask-for-the-menu-and-other-ways-to-make-your-next-hosp-1848375888)
+> 原文：<https://lifehacker.com/ask-for-the-menu-and-other-ways-to-make-your-next-hosp-1848375888>
 
 没有人喜欢呆在医院里。除了医院和疾病(更不用说死亡)之间不可避免的联系，它们往往是我们讨厌的一切:混乱、昂贵、不舒服。整个经历可能会令人抓狂——你随时被叫醒，接受询问、检查和药物治疗； 勤务兵会送来神秘的托盘，他们声称里面有“午餐”，但里只有恐惧；你很可能会和旁边床上的一个陌生人分享这一切。
 

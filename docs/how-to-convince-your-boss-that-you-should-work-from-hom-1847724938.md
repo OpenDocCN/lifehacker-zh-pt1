@@ -1,6 +1,6 @@
 # 如何说服你的老板让你永远在家工作
 
-> 原文:[https://life hacker . com/how-to-说服你的老板你应该在家工作-1847724938](https://lifehacker.com/how-to-convince-your-boss-that-you-should-work-from-hom-1847724938)
+> 原文：<https://lifehacker.com/how-to-convince-your-boss-that-you-should-work-from-hom-1847724938>
 
 随着 [最近艾滋病感染](https://www.healthline.com/health-news/here-are-the-states-where-covid-19-is-increasing-2) 的激增，许多工作场所都和以往一样不确定是否会重新开放。然而，许多员工并不那么困惑他们在回归面对面工作时的立场；根据彭博 报道的一项调查，40%的员工表示他们会考虑辞职，而不是放弃在家工作的福利。而且津贴很多——就我个人而言，我并不急于离开我的床去看一个同事吃金枪鱼三明治。
 

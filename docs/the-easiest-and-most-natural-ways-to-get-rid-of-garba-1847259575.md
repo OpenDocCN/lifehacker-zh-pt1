@@ -1,6 +1,6 @@
 # 去除垃圾处理气味的最简单(也是最自然)的方法
 
-> 原文:[https://life hacker . com/the-easy-and-most-natural-ways-to-get-out-of-garba-1847259575](https://lifehacker.com/the-easiest-and-most-natural-ways-to-get-rid-of-garba-1847259575)
+> 原文：<https://lifehacker.com/the-easiest-and-most-natural-ways-to-get-rid-of-garba-1847259575>
 
 垃圾处理可能是现代生活的奇迹之一，但它也是恶臭的来源。一旦气味存在，要完全去除它们可能是一个挑战，而不仅仅是掩盖它们(T2)。但是几个柠檬和酸橙(加醋)就能吃很久——如果你把它们放在手边，容易拿到的话。
 

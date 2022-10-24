@@ -1,6 +1,6 @@
 # 如何在购买之前辨别一种洗涤剂是否真的“温和”
 
-> 原文:[https://life hacker . com/how-to-tell-if-a-determine-before-you-1849629046](https://lifehacker.com/how-to-tell-if-a-detergent-is-actually-mild-before-you-1849629046)
+> 原文：<https://lifehacker.com/how-to-tell-if-a-detergent-is-actually-mild-before-you-1849629046>
 
 如果你的网上搜索历史中充斥着如何清洁各种表面和物品的问题，你可能已经注意到，出现的许多说明和教程都建议使用温和的洗涤剂或洗碗皂。这是我们经常看到的术语之一，但是，当被追问时，可能会发现很难准确地指出是什么使清洁剂变得“温和”
 
@@ -16,7 +16,7 @@ Watch
 
 ## 如何辨别一种洗涤剂或肥皂是否“温和”
 
-在强力(即不温和)洗涤剂和肥皂中发现的强化学清洁化合物被称为 [【助洗剂】](https://rusticwise.com/what-is-mild-soap-for-cleaning/) ，它们通过软化水、提高水的pH值、分解污垢和油颗粒来增强清洁剂的功效。
+在强力(即不温和)洗涤剂和肥皂中发现的强化学清洁化合物被称为 [【助洗剂】](https://rusticwise.com/what-is-mild-soap-for-cleaning/) ，它们通过软化水、提高水的 pH 值、分解污垢和油颗粒来增强清洁剂的功效。
 
 确定一种洗涤剂、肥皂或其他清洁剂是否被认为是“温和”的最好方法是检查已知建筑材料的成分表。几个 [中的最常见的](https://rusticwise.com/what-is-mild-soap-for-cleaning/) [包括](https://www.essentialchemicalindustry.org/materials-and-applications/surfactants.html) :
 

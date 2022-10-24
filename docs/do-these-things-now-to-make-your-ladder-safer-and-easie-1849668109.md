@@ -1,6 +1,6 @@
 # 现在就做这些事情，让你的梯子更安全、更容易使用
 
-> 原文:[https://life hacker . com/do-things-now-to-make-your-ladder-safe-easie-1849668109](https://lifehacker.com/do-these-things-now-to-make-your-ladder-safer-and-easie-1849668109)
+> 原文：<https://lifehacker.com/do-these-things-now-to-make-your-ladder-safer-and-easie-1849668109>
 
 现在是阶梯季节:是时候 [清理你的排水沟](https://lifehacker.com/behold-a-practical-not-too-overwhelming-fall-cleaning-1847821460) 了，很快，你就会 [挂上节日彩灯](https://lifehacker.com/why-you-should-replace-your-old-christmas-lights-with-l-1848137005) 或甚至承担一些除雪工作。在秋天和冬天，你可能会花更多的时间在你的梯子上，但是你的高空家庭维修应该全年都尽可能安全和容易完成。这里有一些简单的方法让你在梯子上的时间更安全、更有效。
 

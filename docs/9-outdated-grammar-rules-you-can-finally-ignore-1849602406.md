@@ -1,6 +1,6 @@
-# 你终于可以忽略的9条过时的语法规则
+# 你终于可以忽略的 9 条过时的语法规则
 
-> 原文:[https://life hacker . com/9-outsided-grammar-rules-you-can-finally-ignore-1849602406](https://lifehacker.com/9-outdated-grammar-rules-you-can-finally-ignore-1849602406)
+> 原文：<https://lifehacker.com/9-outdated-grammar-rules-you-can-finally-ignore-1849602406>
 
 当我写作时，我制定自己的规则。单词和标点符号按照我告诉他们的去做，我不需要那个人强加给我限制。我会用你没听过的标点符号。看:❦，那是海德拉！我都不知道*是什么意思*！
 
@@ -20,11 +20,11 @@
 
 <figcaption class="sc-1ptbguh-0 hxeMec caption">Schoolhouse Rock, conjunction junction</figcaption> 
 
-我的一个高中英语老师坚持认为用连词开始一个句子总是错误的。现在他死了。我希望他还活着，这样我就可以告诉他，从来没有规定不允许用“和”、“或者”和“但是”这样的词来开始一个句子下面是第16版**芝加哥风格手册* 5.206对此的说法:* 
+我的一个高中英语老师坚持认为用连词开始一个句子总是错误的。现在他死了。我希望他还活着，这样我就可以告诉他，从来没有规定不允许用“和”、“或者”和“但是”这样的词来开始一个句子下面是第 16 版**芝加哥风格手册* 5.206 对此的说法:* 
 
-*“有一种普遍的看法——没有历史或语法基础——认为用连词开始句子是错误的……一流写作中有很大比例(通常高达10 %)的句子是以连词开始的。几个世纪以来一直如此，甚至最保守的语法学家也遵循这种做法。”*
+*“有一种普遍的看法——没有历史或语法基础——认为用连词开始句子是错误的……一流写作中有很大比例(通常高达 10 %)的句子是以连词开始的。几个世纪以来一直如此，甚至最保守的语法学家也遵循这种做法。”*
 
-*汤普森先生，拿着那个。对于这个虚假规则的更详细、更少报复的讨论，请查看来自Lifehacker最伟大的语法学家梅根·莫拉维克·沃尔伯特 的 [这篇文章。](https://lifehacker.com/you-can-start-a-sentence-with-and-but-or-or-1832984839)*
+*汤普森先生，拿着那个。对于这个虚假规则的更详细、更少报复的讨论，请查看来自 Lifehacker 最伟大的语法学家梅根·莫拉维克·沃尔伯特 的 [这篇文章。](https://lifehacker.com/you-can-start-a-sentence-with-and-but-or-or-1832984839)*
 
  *[https://lifehacker.com/embed/inset/iframe?id=youtube-video-dTPMmBQjlFQ&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-dTPMmBQjlFQ&start=0)
 
@@ -32,9 +32,9 @@
 
 很多人记得“I before except after C ”,因为它押韵，但这不是一个非常有用的拼写规则。它只适用于来自法语的英语单词。另外，这只是诗的一半。全韵为:
 
-“I在E之前，C之后或听起来像A时除外，如neighbor和weigh。而且怪异就是怪异。”
+“I 在 E 之前，C 之后或听起来像 A 时除外，如 neighbor 和 weigh。而且怪异就是怪异。”
 
-那是*还是*没用。“高效”呢？在E之前有个I，就在c之后，那" stein "呢？那么“外国呢？”
+那是*还是*没用。“高效”呢？在 E 之前有个 I，就在 c 之后，那" stein "呢？那么“外国呢？”
 
 换句话说，我们不是穴居人。我们有拼写检查。
 
@@ -60,7 +60,7 @@
 
 <figcaption class="sc-1ptbguh-0 hxeMec caption">Kids in the Hall: Editors</figcaption> 
 
-他们在2019年的 [美国文字编辑学会年会](https://www.newyorker.com/culture/comma-queen/dropped-hyphens-split-infinitives-and-other-thrilling-developments-from-the-2019-american-copy-editors-society-conference) 上拿到了buck-wild 。世界上的文字编辑不仅一劳永逸地规定，我们可以随时拆分不定式，他们还认为用“%”而不是“百分比”是正确的。“我也听到有人打翻了椅子。
+他们在 2019 年的 [美国文字编辑学会年会](https://www.newyorker.com/culture/comma-queen/dropped-hyphens-split-infinitives-and-other-thrilling-developments-from-the-2019-american-copy-editors-society-conference) 上拿到了 buck-wild 。世界上的文字编辑不仅一劳永逸地规定，我们可以随时拆分不定式，他们还认为用“%”而不是“百分比”是正确的。“我也听到有人打翻了椅子。
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-oNGh0JF8VcE&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-oNGh0JF8VcE&start=0)
 
@@ -84,6 +84,6 @@
 
 你能看出来，因为人们总是这样用它。“我真的可以吃下一匹马，”他们说，你知道他们并不意味着他们真的可以吃下一匹马。语言变化就是这样。“棒极了”这个词过去的意思是“可怕的”现在它的意思是“棒极了”单词“awesome”用来指一种极度恐惧或害怕的感觉。现在它的意思是棒极了。
 
-字面上用作比喻甚至不是新的！根据 [梅里亚姆-W 埃布斯特](https://www.merriam-webster.com/words-at-play/misuse-of-literally#:~:text=These%20people%20comment%20on%20other,m%20figuratively%20about%20to%20hurl.) 的说法，自1769年以来就一直这样使用。斯科特·菲茨杰拉德做到了。查尔斯·狄更斯(Charles Dickens)和夏洛特·勃朗特(Charlotte Bront)也是如此，他们在19世纪写道，“她把我带到自己身边，然后用她无拘无束的精神让我窒息”。
+字面上用作比喻甚至不是新的！根据 [梅里亚姆-W 埃布斯特](https://www.merriam-webster.com/words-at-play/misuse-of-literally#:~:text=These%20people%20comment%20on%20other,m%20figuratively%20about%20to%20hurl.) 的说法，自 1769 年以来就一直这样使用。斯科特·菲茨杰拉德做到了。查尔斯·狄更斯(Charles Dickens)和夏洛特·勃朗特(Charlotte Bront)也是如此，他们在 19 世纪写道，“她把我带到自己身边，然后用她无拘无束的精神让我窒息”。
 
 查看 [这篇文章以获得更多信息](https://lifehacker.com/go-ahead-and-use-literally-figuratively-1797636385) ，或者我真的会去你家为你点击链接。*

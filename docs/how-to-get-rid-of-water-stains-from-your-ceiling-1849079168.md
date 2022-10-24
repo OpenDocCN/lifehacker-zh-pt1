@@ -1,6 +1,6 @@
 # 如何去除天花板上的水渍
 
-> 原文:[https://life hacker . com/how-to-get-off-water-stains-1849079168](https://lifehacker.com/how-to-get-rid-of-water-stains-from-your-ceiling-1849079168)
+> 原文：<https://lifehacker.com/how-to-get-rid-of-water-stains-from-your-ceiling-1849079168>
 
 即使房间的其他部分非常干净，装饰和设计都无可挑剔，天花板上的水渍也很容易成为焦点，使空间看起来和感觉起来很暗并且被忽视。
 
@@ -22,7 +22,7 @@ Watch
 
 1.  爬上梯子，用漂白剂混合物喷洒整个水渍。
 2.  给溶液大约一分钟的时间来沉淀。
-3.  然后回到梯子上，再喷一层溶液。让它静置24小时。
+3.  然后回到梯子上，再喷一层溶液。让它静置 24 小时。
 4.  较轻的污渍可能会消失(或最小化)，但如果没有，你可以重复这个过程，直到污渍被清除(或至少减轻到你可以接受的程度)。
 
 ### 粉刷天花板上的污渍

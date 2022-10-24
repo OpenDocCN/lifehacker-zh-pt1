@@ -1,6 +1,6 @@
 # 教孩子“公平”和“平等”的区别
 
-> 原文:[https://life hacker . com/teach-kids-the-difference-better-equal-1846458537](https://lifehacker.com/teach-kids-the-difference-between-fair-and-equal-1846458537)
+> 原文：<https://lifehacker.com/teach-kids-the-difference-between-fair-and-equal-1846458537>
 
 这是世界各地都能听到的童年抱怨:“这不*公平。*“这是用来抗议兄弟姐妹被允许和朋友呆在一起或者有额外的屏幕时间，或者回应同学被允许有额外的时间完成任务。你可能会忍不住反驳说“*生活是不公平的，*”，虽然这是真的，但从长远来看，教会他们公平和公正的区别会更有帮助。因为平等的不总是公平的，公平的也不总是平等的。
 

@@ -1,6 +1,6 @@
 # 如何修复太甜的蔓越莓酱
 
-> 原文:[https://life hacker . com/how-to-fix-a too-sweet-cranberry-sauce-1845643722](https://lifehacker.com/how-to-fix-a-too-sweet-cranberry-sauce-1845643722)
+> 原文：<https://lifehacker.com/how-to-fix-a-too-sweet-cranberry-sauce-1845643722>
 
 蔓越莓酱应该是甜和酸的平衡。这种酱在脂肪和盐的混乱风暴中起到了净化的作用，但是如果酱太甜了，这种作用就失去了。幸运的是，有一个非常简单的方法可以解决自制酱糖过多的问题:你只需要一点柠檬酸。
 

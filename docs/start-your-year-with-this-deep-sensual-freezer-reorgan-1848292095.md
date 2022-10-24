@@ -1,6 +1,6 @@
 # 以这种深刻的、感性的冷冻重组开始你的一年
 
-> 原文:[https://life hacker . com/start-your ' s year with this-deep-sensory-reorgan-1848292095](https://lifehacker.com/start-your-year-with-this-deep-sensual-freezer-reorgan-1848292095)
+> 原文：<https://lifehacker.com/start-your-year-with-this-deep-sensual-freezer-reorgan-1848292095>
 
 不管你有多少钱，你都会找到花的方法。同样的原理也适用于冰柜空间。当然，一个满满当当的冰柜运转起来更有效率，但这不是我为什么盯着一堵密不透风的霜墙看的原因。像大多数人一样，我的冰箱是我厨房的墓地。
 
@@ -19,7 +19,7 @@ Watch
 5.  白色胶带
 6.  [青蛙胶带](https://www.frogtape.com/products/multi-surface-painters-tape-green-141-in-x-60-yd?gclid=CjwKCAiAzrWOBhBjEiwAq85QZ2A8iT_RaS0ZpvkngyZMSP05ulG-5i5nodDbBTqh7AMuzDrYwiOTqRoCEfYQAvD_BwE)
 
-## 首先清空war chest
+## 首先清空 war chest
 
 从简单地把你的冰箱清空到柜台上开始。这听起来比想象中简单:一些包裹可能会被冷冻在一起，或者你可能会发现冰箱里的东西泄漏或爆炸，在你冷冻的大部分物品上覆盖了一层粘稠的橙汁。这两个问题有相同的解决方法:R 用*冷水*把它们冲走。水将溶解足够多的棍子，这样你就可以通过在水槽中敲击来分解冷冻的包裹。
 

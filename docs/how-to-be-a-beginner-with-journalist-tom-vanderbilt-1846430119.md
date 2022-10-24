@@ -1,6 +1,6 @@
 # 记者汤姆·范德比尔特的《如何成为初学者》
 
-> 原文:[https://life hacker . com/how-to-be-初学者与记者-tom-vanderbilt-1846430119](https://lifehacker.com/how-to-be-a-beginner-with-journalist-tom-vanderbilt-1846430119)
+> 原文：<https://lifehacker.com/how-to-be-a-beginner-with-journalist-tom-vanderbilt-1846430119>
 
 你上一次尝试新事物是什么时候？本周，在记者汤姆·范德比尔特的帮助下，我们将讨论为什么过了一定年龄后我们会失去学习的欲望，以及我们能做些什么来重新点燃这种欲望。请听汤姆讲述我们应该继续追求新技能和爱好的原因，包括这样做带来的认知益处，以及这对你与世界的整体互动意味着什么。
 
@@ -12,7 +12,7 @@ Watch
 
 T2】
 
-听听上面的升级或者在所有通常提供播客的地方找到我们，包括[Google Play](https://play.google.com/music/listen?u=0#/ps/Illldmn6f4jkwb32lslhae3laru)[Spotify](https://open.spotify.com/show/43qzAEOZ861D4aXaBXaRKj)[iHeartRadio](https://www.iheart.com/podcast/8-The-Upgrade-by-Lifehacker-28037794)和NPR一号。
+听听上面的升级或者在所有通常提供播客的地方找到我们，包括[Google Play](https://play.google.com/music/listen?u=0#/ps/Illldmn6f4jkwb32lslhae3laru)[Spotify](https://open.spotify.com/show/43qzAEOZ861D4aXaBXaRKj)[iHeartRadio](https://www.iheart.com/podcast/8-The-Upgrade-by-Lifehacker-28037794)和 NPR 一号。
 
 ## **本周集锦**
 
@@ -32,7 +32,7 @@ T2】
 
 要了解更多为什么我们应该学习新技能，我们强烈建议听完整集。
 
-对未来的剧集有什么反馈或想法吗？想上节目吗？请拨打347-687-8109给我们留言，或者给upgrade@lifehacker.com发送语音备忘录。
+对未来的剧集有什么反馈或想法吗？想上节目吗？请拨打 347-687-8109 给我们留言，或者给 upgrade@lifehacker.com 发送语音备忘录。
 
 ### **一集文字记录**
 

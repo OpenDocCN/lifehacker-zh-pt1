@@ -1,6 +1,6 @@
 # 如何写一篇有用的负面评论
 
-> 原文:[https://life hacker . com/how-to-write-a-useful-negative-review-1847538135](https://lifehacker.com/how-to-write-a-useful-negative-review-1847538135)
+> 原文：<https://lifehacker.com/how-to-write-a-useful-negative-review-1847538135>
 
 我们都知道写得不好的网上评论对任何人都没有好处，除了那些愤怒地把它们打出来的人。但时不时地，你会发现自己处于一种需要一些建设性批评的境地。无论你是在评论一笔亚马逊购买的商品、一家餐馆还是一位前雇主，你的基本评论写作策略应该保持不变:让它可读，让它有用。下面是怎么做的。
 

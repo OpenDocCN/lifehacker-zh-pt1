@@ -1,8 +1,8 @@
 # 如何评估气候变化给你家带来的风险
 
-> 原文:[https://life hacker . com/how-to-assessed-your-home-s-risk-from-climate-change-1849428527](https://lifehacker.com/how-to-assess-your-home-s-risk-from-climate-change-1849428527)
+> 原文：<https://lifehacker.com/how-to-assess-your-home-s-risk-from-climate-change-1849428527>
 
-似乎我们几天之内都不会没有关于气候危机的令人担忧的头条新闻——从加州的 [即将到来的“大风暴”](https://www.nytimes.com/interactive/2022/08/12/climate/california-rain-storm.html)到犹他州酝酿的 [【环境核弹】](https://www.nytimes.com/2022/06/07/climate/salt-lake-city-climate-disaster.html)到 [数据表明](https://www.washingtonpost.com/climate-environment/interactive/2022/extreme-heat-risk-map-us/) 极端温度(超过100华氏度)很可能在未来更长时间内更频繁地发生，并遍及美国更多地区
+似乎我们几天之内都不会没有关于气候危机的令人担忧的头条新闻——从加州的 [即将到来的“大风暴”](https://www.nytimes.com/interactive/2022/08/12/climate/california-rain-storm.html)到犹他州酝酿的 [【环境核弹】](https://www.nytimes.com/2022/06/07/climate/salt-lake-city-climate-disaster.html)到 [数据表明](https://www.washingtonpost.com/climate-environment/interactive/2022/extreme-heat-risk-map-us/) 极端温度(超过 100 华氏度)很可能在未来更长时间内更频繁地发生，并遍及美国更多地区
 
 Watch
 
@@ -14,9 +14,9 @@ Watch
 
 你当然可以查找火灾和洪水平面图，并尝试自己解读历史数据和趋势预测，但非营利组织第一街基金会 [创造了一个名为风险因素](https://riskfactor.com/) 的工具，为你做所有这些。只需在搜索栏中输入您的住宅或潜在买家的地址，即可查看火灾、洪水和高温风险。您也可以按邮政编码、城市或县进行搜索。
 
-该工具将在1-10的范围内评估每个风险因素，并使用历史数据和当前及未来预测进一步细分风险。如果搜索一个特定的地址，该工具将包含诸如到水的距离、使用的建筑材料和相对海拔等信息。
+该工具将在 1-10 的范围内评估每个风险因素，并使用历史数据和当前及未来预测进一步细分风险。如果搜索一个特定的地址，该工具将包含诸如到水的距离、使用的建筑材料和相对海拔等信息。
 
-包括Realtor.com和Redfin在内的几个房地产搜索平台也将风险因素数据直接纳入房源。当然，提醒一下，这只是一个近似风险的预测工具，而不是一个保证——它也不能全面反映所有的环境问题或自然灾害。
+包括 Realtor.com 和 Redfin 在内的几个房地产搜索平台也将风险因素数据直接纳入房源。当然，提醒一下，这只是一个近似风险的预测工具，而不是一个保证——它也不能全面反映所有的环境问题或自然灾害。
 
 ## 为什么知道你的气候风险很重要？
 

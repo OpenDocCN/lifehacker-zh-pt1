@@ -1,6 +1,6 @@
 # 如何除掉路面裂缝中生长的杂草
 
-> 原文:[https://life hacker . com/how-to-get-out-of-weeds-that-grow-through-the-cracks-in-the-1848771475](https://lifehacker.com/how-to-get-rid-of-weeds-that-grow-through-cracks-in-the-1848771475)
+> 原文：<https://lifehacker.com/how-to-get-rid-of-weeds-that-grow-through-cracks-in-the-1848771475>
 
 当我们第一次在学校学习植物时，它们看起来很简单:确保它们有适量的土壤、阳光和水，它们就会生长。然后我们了解到事情比这要复杂一点，许多不同的因素决定了一株植物是否会生长以及生长得多好。
 

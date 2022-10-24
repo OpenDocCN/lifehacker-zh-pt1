@@ -1,6 +1,6 @@
 # 使用“四种倾向”测验来提高效率
 
-> 原文:[https://life hacker . com/use-the-four-trends-quiz-to-be-more-productive-1848913191](https://lifehacker.com/use-the-four-tendencies-quiz-to-be-more-productive-1848913191)
+> 原文：<https://lifehacker.com/use-the-four-tendencies-quiz-to-be-more-productive-1848913191>
 
 从 [迈尔斯-布里格斯](https://lifehacker.com/its-time-to-stop-using-myers-briggs-at-work-1830232770) 类型到九格图数字，很自然地想要尝试更好地了解自己(即使这些往往会导致 [扯淡的人格“类型”](https://lifehacker.com/sigma-male-is-not-a-personality-1847609652) )。虽然我不相信在线测试真的能说明你是谁，但这并不意味着这些测试完全没有用。一个性格测验仍然可以帮助你获得如何激励自己的有用见解的例子:四种倾向框架。
 
@@ -18,7 +18,7 @@ Watch
 
 ## 测验如何帮助你变得更有效率
 
-我对这四种倾向的新兴趣受到了 [这个Tiktok](https://www.tiktok.com/@erica_mallett/video/7062593036349574401?is_copy_url=1&is_from_webapp=v1) 的启发，其中创作者@ [erica_mallett](https://www.tiktok.com/@erica_mallett) 分享了作为一个乐于助人者，了解他们的倾向如何帮助他们认识到他们需要一个“负责任的伙伴”来让他们坚持内心的期望(比如每天早上整理床铺)。
+我对这四种倾向的新兴趣受到了 [这个 Tiktok](https://www.tiktok.com/@erica_mallett/video/7062593036349574401?is_copy_url=1&is_from_webapp=v1) 的启发，其中创作者@ [erica_mallett](https://www.tiktok.com/@erica_mallett) 分享了作为一个乐于助人者，了解他们的倾向如何帮助他们认识到他们需要一个“负责任的伙伴”来让他们坚持内心的期望(比如每天早上整理床铺)。
 
 虽然我期望我取悦他人的习惯会让我成为一个乐于助人的人，但我还是被提问了。这显然意味着我受到理性、逻辑和公平的激励——本质上，我更擅长满足内心的期望而不是外在的期望，因为我的内心需求对我来说是有意义的。下面是我如何将这种洞察力应用到我的生产力中(我从 [中抽取了一些例子，这些例子来自](https://quiz.gretchenrubin.com/wp-content/uploads/sites/3/2021/06/questioner-Report.pdf) 随带的免费报告):
 

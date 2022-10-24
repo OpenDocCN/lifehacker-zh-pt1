@@ -1,6 +1,6 @@
 # 你真的需要多久洗一次冬衣
 
-> 原文:[https://life hacker . com/how-frequency-you ' s really-need-wash-your-winter-coat-1849683582](https://lifehacker.com/how-often-you-really-need-to-wash-your-winter-coat-1849683582)
+> 原文：<https://lifehacker.com/how-often-you-really-need-to-wash-your-winter-coat-1849683582>
 
 我们都有大量的衣物要定期洗，所以我们不常洗的季节性衣物可能不会进入我们的日常洗衣程序。例如，你认为多长时间洗一次冬衣？不管你怎么回答，让我们来看看你*应该*多久一次。答案取决于几个因素，包括你穿每件外套的频率和它的材质。
 
@@ -8,7 +8,7 @@ Watch
 
 ## **羊毛和皮革大衣**
 
-[根据我们洗衣](https://wedolaundry.ca/blog/how-often-should-you-exactly-clean-your-coats-and-jackets) 的说法，羊毛和皮革大衣应该每季清洗一次，前提是它们比你的其他大衣磨损少。如果你经常穿，选择每季两次。所以，在11月初洗一次，然后在1月下旬再洗一次，以确保它足够干净，可以持续到3月初。关于清洁皮革和羊毛的小贴士， [点击这里查看我们的指南](https://lifehacker.com/8-of-the-hardest-to-clean-materials-and-how-to-care-fo-1849574636) 。
+[根据我们洗衣](https://wedolaundry.ca/blog/how-often-should-you-exactly-clean-your-coats-and-jackets) 的说法，羊毛和皮革大衣应该每季清洗一次，前提是它们比你的其他大衣磨损少。如果你经常穿，选择每季两次。所以，在 11 月初洗一次，然后在 1 月下旬再洗一次，以确保它足够干净，可以持续到 3 月初。关于清洁皮革和羊毛的小贴士， [点击这里查看我们的指南](https://lifehacker.com/8-of-the-hardest-to-clean-materials-and-how-to-care-fo-1849574636) 。
 
 ## **抓绒夹克**
 

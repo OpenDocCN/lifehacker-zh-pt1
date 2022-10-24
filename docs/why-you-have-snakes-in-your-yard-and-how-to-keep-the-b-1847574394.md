@@ -1,6 +1,6 @@
 # 为什么你的院子里有蛇，以及如何把那些坏的赶出去
 
-> 原文:[https://life hacker . com/why-you ' s hacken-your-yard-and-how-to-keep-the-b-1847574394](https://lifehacker.com/why-you-have-snakes-in-your-yard-and-how-to-keep-the-b-1847574394)
+> 原文：<https://lifehacker.com/why-you-have-snakes-in-your-yard-and-how-to-keep-the-b-1847574394>
 
 人们往往对蛇有强烈的看法——通常要么觉得它们很迷人(在某些情况下，足以让一只蛇成为宠物),要么绝对可怕和令人厌恶，以至于仅仅看一眼一只蛇的照片就不寒而栗。但是除了感觉，对于一些有院子的人来说，蛇是非常真实的。
 
@@ -16,7 +16,7 @@ Watch
 
 ## 为什么蛇会被吸引到你的院子
 
-根据ThisOldHouse.com上 [对付蛇的指南，蛇通常在你的院子里寻找食物和/或庇护所。他们最喜欢的食物包括:](https://www.thisoldhouse.com/pest-control/21373344/how-to-get-rid-of-snakes)
+根据 ThisOldHouse.com 上 [对付蛇的指南，蛇通常在你的院子里寻找食物和/或庇护所。他们最喜欢的食物包括:](https://www.thisoldhouse.com/pest-control/21373344/how-to-get-rid-of-snakes)
 
 *   老鼠
 *   老鼠

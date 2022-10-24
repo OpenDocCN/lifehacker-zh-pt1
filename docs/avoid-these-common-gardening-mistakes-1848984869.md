@@ -1,6 +1,6 @@
 # 避免这些常见的园艺错误
 
-> 原文:[https://life hacker . com/avoid-these-common-gardening-errors-1848984869](https://lifehacker.com/avoid-these-common-gardening-mistakes-1848984869)
+> 原文：<https://lifehacker.com/avoid-these-common-gardening-mistakes-1848984869>
 
 某些拥有“绿拇指”的人天生比其他人更擅长种植植物，这种观点听起来似乎园艺更多的是运气而不是技能。但是，就像任何一个尝试过用从小学科学课上学到的知识来创建一个菜园的人会告诉你的那样，这与事实相差甚远。
 
@@ -10,7 +10,7 @@ Watch
 
 ## 忽视土壤
 
-无论你是在室内种植盆栽植物，还是在后院开辟菜园，你使用的 土壤类型都很重要。对于那些生活在室内的人来说，这是一个为你的植物购买正确类型的盆栽土壤的问题。但是如果你打算在实际的土地上播种或幼苗，你至少应该 [测试土壤的pH值](https://lifehacker.com/how-and-when-to-plant-a-spring-garden-1846388049) ，然后根据你种植的作物进行调整。
+无论你是在室内种植盆栽植物，还是在后院开辟菜园，你使用的 土壤类型都很重要。对于那些生活在室内的人来说，这是一个为你的植物购买正确类型的盆栽土壤的问题。但是如果你打算在实际的土地上播种或幼苗，你至少应该 [测试土壤的 pH 值](https://lifehacker.com/how-and-when-to-plant-a-spring-garden-1846388049) ，然后根据你种植的作物进行调整。
 
 ## 把位置弄错了
 

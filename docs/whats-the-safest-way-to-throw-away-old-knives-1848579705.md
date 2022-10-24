@@ -1,6 +1,6 @@
 # 扔掉旧刀具最安全的方法是什么？
 
-> 原文:[https://life hacker . com/whats-the-safe-way to-hand-away-old-knifes-1848579705](https://lifehacker.com/whats-the-safest-way-to-throw-away-old-knives-1848579705)
+> 原文：<https://lifehacker.com/whats-the-safest-way-to-throw-away-old-knives-1848579705>
 
 好刀如果你打理的话保质期很长:手洗，存放在专用的地方， [保持锋利](https://lifehacker.com/how-to-keep-your-knives-sharp-1846972299) 。即使是钝的刀片也可以回收。
 
@@ -18,7 +18,7 @@ Watch
 
 ### 如何出售你的刀具
 
-状况良好的刀具——尤其是像Wustof这样的知名品牌的刀具——可能在你当地的分类广告网站或Facebook Marketplace上有需求。如果你的刀片完好且锋利，而你只是想升级你自己的刀片，这是最有可能的选择。查看其他帖子，了解你的帖子的价值。
+状况良好的刀具——尤其是像 Wustof 这样的知名品牌的刀具——可能在你当地的分类广告网站或 Facebook Marketplace 上有需求。如果你的刀片完好且锋利，而你只是想升级你自己的刀片，这是最有可能的选择。查看其他帖子，了解你的帖子的价值。
 
 ### 如何捐赠你的刀具
 

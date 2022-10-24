@@ -1,6 +1,6 @@
 # 教你的孩子如何应对抖音的“挑战”
 
-> 原文:[https://life hacker . com/teach-your-kids-how-to-response-to-tiktok挑战-1846762887](https://lifehacker.com/teach-your-kids-how-to-respond-to-tiktok-challenges-1846762887)
+> 原文：<https://lifehacker.com/teach-your-kids-how-to-respond-to-tiktok-challenges-1846762887>
 
 每隔几个月，另一个危险的抖音“挑战”的消息就会传播开来，让各地的父母感到恐惧。从“”到“ [苯海拉明挑战](https://offspring.lifehacker.com/warn-your-teens-about-the-benadryl-challenge-1844927737) ”,孩子们总是在寻找新的、危险的方式来挑战对方伤害甚至杀死自己。最新的再循环被称为“ [昏迷挑战](https://www.today.com/parents/boy-dies-after-trying-tiktok-blackout-challenge-t215253) ”，其中一个人故意试图窒息自己或他人，以获得“快感”虽然我们绝对应该警告我们的孩子这个特殊的挑战，但它也强调了我们需要教会他们批判性地思考所有这些挑战和他们可能遇到的挑战。
 

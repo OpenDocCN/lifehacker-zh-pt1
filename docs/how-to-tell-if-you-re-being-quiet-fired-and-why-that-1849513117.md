@@ -1,8 +1,8 @@
 # 如何判断你是否被“悄悄解雇”(为什么这并不新鲜)
 
-> 原文:[https://life hacker . com/how-to-tell-if-you-re-be-quiet-fired-and-why-that-1849513117](https://lifehacker.com/how-to-tell-if-you-re-being-quiet-fired-and-why-that-1849513117)
+> 原文：<https://lifehacker.com/how-to-tell-if-you-re-being-quiet-fired-and-why-that-1849513117>
 
-你听说过员工“悄悄辞职”现在准备好迎接趋势术语的另一面:“安静开火” [正如我们先前指出的，](https://lifehacker.com/there-s-something-better-than-quiet-quitting-1849457662) 安静的退出很快被吹得不成比例。这不是“放弃”它是做你同意得到补偿的工作量。因此，在对这个病毒性术语的日益增长的反弹中，许多人指出，我们的集体精力应该更好地用于认识雇主应该受到责备的地方。以推特用户@randy_user 为例，他将悄悄解雇描述为“当你在5年内不给某人加薪，即使他们一直做你要求他们做的一切。”
+你听说过员工“悄悄辞职”现在准备好迎接趋势术语的另一面:“安静开火” [正如我们先前指出的，](https://lifehacker.com/there-s-something-better-than-quiet-quitting-1849457662) 安静的退出很快被吹得不成比例。这不是“放弃”它是做你同意得到补偿的工作量。因此，在对这个病毒性术语的日益增长的反弹中，许多人指出，我们的集体精力应该更好地用于认识雇主应该受到责备的地方。以推特用户@randy_user 为例，他将悄悄解雇描述为“当你在 5 年内不给某人加薪，即使他们一直做你要求他们做的一切。”
 
 Watch
 

@@ -1,6 +1,6 @@
 # 如何设置自己的安全电子邮件服务器
 
-> 原文:[https://life hacker . com/how-to-set-up-your-own-secure-email-server-1848026797](https://lifehacker.com/how-to-set-up-your-own-secure-email-server-1848026797)
+> 原文：<https://lifehacker.com/how-to-set-up-your-own-secure-email-server-1848026797>
 
 最近来自威瑞森的研究表明，96%的社会工程攻击都是通过电子邮件进行的，仅仅因为这个原因，你可能需要考虑增加额外的安全性。让我们讨论一下“安全邮件服务器”的定义，它的优点和缺点，以及如何设置它。
 
@@ -40,26 +40,26 @@ Watch
 下面是一些你需要开始做的事情:
 
 *   您将用来设置电子邮件地址的域名(yourdomain.com)
-*   云服务器或专用服务器，具有1 GHz处理器、1 GB以上的RAM空间和5 GB的磁盘空间
-*   [免费、开源的Mailcow软件](https://mailcow.github.io/mailcow-dockerized-docs/)
+*   云服务器或专用服务器，具有 1 GHz 处理器、1 GB 以上的 RAM 空间和 5 GB 的磁盘空间
+*   [免费、开源的 Mailcow 软件](https://mailcow.github.io/mailcow-dockerized-docs/)
 
 当创建个人安全电子邮件服务器时，最好使用云服务器，而企业将从拥有专用电子邮件服务器中受益。
 
-第一个步骤是配置DNS记录。您可以使用域名注册商的DNS，按照以下步骤操作:
+第一个步骤是配置 DNS 记录。您可以使用域名注册商的 DNS，按照以下步骤操作:
 
 *   **登录**到域名注册机构
 *   **将【yourdomain.com】的域名服务器**设置为您的域名注册商的域名服务器
-*   设置**mail.example.com A记录**到服务器的主IP
-*   将example.com的 **MX记录设置为:**mail.example.com****
+*   设置**mail.example.com A 记录**到服务器的主 IP
+*   将 example.com 的 **MX 记录设置为:**mail.example.com****
 
-如果您使用外部DNS记录，您将遵循上面列出的相同步骤，但是设置名称服务器以匹配您的外部DNS。Juts注意到，在你可以接收和发送电子邮件之前，我需要24-48小时来传播DNS记录。
+如果您使用外部 DNS 记录，您将遵循上面列出的相同步骤，但是设置名称服务器以匹配您的外部 DNS。Juts 注意到，在你可以接收和发送电子邮件之前，我需要 24-48 小时来传播 DNS 记录。
 
-以下步骤将帮助您安装邮件服务器。首先，您需要**登录您的SSH** 。然后，你需要**更新系统包**，**安装curl和git** ，下载 **docker** 和 **docket组件**并将docker设置更新为**可执行文件**。
+以下步骤将帮助您安装邮件服务器。首先，您需要**登录您的 SSH** 。然后，你需要**更新系统包**，**安装 curl 和 git** ，下载 **docker** 和 **docket 组件**并将 docker 设置更新为**可执行文件**。
 
-执行这些步骤后的下一步是确保您的umask等于0022，并切换到/opt目录。您将下载 **Mailcow文件**，将它们更改到Mailcow目录中，然后**生成配置文件**。您将提取图像，运行composer文件，安装就完成了。你现在可以使用用户名admin和密码登录你的服务器了。
+执行这些步骤后的下一步是确保您的 umask 等于 0022，并切换到/opt 目录。您将下载 **Mailcow 文件**，将它们更改到 Mailcow 目录中，然后**生成配置文件**。您将提取图像，运行 composer 文件，安装就完成了。你现在可以使用用户名 admin 和密码登录你的服务器了。
 
 你需要 [创建一个唯一的密码](https://lifehacker.com/how-to-create-secure-passwords-that-arent-impossible-to-1825048324) ，然后进入配置面板设置各种电子邮件域和电子邮件地址。然后**点击邮箱标签**添加电子邮件用户。
 
-最后，要访问邮箱，在[【http://mail.yourdomain.com/SOGo/.】](http://mail.yourdomain.com/SOGo/.)从t 这里使用webmail界面，可以收发邮件，查看日历，查看和修改通讯录。
+最后，要访问邮箱，在[【http://mail.yourdomain.com/SOGo/.】](http://mail.yourdomain.com/SOGo/.)从 t 这里使用 webmail 界面，可以收发邮件，查看日历，查看和修改通讯录。
 
 如果你在这个过程中遇到任何问题，建议你向一个有经验的网络解决方案提供商寻求帮助——这里有大量的你可以在线访问来帮助你解决你可能遇到的任何服务器问题。

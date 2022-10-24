@@ -1,6 +1,6 @@
 # 知道孩子的不成熟和发育迟缓之间的区别
 
-> 原文:[https://life hacker . com/know-the-difference-a-childs-immaturity-and-dev-1847214784](https://lifehacker.com/know-the-difference-between-a-childs-immaturity-and-dev-1847214784)
+> 原文：<https://lifehacker.com/know-the-difference-between-a-childs-immaturity-and-dev-1847214784>
 
 谈到成长，有些孩子需要多一点时间。然而，对一个孩子来说，成熟比同龄人慢 可能很难，尤其是一旦他们开始上学。如果他们所有的朋友都转向不同的活动和兴趣，而他们自己的功课却越来越难，这会让他们感到孤独和受冷落，他们的朋友会嘲笑他们仍然在做“幼稚”的事情。
 
@@ -18,15 +18,15 @@ Watch
 
 知道在孩子生命的不同阶段会有什么是至关重要的，以确定什么可能会被推迟，所以知道你的孩子何时会发展哪些技能是很重要的。在早期，这包括学习走路和说话，而过一会儿，你的孩子将开始发展调节情绪的能力。
 
-Parlakian说:“知道会发生什么，可以让你知道什么时候询问你的儿科医生或医疗保健提供者。”这就是为什么坚持儿童健康访视时间表也很重要，因为它们旨在跟踪儿童的整体发展。
+Parlakian 说:“知道会发生什么，可以让你知道什么时候询问你的儿科医生或医疗保健提供者。”这就是为什么坚持儿童健康访视时间表也很重要，因为它们旨在跟踪儿童的整体发展。
 
-一个有用的资源是疾病预防控制中心的“ [”学习标志。早点行动。](https://www.cdc.gov/ncbddd/actearly/milestones/index.html) ，”这是一个工具和资源的集合，包括从出生到五岁的发展里程碑的信息。这还包括一个名为 [里程碑跟踪器](https://www.cdc.gov/ncbddd/actearly/milestones-app.html) 的应用程序，它可以帮助您跟踪您孩子从两个月大到五岁的发展，其中包括插图清单、鼓励孩子发展的提示，以及如果您有顾虑该怎么办的信息。你也可以下载一个 [里程碑清单](https://www.cdc.gov/ncbddd/actearly/pdf/checklists/Checklists-with-Tips_Reader_508.pdf) 的PDF文件，帮助你保持跟踪。
+一个有用的资源是疾病预防控制中心的“ [”学习标志。早点行动。](https://www.cdc.gov/ncbddd/actearly/milestones/index.html) ，”这是一个工具和资源的集合，包括从出生到五岁的发展里程碑的信息。这还包括一个名为 [里程碑跟踪器](https://www.cdc.gov/ncbddd/actearly/milestones-app.html) 的应用程序，它可以帮助您跟踪您孩子从两个月大到五岁的发展，其中包括插图清单、鼓励孩子发展的提示，以及如果您有顾虑该怎么办的信息。你也可以下载一个 [里程碑清单](https://www.cdc.gov/ncbddd/actearly/pdf/checklists/Checklists-with-Tips_Reader_508.pdf) 的 PDF 文件，帮助你保持跟踪。
 
 ## **尝试找出根本原因**
 
 如果你的孩子在生活的某个方面有困难，试着找出是什么原因造成的是很重要的。有时，根本原因可能令人惊讶或违反直觉——例如，如果您的孩子在学校经常情绪低落，可能是因为他们不理解说明，在这种情况下，感到沮丧是正常的。
 
-在Parlakian自己在日托中心工作的经历中，她看到一个婴儿不停地哭，直到老师们最终意识到荧光灯导致了不适。一旦这些都消失了，哭声就停止了。“你真的必须考虑所有的可能性，”帕拉吉安说。
+在 Parlakian 自己在日托中心工作的经历中，她看到一个婴儿不停地哭，直到老师们最终意识到荧光灯导致了不适。一旦这些都消失了，哭声就停止了。“你真的必须考虑所有的可能性，”帕拉吉安说。
 
 ## **当有疑问时，知道去哪里寻求帮助**
 

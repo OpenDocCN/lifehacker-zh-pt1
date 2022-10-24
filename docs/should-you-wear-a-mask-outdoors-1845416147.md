@@ -1,6 +1,6 @@
 # 在户外应该戴口罩吗？
 
-> 原文:[https://life hacker . com/should-you-wear-a-mask-outdoors-1845416147](https://lifehacker.com/should-you-wear-a-mask-outdoors-1845416147)
+> 原文：<https://lifehacker.com/should-you-wear-a-mask-outdoors-1845416147>
 
 无论在室内还是室外，口罩都能保护我们免受冠状病毒 的侵害。但是户外真的需要口罩吗？在某些情况下，你可以不戴口罩，但你还是应该在口袋里放一个口罩以防万一。让我们来谈谈当你决定在户外戴口罩是否合适时应该考虑的因素。(拿不准的时候，还是穿一件吧。)
 
@@ -8,9 +8,9 @@ Watch
 
 ### 室外空气稀释了病毒
 
-室内环境的一个问题是，一些可以携带病毒的呼吸道飞沫是微小的T2 T3。在室内，含有这些水滴的空气无处可去。例如，这就是为什么户外用餐比室内用餐更有意义。风险不是零。在 [后院聚会](https://www.washingtonpost.com/lifestyle/the-virus-didnt-stop-a-washington-socialite-from-throwing-a-backyard-soiree-then-the-tests-came-back-positive/2020/07/01/841041ba-ba19-11ea-bdaf-a129f921026f_story.html) 上肯定发生过超级撒布者事件，很有可能 [某个玫瑰园政治事件](https://www.statnews.com/2020/10/19/seeing-rose-garden-superspreader-convocation-as-a-never-event) 。
+室内环境的一个问题是，一些可以携带病毒的呼吸道飞沫是微小的 T2 T3。在室内，含有这些水滴的空气无处可去。例如，这就是为什么户外用餐比室内用餐更有意义。风险不是零。在 [后院聚会](https://www.washingtonpost.com/lifestyle/the-virus-didnt-stop-a-washington-socialite-from-throwing-a-backyard-soiree-then-the-tests-came-back-positive/2020/07/01/841041ba-ba19-11ea-bdaf-a129f921026f_story.html) 上肯定发生过超级撒布者事件，很有可能 [某个玫瑰园政治事件](https://www.statnews.com/2020/10/19/seeing-rose-garden-superspreader-convocation-as-a-never-event) 。
 
-许多因素决定了一次互动可能是更高还是更低的COVID风险，在户外 [通常会将风险降低一个等级](https://lifehacker.com/think-of-risk-as-a-spectrum-1843543882) 。
+许多因素决定了一次互动可能是更高还是更低的 COVID 风险，在户外 [通常会将风险降低一个等级](https://lifehacker.com/think-of-risk-as-a-spectrum-1843543882) 。
 
 ### 短暂相遇的风险很低
 
@@ -18,7 +18,7 @@ Watch
 
 但是当你在 [慢跑](https://vitals.lifehacker.com/how-to-choose-the-best-face-mask-for-exercise-1845142523) 时超过某人是不同的情况。为了更直观地理解这一点，想到有口臭的人或最近吸烟的人可能更有意义。如果你和几个这样的人在同一个公园里，气味会不会很强烈？或者，当他们在路上经过你时，你会察觉到轻微的气味吗？
 
-非常短暂的相遇，就像你慢跑或骑车经过某人身边，可能不是零风险，但风险非常低。“任何短暂、短暂的暴露都是低风险的，但随着时间的推移，这种暴露可能会累积起来，”空气传播专家林西·马尔 [告诉T4南华早报](https://www.scmp.com/lifestyle/health-wellness/article/3105376/why-wear-masks-outdoors-if-covid-19-mostly-transmitted)。如果你在户外会遇到很多人，戴口罩是有意义的。即使你不愿意，这也是一种合理的预防措施。
+非常短暂的相遇，就像你慢跑或骑车经过某人身边，可能不是零风险，但风险非常低。“任何短暂、短暂的暴露都是低风险的，但随着时间的推移，这种暴露可能会累积起来，”空气传播专家林西·马尔 [告诉 T4 南华早报](https://www.scmp.com/lifestyle/health-wellness/article/3105376/why-wear-masks-outdoors-if-covid-19-mostly-transmitted)。如果你在户外会遇到很多人，戴口罩是有意义的。即使你不愿意，这也是一种合理的预防措施。
 
 ### 根据情况决定
 

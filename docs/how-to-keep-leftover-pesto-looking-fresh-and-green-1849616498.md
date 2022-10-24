@@ -1,6 +1,6 @@
 # 如何让吃剩的香蒜酱看起来新鲜绿色
 
-> 原文:[https://life hacker . com/how-to-keep-left-pesto-looking-fresh-and-green-1849616498](https://lifehacker.com/how-to-keep-leftover-pesto-looking-fresh-and-green-1849616498)
+> 原文：<https://lifehacker.com/how-to-keep-leftover-pesto-looking-fresh-and-green-1849616498>
 
 用松子和意大利奶酪做的香蒜酱不是廉价的酱，主要是因为那些松子。这就说得通了，人们应该希望他们的香蒜酱看起来和吃起来一样好，即使它已经在冰箱里放了几天了。然而，问题是氧气。
 
@@ -14,8 +14,8 @@ Watch
 
 ## 给香蒜酱加点柠檬汁
 
-第二个简单的方法:你可能听说过维生素C是一种抗氧化剂，现在你将看到它的作用。根据 [厨师的插图](https://www.cooksillustrated.com/how_tos/6631-keeping-basil-green-in-pesto) ，添加纯抗坏血酸和/或柠檬酸会给香蒜酱带来令人不快的酸味，但柠檬汁(含有这两种酸)会融入其中。目标是每杯包装好的罗勒加入2茶匙新鲜果汁。
+第二个简单的方法:你可能听说过维生素 C 是一种抗氧化剂，现在你将看到它的作用。根据 [厨师的插图](https://www.cooksillustrated.com/how_tos/6631-keeping-basil-green-in-pesto) ，添加纯抗坏血酸和/或柠檬酸会给香蒜酱带来令人不快的酸味，但柠檬汁(含有这两种酸)会融入其中。目标是每杯包装好的罗勒加入 2 茶匙新鲜果汁。
 
 ## 将罗勒焯一下
 
-稍微复杂一点的方式:氧气不能自己氧化所有的。绿叶中的酶也发挥了作用。根据 [库克的插图](https://www.cooksillustrated.com/how_tos/6631-keeping-basil-green-in-pesto) 的说法，热烫“使切割的罗勒叶与氧气相互作用时导致褐变的酶失活。”只需将叶子浸入沸水中30秒，然后投入冰水中，以防止它们“烹饪”加入香蒜酱之前彻底晾干。
+稍微复杂一点的方式:氧气不能自己氧化所有的。绿叶中的酶也发挥了作用。根据 [库克的插图](https://www.cooksillustrated.com/how_tos/6631-keeping-basil-green-in-pesto) 的说法，热烫“使切割的罗勒叶与氧气相互作用时导致褐变的酶失活。”只需将叶子浸入沸水中 30 秒，然后投入冰水中，以防止它们“烹饪”加入香蒜酱之前彻底晾干。

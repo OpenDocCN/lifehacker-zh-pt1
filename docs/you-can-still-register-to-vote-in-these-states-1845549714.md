@@ -1,6 +1,6 @@
 # 你仍然可以在这些州登记投票
 
-> 原文:[https://life hacker . com/you-can-still-register-to-vote in-these-States-1845549714](https://lifehacker.com/you-can-still-register-to-vote-in-these-states-1845549714)
+> 原文：<https://lifehacker.com/you-can-still-register-to-vote-in-these-states-1845549714>
 
 即使有关于明天选举的所有噪音，也完全有可能有人打算登记投票，或者 [认为他们已经登记了](https://lifehacker.com/how-to-check-if-youre-registered-to-vote-1787624689?customKinja=1638514584) ，然后明天意识到这从未发生过。在大多数州，你运气不好。但是有个州(加上哥伦比亚特区)允许选民在选举日当天登记。
 
@@ -8,7 +8,7 @@ Watch
 
 ### 允许你在选举日登记投票的州
 
-根据 [全国州议会委员会](https://www.ncsl.org/research/elections-and-campaigns/same-day-registration.aspx) (NCSL)统计，有22个州(加上哥伦比亚特区)允许选民在选举日登记。这些是:
+根据 [全国州议会委员会](https://www.ncsl.org/research/elections-and-campaigns/same-day-registration.aspx) (NCSL)统计，有 22 个州(加上哥伦比亚特区)允许选民在选举日登记。这些是:
 
 *   阿拉斯加*
 *   加利福尼亚
@@ -38,13 +38,13 @@ Watch
 
 有时你会在这个列表中看到北卡罗来纳州。但是虽然该州在提前投票时确实提供当天登记，但在选举日到来时，它不再是一个选项。
 
-NCSL已经将每个州的具体规定 与 [图表放在一起，如果你打算利用同一天选民登记的优势，你会想要查看一下。](https://www.ncsl.org/research/elections-and-campaigns/same-day-registration.aspx)
+NCSL 已经将每个州的具体规定 与 [图表放在一起，如果你打算利用同一天选民登记的优势，你会想要查看一下。](https://www.ncsl.org/research/elections-and-campaigns/same-day-registration.aspx)
 
 ### 当天选民登记需要什么
 
 为了在提供这项政策的州利用这项政策，请随身携带居住证明和一种身份证明。红色证件的类型取决于所在的州——有些需要带照片的证件，有些则不需要。
 
-居住地证明是同一天选民登记的另一个关键要求。 [NCSL解释了为什么](https://www.ncsl.org/research/elections-and-campaigns/same-day-registration.aspx) :
+居住地证明是同一天选民登记的另一个关键要求。 [NCSL 解释了为什么](https://www.ncsl.org/research/elections-and-campaigns/same-day-registration.aspx) :
 
 > 在传统的(选举前一天)登记中，选举官员有时间向未来的选民发送不可转发的邮件，以便在处理登记申请之前核实选民的居住地。因为特别提款权不可能做到这一点，未来的选民必须在登记时或登记后不久出示居住证明。在所有州，有效的驾照或身份证就足够了。在一些州，诸如带有地址的薪水支票或公用事业账单等文件可以用来证明居住地。一些州还允许已经登记的选民为选举日登记者的居住权作担保。
 

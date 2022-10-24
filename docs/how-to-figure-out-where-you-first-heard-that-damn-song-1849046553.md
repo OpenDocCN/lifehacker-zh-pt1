@@ -1,8 +1,8 @@
 # 如何找出你第一次听到那首该死的歌是在哪里
 
-> 原文:[https://life hacker . com/how-to-figure-where-you-first-heard-the-damn-song-1849046553](https://lifehacker.com/how-to-figure-out-where-you-first-heard-that-damn-song-1849046553)
+> 原文：<https://lifehacker.com/how-to-figure-out-where-you-first-heard-that-damn-song-1849046553>
 
-现在的孩子正在重新发现80年代的热门歌曲，我没有抱怨。更特别的是:网飞的[*让凯特·布什的【跑上那座山(与上帝的交易)】*](https://twitter.com/netflix/status/1533553790485467138)*在首次发行近30年后重返榜首。对于那些还不知道这首标志性歌谣的现代观众来说，他们知道他们需要将它添加到所有的播放列表中，找到具体的歌曲信息只需要两秒钟。然而，对于更加晦涩的节目和音乐来说，生活并不总是那么容易。* 
+现在的孩子正在重新发现 80 年代的热门歌曲，我没有抱怨。更特别的是:网飞的[*让凯特·布什的【跑上那座山(与上帝的交易)】*](https://twitter.com/netflix/status/1533553790485467138)*在首次发行近 30 年后重返榜首。对于那些还不知道这首标志性歌谣的现代观众来说，他们知道他们需要将它添加到所有的播放列表中，找到具体的歌曲信息只需要两秒钟。然而，对于更加晦涩的节目和音乐来说，生活并不总是那么容易。* 
 
  *[https://lifehacker.com/embed/inset/iframe?id=youtube-video-bV0RAcuG2Ao&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-bV0RAcuG2Ao&start=0)* 
 
@@ -16,9 +16,9 @@
 
 *这是追踪歌曲的最佳情况。如果你知道这首歌在哪部电影或哪集电视里播放过，就很容易知道这首歌的名字。*
 
-*为此，最受欢迎的网站之一是 [Tunefind](https://www.tunefind.com/) (前身为HeardOnTV)。当你按电视剧集搜索时，该网站会显示所有歌曲，并简要描述使用这些歌曲时屏幕上会发生什么。例如，对于*更奇怪的事情:*第四章第四集， [该网站将](https://www.tunefind.com/show/stranger-things/season-4/222594) 描述为“跑上那座山(与上帝的交易)”在“马克斯的勇敢遭遇”期间播放只要你确切知道哪部电影或哪集电视使用了神秘歌曲，Tunefind就是一个可靠的资源。*
+*为此，最受欢迎的网站之一是 [Tunefind](https://www.tunefind.com/) (前身为 HeardOnTV)。当你按电视剧集搜索时，该网站会显示所有歌曲，并简要描述使用这些歌曲时屏幕上会发生什么。例如，对于*更奇怪的事情:*第四章第四集， [该网站将](https://www.tunefind.com/show/stranger-things/season-4/222594) 描述为“跑上那座山(与上帝的交易)”在“马克斯的勇敢遭遇”期间播放只要你确切知道哪部电影或哪集电视使用了神秘歌曲，Tunefind 就是一个可靠的资源。*
 
-*或者，大多数电影和节目会在他们的IMDb页面上有大量的配乐信息。点击标题的音轨部分，查看播放期间所有音乐的列表。*
+*或者，大多数电影和节目会在他们的 IMDb 页面上有大量的配乐信息。点击标题的音轨部分，查看播放期间所有音乐的列表。*
 
 ## ***先找到歌名***
 
@@ -32,4 +32,4 @@
 
 ## ***当你知道这首歌并需要表演时***
 
-*一旦你知道了某首歌的名字和演唱者，你可以先用Tunefind这样的网站来搜索歌曲。Tunefind看起来是至高无上的，但可以肯定的是，我也试用了网站。我 [在搜索栏](https://www.what-song.com/Artist/6845/Kate-Bush) 中输入“凯特·布什”,会发现老布什的音乐在电影和电视中出现了17个不同的例子。看起来Tunefind是更好的选择，考虑到 [它为电影、电视节目和视频游戏中的凯特·布什](https://www.tunefind.com/artist/kate-bush) 音乐找到了47个结果。*
+*一旦你知道了某首歌的名字和演唱者，你可以先用 Tunefind 这样的网站来搜索歌曲。Tunefind 看起来是至高无上的，但可以肯定的是，我也试用了网站。我 [在搜索栏](https://www.what-song.com/Artist/6845/Kate-Bush) 中输入“凯特·布什”,会发现老布什的音乐在电影和电视中出现了 17 个不同的例子。看起来 Tunefind 是更好的选择，考虑到 [它为电影、电视节目和视频游戏中的凯特·布什](https://www.tunefind.com/artist/kate-bush) 音乐找到了 47 个结果。*

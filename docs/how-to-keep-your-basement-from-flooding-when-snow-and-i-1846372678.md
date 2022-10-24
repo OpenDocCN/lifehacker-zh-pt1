@@ -1,6 +1,6 @@
 # 当冰雪开始融化时，如何防止地下室被淹
 
-> 原文:[https://life hacker . com/how-to-keep your-base-from-flooding-when-snow-and-I-1846372678](https://lifehacker.com/how-to-keep-your-basement-from-flooding-when-snow-and-i-1846372678)
+> 原文：<https://lifehacker.com/how-to-keep-your-basement-from-flooding-when-snow-and-i-1846372678>
 
 在过去的几周里，这个国家的许多地方都经历了严重的冬季天气——包括通常不会看到那种冰雪的地区。最终冰雪融化，产生比平时更多的水，一些家庭无法承受。幸运的是，你可以做一些事情来防止水进入你的房子，淹没你的地下室。以下是需要了解的内容。
 

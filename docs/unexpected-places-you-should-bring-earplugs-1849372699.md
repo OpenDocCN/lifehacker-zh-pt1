@@ -1,6 +1,6 @@
 # 意想不到的地方你应该带耳塞
 
-> 原文:[https://life hacker . com/unexpected-places-you-should-bring-耳塞-1849372699](https://lifehacker.com/unexpected-places-you-should-bring-earplugs-1849372699)
+> 原文：<https://lifehacker.com/unexpected-places-you-should-bring-earplugs-1849372699>
 
 你的听力很重要，我们之前已经建议过你带耳塞去音乐会，在看吵闹的电影时带在身边 以保护你的耳朵。但是还有其他地方你应该考虑带上耳塞，甚至是那些通常不会大声到让你担心耳朵健康的地方。
 

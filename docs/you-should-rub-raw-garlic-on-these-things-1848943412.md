@@ -1,6 +1,6 @@
 # 你应该把生大蒜抹在这些东西上
 
-> 原文:[https://life hacker . com/you-should-rub-raw-garlic-on-things-1848943412](https://lifehacker.com/you-should-rub-raw-garlic-on-these-things-1848943412)
+> 原文：<https://lifehacker.com/you-should-rub-raw-garlic-on-these-things-1848943412>
 
 生大蒜是一种强大的力量，可以用来创造惊人的微妙效果。最简单的方法之一是将生的、去皮的丁香切成两半，然后在碗、盘子或浅盘中摩擦。这样做可以给这道菜带来一点大蒜的味道和香气，而不会压倒其他更微妙的味道。
 

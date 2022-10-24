@@ -1,8 +1,8 @@
-# 哪些PlayStation 5游戏支持交叉保存和交叉游戏
+# 哪些 PlayStation 5 游戏支持交叉保存和交叉游戏
 
-> 原文:[https://life hacker . com/which-PlayStation-5-games-support-cross-saves-and-cross-1845643590](https://lifehacker.com/which-playstation-5-games-support-cross-saves-and-cross-1845643590)
+> 原文：<https://lifehacker.com/which-playstation-5-games-support-cross-saves-and-cross-1845643590>
 
-PlayStation 5的发布阵容包括几个“跨代”游戏，这些游戏也可以在PlayStation 4上使用。PS5的端口将比PS4版本看起来和玩起来好得多，一些开发者让用户 [免费升级到增强版PS5](https://lifehacker.com/which-playstation-and-xbox-games-get-a-free-upgrade-1845030096)。然而，这带来了两个重要的问题:你的PS4存储数据能兼容PS5游戏吗？你能玩你最喜欢的多人游戏吗？
+PlayStation 5 的发布阵容包括几个“跨代”游戏，这些游戏也可以在 PlayStation 4 上使用。PS5 的端口将比 PS4 版本看起来和玩起来好得多，一些开发者让用户 [免费升级到增强版 PS5](https://lifehacker.com/which-playstation-and-xbox-games-get-a-free-upgrade-1845030096)。然而，这带来了两个重要的问题:你的 PS4 存储数据能兼容 PS5 游戏吗？你能玩你最喜欢的多人游戏吗？
 
 Watch
 
@@ -10,15 +10,15 @@ Watch
 
 ### PlayStation 5 c 罗斯-保存游戏
 
-不幸的是，只有一些PS5 c ross-gen游戏会让你将你的PS4保存数据导入PS5版本。这种能力 [取决于开发者。](https://www.playstation.com/en-us/support/games/upgrade-ps4-game-to-ps5-version/) 令人恼火的是，许多提供PS5版本免费升级的游戏都不允许你保存文件。
+不幸的是，只有一些 PS5 c ross-gen 游戏会让你将你的 PS4 保存数据导入 PS5 版本。这种能力 [取决于开发者。](https://www.playstation.com/en-us/support/games/upgrade-ps4-game-to-ps5-version/) 令人恼火的是，许多提供 PS5 版本免费升级的游戏都不允许你保存文件。
 
-这并不意味着你的PS4保存不会延续到PS5 。绝大多数的 [PS4游戏都可以在PS5](https://www.playstation.com/en-us/support/games/ps5-backward-compatibility-games/) 上玩，而且你保存的数据会很好的延续下去。这种障碍只适用于你从PS4版本升级到PS5版本的游戏——这就是事情变得混乱的地方。
+这并不意味着你的 PS4 保存不会延续到 PS5 。绝大多数的 [PS4 游戏都可以在 PS5](https://www.playstation.com/en-us/support/games/ps5-backward-compatibility-games/) 上玩，而且你保存的数据会很好的延续下去。这种障碍只适用于你从 PS4 版本升级到 PS5 版本的游戏——这就是事情变得混乱的地方。
 
-让我们以 *Yakuza: Like a Dragon* 为例，因为它将有PS4和PS5版本——这两个版本在PS5上都可以玩。世嘉将让PS4播放器在明年发布时升级到PS5版本，但你不能将你的PS4保存文件转移到PS5版本。然而，你*可以*在你的PS5上玩PS4版本的 *Yakuza* 并继续你的save游戏——但这是对一个不必要的混乱问题的次优解决方案。
+让我们以 *Yakuza: Like a Dragon* 为例，因为它将有 PS4 和 PS5 版本——这两个版本在 PS5 上都可以玩。世嘉将让 PS4 播放器在明年发布时升级到 PS5 版本，但你不能将你的 PS4 保存文件转移到 PS5 版本。然而，你*可以*在你的 PS5 上玩 PS4 版本的 *Yakuza* 并继续你的 save 游戏——但这是对一个不必要的混乱问题的次优解决方案。
 
-为了有助于澄清一些问题，这里列出了一些跨代游戏，可以让你将你的PS4保存导入到PS5中(到目前为止):
+为了有助于澄清一些问题，这里列出了一些跨代游戏，可以让你将你的 PS4 保存导入到 PS5 中(到目前为止):
 
-*   *边境地带3*
+*   *边境地带 3*
 *   *使命召唤:黑色行动冷战*
 *   *使命召唤:战区*
 *   *光天化日之下死去*
@@ -28,26 +28,26 @@ Watch
 *   *Madden NFL 21* (MUT、专营权和场地数据)
 *   漫威的蜘蛛侠:迈尔斯·莫拉莱斯
 *   *漫威的复仇者联盟*
-*   *NBA 2K21* (仅限MyTeam数据)
+*   *NBA 2K21* (仅限 MyTeam 数据)
 *   *无人的天空*
 *   *萨克男孩:一次大冒险*(发布后补丁)
 
-将来可能会有更多的游戏被添加到列表中，但现在，如果一个游戏不在列表中，那么如果你想保持你的进步，你就必须要么从PS5版本重新开始，要么在PS5上玩你的PS4副本。
+将来可能会有更多的游戏被添加到列表中，但现在，如果一个游戏不在列表中，那么如果你想保持你的进步，你就必须要么从 PS5 版本重新开始，要么在 PS5 上玩你的 PS4 副本。
 
-### PlayStation 5交叉游戏
+### PlayStation 5 交叉游戏
 
-谢天谢地，PS5的交叉拯救比交叉拯救要简单得多。这里列出了所有的PS5游戏，你可以在不同的平台上和其他玩家一起玩(到目前为止):
+谢天谢地，PS5 的交叉拯救比交叉拯救要简单得多。这里列出了所有的 PS5 游戏，你可以在不同的平台上和其他玩家一起玩(到目前为止):
 
 *   *顶点图例*
-*   *边境地带3*
+*   *边境地带 3*
 *   *使命召唤:黑色行动冷战*
 *   *使命召唤:战区*
 *   *光天化日之下死去*
-*   *污垢5*
+*   *污垢 5*
 *   *堡垒之夜*
-*   *真人快打11*
+*   *真人快打 11*
 *   *无人的天空*
 *   *煮过头:能吃多少就吃多少*
 *   *麻袋男孩:一次大冒险*
 
-该列表仅包括PS5专用游戏。如前所述，大多数PS4游戏也可以在PS5上玩，但索尼表示，如果你在PS5上玩，一些多人模式和在线功能(如交叉游戏)可能无法正常工作。在更多人测试他们的PS4库在PS5上的兼容性之前，我们不会知道细节。类似地，仅仅因为一个游戏有交叉游戏并不意味着你的进展会继续。请参考上面的交叉保存列表，查看哪些PS5游戏允许您导入PS4进度。
+该列表仅包括 PS5 专用游戏。如前所述，大多数 PS4 游戏也可以在 PS5 上玩，但索尼表示，如果你在 PS5 上玩，一些多人模式和在线功能(如交叉游戏)可能无法正常工作。在更多人测试他们的 PS4 库在 PS5 上的兼容性之前，我们不会知道细节。类似地，仅仅因为一个游戏有交叉游戏并不意味着你的进展会继续。请参考上面的交叉保存列表，查看哪些 PS5 游戏允许您导入 PS4 进度。

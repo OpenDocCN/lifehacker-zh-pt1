@@ -1,6 +1,6 @@
 # 如何在不带蟑螂(和其他害虫)的情况下移动
 
-> 原文:[https://life hacker . com/how-to-move-without-take-roach-and-other-pest-wi-1849405257](https://lifehacker.com/how-to-move-without-taking-roaches-and-other-pests-wi-1849405257)
+> 原文：<https://lifehacker.com/how-to-move-without-taking-roaches-and-other-pests-wi-1849405257>
 
 我有一个朋友，曾经住在曼哈顿一个破旧的小公寓里，那里蟑螂横行。当她搬出去的时候，她告诉我她不得不检查她所有的东西，因为噩梦般的虫子几乎无处不在。可以理解，这是她当初搬家的主要原因。)如果你在 [把](https://lifehacker.com/the-first-things-you-need-to-buy-after-moving-into-your-1849157065) 从一个地方搬走，那个地方的 [慢慢地塞满了蟑螂](https://lifehacker.com/how-to-get-rid-of-cockroaches-without-hiring-a-professi-1846354288) 、臭虫、蛾子或者其他害虫，你显然不想重复这种经历。为了避免和你一起移动一个昆虫文明，你可以这么做。
 
@@ -31,6 +31,6 @@ Watch
 
 ## 撤退你的新房子或公寓
 
-最后，一旦你检查、清理并搬走了你所有的东西，并且确信没有任何东西会搭你的便车到你的新住处，你应该打电话给灭虫公司，或者至少对你的新空间进行DIY预处理。你的新家将是空的，而且(大概)是干净的，所以这是一个绝佳的机会来检查它是否有虫子的迹象，然后使用杀虫剂来确保它们在你安顿下来后不会进来。没有家具、餐具或衣服挡道，你可以进入角落和缝隙以及其他隐蔽的地方。
+最后，一旦你检查、清理并搬走了你所有的东西，并且确信没有任何东西会搭你的便车到你的新住处，你应该打电话给灭虫公司，或者至少对你的新空间进行 DIY 预处理。你的新家将是空的，而且(大概)是干净的，所以这是一个绝佳的机会来检查它是否有虫子的迹象，然后使用杀虫剂来确保它们在你安顿下来后不会进来。没有家具、餐具或衣服挡道，你可以进入角落和缝隙以及其他隐蔽的地方。
 
 你也可以考虑一个 [臭虫床垫套](https://www.medicalnewstoday.com/articles/best-bed-bug-mattress-covers#_noHeaderPrefixedContent) ，因为你要重新开始。这些可以帮助防止臭虫进入你的床上用品，既然你刚刚花了那么多时间和精力清洁你生活的方方面面，为什么不让它发挥作用呢？

@@ -1,6 +1,6 @@
 # 如何去除二手家具上的旧货店气味
 
-> 原文:[https://life hacker . com/how-to-rid-your ' s二手货家具-sto-1848405333](https://lifehacker.com/how-to-rid-your-secondhand-furniture-of-that-thrift-sto-1848405333)
+> 原文：<https://lifehacker.com/how-to-rid-your-secondhand-furniture-of-that-thrift-sto-1848405333>
 
 虽然有些人一直喜欢老式(即二手)家具，但由于当前的 [家具短缺](https://www.furnituretoday.com/furniture-manufacturing/business-strong-but-material-prices-and-labor-shortages-plague-wood-segment/) 和 [运输延误](https://www.bloomberg.com/news/articles/2021-09-25/supply-chain-delays-furniture-buyers-feel-they-re-waiting-forever-for-a-couch) ，其他人对旧货店、跳蚤市场和庭院销售游戏很陌生。但是不管是否短缺，为你的家购买二手家具和其他物品有很多好处，包括成本、独特的设计、耐用性和使用现有物品的可持续性，而不是购买新的物品。
 
@@ -16,7 +16,7 @@ Watch
 
 *   **小苏打**:直接撒在家具上/内，然后用吸尘器吸掉，和/或 [放在抽屉内的碗](https://makelyhome.com/cleaning-smelly-thrift-store-furniture/) 里。
 *   **猫砂**:可以和小苏打 一样用于 [，如上所述。](http://www.housecleaningcentral.com/en/cleaning-tips/odor-removal/removing-odors-clean.html#:~:text=Removing%20Odors%20in%20the%20Refrigerator,the%20refrigerator%20weekly%2C%20and%20regularly.)
-*   **醋和水溶液**:将 [白醋和水](https://sarahjoyblog.com/5-ways-remove-musty-smell-old-furniture/) 以1:1的比例混合，用该溶液擦拭工件的每一个表面。或者，把溶液放在一个空的喷雾瓶里，继续喷。
+*   **醋和水溶液**:将 [白醋和水](https://sarahjoyblog.com/5-ways-remove-musty-smell-old-furniture/) 以 1:1 的比例混合，用该溶液擦拭工件的每一个表面。或者，把溶液放在一个空的喷雾瓶里，继续喷。
 *   **伏特加**:将一些便宜的伏特加倒入一个空的喷雾瓶里， [有规律地在](https://salvagedinspirations.com/how-to-remove-musty-mothy-moldy-smells-from-wood-furniture/) 内外喷洒，直到气味散去。
 
 ## 新鲜空气和阳光

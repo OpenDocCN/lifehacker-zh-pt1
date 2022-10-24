@@ -1,6 +1,6 @@
 # 当你的洗碗机不排水时该怎么办
 
-> 原文:[https://life hacker . com/what-to-do what-when-your ' s洗碗机不排水-1849101679](https://lifehacker.com/what-to-do-when-your-dishwasher-isn-t-draining-1849101679)
+> 原文：<https://lifehacker.com/what-to-do-when-your-dishwasher-isn-t-draining-1849101679>
 
 你做了所有正确的事情 [正确清洁](https://lifehacker.com/how-to-properly-clean-your-dishwasher-1844633991)[正确装载](https://lifehacker.com/how-to-properly-load-a-dishwasher-1837836635) 你的洗碗机。那么为什么机器底部会有一滩死水呢？当你信赖的洗碗机拒绝排水时，你能做什么？如果你最不想要的就是花钱请修理工——或者更糟，买一台全新的机器——你可能会很幸运。像许多 [洗碗机事故和故障](https://lifehacker.com/jammed-lemon-seeds-and-other-dishwasher-mishaps-and-ho-1848954814) 一样，积水通常可以通过自己的一点点故障排除来解决。以下是当你的洗碗机排水不正常时应该做的事情。
 
@@ -8,7 +8,7 @@ Watch
 
 ## 快速解决方案:运行处置
 
-根据 [美国家园盾](https://www.ahs.com/home-matters/repair-maintenance/how-to-fix-a-dishwasher-that-is-not-draining/) 的说法，由于垃圾处理满，水可能不会流失。仅仅运行大约30秒的处理程序可能就是解决这个问题所需要的全部时间。然而，如果这还不能解决问题，请继续阅读。
+根据 [美国家园盾](https://www.ahs.com/home-matters/repair-maintenance/how-to-fix-a-dishwasher-that-is-not-draining/) 的说法，由于垃圾处理满，水可能不会流失。仅仅运行大约 30 秒的处理程序可能就是解决这个问题所需要的全部时间。然而，如果这还不能解决问题，请继续阅读。
 
 ## 如何检查你的洗碗机是否堵塞
 
@@ -25,7 +25,7 @@ Watch
 
 ### 另一个排水技巧:小苏打和醋
 
-[美国家庭盾牌](https://www.ahs.com/home-matters/repair-maintenance/how-to-fix-a-dishwasher-that-is-not-draining/) 也建议你可以混合大约一杯小苏打和醋，然后倒入静止的水中。这种混合物应该可以松动引起问题的任何堵塞物。如果水在大约20分钟后开始排出，那么你可以用热水冲洗，并运行洗碗机的冲洗周期。从这里开始，让我们来看看排水问题背后的真正原因。
+[美国家庭盾牌](https://www.ahs.com/home-matters/repair-maintenance/how-to-fix-a-dishwasher-that-is-not-draining/) 也建议你可以混合大约一杯小苏打和醋，然后倒入静止的水中。这种混合物应该可以松动引起问题的任何堵塞物。如果水在大约 20 分钟后开始排出，那么你可以用热水冲洗，并运行洗碗机的冲洗周期。从这里开始，让我们来看看排水问题背后的真正原因。
 
 ## 排水软管
 
@@ -39,7 +39,7 @@ Watch
 
 ## 排水阀
 
-不是所有的洗碗机都有排水阀，但是如果你的 s有，它应该在机器下面(通常在马达旁边)。找到阀门后，检查门臂，门臂是一个移动的部件，上面有两个弹簧。推动阀门的闸门臂；如果它由于任何原因不能自由移动，你可能需要更换排水阀。
+不是所有的洗碗机都有排水阀，但是如果你的 s 有，它应该在机器下面(通常在马达旁边)。找到阀门后，检查门臂，门臂是一个移动的部件，上面有两个弹簧。推动阀门的闸门臂；如果它由于任何原因不能自由移动，你可能需要更换排水阀。
 
 ## 该过滤器
 

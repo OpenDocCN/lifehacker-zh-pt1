@@ -1,8 +1,8 @@
 # 如何保持一个小水族馆，而不残忍的鱼
 
-> 原文:[https://life hacker . com/how-to-keep-a-small-aquarium-not-be-than-the-treaty 1847752436](https://lifehacker.com/how-to-keep-a-small-aquarium-without-being-cruel-to-the-1847752436)
+> 原文：<https://lifehacker.com/how-to-keep-a-small-aquarium-without-being-cruel-to-the-1847752436>
 
-在过去的生活中，我在一家宠物店工作，我每天看到的最令人心碎的事情之一就是有人带着小孩进来，要求把一条金鱼放在碗里。金鱼是又大又乱的鱼， [长到8- 12寸长](https://www.fishkeeping.co.uk/articles_74/goldfish-size-life-expectancy.htm) 。根据我的说服力，这些人要么带着一个悲伤的孩子，要么带着一条悲伤的鱼回家。
+在过去的生活中，我在一家宠物店工作，我每天看到的最令人心碎的事情之一就是有人带着小孩进来，要求把一条金鱼放在碗里。金鱼是又大又乱的鱼， [长到 8- 12 寸长](https://www.fishkeeping.co.uk/articles_74/goldfish-size-life-expectancy.htm) 。根据我的说服力，这些人要么带着一个悲伤的孩子，要么带着一条悲伤的鱼回家。
 
 Watch
 
@@ -10,11 +10,11 @@ Watch
 
 ## 至少要五加仑
 
-有些鱼可以在小鱼缸里茁壮成长。不多！但是有几个，比如斗鱼，在这里可以做的很好。问题是，我们不是在谈论一个花瓶或一个泥瓦罐；养鱼专家一致认为，适当照顾斗鱼的最小尺寸是大约5加仑的水箱。
+有些鱼可以在小鱼缸里茁壮成长。不多！但是有几个，比如斗鱼，在这里可以做的很好。问题是，我们不是在谈论一个花瓶或一个泥瓦罐；养鱼专家一致认为，适当照顾斗鱼的最小尺寸是大约 5 加仑的水箱。
 
 这个尺寸给了你足够的空间来放置一堆活的或丝制的植物(塑料植物会撕碎它们的鳍)和其他能给鱼很多藏身之处的特征。你还需要一个加热器来保持水箱在合适的温度(室温对斗鱼来说太冷了)，一个过滤器或者一个严格的换水计划。 [这里是斗鱼](https://www.seriouslyfish.com/species/betta-splendens/) 的护理单。
 
-如果你想要不止一条鱼，一个五加仑的水箱可能是一些孔雀鱼的合适家园。 [这是一份来自r/水族馆的易于照顾的新手物种](https://np.reddit.com/r/Aquariums/comments/4v6hi6/easy_tanks/d5vvc8z/) 的清单，包括四分体、小鲶鱼、虾和蜗牛。尽管如此，他们不会在5加仑的汽油中感到快乐，尤其是那些需要群居的人。如果你想要一种以上的鱼，你也许应该买一个20加仑的鱼缸，这在水族馆里还是“小”的。
+如果你想要不止一条鱼，一个五加仑的水箱可能是一些孔雀鱼的合适家园。 [这是一份来自 r/水族馆的易于照顾的新手物种](https://np.reddit.com/r/Aquariums/comments/4v6hi6/easy_tanks/d5vvc8z/) 的清单，包括四分体、小鲶鱼、虾和蜗牛。尽管如此，他们不会在 5 加仑的汽油中感到快乐，尤其是那些需要群居的人。如果你想要一种以上的鱼，你也许应该买一个 20 加仑的鱼缸，这在水族馆里还是“小”的。
 
 ## 不，它们不会“长到坦克那么大”
 

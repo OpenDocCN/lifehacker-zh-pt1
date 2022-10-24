@@ -1,6 +1,6 @@
 # 什么是袖珍孔夹具(为什么你需要一个)？
 
-> 原文:[https://life hacker . com/what-a-pocket-hole-jig-and-why-do-you-need-one-1848639359](https://lifehacker.com/what-is-a-pocket-hole-jig-and-why-do-you-need-one-1848639359)
+> 原文：<https://lifehacker.com/what-is-a-pocket-hole-jig-and-why-do-you-need-one-1848639359>
 
 如果你是木工新手，在连接两块木头时隐藏五金件是一项艰巨的挑战。如果你没有练习过制作燕尾榫接头，也没有护墙板，或者甚至不知道这些是什么，那么制作看起来又漂亮又坚固的木头接头是很困难的。进入，袖珍孔钻——一种以一定角度钻螺丝的工具。对于“背面”不常见的项目，如框架的墙面或长凳的底面，这是一种更简单、更便宜的解决方案。更好的是，即使初学者也可以使用它。
 

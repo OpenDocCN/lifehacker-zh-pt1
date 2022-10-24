@@ -1,8 +1,8 @@
 # 如何在不显而易见的情况下使用求职信模板
 
-> 原文:[https://life hacker . com/how-to-use-a-cover-letter-template-without-make-it-o b-1846220876](https://lifehacker.com/how-to-use-a-cover-letter-template-without-making-it-ob-1846220876)
+> 原文：<https://lifehacker.com/how-to-use-a-cover-letter-template-without-making-it-ob-1846220876>
 
-对于那些不习惯自我表扬的人来说，写一封求职信可能会让人感到畏惧，尤其是如果你在短时间内申请了一堆工作。但是这种努力是值得的——一开始是一个空白的word文档，它将成为一个重要的工具，你可以用它来推销你最好的才能，让陌生人兴奋地给你发工资。
+对于那些不习惯自我表扬的人来说，写一封求职信可能会让人感到畏惧，尤其是如果你在短时间内申请了一堆工作。但是这种努力是值得的——一开始是一个空白的 word 文档，它将成为一个重要的工具，你可以用它来推销你最好的才能，让陌生人兴奋地给你发工资。
 
 Watch
 

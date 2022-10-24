@@ -1,12 +1,12 @@
-# 据Reddit报道，只有混蛋才会说的13件事
+# 据 Reddit 报道，只有混蛋才会说的 13 件事
 
-> 原文:[https://life hacker . com/things-only-bottles-say-by-Reddit-1847941599](https://lifehacker.com/things-only-assholes-say-according-to-reddit-1847941599)
+> 原文：<https://lifehacker.com/things-only-assholes-say-according-to-reddit-1847941599>
 
-从可怕的老板到噩梦般的室友，我们在生活中都遇到过相当多的混蛋。当然，我说的不是你。我确信*你*是一个*了不起的*人。你总是给至少20%的小费，而且你从来没有在交通中对任何人大喊大叫。尽管如此，你难道没有一点好奇，你说的一些事情是否可能被其他人认为是混蛋吗？因为就我个人而言，我采取激进的立场，不管你的年龄、性别或背景，你一生中可能至少有一次是混蛋。因此，我仔细阅读了这篇r/AskReddit主题文章 来寻找那些通常是说话者是个十足混蛋的信号的热门短语，以此来确认我从来没有说过这些话。你也不知道...正确
+从可怕的老板到噩梦般的室友，我们在生活中都遇到过相当多的混蛋。当然，我说的不是你。我确信*你*是一个*了不起的*人。你总是给至少 20%的小费，而且你从来没有在交通中对任何人大喊大叫。尽管如此，你难道没有一点好奇，你说的一些事情是否可能被其他人认为是混蛋吗？因为就我个人而言，我采取激进的立场，不管你的年龄、性别或背景，你一生中可能至少有一次是混蛋。因此，我仔细阅读了这篇 r/AskReddit 主题文章 来寻找那些通常是说话者是个十足混蛋的信号的热门短语，以此来确认我从来没有说过这些话。你也不知道...正确
 
 或者，“我是个好人。”善良的人需要说这些吗？每当有人不厌其烦地向我保证他们是“这么好的一个人”，这就是我开始向另一个方向跑的暗示。
 
-**示例图片:**来自*的Ted Mosby《我是如何遇见你母亲的》*
+**示例图片:**来自*的 Ted Mosby《我是如何遇见你母亲的》*
 
 谈谈 [主角综合症。如果你真的对自己的重要性有信心，你就不应该觉得有必要这样维护自己，以此来提醒别人，这样你就可以得到特殊待遇。正如](https://lifehacker.com/how-to-recognize-the-signs-of-main-character-syndrome-1847039952) [另一位用户评论](https://www.reddit.com/user/magnumenforce/) “如果你非要告诉我你是谁，那显然你不够重要。”
 
@@ -16,15 +16,15 @@
 
 **示例图片:***随从*中的任意角色
 
-几个 [Reddit用户在这个](https://www.reddit.com/r/AskReddit/comments/qdzhko/what_is_a_phrase_most_often_used_by_assholes/) 上跟进了所有他们得到的关于他们不结婚不要孩子的决定的评论。正如 [这位用户所说的](https://www.reddit.com/user/ThunderHeavyRains/) ，当有人认为他们知道什么对你是对的，而你自己显然不知道时，这是“不屑一顾和令人讨厌的”。(通常这个短语伴随着会心的微笑，同样令人讨厌。)
+几个 [Reddit 用户在这个](https://www.reddit.com/r/AskReddit/comments/qdzhko/what_is_a_phrase_most_often_used_by_assholes/) 上跟进了所有他们得到的关于他们不结婚不要孩子的决定的评论。正如 [这位用户所说的](https://www.reddit.com/user/ThunderHeavyRains/) ，当有人认为他们知道什么对你是对的，而你自己显然不知道时，这是“不屑一顾和令人讨厌的”。(通常这个短语伴随着会心的微笑，同样令人讨厌。)
 
-**示例图片:**来自 *30摇滚*的利兹·莱蒙
+**示例图片:**来自 *30 摇滚*的利兹·莱蒙
 
 嘿，如果你在和一个蹒跚学步的孩子说话，这个会飞。初学走路的孩子问了大量令人沮丧的问题！但是当你和一个能够自己做决定并为自己考虑的人交谈时，回答别人的“为什么”是非常不礼貌的带着不屑一顾又傲慢的“因为”
 
 **示例图片:**来自*的弓箭手*
 
-[这个Redditor](https://www.reddit.com/user/kdbartleby/) 为自称“阿尔法”的人提供了最好的回击:*称自己为阿尔法是你能做的最贝塔的事。*这么说也比解释 [真正的狼群甚至没有阿尔法狼，以及那些自然等级的想法是基于对被囚禁的狼的研究(只有贝塔狼会被*捕获*)更快更有效，并且已经被揭穿](https://sciencenorway.no/ulv/wolf-packs-dont-actually-have-alpha-males-and-alpha-females-the-idea-is-based-on-a-misunderstanding/1850514) 。
+[这个 Redditor](https://www.reddit.com/user/kdbartleby/) 为自称“阿尔法”的人提供了最好的回击:*称自己为阿尔法是你能做的最贝塔的事。*这么说也比解释 [真正的狼群甚至没有阿尔法狼，以及那些自然等级的想法是基于对被囚禁的狼的研究(只有贝塔狼会被*捕获*)更快更有效，并且已经被揭穿](https://sciencenorway.no/ulv/wolf-packs-dont-actually-have-alpha-males-and-alpha-females-the-idea-is-based-on-a-misunderstanding/1850514) 。
 
 **示例图片:**亚历克斯·琼斯
 
@@ -34,7 +34,7 @@
 
 这一点，或任何其他卡伦主义。想想那些古老的格言，“顾客永远是对的”，“我需要和你的经理谈谈”，或者“给我公司的电话号码。”
 
-我认为来自一位零售工作者的Reddit评论 很好地总结了这一点:
+我认为来自一位零售工作者的 Reddit 评论 很好地总结了这一点:
 
 > 就像，你有什么资格相信这一半的东西会对你有利？当有人给我们公司打电话时，我们得到的最多的是“尽量不要惹恼客户”从字面上看，这种狗屎做的唯一的事情就是让你看起来像一个混蛋。
 

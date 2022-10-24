@@ -1,8 +1,8 @@
-# Facebook Messenger上最好的隐藏功能
+# Facebook Messenger 上最好的隐藏功能
 
-> 原文:[https://life hacker . com/the-best-hidden-features-on-Facebook-messenger-1846109292](https://lifehacker.com/the-best-hidden-features-on-facebook-messenger-1846109292)
+> 原文：<https://lifehacker.com/the-best-hidden-features-on-facebook-messenger-1846109292>
 
-如果您仍然拥有脸书帐户，那么您将自动拥有一个Messenger帐户。无论你是否意识到，Messenger是世界上最受欢迎的应用程序之一。(我只使用它在Marketplace上出售我所有的个人物品，但它还有其他功能。)以下是为提高隐私和便利性而激活的最佳功能。
+如果您仍然拥有脸书帐户，那么您将自动拥有一个 Messenger 帐户。无论你是否意识到，Messenger 是世界上最受欢迎的应用程序之一。(我只使用它在 Marketplace 上出售我所有的个人物品，但它还有其他功能。)以下是为提高隐私和便利性而激活的最佳功能。
 
 点击左上角的个人资料图片，设置菜单出现。您可以使用它来打开夜间通讯会话的黑暗模式。此菜单中还有“活跃状态”，您可以关闭它，这样其他人就看不到您是否在线，或者看不到您上次登录的时间。
 

@@ -1,6 +1,6 @@
 # 如何(试着)防止你的孩子在假期变得情绪低落
 
-> 原文:[https://life hacker . com/how-to-try-to-prevent-your-kid-from-melting-duri-1848115100](https://lifehacker.com/how-to-try-to-prevent-your-kid-from-melting-down-duri-1848115100)
+> 原文：<https://lifehacker.com/how-to-try-to-prevent-your-kid-from-melting-down-duri-1848115100>
 
 尽管我们可能会怀念假期对我们成长的影响，但在一年中的这个时候做父母并不容易。有吃不完的糖，孩子的日程被打乱，对礼物的高度期待，以及所有其他过度刺激的节日。
 

@@ -1,6 +1,6 @@
 # 如何合法处置旧轮胎
 
-> 原文:[https://life hacker . com/how-to-legal-dispose-of-old-tires-1849199642](https://lifehacker.com/how-to-legally-dispose-of-old-tires-1849199642)
+> 原文：<https://lifehacker.com/how-to-legally-dispose-of-old-tires-1849199642>
 
 多亏了定期的垃圾清理，我们已经习惯了这样的想法:如果我们想扔东西，我们可以把它放在垃圾袋或垃圾桶里，放在路边，在一周的指定日子里，环卫工人或废物处理公司会把它带走。
 
@@ -34,4 +34,4 @@ Watch
 
 有许多方法可以重新利用旧轮胎 而不需要轮胎摆动(尽管这也是一个绝对的选择)。一些受欢迎的项目包括使用旧轮胎作为花盆、迷你沙箱、凸起的花园床，以及制作茶几或脚垫。
 
-无论你如何重新利用你的旧轮胎，一定要先用压力清洗机彻底清洗它们(你可以用你的普通花园软管 做一个 [)。如果这还不能去除油脂和污垢，用无毒脱脂剂擦洗它们(就像](https://lifehacker.com/how-to-turn-your-garden-hose-into-a-pressure-washer-1849165239) [这个DIY版本](http://non-toxic degreaser) )。
+无论你如何重新利用你的旧轮胎，一定要先用压力清洗机彻底清洗它们(你可以用你的普通花园软管 做一个 [)。如果这还不能去除油脂和污垢，用无毒脱脂剂擦洗它们(就像](https://lifehacker.com/how-to-turn-your-garden-hose-into-a-pressure-washer-1849165239) [这个 DIY 版本](http://non-toxic degreaser) )。

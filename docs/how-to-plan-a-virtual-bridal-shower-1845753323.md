@@ -1,6 +1,6 @@
 # 如何计划虚拟新娘送礼会
 
-> 原文:[https://life hacker . com/how-to-plan-a-virtual-bridal-shower-1845753323](https://lifehacker.com/how-to-plan-a-virtual-bridal-shower-1845753323)
+> 原文：<https://lifehacker.com/how-to-plan-a-virtual-bridal-shower-1845753323>
 
 结婚已经是压力最大的事情之一你可以花上几千美元让自己承受——就像生孩子一样。婚前新娘送礼会应该给你一个短暂的喘息，暴风雨前的平静，帮助你记住你所做的一切都是为了爱，婚礼真的应该是一个大派对。但是仅仅因为没有被完全取消的婚礼已经在疫情期间 [被缩减规模或者在网上](https://digiday.com/marketing/the-biggest-theme-is-uncertainty-how-coronavirus-has-changed-the-wedding-industry/) 举行，这并不意味着你必须放弃新娘送礼会的乐趣。以下是如何计划一个庆祝虚拟新娘送礼会。
 
@@ -18,9 +18,9 @@ Watch
 
 这可以在你伴娘的指导下完成。为活动选择一杯官方鸡尾酒，提前发给所有客人，这样他们就有机会在活动开始前收集配料。如果调酒师不是伴娘的强项，可以考虑邀请一位调酒师来参加庆祝活动，他可以指导客人如何制作招牌饮料。(别忘了提供不含酒精的替代品。)
 
-#### 玩几轮新娘的Libs
+#### 玩几轮新娘的 Libs
 
-还记得 [狂Libs](https://www.madlibs.com/) 吗？在游戏中，通过用玩家选择的随机单词替换名词、动词、副词和形容词来构建有趣的故事，这种游戏可以根据您的在线活动进行修改。使用相同的格式来创建一个新娘或情侣主题的故事，以此来吸引你的与会者。你可以下载 [样本新娘库](https://modernmoh.com/bridal-shower/bridal-shower-mad-libs/) 来帮助你开始。
+还记得 [狂 Libs](https://www.madlibs.com/) 吗？在游戏中，通过用玩家选择的随机单词替换名词、动词、副词和形容词来构建有趣的故事，这种游戏可以根据您的在线活动进行修改。使用相同的格式来创建一个新娘或情侣主题的故事，以此来吸引你的与会者。你可以下载 [样本新娘库](https://modernmoh.com/bridal-shower/bridal-shower-mad-libs/) 来帮助你开始。
 
 #### 情侣琐事
 

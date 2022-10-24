@@ -1,6 +1,6 @@
 # 早餐怎么吃朗姆酒蛋糕
 
-> 原文:[https://life hacker . com/how-to-eat-rum-cake-for-breakfast-1845827057](https://lifehacker.com/how-to-eat-rum-cake-for-breakfast-1845827057)
+> 原文：<https://lifehacker.com/how-to-eat-rum-cake-for-breakfast-1845827057>
 
 这是一个证据充分的事实，即咀嚼食物的主要好处之一是随后纹理表面积的增加。这些峰和谷提供了松脆、松脆和(有时)焦糖化，同时也充当了小酱库。但是华夫饼干熨斗更深层次的魔力在于它能让任何东西“适合早餐”
 

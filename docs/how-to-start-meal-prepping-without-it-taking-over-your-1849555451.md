@@ -1,6 +1,6 @@
 # 如何开始做饭，而不让它占据你的生活
 
-> 原文:[https://life hacker . com/how-to-start-food-prepping-without-it-take-over-your-1849555451](https://lifehacker.com/how-to-start-meal-prepping-without-it-taking-over-your-1849555451)
+> 原文：<https://lifehacker.com/how-to-start-meal-prepping-without-it-taking-over-your-1849555451>
 
 当你认真对待你的健身目标时(无论是力量- 还是体重- 相关)，通常第一步是让你的营养有序。你想要获得足够的蛋白质 [来支持你的肌肉](https://lifehacker.com/heres-how-much-protein-you-really-need-1830878049)[水果和蔬菜促进健康](https://lifehacker.com/eating-fruits-and-vegetables-is-more-important-than-eat-1837658224)[碳水化合物作为燃料](https://lifehacker.com/what-to-eat-before-and-after-a-strength-training-workou-1798556343) ，以及支持你的活动和目标的总热量，而不会吃得不足或过量。
 
@@ -16,7 +16,7 @@ Watch
 
 所以，你的第一步是想出一个适合你的宏并且容易准备的早餐。我们正在一步一步地进行，所以不要太担心提前做好准备。只要确保早餐时间一到，它就准备好了。
 
-比如，也许你的早餐是酸奶和水果。这很简单:买些酸奶和水果。到了早上，你可以把这两个放在一起。或者你可以在去 [的前一天晚上做点什么，出门的时候抢着出门](https://lifehacker.com/9-of-the-cheapest-healthiest-make-ahead-breakfasts-ac-1849386449) 。我喜欢一次做两份Bircher muesli，因为每份需要半个苹果。所以周日晚上，我会为周一和周二准备罐子。星期二晚上我会做另一双。
+比如，也许你的早餐是酸奶和水果。这很简单:买些酸奶和水果。到了早上，你可以把这两个放在一起。或者你可以在去 [的前一天晚上做点什么，出门的时候抢着出门](https://lifehacker.com/9-of-the-cheapest-healthiest-make-ahead-breakfasts-ac-1849386449) 。我喜欢一次做两份 Bircher muesli，因为每份需要半个苹果。所以周日晚上，我会为周一和周二准备罐子。星期二晚上我会做另一双。
 
 ## 保存你的外卖容器
 
@@ -45,7 +45,7 @@ Watch
 
 老实说，这是我最重要的建议。当我开始做饭时，我会花一整个周日下午去购物和做饭。我的脚会疼，我的其他家务也会没做完。没有节省时间和精力，它只是被移动了。
 
-从那以后我变得更好了。我最喜欢的餐前准备之一是买两袋Trader Joe's chimichurri米饭和一磅碎牛肉，将它们分别适当加热并混合。这项工作只用了不到15分钟就完成了，现在我一周有四顿午餐，每顿都可以完美地装进一个圆形的汤容器里。我在乎乔先生因为我的烹饪艺术得到一半的荣誉吗？我不知道。
+从那以后我变得更好了。我最喜欢的餐前准备之一是买两袋 Trader Joe's chimichurri 米饭和一磅碎牛肉，将它们分别适当加热并混合。这项工作只用了不到 15 分钟就完成了，现在我一周有四顿午餐，每顿都可以完美地装进一个圆形的汤容器里。我在乎乔先生因为我的烹饪艺术得到一半的荣誉吗？我不知道。
 
 如果你打算从头开始做每件事，让自己轻松一些。购买冷冻蔬菜，因为它们已经被切碎了。如果你发现自己经常用米饭来做饭，买一个电饭锅。如果你想用一种特殊的自制酱料或调味品，允许自己用那种*一种*劳动密集型的东西，并确保你的其他任务都是简单的。
 

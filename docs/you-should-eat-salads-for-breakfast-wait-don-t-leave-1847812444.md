@@ -1,6 +1,6 @@
 # 早餐应该吃沙拉(等等，别走)
 
-> 原文:[https://life hacker . com/you-should-eat-沙拉-早餐-wait-don-t-leave-1847812444](https://lifehacker.com/you-should-eat-salads-for-breakfast-wait-don-t-leave-1847812444)
+> 原文：<https://lifehacker.com/you-should-eat-salads-for-breakfast-wait-don-t-leave-1847812444>
 
 首先我要说，我不反对油腻的咸肉鸡蛋和奶酪。然而，作为一个包容大众的人，我也被 [完全说服了早餐吃沙拉的理由](https://lifehacker.com/the-case-for-eating-salad-for-breakfast-1796685555) 。它们很充实，很简单，最重要的是，它们帮助我带着轻微的优越感开始我的一天。声明:我不是营养师。我不是古鲁。我只是一个喜欢在早上吃沙拉的作家，理由如下。
 
@@ -8,7 +8,7 @@ Watch
 
 ## **以强势开始新的一天**
 
-众所周知，你醒来时的决策会为你一天的剩余时间做好准备。这就是为什么我选择晨跑，也是为什么我*有时候*会读一本书的一章，而不是躺在床上浏览Twitter。
+众所周知，你醒来时的决策会为你一天的剩余时间做好准备。这就是为什么我选择晨跑，也是为什么我*有时候*会读一本书的一章，而不是躺在床上浏览 Twitter。
 
 早上第一件事就是选择健康和令人满意的食物，我会有一种成就感，这种成就感会伴随我一整天。作为参考， [这正是我早上第一件事](https://www.google.com/search?q=lady+laughing+at+salad&source=lnms&tbm=isch&sa=X&ved=2ahUKEwiao66dwLbzAhVKMlkFHYVgCf0Q_AUoAXoECAEQAw&biw=1181&bih=722&dpr=2) 的样子。
 

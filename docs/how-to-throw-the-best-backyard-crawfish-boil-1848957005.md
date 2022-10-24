@@ -1,6 +1,6 @@
 # 后院小龙虾烹饪的所有秘密
 
-> 原文:[https://the take out . com/how-to-throw-the-best-后院小龙虾-boil-1848957005](https://thetakeout.com/how-to-throw-the-best-backyard-crawfish-boil-1848957005)
+> 原文：<https://thetakeout.com/how-to-throw-the-best-backyard-crawfish-boil-1848957005>
 
 在后院的小龙虾馆吃小龙虾、小龙虾和小龙虾(同样的东西)与其说是品尝小龙虾般的季节性宝石，不如说是聚会耐力和发起一场全天的友谊马拉松。
 
@@ -8,9 +8,9 @@ Watch
 
 做一个合法的、成功的小龙虾煮，没有细心和准备是不行的。我在这里告诉你，如果你有一个头脑清醒的向导，这就不那么令人畏惧了。那就是我。你可以的，不搞砸的话会是大家最好的朋友。
 
-我第一次吃龙虾是在德克萨斯州奥斯汀的Shoal Creek酒吧。我点了两磅，以为这将是一个巨大的盛宴。我的朋友埃里克邀请了我，他点了五磅，像平常一样吃着鱼尾，吸着鱼脑。我感到怀疑，因为埃里克没有活下去的理由。他是那种吃了好时巧克力包装纸却不知道也不在乎的人。鸡骨头末端的软骨？他是为此而来的。他的勇气不是我的。
+我第一次吃龙虾是在德克萨斯州奥斯汀的 Shoal Creek 酒吧。我点了两磅，以为这将是一个巨大的盛宴。我的朋友埃里克邀请了我，他点了五磅，像平常一样吃着鱼尾，吸着鱼脑。我感到怀疑，因为埃里克没有活下去的理由。他是那种吃了好时巧克力包装纸却不知道也不在乎的人。鸡骨头末端的软骨？他是为此而来的。他的勇气不是我的。
 
-我害怕把脑浆吸出来，因为害怕尝出一些奇怪的、恶心的粘液，但在喝了几杯Lone Pint的黄玫瑰IPA后，我变成了一个吸龙虾脑的僵尸。我开始喜欢吸脑鱼的鱼汤味道，但它变得太咸了，所以我改用吸五分之一左右的鱼的头。
+我害怕把脑浆吸出来，因为害怕尝出一些奇怪的、恶心的粘液，但在喝了几杯 Lone Pint 的黄玫瑰 IPA 后，我变成了一个吸龙虾脑的僵尸。我开始喜欢吸脑鱼的鱼汤味道，但它变得太咸了，所以我改用吸五分之一左右的鱼的头。
 
 这甚至还没有开始涵盖真正的后院沸腾的餐厅体验的乐趣。在得克萨斯州的美味经历之后，我去了路易斯安那州后院的一家真正的小龙虾餐馆。没有回头路了。这是最好的。
 
@@ -18,13 +18,13 @@ Watch
 
 ## 专家建议把最好的小龙虾煮熟
 
-我向牛逼的新奥尔良烹饪专家、阿富汗辉格党的音乐家、Marigny工作室的制作人Rick G. Nelson寻求如何烹饪出完美的小龙虾的指导。一个会把所有你不知道你有的朋友*拉出来的人。*
+我向牛逼的新奥尔良烹饪专家、阿富汗辉格党的音乐家、Marigny 工作室的制作人 Rick G. Nelson 寻求如何烹饪出完美的小龙虾的指导。一个会把所有你不知道你有的朋友*拉出来的人。*
 
 外卖:比如说，给四个人做小龙虾的第一步是什么？
 
-里克·g·纳尔逊:嗯，再邀请20个你的朋友。四个人很紧，但是你会吃很多小龙虾。平均来说，你应该量出每个人大约3-5磅。它们通常装在39-40磅的袋子里。我认为你能找到的最小的东西是一个30磅的袋子。
+里克·g·纳尔逊:嗯，再邀请 20 个你的朋友。四个人很紧，但是你会吃很多小龙虾。平均来说，你应该量出每个人大约 3-5 磅。它们通常装在 39-40 磅的袋子里。我认为你能找到的最小的东西是一个 30 磅的袋子。
 
-**TO:所以，每个40磅的麻袋邀请10-12个人。你去冷冻海鲜经销商那里吗？**
+**TO:所以，每个 40 磅的麻袋邀请 10-12 个人。你去冷冻海鲜经销商那里吗？**
 
 不，你不希望你的小龙虾死掉。虾死了就可以煮了。如果一只小龙虾在你烹饪前就已经死了，这是个坏消息。一个确定无疑的迹象是:如果烹饪后尾巴是弯曲的，那就可以吃了。如果尾巴是直的，就把它扔掉，因为它在烹饪前就已经死了。
 
@@ -42,7 +42,7 @@ TO:这就是我们获取食物的方式。我们知道我们必须提前计划�
 
 你用自己的调料吗？
 
-**RGN:** 不，我做的第一件事是用一个 [扎塔瑞恩的粉末熬制，](https://www.amazon.com/Zatarains-Pre-Seasoned-Crab-Shrimp-Ounce/dp/B071HRD76Z/ref=asc_df_B071HRD76Z/?adgrpid=60224371377&asc_campaign=InlineText&asc_refurl=https://thetakeout.com/how-to-throw-the-best-backyard-crawfish-boil-1848957005&asc_source=&hvadid=312073756717&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=9031131&hvnetw=g&hvpone=&hvpos=&hvptwo=&hvqmt=&hvrand=15596194819683885491&hvtargid=pla-655277358438&linkCode=df0&ref=&tag=kinjatakeoutlink-20&th=1) 我用半罐，而我 [用液体熬制浓缩液，整个一个叫临熬](https://www.amazon.com/Zatarains-Seafood-Pro-Boil-53-oz/dp/B0063E7JOM/ref=sr_1_2_mod_primary_new?asc_campaign=InlineText&asc_refurl=https://thetakeout.com/how-to-throw-the-best-backyard-crawfish-boil-1848957005&asc_source=&crid=1CVZAXEEIOZG0&keywords=pro+boil+zatarains&qid=1653077755&s=grocery&sbo=RZvfv//HxDF+O5021pAnSA==&sprefix=pro+boil,grocery,104&sr=1-2&tag=kinjatakeoutlink-20&th=1) 。请记住，我用的是 [100夸脱的锅，](https://www.amazon.com/Bayou-Classic-1000-Aluminum-Stockpot/dp/B0002913HI/ref=sr_1_5?asc_campaign=InlineText&asc_refurl=https://thetakeout.com/how-to-throw-the-best-backyard-crawfish-boil-1848957005&asc_source=&crid=3MRNQHEODNWN6&keywords=crawfish pot&qid=1653077866&s=home-garden&sprefix=crawfish pot,garden,114&sr=1-5&tag=kinjatakeoutlink-20) 我用的是80夸脱的篮子。
+**RGN:** 不，我做的第一件事是用一个 [扎塔瑞恩的粉末熬制，](https://www.amazon.com/Zatarains-Pre-Seasoned-Crab-Shrimp-Ounce/dp/B071HRD76Z/ref=asc_df_B071HRD76Z/?adgrpid=60224371377&asc_campaign=InlineText&asc_refurl=https://thetakeout.com/how-to-throw-the-best-backyard-crawfish-boil-1848957005&asc_source=&hvadid=312073756717&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=9031131&hvnetw=g&hvpone=&hvpos=&hvptwo=&hvqmt=&hvrand=15596194819683885491&hvtargid=pla-655277358438&linkCode=df0&ref=&tag=kinjatakeoutlink-20&th=1) 我用半罐，而我 [用液体熬制浓缩液，整个一个叫临熬](https://www.amazon.com/Zatarains-Seafood-Pro-Boil-53-oz/dp/B0063E7JOM/ref=sr_1_2_mod_primary_new?asc_campaign=InlineText&asc_refurl=https://thetakeout.com/how-to-throw-the-best-backyard-crawfish-boil-1848957005&asc_source=&crid=1CVZAXEEIOZG0&keywords=pro+boil+zatarains&qid=1653077755&s=grocery&sbo=RZvfv//HxDF+O5021pAnSA==&sprefix=pro+boil,grocery,104&sr=1-2&tag=kinjatakeoutlink-20&th=1) 。请记住，我用的是 [100 夸脱的锅，](https://www.amazon.com/Bayou-Classic-1000-Aluminum-Stockpot/dp/B0002913HI/ref=sr_1_5?asc_campaign=InlineText&asc_refurl=https://thetakeout.com/how-to-throw-the-best-backyard-crawfish-boil-1848957005&asc_source=&crid=3MRNQHEODNWN6&keywords=crawfish pot&qid=1653077866&s=home-garden&sprefix=crawfish pot,garden,114&sr=1-5&tag=kinjatakeoutlink-20) 我用的是 80 夸脱的篮子。
 
 把你的篮子放进锅里。将篮子放入锅中，加入一半的水。
 
@@ -50,7 +50,7 @@ TO:这就是我们获取食物的方式。我们知道我们必须提前计划�
 
 另一个新手的错误是把水灌得太高。一旦你的小龙虾进去，如果锅里有太多的水，它就会溢出来。把它装满一半的水就行了。把菠萝核也放进去！
 
-我在树干上工作了两个小时，直到它全部结合。然后，一旦它们全部结合，先放入土豆和大蒜(因为它们很稠),在小龙虾之前放置10-20分钟。
+我在树干上工作了两个小时，直到它全部结合。然后，一旦它们全部结合，先放入土豆和大蒜(因为它们很稠),在小龙虾之前放置 10-20 分钟。
 
 如何把小龙虾的粪便弄出来？
 
@@ -62,7 +62,7 @@ TO:这就是我们获取食物的方式。我们知道我们必须提前计划�
 
 现在是玉米收获季节吗？
 
-**RGN:** 是的。但是冷冻玉米。把你的冻玉米放进去，打个旋，静置20-30分钟，冷玉米会让小龙虾不至于热得太快。你不想要湿漉漉的小龙虾，也不想要太硬的尾巴。现在加入一瓶牺牲啤酒煮沸。一直喝啤酒。我从未听说过没有啤酒的煮沸。
+**RGN:** 是的。但是冷冻玉米。把你的冻玉米放进去，打个旋，静置 20-30 分钟，冷玉米会让小龙虾不至于热得太快。你不想要湿漉漉的小龙虾，也不想要太硬的尾巴。现在加入一瓶牺牲啤酒煮沸。一直喝啤酒。我从未听说过没有啤酒的煮沸。
 
 **要:多少玉米？**
 
@@ -86,14 +86,14 @@ TO:有什么让你感觉像专业人士的秘密建议吗？
 
 1.我起床后花了大约一个小时在杂货店买我所有的配料、冰和啤酒。
 
-2.我在中午开始煮，我煮肉汤，第一批人会在下午2点左右出现，下午2:30清洗。
+2.我在中午开始煮，我煮肉汤，第一批人会在下午 2 点左右出现，下午 2:30 清洗。
 
-3.我们在3点左右放入第一只清洗过的小龙虾，然后在3:30或3:45左右我们就可以吃了。
+3.我们在 3 点左右放入第一只清洗过的小龙虾，然后在 3:30 或 3:45 左右我们就可以吃了。
 
-4.然后你在5:30清理下一轮的便便。下午6点左右开始第二轮比赛
+4.然后你在 5:30 清理下一轮的便便。下午 6 点左右开始第二轮比赛
 
-5.再次把滚煮开，加入更多的香料。再等20-30分钟。
+5.再次把滚煮开，加入更多的香料。再等 20-30 分钟。
 
 6.在第二个冰柜中再次清洗，从桌子上添加更多的香料或大蒜或洋葱到锅里，你就可以把所有的魔力放回锅里。
 
-7.晚上9点左右给你喝醉的朋友上第三道菜
+7.晚上 9 点左右给你喝醉的朋友上第三道菜

@@ -1,12 +1,12 @@
 # 忽略这些关于人寿保险的神话
 
-> 原文:[https://life hacker . com/ignore-these-these-myths-about-life-insurance-1849650266](https://lifehacker.com/ignore-these-myths-about-life-insurance-1849650266)
+> 原文：<https://lifehacker.com/ignore-these-myths-about-life-insurance-1849650266>
 
 许多年轻的单身人士认为他们不需要人寿保险。不幸的是，这种误解很难调和，否则就太晚了。毕竟，人寿保险是一种你在需要时无法购买的投资，如果你等得太久，得到它的成本会高得多。
 
 Watch
 
-人寿保险的目的是提供一个安全网，这样你的家人或爱人就不会在你去世后努力支付T2账单或处理其他财务责任——但这并不意味着你在成家之前不必考虑这个问题。以下是你需要知道的关于人寿保险的那些和其他神话，最好忽略，以及应该考虑的事实。
+人寿保险的目的是提供一个安全网，这样你的家人或爱人就不会在你去世后努力支付 T2 账单或处理其他财务责任——但这并不意味着你在成家之前不必考虑这个问题。以下是你需要知道的关于人寿保险的那些和其他神话，最好忽略，以及应该考虑的事实。
 
 ## 人寿保险只有在你死后才有意义
 
@@ -14,24 +14,24 @@ Watch
 
 ## 所有的人寿保险都太贵了
 
-人寿保险费用将根据您的年龄、性别、健康状况和具体保单而有所不同。可以预见的是，你越年轻、越健康，人寿保险就越便宜。例如，一个健康的35岁的人可以每月支付不到28美元购买一份定期人寿保险，根据政策天才 的说法， [有50万美元的死亡理赔金支付，期限为20年。](https://www.policygenius.com/life-insurance/how-does-life-insurance-work/?utm_source=google&utm_campaign=sem_google_life_b:nb_dsa_desktop&utm_medium=cpc&utm_content=606669509742&utm_term=&utm_location=9004357&utm_device=c&campaign_id=17607593921&target_id=dsa-1657605875729&lptest=&lptext=&gclid=Cj0KCQjwy5maBhDdARIsAMxrkw3fi_jY0f3cd8KgQLQAEx7ndRjxsrsdYRSAtKqxjLTt498TekN33NUaAiqoEALw_wcB)
+人寿保险费用将根据您的年龄、性别、健康状况和具体保单而有所不同。可以预见的是，你越年轻、越健康，人寿保险就越便宜。例如，一个健康的 35 岁的人可以每月支付不到 28 美元购买一份定期人寿保险，根据政策天才 的说法， [有 50 万美元的死亡理赔金支付，期限为 20 年。](https://www.policygenius.com/life-insurance/how-does-life-insurance-work/?utm_source=google&utm_campaign=sem_google_life_b:nb_dsa_desktop&utm_medium=cpc&utm_content=606669509742&utm_term=&utm_location=9004357&utm_device=c&campaign_id=17607593921&target_id=dsa-1657605875729&lptest=&lptext=&gclid=Cj0KCQjwy5maBhDdARIsAMxrkw3fi_jY0f3cd8KgQLQAEx7ndRjxsrsdYRSAtKqxjLTt498TekN33NUaAiqoEALw_wcB)
 
-如果你担心成本， [商业内幕](https://www.businessinsider.com/personal-finance/common-myths-about-life-insurance) 建议你从小处着手。尽你目前所能购买尽可能多的人寿保险，然后当你有能力增加保险额度时再重新评估。对于你的第一个计划，定期寿险是最受欢迎和负担得起的选择之一。这是一个简单的政策，在一个延长的期限内，通常是10到30年，以低保费提供一个大的保险金额。
+如果你担心成本， [商业内幕](https://www.businessinsider.com/personal-finance/common-myths-about-life-insurance) 建议你从小处着手。尽你目前所能购买尽可能多的人寿保险，然后当你有能力增加保险额度时再重新评估。对于你的第一个计划，定期寿险是最受欢迎和负担得起的选择之一。这是一个简单的政策，在一个延长的期限内，通常是 10 到 30 年，以低保费提供一个大的保险金额。
 
 如果你有健康问题，考虑一下不需要体检的政策。
 
 ## 如果你单身且没有家眷，你不需要人寿保险
 
-这可能是关于人寿保险的最普遍的神话:如果没有人依赖你，为什么要创造一个财务安全毯？现实是，如果你有可转移的债务，比如T2、学生贷款、T4和T5，你可以在死后让你的父母或其他家庭成员承担责任。人寿保险不仅仅适用于已婚夫妇。
+这可能是关于人寿保险的最普遍的神话:如果没有人依赖你，为什么要创造一个财务安全毯？现实是，如果你有可转移的债务，比如 T2、学生贷款、T4 和 T5，你可以在死后让你的父母或其他家庭成员承担责任。人寿保险不仅仅适用于已婚夫妇。
 
 尽管许多人认为人寿保险可以弥补收入损失，但即使是没有薪水的全职父母也应该购买人寿保险。虽然他们可能不是传统的“养家糊口的人”，但替代育儿或其他家务的成本是值得考虑的，并为做好准备。
 
 ## 你应该坚持你雇主的人寿保险
 
-虽然许多公司的人寿保险是一种低成本(甚至免费)的额外补贴，但它们可能不足以满足你的财务需求，通常提供大约一年的正常工资。 [Investopedia解释道](https://www.investopedia.com/articles/personal-finance/022014/your-employerprovided-life-insurance-coverage-enough.asp) :“如果你有依靠你收入的家属，那么你可能需要至少六倍于你年薪的保险...一些专家甚至建议购买相当于你工资10到12倍的保险。明智的做法是为雇主提供的保险福利添加适合你需求的保单。
+虽然许多公司的人寿保险是一种低成本(甚至免费)的额外补贴，但它们可能不足以满足你的财务需求，通常提供大约一年的正常工资。 [Investopedia 解释道](https://www.investopedia.com/articles/personal-finance/022014/your-employerprovided-life-insurance-coverage-enough.asp) :“如果你有依靠你收入的家属，那么你可能需要至少六倍于你年薪的保险...一些专家甚至建议购买相当于你工资 10 到 12 倍的保险。明智的做法是为雇主提供的保险福利添加适合你需求的保单。
 
 ## 底线:**人寿保险不是一刀切**
 
 利用人寿保险高度可定制的事实。c 与其他形式的保险相比，你的人寿保险需求会随着时间的推移发生巨大变化。想一想:孩子、婚姻、离婚、再婚、照顾老年家庭成员以及退休...而那只是你的三十多岁。(开玩笑。)
 
-即使你认为你现在不需要它，你也应该从你能负担得起的开始，随着情况的变化建立保险。书呆子钱包提供了一个方便的表格 ，它将帮助你比较现在的报价，像Policy Genius [这样的公司可以很容易地货比三家，争取一个好的价格](https://visit.policygenius.com/life-insurance/new-mlp/) 。但是，除了仅仅依靠网络平台，咨询现实生活中的专业人士也是值得的。
+即使你认为你现在不需要它，你也应该从你能负担得起的开始，随着情况的变化建立保险。书呆子钱包提供了一个方便的表格 ，它将帮助你比较现在的报价，像 Policy Genius [这样的公司可以很容易地货比三家，争取一个好的价格](https://visit.policygenius.com/life-insurance/new-mlp/) 。但是，除了仅仅依靠网络平台，咨询现实生活中的专业人士也是值得的。

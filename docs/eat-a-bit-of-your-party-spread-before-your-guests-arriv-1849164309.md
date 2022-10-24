@@ -1,6 +1,6 @@
 # 在你的客人到达之前，吃一点你的派对点心
 
-> 原文:[https://life hacker . com/eat-a-bit-of-your-party-spread-before-your-guests-arriv-1849164309](https://lifehacker.com/eat-a-bit-of-your-party-spread-before-your-guests-arriv-1849164309)
+> 原文：<https://lifehacker.com/eat-a-bit-of-your-party-spread-before-your-guests-arriv-1849164309>
 
 作为主人，没有什么比为我的客人准备漂亮诱人的小吃和款待更让我高兴的了——但是把东西弄得太漂亮会让人们不愿意吃这些食物。“我不想搞砸！”他们说，在鹰嘴豆泥周围盘旋。“它看起来太漂亮了！”
 

@@ -1,6 +1,6 @@
 # 木腻子和木填料的区别(以及何时使用)
 
-> 原文:[https://life hacker . com/the-difference-in-wood-putty-and-wood-filler-and-1849348502](https://lifehacker.com/the-difference-between-wood-putty-and-wood-filler-and-1849348502)
+> 原文：<https://lifehacker.com/the-difference-between-wood-putty-and-wood-filler-and-1849348502>
 
 使用木材建造家具、结构和其他物品的一个好处是，它能够使用螺钉、钉子和胶水等材料以及燕尾榫等技术固定在一起。因为木材是一种天然材料，当你使用木材(而不是刨花板)时，无论你做什么都是独一无二的，这要归功于它的纹理和节子。
 

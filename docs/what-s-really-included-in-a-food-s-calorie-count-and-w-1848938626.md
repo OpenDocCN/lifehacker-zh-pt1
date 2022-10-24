@@ -1,12 +1,12 @@
 # 食物的卡路里计数中到底包含了什么(以及不包含什么)
 
-> 原文:[https://life hacker . com/what-s-really-included-in-a-food-s-calorie-count-and-w-1848938626](https://lifehacker.com/what-s-really-included-in-a-food-s-calorie-count-and-w-1848938626)
+> 原文：<https://lifehacker.com/what-s-really-included-in-a-food-s-calorie-count-and-w-1848938626>
 
 用追踪应用程序计算你的卡路里似乎很简单——除非你决定认真对待它并测量你的份量。然后你会意识到橙子去皮会更轻，剥掉烤鸡的皮会帮你节省一些卡路里，有一个带骨头的鸡腿条目，但你不会去吃骨头。那么你最终实际上吃了多少卡路里呢？
 
 Watch
 
-这些都是很好的问题，美国农业部(它做了大量的营养测试)有答案。当你在一个食品追踪应用程序中查找“苹果”或“鸡胸肉”等基本项目时，你会找到来自美国农业部测试的条目。(如果你使用MyFitnessPal，在我看来 [你不应该](https://lifehacker.com/why-you-should-dump-myfitnesspal-for-cronometer-1837835080) ，通常在绿色标记的选项中有一个USDA条目。)
+这些都是很好的问题，美国农业部(它做了大量的营养测试)有答案。当你在一个食品追踪应用程序中查找“苹果”或“鸡胸肉”等基本项目时，你会找到来自美国农业部测试的条目。(如果你使用 MyFitnessPal，在我看来 [你不应该](https://lifehacker.com/why-you-should-dump-myfitnesspal-for-cronometer-1837835080) ，通常在绿色标记的选项中有一个 USDA 条目。)
 
 ## 皮和骨头包括在普通食品的卡路里信息中吗？
 
@@ -18,11 +18,11 @@ Watch
 
 你有时可以通过在美国农业部的食品数据中心的 [中查找你选择的食物，并点击食物的“测量”或“成分”来获得更多信息。比如](https://fdc.nal.usda.gov/index.html) [鸡背](https://fdc.nal.usda.gov/fdc-app.html#/food-details/1098570/sources) 包括肉和皮，但不包括骨头，假定是腌制的。 [香蕉](https://fdc.nal.usda.gov/fdc-app.html#/food-details/1105314/measures) 去皮。
 
-为了获得更多关于什么被认为是食物的“垃圾”或“不可食用部分”的细节，你必须更深入地挖掘晦涩难懂的政府网站。我不指望你每次吃鸡大腿都这样，但下面是我在标准参考(Legacy)数据库[FOOD _ DES文件中找到的一些例子(不要问):](https://data.nal.usda.gov/dataset/composition-foods-raw-processed-prepared-usda-national-nutrient-database-standard-referen-11)
+为了获得更多关于什么被认为是食物的“垃圾”或“不可食用部分”的细节，你必须更深入地挖掘晦涩难懂的政府网站。我不指望你每次吃鸡大腿都这样，但下面是我在标准参考(Legacy)数据库[FOOD _ DES 文件中找到的一些例子(不要问):](https://data.nal.usda.gov/dataset/composition-foods-raw-processed-prepared-usda-national-nutrient-database-standard-referen-11)
 
 *   柚子不包括“皮、籽、核和膜”
 *   一个肯德基鸡腿不包括“软骨和骨头”(无论你是整条吃还是剥掉皮和面包屑都有单独的条目)。
-*   一份上等牛排不包括“骨头和结缔组织”，但它包括外围的脂肪层。将肥肉切至1/8英寸或完全去除的上等牛排有单独的条目。
+*   一份上等牛排不包括“骨头和结缔组织”，但它包括外围的脂肪层。将肥肉切至 1/8 英寸或完全去除的上等牛排有单独的条目。
 *   炖肉不包括“结缔组织”或“接缝脂肪”
 
 这就是你对普通食品的答案。如果你想称香蕉的重量，不要去皮。

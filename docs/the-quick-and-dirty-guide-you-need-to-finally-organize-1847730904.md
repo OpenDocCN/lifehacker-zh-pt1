@@ -1,6 +1,6 @@
 # 快速和肮脏的指南，你需要最终组织你的车库
 
-> 原文:[https://life hacker . com/the-quick-and-dirty-guide-you-need-to-finally-organize-1847730904](https://lifehacker.com/the-quick-and-dirty-guide-you-need-to-finally-organize-1847730904)
+> 原文：<https://lifehacker.com/the-quick-and-dirty-guide-you-need-to-finally-organize-1847730904>
 
 车库是一个很好的东西:它可以保护你的车免受恶劣天气的影响，还可以吸收大量杂乱的东西。但是如果你不小心的话，那些杂乱无章的东西会让最宽敞的车库变成绝望的深渊。如果你的人生走上了黑暗之路，以下是如何将它从边缘拉回来的方法。
 
@@ -8,7 +8,7 @@ Watch
 
 ## 扔掉不属于自己的东西
 
-信不信由你，在你的车库里储存某些东西实际上是很危险的。由于车库通常不受气候控制，也不像主屋那样安全，所以对于一长串令人惊讶的物品来说，车库是个糟糕的地方。下面是一些最常见的，根据BobVila.com[的一篇博文:](https://www.bobvila.com/slideshow/11-things-never-to-keep-in-your-garage-51014)
+信不信由你，在你的车库里储存某些东西实际上是很危险的。由于车库通常不受气候控制，也不像主屋那样安全，所以对于一长串令人惊讶的物品来说，车库是个糟糕的地方。下面是一些最常见的，根据 BobVila.com[的一篇博文:](https://www.bobvila.com/slideshow/11-things-never-to-keep-in-your-garage-51014)
 
 *   对温度和/或湿度敏感的物品:油漆、某些溶剂、罐装或罐装食品、木制家具、乐器、唱片和电子产品
 *   **危险的烟雾产生物**如丙烷和汽油
@@ -28,7 +28,7 @@ Watch
 
 现在有趣的部分来了:把地上的东西拿走，别挡路。这几乎总是需要加强你的墙壁储物情况，如果你有一个特定的想法，这可能会变得昂贵。但是如果你能忍受一些纯粹的形式多于功能的朴素，工业货架是很棒的。它们坚固、可定制、易于组装，而且出奇的便宜，甚至是全新的。
 
-[这个肌肉架单元是巨大的(六英尺高，四英尺宽！)在家得宝(Home Depot)只需不到120美元](https://thd.co/2XQjsHt) ，这意味着你可以在Craigslist或Facebook Marketplace上以更低的价格找到类似的东西。
+[这个肌肉架单元是巨大的(六英尺高，四英尺宽！)在家得宝(Home Depot)只需不到 120 美元](https://thd.co/2XQjsHt) ，这意味着你可以在 Craigslist 或 Facebook Marketplace 上以更低的价格找到类似的东西。
 
 你也可以在墙壁上添加储物空间。壁挂式搁板和衣帽或实用挂钩价格实惠，用途广泛。为了更多的可定制性，可以考虑安装一个 [钉板](https://amzn.to/3EJ5iZf) 或者 [带挂钩的板条墙系统](https://amzn.to/3EL1uXz)；这些物品非常适合那些相对较轻、需要方便拿取的物品，比如手持工具和一些运动器材(比如曲棍球棒或长曲棍球棒、包、安全垫和头盔)。
 

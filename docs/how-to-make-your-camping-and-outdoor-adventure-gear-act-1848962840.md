@@ -1,6 +1,6 @@
 # 如何让你的露营和户外探险装备真正持久
 
-> 原文:[https://life hacker . com/how-to-make-your-the-camping-and-outdoor-adventure-gear-act-1848962840](https://lifehacker.com/how-to-make-your-camping-and-outdoor-adventure-gear-act-1848962840)
+> 原文：<https://lifehacker.com/how-to-make-your-camping-and-outdoor-adventure-gear-act-1848962840>
 
 户外探险的装备经常在你用完后被扔进车库或壁橱后面——它就呆在那里，被遗忘，直到下一次远足。可能要过好几个月你才会发现你的帐篷发霉了或者你的充气筏出现了漏洞。出现磨损的物品被替换而不是修理的情况并不少见，但这很快就会变得昂贵。这里有一些方法可以让你的露营和其他户外装备跑得更远，同时还能省钱。
 
@@ -22,7 +22,7 @@ Watch
 
 ## 取出电池或使用充电设备
 
-是齿轮断裂的常见原因。人们很容易忘记从电子产品中取出电池，但随着时间的推移，这可能会导致腐蚀。将你的电池与闪光灯灯、提灯和头灯分开，并将它们存放在凉爽干燥的地方，以防止这种类型的损坏。你也可以购买可充电的 [LED灯](https://www.rei.com/product/202213/coast-g22-flashlight?sku=2022130001&store=102&cm_mmc=PLA_Google%7C21700000001700551_2022130001%7C92700057782272206%7CNB%7C71700000074090499&gclid=CjwKCAjw4ayUBhA4EiwATWyBrq5ilz7IjSlxUY_u4ueFQgYnh6U7Yy59X-o1DZZnxaYh-27ErZ0EXhoCFwoQAvD_BwE&gclsrc=aw.ds) 和 [头灯](https://www.rei.com/product/202772/black-diamond-astro-300-headlamp?sku=2027720003&store=102&cm_mmc=PLA_Google%7C21700000001700551_2027720003%7C92700057791413561%7CNB%7C71700000074090499&gclid=CjwKCAjw4ayUBhA4EiwATWyBrmVD_ux24dKOhVrD2DK8Cwbw3TpjnZEKHe-1YUA9H3YR-zIHsltSnxoCCdUQAvD_BwE&gclsrc=aw.ds)——它们的电池寿命会更长，而且不需要你需要记住要移除的那种电池。
+是齿轮断裂的常见原因。人们很容易忘记从电子产品中取出电池，但随着时间的推移，这可能会导致腐蚀。将你的电池与闪光灯灯、提灯和头灯分开，并将它们存放在凉爽干燥的地方，以防止这种类型的损坏。你也可以购买可充电的 [LED 灯](https://www.rei.com/product/202213/coast-g22-flashlight?sku=2022130001&store=102&cm_mmc=PLA_Google%7C21700000001700551_2022130001%7C92700057782272206%7CNB%7C71700000074090499&gclid=CjwKCAjw4ayUBhA4EiwATWyBrq5ilz7IjSlxUY_u4ueFQgYnh6U7Yy59X-o1DZZnxaYh-27ErZ0EXhoCFwoQAvD_BwE&gclsrc=aw.ds) 和 [头灯](https://www.rei.com/product/202772/black-diamond-astro-300-headlamp?sku=2027720003&store=102&cm_mmc=PLA_Google%7C21700000001700551_2027720003%7C92700057791413561%7CNB%7C71700000074090499&gclid=CjwKCAjw4ayUBhA4EiwATWyBrmVD_ux24dKOhVrD2DK8Cwbw3TpjnZEKHe-1YUA9H3YR-zIHsltSnxoCCdUQAvD_BwE&gclsrc=aw.ds)——它们的电池寿命会更长，而且不需要你需要记住要移除的那种电池。
 
 ## 把这些维修 物资放在手边
 

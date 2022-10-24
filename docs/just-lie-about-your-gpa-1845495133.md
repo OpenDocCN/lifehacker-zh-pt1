@@ -1,6 +1,6 @@
 # 谎报你的平均成绩就行了
 
-> 原文:[https://lifehacker.com/just-lie-about-your-gpa-1845495133](https://lifehacker.com/just-lie-about-your-gpa-1845495133)
+> 原文：<https://lifehacker.com/just-lie-about-your-gpa-1845495133>
 
 这个世界上有两种人:不记得自己大学平均成绩的人和书呆子。我的意思是，我猜有第三类前书呆子对他们的平均绩点耿耿于怀，并因此将它从他们的意识中驱逐出去(我)。但是我的观点是，很多人不知道他们自己的，而且你可能会撒谎。
 

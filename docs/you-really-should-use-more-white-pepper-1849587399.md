@@ -1,6 +1,6 @@
 # 你真的应该用更多的白胡椒
 
-> 原文:[https://life hacker . com/you-really-should-use-more-white-pepper-1849587399](https://lifehacker.com/you-really-should-use-more-white-pepper-1849587399)
+> 原文：<https://lifehacker.com/you-really-should-use-more-white-pepper-1849587399>
 
 我花了一段时间才适应胡椒，至少小时候是这样。我的妹妹称胡椒为“热盐”，她非常喜欢它，她会把它洒在她的哈密瓜上，这是一种在我祖母家通常作为甜点的水果。我最终学会了喜欢辛辣的发酵浆果，尤其是白胡椒，一种更多人应该学会喜欢(和烹饪)的胡椒。
 
@@ -12,4 +12,4 @@ Watch
 
 白胡椒经常被称赞能够融入苍白的食物中而没有任何明显的斑点，但我更关心它的味道。它通常用于越南、中国、泰国、法国和瑞典的烹饪中，其温和、诱人的性质使它成为调味水煮肉和海鲜、精致肉汤、奶油汤和肉汁的完美辣椒。它甚至可以用在甜点中，比如冰淇淋或焦糖布丁。
 
-如果你不确定从哪里开始使用这种白胡椒，就像使用黑胡椒一样使用它。最近，我发现自己把它加入到所有的食物中，而黑胡椒粒却沮丧地放在我的研磨机中。我已经把它加到了我的 [洋葱蘸酱](https://lifehacker.com/your-onion-dip-needs-at-least-five-onions-1849586590) 中，它为焦糖洋葱提供了美味、时髦的支持； [炒鸡蛋](https://lifehacker.com/make-the-creamiest-scrambled-eggs-of-your-life-with-a-l-1849571185) ，在这里它融入了奶油凝乳，增加了一种温暖、朴实的深度；还有炸鸡，因为肯德基就是这么教我做的。(这是真的:白胡椒是众所周知的 [11种香草和香料](https://lifehacker.com/white-pepper-is-the-secret-ingredient-to-kfc-s-original-1786020292) 之一。)如果对上校够好，对我也够好。我甚至可以在一些甜瓜上试试。
+如果你不确定从哪里开始使用这种白胡椒，就像使用黑胡椒一样使用它。最近，我发现自己把它加入到所有的食物中，而黑胡椒粒却沮丧地放在我的研磨机中。我已经把它加到了我的 [洋葱蘸酱](https://lifehacker.com/your-onion-dip-needs-at-least-five-onions-1849586590) 中，它为焦糖洋葱提供了美味、时髦的支持； [炒鸡蛋](https://lifehacker.com/make-the-creamiest-scrambled-eggs-of-your-life-with-a-l-1849571185) ，在这里它融入了奶油凝乳，增加了一种温暖、朴实的深度；还有炸鸡，因为肯德基就是这么教我做的。(这是真的:白胡椒是众所周知的 [11 种香草和香料](https://lifehacker.com/white-pepper-is-the-secret-ingredient-to-kfc-s-original-1786020292) 之一。)如果对上校够好，对我也够好。我甚至可以在一些甜瓜上试试。

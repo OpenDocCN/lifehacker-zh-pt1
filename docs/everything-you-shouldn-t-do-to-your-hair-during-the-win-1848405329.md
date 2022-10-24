@@ -1,6 +1,6 @@
 # 冬天你不应该对头发做的所有事情
 
-> 原文:[https://life hacker . com/everything-you-should-t-do-to-your-hair-in-win-1848405329](https://lifehacker.com/everything-you-shouldn-t-do-to-your-hair-during-the-win-1848405329)
+> 原文：<https://lifehacker.com/everything-you-shouldn-t-do-to-your-hair-during-the-win-1848405329>
 
 寒冷干燥的冬季空气不仅会给你的皮肤带来问题，还会给你的头发和头皮带来一些不必要的变化。这意味着我们可能不得不改变我们的护发习惯，以便在整个季节中更好地保护头发。其中一部分是避免某些可能对你的头发造成额外伤害的护理和造型技术。以下是需要了解的内容。
 
@@ -18,7 +18,7 @@ Watch
 
 ### 涉及热量的造型
 
-“第一条经验法则是限制你敲打头发的频率，用熨斗烫头发，用烘干机过热，或者在头发上使用腐蚀性化学物质，” [伯格菲尔德解释道](https://health.clevelandclinic.org/your-best-strategies-for-beautiful-hair-in-the-winter/) 。更具体地说， [多诺万建议](https://dermatology.ca/public-patients/general-interest-articles/how-to-keep-fresh-in-the-winter/) 将熨斗、吹风机和/或卷发器的使用限制在一周几天，当你绝对必须使用它们时，确保你的头发在造型前70%干燥。
+“第一条经验法则是限制你敲打头发的频率，用熨斗烫头发，用烘干机过热，或者在头发上使用腐蚀性化学物质，” [伯格菲尔德解释道](https://health.clevelandclinic.org/your-best-strategies-for-beautiful-hair-in-the-winter/) 。更具体地说， [多诺万建议](https://dermatology.ca/public-patients/general-interest-articles/how-to-keep-fresh-in-the-winter/) 将熨斗、吹风机和/或卷发器的使用限制在一周几天，当你绝对必须使用它们时，确保你的头发在造型前 70%干燥。
 
 ### 戴着一顶无衬里的帽子
 

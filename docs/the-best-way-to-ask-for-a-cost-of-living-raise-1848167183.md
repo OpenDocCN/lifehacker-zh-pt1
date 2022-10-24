@@ -1,12 +1,12 @@
 # 要求提高生活费用的最佳方式
 
-> 原文:[https://life hacker . com/the-best-way-ask-a-cost-of-living-cost-raise-1848167183](https://lifehacker.com/the-best-way-to-ask-for-a-cost-of-living-raise-1848167183)
+> 原文：<https://lifehacker.com/the-best-way-to-ask-for-a-cost-of-living-raise-1848167183>
 
 日历年的年底是机智地退出节日派对以及猜测给同事送什么秘密圣诞老人的时候，但更重要的是，对许多工作场所来说，这也是进行绩效评估，制定预算和协商薪资的时候。
 
 Watch
 
-最新的消费者物价指数(CPI)通胀报告显示，10月份美国 [年通胀率达到6.2%](https://www.nytimes.com/2021/11/10/business/economy/consumer-price-inflation-october.html) ，为30多年来最高。随着物价的全面上涨，增加工资应该是理所当然的——毕竟，不根据通货膨胀增加工资实际上与削减工资效果相同。
+最新的消费者物价指数(CPI)通胀报告显示，10 月份美国 [年通胀率达到 6.2%](https://www.nytimes.com/2021/11/10/business/economy/consumer-price-inflation-october.html) ，为 30 多年来最高。随着物价的全面上涨，增加工资应该是理所当然的——毕竟，不根据通货膨胀增加工资实际上与削减工资效果相同。
 
 所以，如果你打算要求加薪，你应该如何将通货膨胀纳入谈话内容呢？莫妮卡·托瑞斯 [为《赫芬顿邮报》](https://www.huffpost.com/entry/price-inflation-salary-raise-merit_l_61a50665e4b0451e550ad401) 撰文称，在谈判中直接提及通货膨胀并不总是一个好主意。在你援引创纪录的通胀率为自己辩护之前，你应该知道以下几点。
 
@@ -20,7 +20,7 @@ Watch
 
 生活成本的提高，有时也称为生活成本调整(COLA)，是一种与生活成本逐年上升相关的加薪。 [根据《T2》](https://www.indeed.com/career-advice/pay-salary/average-cost-of-living-raise)的说法，一些组织可能会将年度工资调整纳入薪酬计划，以应对生活成本的逐年上涨。
 
-即使你的雇主没有正式提供可乐，提高生活成本也是合理的要求。 [这里的确是计算你可乐](https://www.indeed.com/career-advice/pay-salary/cost-of-living-adjustment) 的指南。平均涨幅曾经是2-3%左右的与平均通胀率相匹配，随着消费价格越来越高， [要求5%来弥补通胀是有道理的](https://lifehacker.com/why-right-now-is-the-best-time-to-ask-for-a-pay-raise-1847144633) 。与此同时，提出通货膨胀可能会削弱你加薪的理由。
+即使你的雇主没有正式提供可乐，提高生活成本也是合理的要求。 [这里的确是计算你可乐](https://www.indeed.com/career-advice/pay-salary/cost-of-living-adjustment) 的指南。平均涨幅曾经是 2-3%左右的与平均通胀率相匹配，随着消费价格越来越高， [要求 5%来弥补通胀是有道理的](https://lifehacker.com/why-right-now-is-the-best-time-to-ask-for-a-pay-raise-1847144633) 。与此同时，提出通货膨胀可能会削弱你加薪的理由。
 
 ## 反对通货膨胀的理由
 
@@ -32,7 +32,7 @@ Watch
 
 战略人事商业伙伴公司的人力资源顾问丹尼尔·斯派克告诉《赫芬顿邮报》 说，他建议在一次谈话中提出生活费用加薪的要求，在另一次谈话中提出因工作表现加薪的要求。
 
-把这想象成一种双管齐下的谈判策略。首先，你把生活费用的提高框定为一个事实上的、不需要动脑筋的要求。例如，Space表示，你可以向你的老板提出一个简单的问题，比如“通货膨胀可以被视为薪酬流程的一部分吗？”然后，即使这次谈话没有像希望的那样成功，你也把通货膨胀放在了一个不同于你的基于功绩的要求的盒子里。这样，你可以避免上面解释的潜在陷阱，你的雇主可以用他们自己增加的运营成本来驳回你增加的生活成本。
+把这想象成一种双管齐下的谈判策略。首先，你把生活费用的提高框定为一个事实上的、不需要动脑筋的要求。例如，Space 表示，你可以向你的老板提出一个简单的问题，比如“通货膨胀可以被视为薪酬流程的一部分吗？”然后，即使这次谈话没有像希望的那样成功，你也把通货膨胀放在了一个不同于你的基于功绩的要求的盒子里。这样，你可以避免上面解释的潜在陷阱，你的雇主可以用他们自己增加的运营成本来驳回你增加的生活成本。
 
 ## **不管怎样，准备好解释你的价值**
 

@@ -1,6 +1,6 @@
 # 千万不要用小苏打来清洁这些家居表面
 
-> 原文:[https://life hacker . com/never-use-soda-to-clean-these-household-surfaces-1849629056](https://lifehacker.com/never-use-baking-soda-to-clean-these-household-surfaces-1849629056)
+> 原文：<https://lifehacker.com/never-use-baking-soda-to-clean-these-household-surfaces-1849629056>
 
 当谈到家务时，很少有产品像小苏打一样方便和通用。从烹饪、清洁到除臭，它能为如此便宜的东西做这么多事。
 

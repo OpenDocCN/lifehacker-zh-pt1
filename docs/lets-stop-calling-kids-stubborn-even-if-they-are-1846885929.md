@@ -1,8 +1,8 @@
 # 让我们停止称孩子为“顽固”，即使他们是
 
-> 原文:[https://life hacker . com/let-stop-calling-kids-needle-even-if-they-be-they-1846885929](https://lifehacker.com/lets-stop-calling-kids-stubborn-even-if-they-are-1846885929)
+> 原文：<https://lifehacker.com/lets-stop-calling-kids-stubborn-even-if-they-are-1846885929>
 
-意志坚强的孩子很难抚养。他们甚至可以把最基本和最常规的情况变成一场意志之战。他们不仅仅希望T1是正确的；他们*知道*他们是对的。他们无法忍受总是被告知该做什么，所以他们会处处违抗你，你要求他们服从得越多，他们就越顽固。诚然，他们很固执，但我们不应该这样称呼他们。
+意志坚强的孩子很难抚养。他们甚至可以把最基本和最常规的情况变成一场意志之战。他们不仅仅希望 T1 是正确的；他们*知道*他们是对的。他们无法忍受总是被告知该做什么，所以他们会处处违抗你，你要求他们服从得越多，他们就越顽固。诚然，他们很固执，但我们不应该这样称呼他们。
 
 Watch
 

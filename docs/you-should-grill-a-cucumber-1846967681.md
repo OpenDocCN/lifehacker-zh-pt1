@@ -1,6 +1,6 @@
 # 你应该烤一根黄瓜
 
-> 原文:[https://life hacker . com/you-should-grill-a cumber-1846967681](https://lifehacker.com/you-should-grill-a-cucumber-1846967681)
+> 原文：<https://lifehacker.com/you-should-grill-a-cucumber-1846967681>
 
 我们倾向于认为黄瓜又凉又脆，最好捣碎放在沙拉里，或者用盐水腌制。但是煮熟的黄瓜也有美，尤其是烤黄瓜。
 

@@ -1,6 +1,6 @@
 # 买旧轮胎是个好主意吗？
 
-> 原文:[https://life hacker . com/is-it-even-it-a-even-a-good-idea-buy-used-tires-1848564353](https://lifehacker.com/is-it-ever-a-good-idea-to-buy-used-tires-1848564353)
+> 原文：<https://lifehacker.com/is-it-ever-a-good-idea-to-buy-used-tires-1848564353>
 
 任何曾经不得不面对更换汽车轮胎(或者，更糟糕的是，所有轮胎)带来的价格冲击的人可能会想，他们是否可以选择而不是的二手轮胎。嗯，你*可以*——但是你可能不应该。正如 [*消费者报告*](https://www.consumerreports.org/cro/news/2011/04/buying-used-tires-can-save-you-money-but-are-they-too-risky/index.htm) 所说:“我们说，‘不，不。’不要买二手轮胎:你不知道它们去过哪里，也不知道它们是如何被使用的。”
 
@@ -12,7 +12,7 @@ Watch
 
 ### **优点**
 
-*   它们更安全:根据美国汽车协会的研究 ，在潮湿的条件下以相对磨损的轮胎在高速公路上行驶可以“增加惊人的43%的平均停车距离，或者额外增加87英尺。”
+*   它们更安全:根据美国汽车协会的研究 ，在潮湿的条件下以相对磨损的轮胎在高速公路上行驶可以“增加惊人的 43%的平均停车距离，或者额外增加 87 英尺。”
 *   它们会持续更长时间。
 *   你很清楚你会得到什么。
 *   通常更容易找到你需要的轮胎。
@@ -21,13 +21,13 @@ Watch
 
 ### **缺点**
 
-*   他们*昂贵*:由于供应链问题，通货膨胀(明白吗？因为它们是轮胎？)、劳工动荡和原材料成本，轮胎价格在2021年全年上涨，预计 [将在2022年](https://www.ccjdigital.com/maintenance/article/15288132/tire-price-woes-may-continue-throughout-2022) 继续上涨。
+*   他们*昂贵*:由于供应链问题，通货膨胀(明白吗？因为它们是轮胎？)、劳工动荡和原材料成本，轮胎价格在 2021 年全年上涨，预计 [将在 2022 年](https://www.ccjdigital.com/maintenance/article/15288132/tire-price-woes-may-continue-throughout-2022) 继续上涨。
 
 ## **废旧轮胎的利与弊**
 
 ### **优点**
 
-*   它们要便宜得多——最多便宜50%。T3】
+*   它们要便宜得多——最多便宜 50%。T3】
 *   环境问题: [废橡胶是一个很大的环境问题，](https://homeguides.sfgate.com/environmental-effects-rubber-mulch-47748.html) 但我想你会回收你的旧轮胎，而不是把它们扔在路边。尽管如此，仍有一种观点认为，驾驶每一个轮胎都是安全的*对环境来说是最好的选择。*
 
 ### **缺点**
@@ -47,26 +47,26 @@ Watch
 
 ### **检查胎面深度**
 
-看旧轮胎时，胎面有多深是你首先要考虑的。胎面深度以1/32英寸为单位测量，美国 S. 的新轮胎一般在10/32英寸或11/32英寸之间。虽然你*可以用硬币* [检查胎面花纹深度](https://www.bridgestonetire.com/learn/maintenance/how-to-check-your-tire-tread-penny-test/) ，但一个 [轮胎胎面花纹深度指示器](https://www.walmart.com/ip/Slime-Tread-Depth-Tire-Gauge-1-32-To-1-20177/146670621?wmlspartner=wlpa&selectedSellerId=0&wl13=5686&adid=22222222277146670621_117755028669_12420145346&wmlspartner=wmtlabs&wl0=&wl1=g&wl2=c&wl3=501107745824&wl4=pla-293946777986&wl5=9031194&wl6=&wl7=&wl8=&wl9=pla&wl10=8175035&wl11=local&wl12=146670621&wl13=5686&veh=sem_LIA&gclid=Cj0KCQiApL2QBhC8ARIsAGMm-KFRfIMdEXYaoIgjahR2so_0Ir-hx-1mlFMMC3Fi1txEvcg9SkJaAiEaAuTzEALw_wcB&gclsrc=aw.ds) 花费不到4美元，并且会给你一个精确的测量。对于如何低是太低的概念，经销商认为低于4/32nds的任何东西都太低，不能在没有换上新轮胎的情况下交易车辆。低于这个数字，事情就变得危险了。
+看旧轮胎时，胎面有多深是你首先要考虑的。胎面深度以 1/32 英寸为单位测量，美国 S. 的新轮胎一般在 10/32 英寸或 11/32 英寸之间。虽然你*可以用硬币* [检查胎面花纹深度](https://www.bridgestonetire.com/learn/maintenance/how-to-check-your-tire-tread-penny-test/) ，但一个 [轮胎胎面花纹深度指示器](https://www.walmart.com/ip/Slime-Tread-Depth-Tire-Gauge-1-32-To-1-20177/146670621?wmlspartner=wlpa&selectedSellerId=0&wl13=5686&adid=22222222277146670621_117755028669_12420145346&wmlspartner=wmtlabs&wl0=&wl1=g&wl2=c&wl3=501107745824&wl4=pla-293946777986&wl5=9031194&wl6=&wl7=&wl8=&wl9=pla&wl10=8175035&wl11=local&wl12=146670621&wl13=5686&veh=sem_LIA&gclid=Cj0KCQiApL2QBhC8ARIsAGMm-KFRfIMdEXYaoIgjahR2so_0Ir-hx-1mlFMMC3Fi1txEvcg9SkJaAiEaAuTzEALw_wcB&gclsrc=aw.ds) 花费不到 4 美元，并且会给你一个精确的测量。对于如何低是太低的概念，经销商认为低于 4/32nds 的任何东西都太低，不能在没有换上新轮胎的情况下交易车辆。低于这个数字，事情就变得危险了。
 
 ### **检查轮胎的年龄**
 
 即使胎面很深，买旧轮胎也不是个好主意。橡胶会随着时间变干变弱，即使你几乎不开车。虽然轮胎没有明确的寿命，但克莱斯勒、福特通用汽车和欧洲汽车制造商 [将轮胎的保质期定为六年](https://www.tirerack.com/tires/tiretech/techpage.jsp?techid=138) 。
 
-不要因为轮胎的年龄就相信卖家的话。轮胎侧壁上有识别号码。它们以“运输部”的“点”开头，以四位数结尾。前两个是星期，第二个是年份。所以一个标有DOT U2LL LMLR 1217的轮胎是在2017年第12周生产的。(这里是什么 [其余的意思是](https://www.garberbuick.com/blog/service/breaking-down-the-numbers-on-your-tires/) ，如果你好奇的话。)
+不要因为轮胎的年龄就相信卖家的话。轮胎侧壁上有识别号码。它们以“运输部”的“点”开头，以四位数结尾。前两个是星期，第二个是年份。所以一个标有 DOT U2LL LMLR 1217 的轮胎是在 2017 年第 12 周生产的。(这里是什么 [其余的意思是](https://www.garberbuick.com/blog/service/breaking-down-the-numbers-on-your-tires/) ，如果你好奇的话。)
 
 ### **伤害**
 
-彻底检查一下轮胎。检查接缝是否裂开。检查是否有任何修补或修理的迹象。检查裂缝。检查侧壁是否有气泡。检查是否有任何丁丁声、缺失块和扁平点。检查不均匀磨损:如果上一个司机的轮胎定位不好，或者充气过度/不足，不要买。 [这段YouTube视频](https://www.youtube.com/watch?v=Xq2U1J4We6w) 提供了一个额外的深入观察检查轮胎的有用视觉效果，这样你就知道要找什么了。但是要明白:你可能根本看不到轮胎缺陷。
+彻底检查一下轮胎。检查接缝是否裂开。检查是否有任何修补或修理的迹象。检查裂缝。检查侧壁是否有气泡。检查是否有任何丁丁声、缺失块和扁平点。检查不均匀磨损:如果上一个司机的轮胎定位不好，或者充气过度/不足，不要买。 [这段 YouTube 视频](https://www.youtube.com/watch?v=Xq2U1J4We6w) 提供了一个额外的深入观察检查轮胎的有用视觉效果，这样你就知道要找什么了。但是要明白:你可能根本看不到轮胎缺陷。
 
 ### **价格**
 
 在你买旧轮胎之前，确保你检查了新轮胎的价格，看看节省的钱是否值得。
 
-### **检查UTQG额定值**
+### **检查 UTQG 额定值**
 
 如果你要买任何轮胎，不管是新的还是旧的，对交通部的轮胎质量分级系统 有一个工作理解是个好主意。轮胎制造商自己报告了这些数据，所以它们并不完美，但很多因素决定了轮胎有多好。
 
 ## 一次总是*买旧轮胎是个好主意*
 
-*如果你租了一辆车，你通常需要归还轮胎胎面4/32或以上。如果你的轮胎低于这个水平或者有其他损坏，在你的租约到期前换上旧轮胎，而不是新的——经销商会收取*吨*的费用在事后更换轮胎。只要确保使用的轮胎与原始设备的尺寸和规格相同，并检查您的租赁是否有任何其他细节或限制— [有些租赁需要特定的轮胎品牌，其他则不需要](https://www.americastire.com/blog/replacing-tires-on-a-leased-car?storeCode=1044) 。*
+*如果你租了一辆车，你通常需要归还轮胎胎面 4/32 或以上。如果你的轮胎低于这个水平或者有其他损坏，在你的租约到期前换上旧轮胎，而不是新的——经销商会收取*吨*的费用在事后更换轮胎。只要确保使用的轮胎与原始设备的尺寸和规格相同，并检查您的租赁是否有任何其他细节或限制— [有些租赁需要特定的轮胎品牌，其他则不需要](https://www.americastire.com/blog/replacing-tires-on-a-leased-car?storeCode=1044) 。*

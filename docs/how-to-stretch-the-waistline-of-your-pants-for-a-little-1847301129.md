@@ -1,6 +1,6 @@
 # 如何拉伸你裤子的腰围以获得额外的空间
 
-> 原文:[https://life hacker . com/how-to-stretch the-your ' s pants-for-little 1847301129](https://lifehacker.com/how-to-stretch-the-waistline-of-your-pants-for-a-little-1847301129)
+> 原文：<https://lifehacker.com/how-to-stretch-the-waistline-of-your-pants-for-a-little-1847301129>
 
 在我们分享了 [如何让你的衣服](https://lifehacker.com/you-can-unshrink-your-shrunken-clothes-1847277061) 不缩水之后，有人问我们有没有可能搭配裤子——so，自然，我们去找出来。调整你裤子的腰围特别有帮助，如果你像我一样，腰围往往介于大多数工厂标准尺寸之间。当然，你可以和一个裁缝一起去定做裤子或者把你的商店- 买的裤子放宽一点，但是如果你只是需要多一点空间，你可以试着在家里把它们拉长多一点呼吸空间。
 
@@ -14,7 +14,7 @@ Watch
 
 ## 如何拉伸你的休闲裤的腰围
 
-休闲裤与弹性腰带有点不同，因为布料可能有T2弹性，但远不如运动裤或紧身裤有弹性。它们会变化很大，但是你仍然可以用熨斗来放松腰部。
+休闲裤与弹性腰带有点不同，因为布料可能有 T2 弹性，但远不如运动裤或紧身裤有弹性。它们会变化很大，但是你仍然可以用熨斗来放松腰部。
 
 以同样的方式开始，在熨衣板上拉伸裤子。你也可以使用椅背、砧板或其他坚硬的耐热表面。用喷雾瓶或海绵弄湿裤子，让看起来湿湿的，然后接着接着[接着把熨斗放在蒸汽定型器上](https://www.wikihow.life/Stretch-the-Waistline-of-Your-Pants)然后沿着腰围熨烫。同时，拉裤子的腰部，一边拉一边拉。试穿裤子以检查尺寸，并根据需要重复。
 

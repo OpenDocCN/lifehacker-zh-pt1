@@ -1,6 +1,6 @@
 # 得罪人后该说什么(不该说什么)
 
-> 原文:[https://life hacker . com/1849171000](https://lifehacker.com/what-to-say-after-you-offend-someone-and-what-not-to-1849171000)
+> 原文：<https://lifehacker.com/what-to-say-after-you-offend-someone-and-what-not-to-1849171000>
 
 即使你永远有最好的意图，你也会在生命中的某个时刻严重冒犯别人。不管你有多有教养，多有觉悟，多温柔，这基本上是人类不可避免的，它发生在我们所有人身上。你是否有意冒犯他人，或者你是否认为对方应该被某事冒犯，这些都无关紧要；重要的是回应。
 

@@ -1,6 +1,6 @@
 # 如何在换季前清洁室外地毯
 
-> 原文:[https://life hacker . com/how-to-clean-a-outdoor-rug-before-put-away for-1847744161](https://lifehacker.com/how-to-clean-an-outdoor-rug-before-putting-it-away-for-1847744161)
+> 原文：<https://lifehacker.com/how-to-clean-an-outdoor-rug-before-putting-it-away-for-1847744161>
 
 任何有幸住在有户外空间的地方的人——无论是紧凑的露台、宽敞的甲板还是小阳台——在整个疫情都有一个明显的优势:有一个不是在他们家里面的地方可以坐。甚至那些以前没有利用这些区域的人也开始购买户外家具，创造一些户外生活空间。
 

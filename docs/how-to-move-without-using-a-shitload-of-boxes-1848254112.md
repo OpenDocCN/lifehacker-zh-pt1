@@ -1,8 +1,8 @@
 # 如何不用一堆箱子就能移动
 
-> 原文:[https://life hacker . com/how-to-move-without-use-a shit load-of-box-1848254112](https://lifehacker.com/how-to-move-without-using-a-shitload-of-boxes-1848254112)
+> 原文：<https://lifehacker.com/how-to-move-without-using-a-shitload-of-boxes-1848254112>
 
-在每个人的一生中都会有这样一个时刻，我们必须问自己:我到底该如何把我积攒的这些垃圾从T2运到新家？无论你是要离开纽约市无电梯公寓第三层的一个9乘 7的卧室，还是一个带地下室的四居室郊区房子，有时候最大的挑战(除了决定扔掉哪些物品之外)是找到足够的存储空间来容纳和运输你所有的物品。
+在每个人的一生中都会有这样一个时刻，我们必须问自己:我到底该如何把我积攒的这些垃圾从 T2 运到新家？无论你是要离开纽约市无电梯公寓第三层的一个 9 乘 7 的卧室，还是一个带地下室的四居室郊区房子，有时候最大的挑战(除了决定扔掉哪些物品之外)是找到足够的存储空间来容纳和运输你所有的物品。
 
 Watch
 
@@ -14,7 +14,7 @@ Watch
 
 ## 使用垃圾箱(带轮子)
 
-另一个选择是使用32加仑的垃圾箱——带轮子，请注意，不要忘记轮子——更容易地将东西运送到楼下和长长的车道上。 [沃尔玛](https://www.walmart.com/ip/Hyper-Tough-32-Gal-Trash-Can-Black-TI0060-Wheeled/426259564?wmlspartner=wlpa&selectedSellerId=0&wl13=5476&&adid=22222222227000000000&wl0=&wl1=g&wl2=c&wl3=42423897272&wl4=pla-51320962143&wl5=9003944&wl6=&wl7=&wl8=&wl9=pla&wl10=8175035&wl11=local&wl12=426259564&veh=sem&gclid=Cj0KCQiAuP-OBhDqARIsAD4XHpf_I4xzdS1rYC1t0bNfMJLTPoc3nqqopcbhm268vPCOToGzZZsj-skaAqDNEALw_wcB&gclsrc=aw.ds) 以不到20美元的价格出售它们，而 [Reddit](https://www.reddit.com/r/lifehacks/comments/qhqx2x/moving_got_a_shit_ton_of_clothes_fuck_boxes/) 用户u/manicpixedreamsloot对这种方法深信不疑，因为他们已经用了三次了。“容易多了，尤其是有楼梯的时候。适合更多衣物，让您节省储物盒，存放更方形的物品...良好的...四四方方。”
+另一个选择是使用 32 加仑的垃圾箱——带轮子，请注意，不要忘记轮子——更容易地将东西运送到楼下和长长的车道上。 [沃尔玛](https://www.walmart.com/ip/Hyper-Tough-32-Gal-Trash-Can-Black-TI0060-Wheeled/426259564?wmlspartner=wlpa&selectedSellerId=0&wl13=5476&&adid=22222222227000000000&wl0=&wl1=g&wl2=c&wl3=42423897272&wl4=pla-51320962143&wl5=9003944&wl6=&wl7=&wl8=&wl9=pla&wl10=8175035&wl11=local&wl12=426259564&veh=sem&gclid=Cj0KCQiAuP-OBhDqARIsAD4XHpf_I4xzdS1rYC1t0bNfMJLTPoc3nqqopcbhm268vPCOToGzZZsj-skaAqDNEALw_wcB&gclsrc=aw.ds) 以不到 20 美元的价格出售它们，而 [Reddit](https://www.reddit.com/r/lifehacks/comments/qhqx2x/moving_got_a_shit_ton_of_clothes_fuck_boxes/) 用户 u/manicpixedreamsloot 对这种方法深信不疑，因为他们已经用了三次了。“容易多了，尤其是有楼梯的时候。适合更多衣物，让您节省储物盒，存放更方形的物品...良好的...四四方方。”
 
 ## 把盘子放进你的衣服里
 
@@ -34,7 +34,7 @@ Watch
 
 ## 充分利用晾衣篮
 
-不要睡在洗衣篮上。凭借其深度和内置把手，它们是许多小件物品的绝佳载体。在底部垫上一条毛巾，再用必备的缓冲T—物品间的衬衫，它就可以作为一个完美的碗碟盒了。收藏蜡烛、书籍、棋盘游戏、相框，或者音乐和DVD，如果你是老人- 学校。为了获得额外的保护，在顶部贴上一些气泡包装或者在顶部塞一条毛巾,这样物体就不会在骑行过程中弹出。
+不要睡在洗衣篮上。凭借其深度和内置把手，它们是许多小件物品的绝佳载体。在底部垫上一条毛巾，再用必备的缓冲 T—物品间的衬衫，它就可以作为一个完美的碗碟盒了。收藏蜡烛、书籍、棋盘游戏、相框，或者音乐和 DVD，如果你是老人- 学校。为了获得额外的保护，在顶部贴上一些气泡包装或者在顶部塞一条毛巾,这样物体就不会在骑行过程中弹出。
 
 ## 使用食物储存容器
 
@@ -42,4 +42,4 @@ Watch
 
 ## 圣诞老人方法
 
-对于真正时间紧迫的人来说，总有一种方法可以把你的衣服扔到你的床上，然后把床单的四角绑起来，做成一个巨大的袋子，一个12月24日的圣诞礼物。当你搬家时，记得充分利用你所有的毯子、被子、睡袋、毛巾、枕头和羽绒服。不要让所有的柔软白白浪费掉！用任何和所有的东西来包装你的易碎物品，垫好你的容器，迎接前方颠簸的旅程。
+对于真正时间紧迫的人来说，总有一种方法可以把你的衣服扔到你的床上，然后把床单的四角绑起来，做成一个巨大的袋子，一个 12 月 24 日的圣诞礼物。当你搬家时，记得充分利用你所有的毯子、被子、睡袋、毛巾、枕头和羽绒服。不要让所有的柔软白白浪费掉！用任何和所有的东西来包装你的易碎物品，垫好你的容器，迎接前方颠簸的旅程。

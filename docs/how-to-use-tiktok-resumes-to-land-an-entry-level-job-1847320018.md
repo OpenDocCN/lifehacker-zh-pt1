@@ -1,16 +1,16 @@
 # 如何利用“抖音简历”找到一份初级工作
 
-> 原文:[https://life hacker . com/how-to-use-tiktok-resumes-to-land-an-entry-level-job-1847320018](https://lifehacker.com/how-to-use-tiktok-resumes-to-land-an-entry-level-job-1847320018)
+> 原文：<https://lifehacker.com/how-to-use-tiktok-resumes-to-land-an-entry-level-job-1847320018>
 
-抖音想给你提供的不仅仅是简单的无脑娱乐——现在它还想通过邀请用户提交来自Chipotle或Target等参与公司的视频简历来 [帮你找工作](https://newsroom.tiktok.com/en-us/find-a-job-with-tiktok-resumes) 。这个名为“抖音简历”的试点项目主要面向那些在大学毕业后寻找初级职位的Z世代求职者。以下是你需要知道的。
+抖音想给你提供的不仅仅是简单的无脑娱乐——现在它还想通过邀请用户提交来自 Chipotle 或 Target 等参与公司的视频简历来 [帮你找工作](https://newsroom.tiktok.com/en-us/find-a-job-with-tiktok-resumes) 。这个名为“抖音简历”的试点项目主要面向那些在大学毕业后寻找初级职位的 Z 世代求职者。以下是你需要知道的。
 
 Watch
 
 ## **什么是抖音简历？**
 
-避开熟悉的求职信和简历，抖音鼓励用户通过在公众#TikTokResumes频道上发布个人随笔视频来突出他们的技能和工作经验。您也可以直接提交您的求职视频；一个新的工作列表页面有NBA、Shopify、Forever 21、NASCAR和WWE的空缺职位(这些职位的提交表单也允许您提供LinkedIn URL)。
+避开熟悉的求职信和简历，抖音鼓励用户通过在公众#TikTokResumes 频道上发布个人随笔视频来突出他们的技能和工作经验。您也可以直接提交您的求职视频；一个新的工作列表页面有 NBA、Shopify、Forever 21、NASCAR 和 WWE 的空缺职位(这些职位的提交表单也允许您提供 LinkedIn URL)。
 
-然后雇主会查看视频，直接安排与申请人的面试。目前，该试点计划仅针对美国的职位空缺，截止日期为7月31日。目前列出的工作大多是零售连锁店的入门级职位，尽管也有一些工作适合拥有强大内容创作和社交媒体技能的申请人。
+然后雇主会查看视频，直接安排与申请人的面试。目前，该试点计划仅针对美国的职位空缺，截止日期为 7 月 31 日。目前列出的工作大多是零售连锁店的入门级职位，尽管也有一些工作适合拥有强大内容创作和社交媒体技能的申请人。
 
 ## **什么是视频简历？**
 

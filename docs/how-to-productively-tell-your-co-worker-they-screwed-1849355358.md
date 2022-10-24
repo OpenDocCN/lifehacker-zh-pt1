@@ -1,6 +1,6 @@
 # 如何(有效地)告诉你的同事他们搞砸了
 
-> 原文:[https://life hacker . com/how-to-productive-tell-your-co-worker-they-screw-1849355358](https://lifehacker.com/how-to-productively-tell-your-co-worker-they-screwed-1849355358)
+> 原文：<https://lifehacker.com/how-to-productively-tell-your-co-worker-they-screwed-1849355358>
 
 你肯定经历过称赞三明治的两面——它是 [被高估的想法](https://lifehacker.com/stop-giving-shit-sandwich-feedback-and-what-to-do-inst-1848671782) 到 [给予更好的反馈](https://lifehacker.com/give-effective-feedback-by-focusing-on-the-positive-1834166937) ，你应该在前后夹入正面的核心批评。寻找赞美是很容易的(即使你需要到处美化事实)。当你纠结于三明治的肉时，那些需要改进的地方呢？
 
@@ -16,7 +16,7 @@ Watch
 
 ## 使用细节使你的反馈更有效
 
-有效的反馈需要足够详细，以便接受者向前推进和改进。*“不要再做____了，*”算不上是行动项。这里有一个心理清单，你可以用它来增加你的反馈的特异性。此外，触及所有这些要点将使你的批评尽可能客观，这将有助于所有相关人员避免感到尴尬或羞愧。
+有效的反馈需要足够详细，以便接受者向前推进和改进。*“不要再做 ____ 了，*”算不上是行动项。这里有一个心理清单，你可以用它来增加你的反馈的特异性。此外，触及所有这些要点将使你的批评尽可能客观，这将有助于所有相关人员避免感到尴尬或羞愧。
 
 **规模。**向你的同事传达问题的严重性。说清楚这是小点还是大点。这将有助于表明整个对话的严肃性。
 

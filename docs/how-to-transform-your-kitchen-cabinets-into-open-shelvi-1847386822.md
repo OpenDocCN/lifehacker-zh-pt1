@@ -1,6 +1,6 @@
 # 如何将你的厨柜改造成开放式搁板
 
-> 原文:[https://life hacker . com/how-to-transform-your ' s kitchen-cabinets-open-shelvi-1847386822](https://lifehacker.com/how-to-transform-your-kitchen-cabinets-into-open-shelvi-1847386822)
+> 原文：<https://lifehacker.com/how-to-transform-your-kitchen-cabinets-into-open-shelvi-1847386822>
 
 如果你喜欢开放式厨房搁架的外观，但不喜欢拆除现有橱柜的想法(或成本)，你可以自己将它们改造成搁架。然而，这比简单地拆除柜门要复杂一些——我们将带你了解如何将那些过时的橱柜改造成开放式搁板。
 
@@ -16,4 +16,4 @@ Watch
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-QnFMFksu4c8&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-QnFMFksu4c8&start=0) 
 
-接下来，Better Homes & Gardens建议用可涂抹的填缝剂将橱柜的任何内部接缝填缝起来。最后，用珐琅漆或专门为 橱柜定制的 [漆将搁板内外涂成你选择的颜色。](https://www.homedepot.com/b/Paint-Interior-Paint-Cabinet-Paint/N-5yc1vZ1z18g8c?mtc=SEM-B-F_D24-G-D24-24_15_INTERIOR_PAINT-NA-NA-NA-ETA_RSA-NA-NA-FY21_Interior_Paint_Expansion_Exact&cm_mmc=SEM-B-F_D24-G-D24-24_15_INTERIOR_PAINT-NA-NA-NA-ETA_RSA-NA-NA-FY21_Interior_Paint_Expansion_Exact-71700000084417776-58700007163795885-43700064354688921&gclid=CjwKCAjwo4mIBhBsEiwAKgzXOMNw34VTXnInAvWiX2MbPA8YcRNUMahVQg68TMeQkedFcXSZYeCUnhoC_GAQAvD_BwE&gclsrc=aw.ds)
+接下来，Better Homes & Gardens 建议用可涂抹的填缝剂将橱柜的任何内部接缝填缝起来。最后，用珐琅漆或专门为 橱柜定制的 [漆将搁板内外涂成你选择的颜色。](https://www.homedepot.com/b/Paint-Interior-Paint-Cabinet-Paint/N-5yc1vZ1z18g8c?mtc=SEM-B-F_D24-G-D24-24_15_INTERIOR_PAINT-NA-NA-NA-ETA_RSA-NA-NA-FY21_Interior_Paint_Expansion_Exact&cm_mmc=SEM-B-F_D24-G-D24-24_15_INTERIOR_PAINT-NA-NA-NA-ETA_RSA-NA-NA-FY21_Interior_Paint_Expansion_Exact-71700000084417776-58700007163795885-43700064354688921&gclid=CjwKCAjwo4mIBhBsEiwAKgzXOMNw34VTXnInAvWiX2MbPA8YcRNUMahVQg68TMeQkedFcXSZYeCUnhoC_GAQAvD_BwE&gclsrc=aw.ds)

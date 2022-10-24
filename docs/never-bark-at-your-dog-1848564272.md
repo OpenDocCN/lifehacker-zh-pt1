@@ -1,6 +1,6 @@
 # 永远不要对你的狗吠叫
 
-> 原文:[https://lifehacker.com/never-bark-at-your-dog-1848564272](https://lifehacker.com/never-bark-at-your-dog-1848564272)
+> 原文：<https://lifehacker.com/never-bark-at-your-dog-1848564272>
 
 万一你眨眼错过了抖音[# barkatyourdogchallenge](https://www.tiktok.com/tag/barkatyourdogchallenge?is_copy_url=1&is_from_webapp=v1)，它听起来就像是:一个人对着他们的狗吠叫。更具体地说，挑战的目标是拍摄一段你的狗对你对它们吠叫的反应的视频。
 
@@ -20,14 +20,14 @@ Watch
 *   露出牙齿
 *   想要逃走
 
-其他反应稍微明显一些，让你知道你的狗*绝对*不喜欢你对着它们的脸吠叫(或者你做的任何其他惊吓它们的事情)。AKC表示，这些可能包括:
+其他反应稍微明显一些，让你知道你的狗*绝对*不喜欢你对着它们的脸吠叫(或者你做的任何其他惊吓它们的事情)。AKC 表示，这些可能包括:
 
 *   疯狂的
 *   刺
 *   强烈地
 *   辛辣的
 
-当然，所有的狗都是不同的，但为了安全起见，AKC建议避免这种挑战。
+当然，所有的狗都是不同的，但为了安全起见，AKC 建议避免这种挑战。
 
 ## 为什么对着狗叫会让它们紧张
 

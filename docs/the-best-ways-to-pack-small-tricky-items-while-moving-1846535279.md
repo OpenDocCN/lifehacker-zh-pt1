@@ -1,6 +1,6 @@
 # 搬家时打包小而棘手物品的最佳方式
 
-> 原文:[https://life hacker . com/the-best-ways-to-pack-small-tricky-items-while-moving-1846535279](https://lifehacker.com/the-best-ways-to-pack-small-tricky-items-while-moving-1846535279)
+> 原文：<https://lifehacker.com/the-best-ways-to-pack-small-tricky-items-while-moving-1846535279>
 
 我们已经介绍了打包常规移动箱子 的 [最佳技巧，但是当你搬家时，你需要打包*所有的东西*——甚至是那些你很容易丢失的微小、烦人的物品。因此，这里是我们包装这些棘手的、不规则形状的杂烩的最佳方法。](https://lifehacker.com/the-best-way-to-pack-a-moving-box-1838011535)
 

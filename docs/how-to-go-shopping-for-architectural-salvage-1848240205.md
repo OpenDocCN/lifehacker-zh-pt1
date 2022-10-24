@@ -1,6 +1,6 @@
 # 如何购买建筑废料
 
-> 原文:[https://life hacker . com/how-to-go-shopping-for-architectural-salvage-1848240205](https://lifehacker.com/how-to-go-shopping-for-architectural-salvage-1848240205)
+> 原文：<https://lifehacker.com/how-to-go-shopping-for-architectural-salvage-1848240205>
 
 谈到家居设计和装饰，一切旧的都是新的。从图案和颜色，到家具和家居布置，许多当前的趋势根本不是当前的趋势。虽然在塔吉特百货很容易找到一盏新的装饰艺术风格的灯，或者在网上很容易找到一张上世纪中叶的现代沙发，但是老房子的某些部分已经不复存在了，比如某些类型的灯具、窗户、壁炉架和其他建筑细节。
 
@@ -22,7 +22,7 @@ Watch
 
 ### 带着现实的期望(和开放的心态)去
 
-如果这是你第一次购买建筑修复品，了解一下会有什么帮助。首先，这些商店的库存经常变化，所以你在那里看到一台20世纪50年代的冰箱并不意味着他们总是有库存。
+如果这是你第一次购买建筑修复品，了解一下会有什么帮助。首先，这些商店的库存经常变化，所以你在那里看到一台 20 世纪 50 年代的冰箱并不意味着他们总是有库存。
 
 虽然一些建筑回收店确实出售家具和电器，但主要的焦点往往是房屋或建筑物的零件和固定装置——想想壁炉架、橱柜五金件、门、整个窗户和/或框架、水槽和其他浴室固定装置、扶手、安装的灯具等。
 
@@ -42,20 +42,20 @@ Watch
 
 ### 如果你不确定某样东西是什么或者如何使用它，问问员工
 
-在很大程度上，在建筑修复店工作的人对他们的工作充满热情，并且非常乐意回答你的任何问题——包括“这是什么？”更好的是，除了告诉你一件作品的最初用途，他们还可能提供在你家使用它的非传统方式的建议(特别是在DIY项目中)。
+在很大程度上，在建筑修复店工作的人对他们的工作充满热情，并且非常乐意回答你的任何问题——包括“这是什么？”更好的是，除了告诉你一件作品的最初用途，他们还可能提供在你家使用它的非传统方式的建议(特别是在 DIY 项目中)。
 
 ### 看看谈判是否在谈判桌上
 
 有些建筑打捞店愿意和你谈价格；其他人不是。这是一条重要的信息，你应该在去结账前知道。
 
-你怎么知道一个地方是否可以讨价还价？在某些情况下，商店会在他们的网站上包含这些信息。如果没有，查看Yelp或其他评论到看看人们是否留下了关于某家商店是否愿意与顾客协商价格的评论。
+你怎么知道一个地方是否可以讨价还价？在某些情况下，商店会在他们的网站上包含这些信息。如果没有，查看 Yelp 或其他评论到看看人们是否留下了关于某家商店是否愿意与顾客协商价格的评论。
 
 如果其他方法都失败了，问问在那里工作的人，说一些类似“这些价格还有回旋的余地吗”或者“这些价格稳定吗？”答案可能是“不”，但至少你知道。
 
-### 在Instagram上关注一些店铺
+### 在 Instagram 上关注一些店铺
 
 无论你是建筑抢救的新手，还是长期的爱好者和顾客，看看全国各地不同的商店有什么样的库存物品会很有帮助(也很有趣)。这在一定程度上是因为他们的库存往往反映了当地的历史，包括该城市的全盛时期、主要产业以及该地区最常见的建筑材料类型。
 
 即使你不住在那个地区，或者有能力购买这个特殊的商品，它至少会在你的雷达上。此外，你还会得到如何使用当地可用的类似物品的想法(或者只是找出它们是什么)。
 
-你可能想关注的几个建筑抢救Instagram账户包括:[Rebuilders Xchange](https://www.instagram.com/rbxcle/?hl=en)(克里夫兰) [Olde Good Things](https://www.instagram.com/oldegoodthings/?hl=en) (位于纽约、洛杉矶和宾夕法尼亚州斯克兰顿) [ReHouse](https://www.instagram.com/rehousearchitecturalsalvage/?hl=en) (罗切斯特) [圣地亚哥建筑抢救](https://www.instagram.com/architecturalsalvagesd/)[哈德逊山谷房屋部分](https://www.instagram.com/hudsonvalleyhouseparts/?hl=en) (纽约纽堡)
+你可能想关注的几个建筑抢救 Instagram 账户包括:[Rebuilders Xchange](https://www.instagram.com/rbxcle/?hl=en)(克里夫兰) [Olde Good Things](https://www.instagram.com/oldegoodthings/?hl=en) (位于纽约、洛杉矶和宾夕法尼亚州斯克兰顿) [ReHouse](https://www.instagram.com/rehousearchitecturalsalvage/?hl=en) (罗切斯特) [圣地亚哥建筑抢救](https://www.instagram.com/architecturalsalvagesd/)[哈德逊山谷房屋部分](https://www.instagram.com/hudsonvalleyhouseparts/?hl=en) (纽约纽堡)

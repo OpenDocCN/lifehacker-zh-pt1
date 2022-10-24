@@ -1,38 +1,38 @@
 # 如何辨别你公司的骄傲运动是不是扯淡(以及如何应对)
 
-> 原文:[https://life hacker . com/how-to-tell-if-your-company ' s-pride-campaign-wash-1847026971](https://lifehacker.com/how-to-tell-if-your-companys-pride-campaign-is-bullshit-1847026971)
+> 原文：<https://lifehacker.com/how-to-tell-if-your-companys-pride-campaign-is-bullshit-1847026971>
 
-埋在纽约市骄傲游行网站 上 [合作伙伴的部分的下端，在致力于推进LGBTQ人群平等权利的社区组织之下，是一系列几乎没有积极行动主义历史的企业巨头。](https://www.nycpride.org/pride-partners/partners)
+埋在纽约市骄傲游行网站 上 [合作伙伴的部分的下端，在致力于推进 LGBTQ 人群平等权利的社区组织之下，是一系列几乎没有积极行动主义历史的企业巨头。](https://www.nycpride.org/pride-partners/partners)
 
 Watch
 
-它们都是在层级体系下组织起来的，银行和啤酒公司与其他上市公司团结一致地进行交易，以它们各自的“白金”、“黄金”、“白银”和“青铜”地位为特征。这是你可能期待的纳斯卡赛事或大学保龄球赛的赞助名单，但骄傲是植根于激进主义的传统；它的催化剂是1969年NYPD对纽约市 [同性恋社区的残酷和非法镇压，最终导致石墙暴动和随后几十年的行动主义，将同性恋权利推向主流。](https://www.history.com/topics/gay-rights/the-stonewall-riots)
+它们都是在层级体系下组织起来的，银行和啤酒公司与其他上市公司团结一致地进行交易，以它们各自的“白金”、“黄金”、“白银”和“青铜”地位为特征。这是你可能期待的纳斯卡赛事或大学保龄球赛的赞助名单，但骄傲是植根于激进主义的传统；它的催化剂是 1969 年 NYPD 对纽约市 [同性恋社区的残酷和非法镇压，最终导致石墙暴动和随后几十年的行动主义，将同性恋权利推向主流。](https://www.history.com/topics/gay-rights/the-stonewall-riots)
 
-你可能已经发现你的公司在同性恋婚姻后，很方便地把锁定在上以示骄傲，因为我合法，b 但是这样的公司团结往往会感觉到holollow，尤其是当一家公司的行动与它的言辞不符。
+你可能已经发现你的公司在同性恋婚姻后，很方便地把锁定在上以示骄傲，因为我合法，b 但是这样的公司团结往往会感觉到 holollow，尤其是当一家公司的行动与它的言辞不符。
 
 ## 如何知道一个公司的骄傲运动是不是扯淡
 
-一张彩虹主题的个人资料照片能带来的善意是有限的，尤其是如果一家 [公司传播支持的信息，但却向反LGBTQ的政客](https://popular.info/p/these-rainbow-flag-waiving-corporations) 捐款数百万。
+一张彩虹主题的个人资料照片能带来的善意是有限的，尤其是如果一家 [公司传播支持的信息，但却向反 LGBTQ 的政客](https://popular.info/p/these-rainbow-flag-waiving-corporations) 捐款数百万。
 
-例如，知道你的雇主可能会把多余的现金捐赠到哪里(如果你为一家足够有钱捐赠给政治活动的公司工作)，是一个很好的起点。你可以通过一些数据库来追踪这笔钱，比如联邦选举委员会的网站或 [Open Secrets](https://www.opensecrets.org/donor-lookup) ，看看你公司的首席执行官或董事会成员是否对反LGBTQ政治行动委员会或超级政治行动委员会特别友好。还有渐进式购物者，他们在很大程度上做着同样的事情，尽管他们考虑的是消费者。
+例如，知道你的雇主可能会把多余的现金捐赠到哪里(如果你为一家足够有钱捐赠给政治活动的公司工作)，是一个很好的起点。你可以通过一些数据库来追踪这笔钱，比如联邦选举委员会的网站或 [Open Secrets](https://www.opensecrets.org/donor-lookup) ，看看你公司的首席执行官或董事会成员是否对反 LGBTQ 政治行动委员会或超级政治行动委员会特别友好。还有渐进式购物者，他们在很大程度上做着同样的事情，尽管他们考虑的是消费者。
 
-还有一个问题是，一家公司在实际层面上为其LGBTQ员工做了什么。在6月份，当骄傲庆祝活动如火如荼地进行，大量的公司都在挥舞着彩虹旗帜时，企业信息传递很容易达到顶点，哪怕只是为了不让彼此超越。然而，更重要的是，当聚光灯在别处闪耀时，一家公司实际上为它的员工做了什么。许多 [特别富有的公司](https://www.glassdoor.com/blog/companies-lgbtq-equality/) 向LGBTQ事业捐款仅仅是为了积极的公共关系，但可能会放弃诸如跨性别医疗保健或涵盖精神健康的保险等。
+还有一个问题是，一家公司在实际层面上为其 LGBTQ 员工做了什么。在 6 月份，当骄傲庆祝活动如火如荼地进行，大量的公司都在挥舞着彩虹旗帜时，企业信息传递很容易达到顶点，哪怕只是为了不让彼此超越。然而，更重要的是，当聚光灯在别处闪耀时，一家公司实际上为它的员工做了什么。许多 [特别富有的公司](https://www.glassdoor.com/blog/companies-lgbtq-equality/) 向 LGBTQ 事业捐款仅仅是为了积极的公共关系，但可能会放弃诸如跨性别医疗保健或涵盖精神健康的保险等。
 
-正如一篇 [2018 Vox文章所传达的](http://In the abstract, yes, but taken in aggregate, this consumerist donation structure creates a context of so-called slacktivism, giving brands and consumers alike a low-effort way to support social and political causes.) ，当大公司从骄傲热情中获利时，这确实是一种盛行的懈怠主义的氛围:
+正如一篇 [2018 Vox 文章所传达的](http://In the abstract, yes, but taken in aggregate, this consumerist donation structure creates a context of so-called slacktivism, giving brands and consumers alike a low-effort way to support social and political causes.) ，当大公司从骄傲热情中获利时，这确实是一种盛行的懈怠主义的氛围:
 
-> 所以把钱捐给LGBTQ慈善机构是件好事，对吗？从理论上来说，是的，但总体来看，这种消费主义的捐赠结构创造了一种所谓的懈怠主义，让品牌和消费者以一种不费力的方式支持社会和政治事业。
+> 所以把钱捐给 LGBTQ 慈善机构是件好事，对吗？从理论上来说，是的，但总体来看，这种消费主义的捐赠结构创造了一种所谓的懈怠主义，让品牌和消费者以一种不费力的方式支持社会和政治事业。
 
-基本上，任何为了营销的便利而支持LGBTQ问题的公司都是值得警惕的。
+基本上，任何为了营销的便利而支持 LGBTQ 问题的公司都是值得警惕的。
 
 ## 如何对待你公司的执行支持
 
-许多公司都有针对LGBTQ员工的内部资源和小组，但闭门造车只能在更广泛的层面上影响这么多变化。教育他人，特别是那些非LGBTQ 的人，是建立一个更具包容性的工作场所的必要组成部分。
+许多公司都有针对 LGBTQ 员工的内部资源和小组，但闭门造车只能在更广泛的层面上影响这么多变化。教育他人，特别是那些非 LGBTQ 的人，是建立一个更具包容性的工作场所的必要组成部分。
 
 公开谈论非二元代词或 [的使用，规范“他们](https://lifehacker.com/it-s-time-to-embrace-the-singular-they-1846338037)的单数使用，可以更好地确保在包容的公共表象背后没有微侵略的氛围。更广泛地说，从书面的公司政策中消除性别化的语言，可以在很大程度上包容不符合性别的员工。
 
-经理和高层人员可以推动这一事业的另一种方式是让多元化和包容性成为员工评估流程的一部分。这使得它成为标准的一个正式部分，而不是一个在理论上听起来不错但无法实现的模糊想法。你也可以推动公司确保LGBTQ员工和他们的异性恋同事享有同样的福利。这意味着保证所有有孩子的人都能享受带薪育儿假。
+经理和高层人员可以推动这一事业的另一种方式是让多元化和包容性成为员工评估流程的一部分。这使得它成为标准的一个正式部分，而不是一个在理论上听起来不错但无法实现的模糊想法。你也可以推动公司确保 LGBTQ 员工和他们的异性恋同事享有同样的福利。这意味着保证所有有孩子的人都能享受带薪育儿假。
 
-从自上而下的角度来看，聘请一名专家对工人进行LGBTQ包容性的基础培训可能是值得的，最好是通过面对面的研讨会。
+从自上而下的角度来看，聘请一名专家对工人进行 LGBTQ 包容性的基础培训可能是值得的，最好是通过面对面的研讨会。
 
 利用集体力量的最有效的方法之一是 [将你的工作场所组织起来，](https://lifehacker.com/how-to-unionize-your-workplace-1845991328) 让工人们将一系列工作场所标准正式化，然后变成法律条文。当然，你的工会运动的整体成功取决于你的雇主的合作，但是前面提到的好处(和许多其他好处)可以通过这个过程来。
 

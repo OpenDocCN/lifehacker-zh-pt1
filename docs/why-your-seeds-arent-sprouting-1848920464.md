@@ -1,6 +1,6 @@
 # 为什么你的种子没有发芽
 
-> 原文:[https://life hacker . com/why-your-seeds-arent-spreading-1848920464](https://lifehacker.com/why-your-seeds-arent-sprouting-1848920464)
+> 原文：<https://lifehacker.com/why-your-seeds-arent-sprouting-1848920464>
 
 虽然我们的小学科学课可能已经教会了我们关于种子和如何种植的基本知识，但如果你成年后开始从事园艺，你可能会发现还有很多东西需要学习。不幸的是，种植一株植物不一定像在泥土中放几粒种子，加水和阳光那么简单。
 

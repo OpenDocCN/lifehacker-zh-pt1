@@ -1,12 +1,12 @@
 # 将这两件烦人的厨房杂务合二为一
 
-> 原文:[https://life hacker . com/combine-this-two-naughter-kitchen-dodges-into-one-1849631428](https://lifehacker.com/combine-these-two-annoying-kitchen-chores-into-one-1849631428)
+> 原文：<https://lifehacker.com/combine-these-two-annoying-kitchen-chores-into-one-1849631428>
 
-我最不喜欢的两件厨房杂务是清理冰箱和倒垃圾。两者都有点粗糙，需要弯腰，如果不做后者，很难做前者。我也倾向于忽视这两者，直到它们变得不可忽视，这使得这些任务变得更加复杂。但是Kitchn有一个伟大的计划，让这两个杂务变得简单一点，不那么恶心一点，更有效率一点。
+我最不喜欢的两件厨房杂务是清理冰箱和倒垃圾。两者都有点粗糙，需要弯腰，如果不做后者，很难做前者。我也倾向于忽视这两者，直到它们变得不可忽视，这使得这些任务变得更加复杂。但是 Kitchn 有一个伟大的计划，让这两个杂务变得简单一点，不那么恶心一点，更有效率一点。
 
 Watch
 
-在 [这本厨房清洁小贴士](https://www.thekitchn.com/8-lazy-but-foolproof-ways-to-clean-your-kitchen-this-fall-23436827) 中——其中有八条你应该阅读的好建议——厨房的Shifrah Combiths建议每次你倒垃圾的时候快速清理一下冰箱:
+在 [这本厨房清洁小贴士](https://www.thekitchn.com/8-lazy-but-foolproof-ways-to-clean-your-kitchen-this-fall-23436827) 中——其中有八条你应该阅读的好建议——厨房的 Shifrah Combiths 建议每次你倒垃圾的时候快速清理一下冰箱:
 
 > 在绑好垃圾袋和倒垃圾之前，养成习惯检查冰箱里是否有过期的剩菜或可能变质的食物。这个简单的习惯让你的冰箱井井有条，而不必依赖耗时的大扫除(并提醒你还有什么需要消耗)。
 

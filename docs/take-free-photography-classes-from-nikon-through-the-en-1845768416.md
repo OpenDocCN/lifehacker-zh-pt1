@@ -1,12 +1,12 @@
 # 年底前参加尼康的免费摄影课程
 
-> 原文:[https://life hacker . com/take-free-photography-classes-from-Nikon-through-the-en-1845768416](https://lifehacker.com/take-free-photography-classes-from-nikon-through-the-en-1845768416)
+> 原文：<https://lifehacker.com/take-free-photography-classes-from-nikon-through-the-en-1845768416>
 
 现在我们基本上都一直带着数码相机走来走去(感谢我们的手机)，我们可能已经养成了不假思索地拍照的习惯。这并不是一件坏事——拥有这个工具来捕捉意想不到的时刻，或者你需要的收据，但最终可能会丢失，这真的很方便。
 
 Watch
 
-但是相机——甚至是我们手机上的相机——有更多的功能。如果你一直在考虑参加摄影课程，现在你的机会来了: [尼康正在免费提供其所有受欢迎的在线课程](https://www.nikonevents.com/us/live/nikon-school-online/) 到2020年底。以下是访问它们的方法。
+但是相机——甚至是我们手机上的相机——有更多的功能。如果你一直在考虑参加摄影课程，现在你的机会来了: [尼康正在免费提供其所有受欢迎的在线课程](https://www.nikonevents.com/us/live/nikon-school-online/) 到 2020 年底。以下是访问它们的方法。
 
 <aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Take Free Photography Classes from Nikon Through the End of the Year](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-take-the-best-photos-with-your-iphone-1845243377)</aside>
 
@@ -20,4 +20,4 @@ Watch
 
 ### 如何访问这些课程
 
-为了参加这些课程中的一门， [访问尼康网站](https://www.nikonevents.com/us/live/nikon-school-online/) 上的这个页面，并浏览每个课程的简短介绍视频。当你找到一个你想拍的，点击预览视频下的“观看完整版”。然后你将被要求提供你的名字和姓氏，电子邮件和居住国家，以便获得整个班级的访问权。选择其中的一项或全部——只要确保在2020年12月31日优惠到期前完成即可。
+为了参加这些课程中的一门， [访问尼康网站](https://www.nikonevents.com/us/live/nikon-school-online/) 上的这个页面，并浏览每个课程的简短介绍视频。当你找到一个你想拍的，点击预览视频下的“观看完整版”。然后你将被要求提供你的名字和姓氏，电子邮件和居住国家，以便获得整个班级的访问权。选择其中的一项或全部——只要确保在 2020 年 12 月 31 日优惠到期前完成即可。

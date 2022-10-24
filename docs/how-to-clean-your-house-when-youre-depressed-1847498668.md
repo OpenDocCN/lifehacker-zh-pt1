@@ -1,6 +1,6 @@
 # 当你情绪低落时，如何打扫房间
 
-> 原文:[https://life hacker . com/how-to-clean-your-house-when-your-depressed-1847498668](https://lifehacker.com/how-to-clean-your-house-when-youre-depressed-1847498668)
+> 原文：<https://lifehacker.com/how-to-clean-your-house-when-youre-depressed-1847498668>
 
 抑郁症是一种几乎不可能起床的疾病，更不用说做生活所需的所有必要任务了，比如穿衣服、喂自己，打扫房间。不幸的是，忽视你身体需求的倾向常常会让你感觉更糟，导致你难以自拔的恶性循环。
 
@@ -22,7 +22,7 @@ Watch
 
 如果你有更多的精力来打扫卫生，戴维斯推荐了一种打扫策略，即在一个房间里打扫卫生，同时尽量减少你要做的决定，这样就不会分心或不知所措。
 
-正如Davis在她的Youtube视频“ [5件东西整理方法](https://www.youtube.com/watch?v=Pe9NBn67yxU) ”中解释的那样，“当她看着一个极其凌乱的房间时，她告诉自己“这个房间里只有五件东西。”这五样东西是垃圾、盘子、衣物、没有地方的东西和有地方需要去的东西。
+正如 Davis 在她的 Youtube 视频“ [5 件东西整理方法](https://www.youtube.com/watch?v=Pe9NBn67yxU) ”中解释的那样，“当她看着一个极其凌乱的房间时，她告诉自己“这个房间里只有五件东西。”这五样东西是垃圾、盘子、衣物、没有地方的东西和有地方需要去的东西。
 
 戴维斯的建议是，一次处理一件事，整个过程都呆在房间里，这样就不会分心，中途离开，忘记你在做什么，这肯定会在与抑郁症斗争时发生。
 
@@ -42,4 +42,4 @@ Watch
 
 ## 从哪里获得治疗抑郁症的帮助
 
-如果你正在经历心理健康危机，通过全国自杀预防热线，你可以通过拨打1-800-273-8255或通过他们的 [在线聊天](https://suicidepreventionlifeline.org/chat/) 找到训练有素的危机顾问。要到达 [危机短信专线](https://www.crisistextline.org/) ，发短信“家”到741-741，要拨打 [特雷弗项目的](https://www.thetrevorproject.org/) 热线，拨(866) 488-7386。更多热线，以及寻找心理医生，可以参考美国心理协会 的 [资源。你的医生也可以帮忙，所以也要联系他们。抑郁症是一种严重的疾病，但它是可以治疗的，尤其是在正确的医疗团队的帮助下。](https://www.apa.org/topics/crisis-hotlines)
+如果你正在经历心理健康危机，通过全国自杀预防热线，你可以通过拨打 1-800-273-8255 或通过他们的 [在线聊天](https://suicidepreventionlifeline.org/chat/) 找到训练有素的危机顾问。要到达 [危机短信专线](https://www.crisistextline.org/) ，发短信“家”到 741-741，要拨打 [特雷弗项目的](https://www.thetrevorproject.org/) 热线，拨(866) 488-7386。更多热线，以及寻找心理医生，可以参考美国心理协会 的 [资源。你的医生也可以帮忙，所以也要联系他们。抑郁症是一种严重的疾病，但它是可以治疗的，尤其是在正确的医疗团队的帮助下。](https://www.apa.org/topics/crisis-hotlines)

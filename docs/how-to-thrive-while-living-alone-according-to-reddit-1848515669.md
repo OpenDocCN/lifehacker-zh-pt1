@@ -1,30 +1,30 @@
-# 据Reddit报道，如何在独居时茁壮成长
+# 据 Reddit 报道，如何在独居时茁壮成长
 
-> 原文:[https://life hacker . com/how-to-thrive-while-living-from-Reddit-1848515669](https://lifehacker.com/how-to-thrive-while-living-alone-according-to-reddit-1848515669)
+> 原文：<https://lifehacker.com/how-to-thrive-while-living-alone-according-to-reddit-1848515669>
 
 裸体走来走去。淋浴时高唱表演歌曲。享受宁静。一个人生活有很多好处。与此同时，有很多担忧，从处理账单，到处理紧急情况，到普遍感到孤独。
 
 Watch
 
-独居意味着在更大的独立性和更大的责任之间权衡取舍。最近的Reddit帖子 进入了这个棘手的领域，提供了一大堆在自己的地方过上最好生活的“专业建议”。无论是你第一次一个人生活，还是疫情引发的一些习惯让你重新审视你的生活方式，这里是Reddit的好人们必须提供的最佳建议。
+独居意味着在更大的独立性和更大的责任之间权衡取舍。最近的 Reddit 帖子 进入了这个棘手的领域，提供了一大堆在自己的地方过上最好生活的“专业建议”。无论是你第一次一个人生活，还是疫情引发的一些习惯让你重新审视你的生活方式，这里是 Reddit 的好人们必须提供的最佳建议。
 
 ## **掌控您的账单**
 
-你没有室友、父母或配偶来让你承担责任。pro-tips帖子 上的大量 [评论证明了自动支付的必要性。话说回来，](https://www.reddit.com/r/AskReddit/comments/shr2rx/what_are_your_living_alone_pro_tips/) [有一些账单你可能不想自动转账](https://lifehacker.com/7-bills-you-shouldn-t-set-to-autopay-and-why-you-shoul-1847391209) 。你也可以设置手动提醒，像 [u/mbnc](https://www.reddit.com/user/mbnc/) 建议:
+你没有室友、父母或配偶来让你承担责任。pro-tips 帖子 上的大量 [评论证明了自动支付的必要性。话说回来，](https://www.reddit.com/r/AskReddit/comments/shr2rx/what_are_your_living_alone_pro_tips/) [有一些账单你可能不想自动转账](https://lifehacker.com/7-bills-you-shouldn-t-set-to-autopay-and-why-you-shoul-1847391209) 。你也可以设置手动提醒，像 [u/mbnc](https://www.reddit.com/user/mbnc/) 建议:
 
-> 在你的手机上使用一个待办事项应用程序，为你可以有规律地预测的所有事情设置提醒。我在每月的15号和最后一天领工资，所以在发薪日我会在手机里提醒我需要从这些支票中支付什么。如果你通过邮件收到账单，在柜台、茶几或你每天路过的地方找个地方放账单，别无他物。
+> 在你的手机上使用一个待办事项应用程序，为你可以有规律地预测的所有事情设置提醒。我在每月的 15 号和最后一天领工资，所以在发薪日我会在手机里提醒我需要从这些支票中支付什么。如果你通过邮件收到账单，在柜台、茶几或你每天路过的地方找个地方放账单，别无他物。
 
-另一个来自[u/orions _ shiney _ belt](https://www.reddit.com/user/orions_shiney_belt/)的提示:“找出整个月账单的最佳分配。前半个月是房租/抵押贷款、保险，后半个月是水电费。只要你信誉良好，大多数公司都会愿意推迟账单到期日，有时会推迟10天。
+另一个来自[u/orions _ shiney _ belt](https://www.reddit.com/user/orions_shiney_belt/)的提示:“找出整个月账单的最佳分配。前半个月是房租/抵押贷款、保险，后半个月是水电费。只要你信誉良好，大多数公司都会愿意推迟账单到期日，有时会推迟 10 天。
 
 诀窍是找到一个适合你的系统，因为独居意味着独自承担房租、水电费和所有其他生活费用。
 
 ## **每天打扫一点点**
 
-试着每天花几分钟保持物品整洁。正如一位Redditor 所说:“你没有*干净的房子*，你有*保持*干净的房子。”这是帖子中最受欢迎的观点之一:
+试着每天花几分钟保持物品整洁。正如一位 Redditor 所说:“你没有*干净的房子*，你有*保持*干净的房子。”这是帖子中最受欢迎的观点之一:
 
 *   “储物空间超级重要。如果东西没有自己的专用储物空间，通常会变得杂乱无章。”([u/dodge guidave](https://www.reddit.com/user/DodgeGuyDave/))
-*   “我喜欢在等待的时候做些小事情。煮面的水？扫地，倒垃圾。在烤箱里烤20分钟？这点时间足够打扫化妆室了。”([/u/Mrs _ feather _ bottom](https://www.reddit.com/user/Mrs_Feather_Bottom/))
-*   “每天整理床铺，不要把盘子留在水槽里过夜，做基本的表面擦拭(厨房、浴室柜台)。推迟清洁只会让事情变得更糟，更令人生畏；每天15分钟就够维持了。”([)u/basuraconbogabrande](https://www.reddit.com/user/BasuraConBocaGrande/))
+*   “我喜欢在等待的时候做些小事情。煮面的水？扫地，倒垃圾。在烤箱里烤 20 分钟？这点时间足够打扫化妆室了。”([/u/Mrs _ feather _ bottom](https://www.reddit.com/user/Mrs_Feather_Bottom/))
+*   “每天整理床铺，不要把盘子留在水槽里过夜，做基本的表面擦拭(厨房、浴室柜台)。推迟清洁只会让事情变得更糟，更令人生畏；每天 15 分钟就够维持了。”([)u/basuraconbogabrande](https://www.reddit.com/user/BasuraConBocaGrande/))
 *   “如果你在等客人，甚至想让客人有可能出现:做好计划和准备。有【卫生纸】，纸巾，【女性卫生用品】，食物，饮料，零食等。准备好了。一个好的主持人就是准备好主持的人。”([u/thatswhatshesaixx](https://www.reddit.com/user/thatswhatshesaidxx/))
 
 另一个建议是把这些小的清洁工作融入到你的一天中，比如在你等着煮咖啡的时候洗碗，或者在你的淋浴加热的时候擦浴室柜台。
@@ -33,11 +33,11 @@ Watch
 
 “柱塞项目”是你需要在需求出现之前购买的项目。这包括所述柱塞、烟雾报警器、急救包、感冒和流感药物等。
 
-“柱塞项目”期限的信用归于 [该用户](https://www.reddit.com/user/THE_LOUDEST_PENIS/) 。因为这是Reddit，有时最有用的建议来自最NSFW的用户名。他们写道，“希望它们会被放在抽屉里，你永远都不需要用到它们，但是如果需要它们的时候，你会非常高兴，因为你已经准备好了。”
+“柱塞项目”期限的信用归于 [该用户](https://www.reddit.com/user/THE_LOUDEST_PENIS/) 。因为这是 Reddit，有时最有用的建议来自最 NSFW 的用户名。他们写道，“希望它们会被放在抽屉里，你永远都不需要用到它们，但是如果需要它们的时候，你会非常高兴，因为你已经准备好了。”
 
 ## **有一个基本的医疗箱**
 
-就像上面的准备建议一样，许多Redditors证实了当你需要时准备好一个像样的急救箱的必要性。买一个预制的，或者用以下基本材料组装自己的:
+就像上面的准备建议一样，许多 Redditors 证实了当你需要时准备好一个像样的急救箱的必要性。买一个预制的，或者用以下基本材料组装自己的:
 
 *   绷带
 *   止痛药
@@ -78,8 +78,8 @@ Watch
 
 ## 最后一次提醒
 
-虽然Reddit上的帖子涉及了很多内容，但我想提供一个我所知道的最重要的独居技巧:
+虽然 Reddit 上的帖子涉及了很多内容，但我想提供一个我所知道的最重要的独居技巧:
 
-**不要把自己锁在门外:**有一个系统记住你的钥匙，这样你就不会被锁在门外——并且在准备一个P lan B 以防你仍然把自己锁在门外。
+**不要把自己锁在门外:**有一个系统记住你的钥匙，这样你就不会被锁在门外——并且在准备一个 P lan B 以防你仍然把自己锁在门外。
 
 [**一定要把自己锁在**](https://lifehacker.com/18-things-you-need-to-know-to-prevent-a-home-burglary-1848387719) **:** 回家的时候永远记得锁门。窗户也是。即使你住在一个安全的地方，你也不会后悔采取了这个基本的预防措施。

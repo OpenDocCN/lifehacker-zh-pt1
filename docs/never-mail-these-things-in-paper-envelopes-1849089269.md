@@ -1,8 +1,8 @@
 # 千万不要用纸质信封邮寄这些东西
 
-> 原文:[https://life hacker . com/never-mail-things-in-paper-envelopes-1849089269](https://lifehacker.com/never-mail-these-things-in-paper-envelopes-1849089269)
+> 原文：<https://lifehacker.com/never-mail-these-things-in-paper-envelopes-1849089269>
 
-你是否曾期待邮件中有一个小物品，却收到一个有洞的信封，里面什么也找不到？据一名 [在Reddit上警告我们其余人](https://www.reddit.com/r/LifeProTips/comments/vfzerf/lpt_please_mail_your_keys_in_a_padded_envelope/) 的邮政工人说，当一个儿时的朋友说他们会送我一支特殊的钢笔时，我就遇到了这种情况，无数备用钥匙的接收者也会遇到这种情况。
+你是否曾期待邮件中有一个小物品，却收到一个有洞的信封，里面什么也找不到？据一名 [在 Reddit 上警告我们其余人](https://www.reddit.com/r/LifeProTips/comments/vfzerf/lpt_please_mail_your_keys_in_a_padded_envelope/) 的邮政工人说，当一个儿时的朋友说他们会送我一支特殊的钢笔时，我就遇到了这种情况，无数备用钥匙的接收者也会遇到这种情况。
 
 Watch
 
@@ -26,12 +26,12 @@ Watch
 *   瓶盖
 *   “其他类似的奇形怪状物品”
 
-加入Reddit帖子的邮政员工表示，他们也看到了很多:
+加入 Reddit 帖子的邮政员工表示，他们也看到了很多:
 
 *   钥匙和钥匙链
 *   吊坠、手镯、戒指
 *   “硬币！哦，上帝，硬币”
-*   usb驱动程序
+*   usb 驱动程序
 *   存储卡，包括小型视频游戏盒
 *   糖果
 *   药丸
@@ -43,10 +43,10 @@ Watch
 
 有一个神话，你可以在信封上写一些神奇的咒语，让它们远离大坏机器。但事实是，大多数信封直到之后的*才被人处理或阅读(如果它们被人阅读的话)。所以“手工处理”和“不要弯曲”只是许多对虚无的尖叫。*
 
-## 如何正确邮寄钥匙、USB驱动器、回形针和其他小物件
+## 如何正确邮寄钥匙、USB 驱动器、回形针和其他小物件
 
 如果你需要邮寄一个小物件，比如一把钥匙或者一些珠宝，*使用带衬垫的信封*。一部分是因为它们被送入不同的机器，另一部分是因为填充物不像普通的纸信封那样容易被撕开。
 
-除了衬垫信封，你还可以使用硬纸板信封，或者将小件物品固定在较大的东西上，比如将它们夹在两片纸板之间，制作自己的信封。(一位redditor说，他们通过将钥匙贴在巧克力棒上成功邮寄了一把钥匙。)
+除了衬垫信封，你还可以使用硬纸板信封，或者将小件物品固定在较大的东西上，比如将它们夹在两片纸板之间，制作自己的信封。(一位 redditor 说，他们通过将钥匙贴在巧克力棒上成功邮寄了一把钥匙。)
 
 你也可以要求单独处理信封——不是在信封外面写些什么，而是把它交给邮局的人。你要支付一笔 [不可加工的附加费](https://faq.usps.com/s/article/What-is-the-Non-Machinable-Surcharge-for-First-Class-Mail) ，邮政员工会把它放在一边。

@@ -1,6 +1,6 @@
 # 缓解压力，玩玩具
 
-> 原文:[https://life hacker . com/relieve-stress-play-with-toys-1846446935](https://lifehacker.com/relieve-stress-play-with-toys-1846446935)
+> 原文：<https://lifehacker.com/relieve-stress-play-with-toys-1846446935>
 
 精神和身体压力的体验会对身体造成损害，导致突然心悸和呼吸急促，随后(希望)随着压力的过去，会有一段时间的放松。短暂的紧张和放松是有益的——在某些情况下，战斗或逃跑的反应真的可以拯救你的生命。但是 [慢性压力不是](https://lifehacker.com/how-to-deal-with-the-effects-of-long-term-stress-1843178914) ，如果不处理，它会导致严重的问题，如 [抑郁症、高血压和心脏病](https://www.webmd.com/balance/stress-management/qa/what-are-the-consequences-of-longterm-stress) 。
 
@@ -16,7 +16,7 @@ Watch
 
 #### 橡皮泥和油灰
 
-[Play-Doh](http://vitabellacounseling.com/2018/03/stress-anxiety-play-doh-can-help/) 缓解压力的方式与压力球相同——在你塑造面团时肌肉的紧张和放松可以缓解身体方面的压力，提高你的注意力。了解到Play-Doh作为压力缓解剂的好处，公司已经开始专门为此目的制作油灰— [捏我治疗面团](https://pinchmedough.com/) 将精油注入油灰，将嗅觉融入你的压力玩具疗法。
+[Play-Doh](http://vitabellacounseling.com/2018/03/stress-anxiety-play-doh-can-help/) 缓解压力的方式与压力球相同——在你塑造面团时肌肉的紧张和放松可以缓解身体方面的压力，提高你的注意力。了解到 Play-Doh 作为压力缓解剂的好处，公司已经开始专门为此目的制作油灰— [捏我治疗面团](https://pinchmedough.com/) 将精油注入油灰，将嗅觉融入你的压力玩具疗法。
 
 #### 磁性球
 
@@ -28,7 +28,7 @@ Watch
 
 #### 迷你魔方
 
-[魔方](https://www.rubiks.com/en-us/) 于1980年首次作为玩具上市，但它们也有很大的压力——relieving属性。当你移动和滑动小立方体到不同的位置，试图在所有的边上创造纯色，你的头脑被占据，你的手指保持忙碌。一个钥匙圈大小的立方体可以让你去任何地方都可以缓解压力。
+[魔方](https://www.rubiks.com/en-us/) 于 1980 年首次作为玩具上市，但它们也有很大的压力——relieving 属性。当你移动和滑动小立方体到不同的位置，试图在所有的边上创造纯色，你的头脑被占据，你的手指保持忙碌。一个钥匙圈大小的立方体可以让你去任何地方都可以缓解压力。
 
 #### 无限立方体
 
@@ -38,7 +38,7 @@ Watch
 
 #### 坐立不安的纺纱工
 
-成为2017年 的 [流行时尚，因其能够帮助患有多动症的孩子集中注意力而闻名。这个三叉玩具是加重的，在你的手指间旋转。不幸的是，它们开始给老师和家长带来更多的压力，并成为孩子们真正的干扰，导致它们在许多学校被禁止。尽管如此，它们对寻求缓解工作压力的成年人还是有用的。](https://www.usatoday.com/story/tech/2017/05/16/fidget-spinners-how-they-went-being-toy-help-autistic-kids-being-national-phenom/101742758/)
+成为 2017 年 的 [流行时尚，因其能够帮助患有多动症的孩子集中注意力而闻名。这个三叉玩具是加重的，在你的手指间旋转。不幸的是，它们开始给老师和家长带来更多的压力，并成为孩子们真正的干扰，导致它们在许多学校被禁止。尽管如此，它们对寻求缓解工作压力的成年人还是有用的。](https://www.usatoday.com/story/tech/2017/05/16/fidget-spinners-how-they-went-being-toy-help-autistic-kids-being-national-phenom/101742758/)
 
 #### 管道清洁器
 

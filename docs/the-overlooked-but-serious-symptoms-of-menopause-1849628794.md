@@ -1,8 +1,8 @@
 # 被忽视的(但严重的)更年期症状
 
-> 原文:[https://life hacker . com/这个被忽视却很严重的更年期症状-1849628794](https://lifehacker.com/the-overlooked-but-serious-symptoms-of-menopause-1849628794)
+> 原文：<https://lifehacker.com/the-overlooked-but-serious-symptoms-of-menopause-1849628794>
 
-一般来说，更年期被定义为 [持续整整12个月而没有月经](https://www.womenshealth.gov/menopause/menopause-basics#1) ，它可以发生在30多岁到50多岁之间的任何时候， [平均年龄为52](https://www.everydayhealth.com/menopause-pictures/menopause-symptoms-that-may-surprise-you.aspx) 。在绝经前的这段时间里，也就是 [被称为围绝经期](https://www.womenshealth.gov/menopause/menopause-basics#1) ，身体会经历许多变化，这段过渡期平均持续四年。即使在更年期结束后，你仍然没有完成，因为症状可能会持续多年。
+一般来说，更年期被定义为 [持续整整 12 个月而没有月经](https://www.womenshealth.gov/menopause/menopause-basics#1) ，它可以发生在 30 多岁到 50 多岁之间的任何时候， [平均年龄为 52](https://www.everydayhealth.com/menopause-pictures/menopause-symptoms-that-may-surprise-you.aspx) 。在绝经前的这段时间里，也就是 [被称为围绝经期](https://www.womenshealth.gov/menopause/menopause-basics#1) ，身体会经历许多变化，这段过渡期平均持续四年。即使在更年期结束后，你仍然没有完成，因为症状可能会持续多年。
 
 Watch
 
@@ -20,7 +20,7 @@ Watch
 
 潮热和盗汗虽然令人讨厌，但不会对你的健康产生严重影响。然而，雌激素水平下降也会使你更容易受到一些严重疾病的影响，包括增加你患骨质疏松症的风险，或增加你患心脏病的风险。
 
-对于骨质疏松症和心脏病，雌激素似乎起到了保护作用。“当雌激素水平下降时，心脏病发作的风险就会增加，”休斯顿UTHealth和纪念赫尔曼医院的妇产科医生迈克尔·阿德勒说。
+对于骨质疏松症和心脏病，雌激素似乎起到了保护作用。“当雌激素水平下降时，心脏病发作的风险就会增加，”休斯顿 UTHealth 和纪念赫尔曼医院的妇产科医生迈克尔·阿德勒说。
 
 更年期也是 [骨质流失开始加速](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC5643776/) 的时候，会导致骨质疏松。“患骨质疏松症的绝经前女性并不多见，”阿德勒说。为了抵消这种骨质流失，进行 [定期负重锻炼](https://www.healthline.com/health/ten-best-menopause-activities#strength-training) 真的很重要，比如力量训练，以帮助强化骨骼。
 

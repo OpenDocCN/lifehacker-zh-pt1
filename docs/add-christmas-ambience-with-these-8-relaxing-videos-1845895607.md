@@ -1,14 +1,14 @@
-# 用这8个放松的视频增添圣诞气氛
+# 用这 8 个放松的视频增添圣诞气氛
 
-> 原文:[https://life hacker . com/add-Christmas-ambient-with-this-8-relaxing-videos-1845895607](https://lifehacker.com/add-christmas-ambience-with-these-8-relaxing-videos-1845895607)
+> 原文：<https://lifehacker.com/add-christmas-ambience-with-these-8-relaxing-videos-1845895607>
 
 我在本周早些时候写道，父母可以——应该，甚至——[比往年更多地增加节日的魔力](https://offspring.lifehacker.com/this-is-the-year-to-ramp-up-the-holiday-magic-damn-it-1845886182) 。我们现在只有这些了！但是一个评论者进来准备比我建议的额外装饰，新的传统和别致的圣诞晚餐更进一步。
 
-Kinja用户hazelsdottir说:
+Kinja 用户 hazelsdottir 说:
 
-> 我们还在YouTube上寻找各种圣诞气氛的4K录音，不管有没有ASMR。这些录音给客厅带来一种奇妙的温暖感觉。
+> 我们还在 YouTube 上寻找各种圣诞气氛的 4K 录音，不管有没有 ASMR。这些录音给客厅带来一种奇妙的温暖感觉。
 
-我自己从来没有搜索过“各种圣诞气氛4K录音”，所以我很好奇。所以我带着这些舒缓的YouTube视频开始了一段小小的发现之旅，每个视频都提供了一些特别的东西。
+我自己从来没有搜索过“各种圣诞气氛 4K 录音”，所以我很好奇。所以我带着这些舒缓的 YouTube 视频开始了一段小小的发现之旅，每个视频都提供了一些特别的东西。
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-iGwawktAMRg&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-iGwawktAMRg&start=0) 
 
@@ -18,7 +18,7 @@ Kinja用户hazelsdottir说:
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-2gRkMpuh4GI&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-2gRkMpuh4GI&start=0) 
 
-我真的不想离开第一个球，直到它打完为止，但我是一名职业球员，我知道你需要选择。幸运的是，那里有很多，还有圣诞节降雪 中的 [，和ASMR一起，很快俘获了我的心。](https://www.youtube.com/watch?v=2gRkMpuh4GI)
+我真的不想离开第一个球，直到它打完为止，但我是一名职业球员，我知道你需要选择。幸运的是，那里有很多，还有圣诞节降雪 中的 [，和 ASMR 一起，很快俘获了我的心。](https://www.youtube.com/watch?v=2gRkMpuh4GI)
 
 也许是因为，当我写这篇文章的时候，这个季节的第一场暴风雪降临了我在宾夕法尼亚州东部的家...哇，我刚刚完全昏迷了几分钟。如果你真的需要集中注意力，也许不要看这个。把它留到你下次放松沐浴的时候。
 

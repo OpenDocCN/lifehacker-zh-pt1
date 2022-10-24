@@ -1,16 +1,16 @@
-# 你应该尝试的17个最被低估的深蹲
+# 你应该尝试的 17 个最被低估的深蹲
 
-> 原文:[https://life hacker . com/17-of-the-most-defaulted-squats-you-should-try-1848651673](https://lifehacker.com/17-of-the-most-underrated-squats-you-should-try-1848651673)
+> 原文：<https://lifehacker.com/17-of-the-most-underrated-squats-you-should-try-1848651673>
 
 深蹲是最好的下半身运动之一 ，如果你曾经锻炼过，你肯定做过。但是我们中的很多人从来没有拓宽过我们的视野，除了卑微的空中深蹲和杠铃背蹲——如果那是你，你就错过了。
 
-所以让我们来看看这17种鲜为人知的深蹲，它们涵盖了从体重移动到需要特殊设备的剧烈变化，再到壶铃和哑铃的巧妙运用。
+所以让我们来看看这 17 种鲜为人知的深蹲，它们涵盖了从体重移动到需要特殊设备的剧烈变化，再到壶铃和哑铃的巧妙运用。
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-lNJ3DyibYZQ&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-lNJ3DyibYZQ&start=0) 
 
 前蹲是奥运会举重项目的经典。你不是把杠铃放在背上，而是放在肩膀上。(因此得名，因为杠铃是在你的正面而不是背面。)
 
-太多的人回避前蹲，因为它们看起来会伤害你的手腕。这很遗憾，因为这对你的股四头肌和核心肌群来说是很好的锻炼。更不用说:T he杠实际上是搁在你的*肩膀*上，而不是抱在怀里，所以一旦搞清楚 的时候的抱姿比你想象的要容易。
+太多的人回避前蹲，因为它们看起来会伤害你的手腕。这很遗憾，因为这对你的股四头肌和核心肌群来说是很好的锻炼。更不用说:T he 杠实际上是搁在你的*肩膀*上，而不是抱在怀里，所以一旦搞清楚 的时候的抱姿比你想象的要容易。
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-f-Vf2yRRqOg&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-f-Vf2yRRqOg&start=0) 
 
@@ -18,7 +18,7 @@
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-OxwJja4rr4M&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-OxwJja4rr4M&start=0) 
 
-好吧，从技术上来说，这些可能根本不是“蹲”，但它们的名字中有“蹲”，而且它们是一种真正被低估的腿部运动。设置它们有点棘手，所以请注意视频中Joe的定位。你的前臂会在你的臀部皱褶中，实际上你根本没有伸展你的臀部。把腿伸直，直到你的头指向地面。这是你在健身房之外能找到的最接近腿部伸展的东西。
+好吧，从技术上来说，这些可能根本不是“蹲”，但它们的名字中有“蹲”，而且它们是一种真正被低估的腿部运动。设置它们有点棘手，所以请注意视频中 Joe 的定位。你的前臂会在你的臀部皱褶中，实际上你根本没有伸展你的臀部。把腿伸直，直到你的头指向地面。这是你在健身房之外能找到的最接近腿部伸展的东西。
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-93s3lbCvFj4&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-93s3lbCvFj4&start=0) 
 
@@ -68,7 +68,7 @@
 
 这些简单的变化是被低估的方法，使下蹲更难，从而让你使用更少的重量。因此，他们经常被包括在力量举重项目中，作为降低锻炼强度的一种方式。(毕竟，当你知道你必须以慢动作做深蹲时，你不能把杠铃抬得太重。)停顿和节奏也有助于平衡和定位。
 
-节奏深蹲通常写有数字，表示在托举的每个部分花费多少秒。3-0-3节奏深蹲意味着你花三秒钟到达底部，然后你花零秒钟停留在底部，然后你花三秒钟痛苦地站起来。
+节奏深蹲通常写有数字，表示在托举的每个部分花费多少秒。3-0-3 节奏深蹲意味着你花三秒钟到达底部，然后你花零秒钟停留在底部，然后你花三秒钟痛苦地站起来。
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-HRyQuJN5Y0s&start=206](https://lifehacker.com/embed/inset/iframe?id=youtube-video-HRyQuJN5Y0s&start=206) 
 

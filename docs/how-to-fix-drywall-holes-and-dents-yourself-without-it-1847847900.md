@@ -1,6 +1,6 @@
 # 如何修补干墙的洞和凹痕，而不使它看起来像狗屎
 
-> 原文:[https://life hacker . com/how-to-fix-dry wall-holes-dents-without-it-1847847900](https://lifehacker.com/how-to-fix-drywall-holes-and-dents-yourself-without-it-1847847900)
+> 原文：<https://lifehacker.com/how-to-fix-drywall-holes-and-dents-yourself-without-it-1847847900>
 
 干墙经常会遭受各种各样的损坏，从挂搁板和图片时留下的洞，到突出的椅背和门把手发出的丁当声，但幸运的是，它几乎和坏掉一样容易修复。自己修理干墙的凹痕和孔洞可以为你节省一些钱*和*让你感觉非常方便，无论你是想装饰房间还是保管你的保证金。这是自信地处理这些裂缝的最好方法(和一点儿灰泥)。
 
@@ -20,11 +20,11 @@ Watch
 
 ## 修补干墙上较大的洞
 
-如果你有一个大于4英寸左右的洞，你需要一块干墙来填补它。在采取任何其他步骤之前，检查您打算修理的地方附近的电线、插座或开关。如果你有可能接触到任何带电流的东西，先切断你工作区域的电源，以防万一。使用一个正方形或卷尺和直尺在要移除的孔周围立即标出区域-标出正方形或矩形形状，以便更容易适合您的补丁。留意电线，用你的 [干墙锯](https://www.amazon.com/IRWIN-Tools-Standard-Drywall-2014102/dp/B000B3EGN8/ref=asc_df_B000B3EGN8/?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-fix-drywall-holes-and-dents-yourself-without-it-1847847900&asc_source=&hvadid=459730407112&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=9032930&hvnetw=g&hvpone=&hvpos=&hvptwo=&hvqmt=&hvrand=1730439395554950106&hvtargid=pla-907650135306&linkCode=df0&psc=1&tag=kinjalifehackerlink-20) 切割出你的补丁区域。
+如果你有一个大于 4 英寸左右的洞，你需要一块干墙来填补它。在采取任何其他步骤之前，检查您打算修理的地方附近的电线、插座或开关。如果你有可能接触到任何带电流的东西，先切断你工作区域的电源，以防万一。使用一个正方形或卷尺和直尺在要移除的孔周围立即标出区域-标出正方形或矩形形状，以便更容易适合您的补丁。留意电线，用你的 [干墙锯](https://www.amazon.com/IRWIN-Tools-Standard-Drywall-2014102/dp/B000B3EGN8/ref=asc_df_B000B3EGN8/?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-fix-drywall-holes-and-dents-yourself-without-it-1847847900&asc_source=&hvadid=459730407112&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=9032930&hvnetw=g&hvpone=&hvpos=&hvptwo=&hvqmt=&hvrand=1730439395554950106&hvtargid=pla-907650135306&linkCode=df0&psc=1&tag=kinjalifehackerlink-20) 切割出你的补丁区域。
 
 #### 剪切和固定您的补丁
 
-一旦你有了你的开口，是时候为你的补丁安装一个支架了。这可以简单到至少1英寸厚、2英寸宽的废木料。将你的支架剪成比开口宽度长2或3英寸。然后，调整支架的角度，使其穿过孔并进入干墙内部——大约在孔的中间——并使用干墙螺钉将其拧入孔的上方和下方。接下来，把你的干墙碎片切得比墙上的开口小四分之一英寸。使用您的干墙胶带将补丁放在开口处，并将其拧入支架。最后，在补丁顶部涂上一层薄薄的填缝料，确保盖住接缝，并逐渐减少填缝料。按照包装上的指示，等待一段时间干燥，然后用砂纸打磨光滑。
+一旦你有了你的开口，是时候为你的补丁安装一个支架了。这可以简单到至少 1 英寸厚、2 英寸宽的废木料。将你的支架剪成比开口宽度长 2 或 3 英寸。然后，调整支架的角度，使其穿过孔并进入干墙内部——大约在孔的中间——并使用干墙螺钉将其拧入孔的上方和下方。接下来，把你的干墙碎片切得比墙上的开口小四分之一英寸。使用您的干墙胶带将补丁放在开口处，并将其拧入支架。最后，在补丁顶部涂上一层薄薄的填缝料，确保盖住接缝，并逐渐减少填缝料。按照包装上的指示，等待一段时间干燥，然后用砂纸打磨光滑。
 
 ## **抹平干墙的裂缝**
 

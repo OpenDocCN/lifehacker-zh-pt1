@@ -1,8 +1,8 @@
 # 如何在“不成功便成仁”的工作氛围中生存
 
-> 原文:[https://life hacker . com/how-to-survive-a-sink-or-swim-work-atmosphere-1846495813](https://lifehacker.com/how-to-survive-a-sink-or-swim-work-atmosphere-1846495813)
+> 原文：<https://lifehacker.com/how-to-survive-a-sink-or-swim-work-atmosphere-1846495813>
 
-21岁时，我刚从大学毕业，在大萧条的深渊中穿行于加利福尼亚破碎的就业市场，我得到了一份公共电台的实习工作，欣喜若狂。
+21 岁时，我刚从大学毕业，在大萧条的深渊中穿行于加利福尼亚破碎的就业市场，我得到了一份公共电台的实习工作，欣喜若狂。
 
 Watch
 
@@ -14,7 +14,7 @@ Watch
 
 这是一种接受新工作或新责任的矛盾方式。如果你的老板没有时间培训他们，怎么能指望员工理解他们工作的要求呢？此外，认为培训是一劳永逸的练习的想法显示了与实际学习过程的脱节，事实就是如此。
 
-正如领导力专家 [Carol Hautot在2016年为LinkedIn撰写的文章所言，](https://www.linkedin.com/pulse/sink-swim-training-method-carol-hautot/) 把你的新员工扔进虚空对任何人都没有帮助。她指出，每当人们没有得到足够的培训时，管理者就会遇到问题:
+正如领导力专家 [Carol Hautot 在 2016 年为 LinkedIn 撰写的文章所言，](https://www.linkedin.com/pulse/sink-swim-training-method-carol-hautot/) 把你的新员工扔进虚空对任何人都没有帮助。她指出，每当人们没有得到足够的培训时，管理者就会遇到问题:
 
 > 你如何知道你团队中的人正在学习正确的技能？
 > 
@@ -24,7 +24,7 @@ Watch
 
 ### 如果没有一个可靠的经理，那就去别处看看
 
-在实际的办公室之外寻找工作场所指南可能是违反直觉的，但有时这是必要的。高管教练兼组织顾问希拉里·珀尔(Hilary Pearl)告诉Lifehacker，朋友、前同事甚至父母都可能是尚未开发的资源。如果一个年轻员工没有从他们的上级那里得到他们需要的培养，这一点尤其正确。
+在实际的办公室之外寻找工作场所指南可能是违反直觉的，但有时这是必要的。高管教练兼组织顾问希拉里·珀尔(Hilary Pearl)告诉 Lifehacker，朋友、前同事甚至父母都可能是尚未开发的资源。如果一个年轻员工没有从他们的上级那里得到他们需要的培养，这一点尤其正确。
 
 她在邮件中写道:
 

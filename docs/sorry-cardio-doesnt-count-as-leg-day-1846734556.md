@@ -1,8 +1,8 @@
 # 抱歉，有氧运动不算腿日
 
-> 原文:[https://life hacker . com/sorry-cardio-not-count-as-leg-day-1846734556](https://lifehacker.com/sorry-cardio-doesnt-count-as-leg-day-1846734556)
+> 原文：<https://lifehacker.com/sorry-cardio-doesnt-count-as-leg-day-1846734556>
 
-有氧运动在许多方面对我们的健康很重要，我们都应该至少达到每周75到150分钟的最低要求。如果你喜欢跑步、骑自行车或徒步旅行，并且经常做，那就更好了。
+有氧运动在许多方面对我们的健康很重要，我们都应该至少达到每周 75 到 150 分钟的最低要求。如果你喜欢跑步、骑自行车或徒步旅行，并且经常做，那就更好了。
 
 Watch
 

@@ -1,8 +1,8 @@
 # 如何保护自己免受气泵撇油器的伤害
 
-> 原文:[https://life hacker . com/how-to-protect-yourself from the gas-pump-skimmers-1835693686](https://lifehacker.com/how-to-protect-yourself-from-gas-pump-skimmers-1835693686)
+> 原文：<https://lifehacker.com/how-to-protect-yourself-from-gas-pump-skimmers-1835693686>
 
-Ga s-pump card skimming继续成为 [关注点](https://www.12news.com/article/news/crime/can-you-id-these-suspects-using-credit-card-skimmers-at-a-buckeye-gas-station/75-5046941b-2284-4acc-b141-378a323d50a2) 在疫情期间，据福布斯 统计，2020年欺诈性支付交易同比增长[23%。以下是你需要知道的关于这个骗局是如何运作的，以及为什么你应该避免在加油时用借记卡付款。](https://www.forbes.com/sites/forbesbusinesscouncil/2021/01/04/preparing-for-the-gas-pump-emv-deadline/?sh=79e51c0d232a)
+Ga s-pump card skimming 继续成为 [关注点](https://www.12news.com/article/news/crime/can-you-id-these-suspects-using-credit-card-skimmers-at-a-buckeye-gas-station/75-5046941b-2284-4acc-b141-378a323d50a2) 在疫情期间，据福布斯 统计，2020 年欺诈性支付交易同比增长[23%。以下是你需要知道的关于这个骗局是如何运作的，以及为什么你应该避免在加油时用借记卡付款。](https://www.forbes.com/sites/forbesbusinesscouncil/2021/01/04/preparing-for-the-gas-pump-emv-deadline/?sh=79e51c0d232a)
 
 Watch
 
@@ -14,7 +14,7 @@ Watch
 
 ### **气泵正在升级**
 
-幸运的是，信用卡公司已经要求燃油商家升级他们的油泵，以便他们遵循“EMV标准”(代表Europay、Mastercard、Visa)，这依赖于扫描你卡中的芯片，而不是磁条。为了鼓励遵守，如果机器没有升级，新标准将欺诈交易的责任从信用卡公司转移到商家。合规的最后期限是去年10月，但由于疫情，已被推迟到2021年4月。
+幸运的是，信用卡公司已经要求燃油商家升级他们的油泵，以便他们遵循“EMV 标准”(代表 Europay、Mastercard、Visa)，这依赖于扫描你卡中的芯片，而不是磁条。为了鼓励遵守，如果机器没有升级，新标准将欺诈交易的责任从信用卡公司转移到商家。合规的最后期限是去年 10 月，但由于疫情，已被推迟到 2021 年 4 月。
 
 燃料商们在采用这些新标准方面进展缓慢，所以不太可能所有的加油站都能在截止日期前达标。然而，一旦该标准被更广泛地采用，被盗的机会应该会减少。
 
@@ -26,4 +26,4 @@ Watch
 
 否则，在加油站支付终端相信你的直觉:如果看起来不对，使用另一个加油站，甚至尝试另一个加油站。
 
-*这个故事最初发表于2019年，并于2021年2月8日更新了新信息。*
+*这个故事最初发表于 2019 年，并于 2021 年 2 月 8 日更新了新信息。*

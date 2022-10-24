@@ -1,6 +1,6 @@
 # 和你的孩子一起按下政治“重置”按钮
 
-> 原文:[https://life hacker . com/how-not-talk-to-kids-on-politics-1830282646](https://lifehacker.com/how-not-to-talk-to-kids-about-politics-1830282646)
+> 原文：<https://lifehacker.com/how-not-to-talk-to-kids-about-politics-1830282646>
 
 在过去的四年里，和我们的孩子谈论政治绝非易事。这不是正常的政治时期。作为一个民族，我们喊的比我们辩论的多——争论更多的是关于我们的道德和价值观，而不是政策。即使就在一周前，当民主本身似乎岌岌可危时，给我们的孩子讲授关于公民身份及其所有权利和义务的简单课程可能会感到陈腐。
 
@@ -24,7 +24,7 @@ Watch
 
 ### **与他们一起入住**
 
-孩子们经常比我们想象的更能吸收周围发生的事情。他们可能正在和他们的老师、同学和朋友谈论政治；他们可能对这个国家正在发生的事情有疑问，或者有自己的看法。蒙特克莱尔州立大学的媒体研究员塔拉·康利 ， [告诉NPR](https://www.npr.org/2020/10/31/929578004/anxious-about-the-election-your-kids-can-tell-heres-how-to-talk-about-it?utm_campaign=npr&utm_term=nprnews&utm_medium=social&utm_source=facebook.com&fbclid=IwAR3xe4PiA-qxWZzFKYHca5IhVFbycV2rdgN1Uv4jPaqNw3Gr5UZwcBlf7Hc) 成年人应该选择一个安静的时刻与他们的孩子交流，也许是在餐桌上或睡觉前:
+孩子们经常比我们想象的更能吸收周围发生的事情。他们可能正在和他们的老师、同学和朋友谈论政治；他们可能对这个国家正在发生的事情有疑问，或者有自己的看法。蒙特克莱尔州立大学的媒体研究员塔拉·康利 ， [告诉 NPR](https://www.npr.org/2020/10/31/929578004/anxious-about-the-election-your-kids-can-tell-heres-how-to-talk-about-it?utm_campaign=npr&utm_term=nprnews&utm_medium=social&utm_source=facebook.com&fbclid=IwAR3xe4PiA-qxWZzFKYHca5IhVFbycV2rdgN1Uv4jPaqNw3Gr5UZwcBlf7Hc) 成年人应该选择一个安静的时刻与他们的孩子交流，也许是在餐桌上或睡觉前:
 
 > 她说，这个想法是让孩子们“就他们所看到的，他们的感受和想法提出问题。”换句话说:给孩子一个安全的空间来思考和分享。给自己一个机会来消除他们可能遇到的任何可怕的谣言或错误信息。
 
@@ -32,4 +32,4 @@ Watch
 
 * * *
 
-*本文最初发表于2018年，并于2021年1月20日更新，以反映当前的背景和信息。*
+*本文最初发表于 2018 年，并于 2021 年 1 月 20 日更新，以反映当前的背景和信息。*

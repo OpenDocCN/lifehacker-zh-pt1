@@ -1,6 +1,6 @@
 # 如何清洁你的吸尘器
 
-> 原文:[https://lifehacker.com/how-to-clean-your-vacuum-1849461697](https://lifehacker.com/how-to-clean-your-vacuum-1849461697)
+> 原文：<https://lifehacker.com/how-to-clean-your-vacuum-1849461697>
 
 我们大多数的家用电器——包括我们用来打扫房间的那些——都需要某种维护，吸尘器也不例外。不幸的是，这不仅仅是在袋子或罐子完全装满时将其清空。
 

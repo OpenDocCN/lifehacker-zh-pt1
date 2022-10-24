@@ -1,6 +1,6 @@
 # 如何修理坏掉的制冰机
 
-> 原文:[https://life hacker . com/how-to-fix-a-broken-ice maker-1849348495](https://lifehacker.com/how-to-fix-a-broken-ice-maker-1849348495)
+> 原文：<https://lifehacker.com/how-to-fix-a-broken-ice-maker-1849348495>
 
 在现代冰箱和冰柜出现之前的日子里，制造和储存冰是一个完整的行业，并且在很长一段时间里，只有富人才能拥有一些冰块来冷却你的饮料。当然，对大多数人来说，这已经不再是问题了——现在许多冰箱/冰柜都可以自动制冰。
 

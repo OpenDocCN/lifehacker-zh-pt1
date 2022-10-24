@@ -1,8 +1,8 @@
 # 根据抖音的说法，清洁真空刷的最好方法
 
-> 原文:[https://life hacker . com/the-best-way to-clean-your-vacuum-brush-by-t-1847204240](https://lifehacker.com/the-best-way-to-clean-your-vacuum-brush-according-to-t-1847204240)
+> 原文：<https://lifehacker.com/the-best-way-to-clean-your-vacuum-brush-according-to-t-1847204240>
 
-真空吸尘器可能会因为东西卡在软管中 或者一个过满的罐子而堵塞，但是大多数堵塞很容易解决，只要定期清空你的真空吸尘器。 Ha ir和细绳，倾向于缠绕在真空刷上，可以限制其运动，导致缓慢死亡，直到完全停止旋转，使你的真空无用。乍一看，进入那里并解决混乱看起来可能很复杂，但根据真空的不同，这可能比你想象的更容易。
+真空吸尘器可能会因为东西卡在软管中 或者一个过满的罐子而堵塞，但是大多数堵塞很容易解决，只要定期清空你的真空吸尘器。 Ha ir 和细绳，倾向于缠绕在真空刷上，可以限制其运动，导致缓慢死亡，直到完全停止旋转，使你的真空无用。乍一看，进入那里并解决混乱看起来可能很复杂，但根据真空的不同，这可能比你想象的更容易。
 
 Watch
 

@@ -1,6 +1,6 @@
 # 在决定如何装饰房间时，弄清楚你的家朝哪个方向
 
-> 原文:[https://life hacker . com/figure-out-when-decision-1846078892](https://lifehacker.com/figure-out-which-direction-your-home-faces-when-decidin-1846078892)
+> 原文：<https://lifehacker.com/figure-out-which-direction-your-home-faces-when-decidin-1846078892>
 
 无论你是最近搬进了新房子或公寓，还是利用又一个冬天关在家里的机会对你的房子做一些改进，在制定装修计划时，有很多事情需要考虑。除了像你的预算和房间将如何使用这样的因素，还有另一个重要的难题:房间——以及你的整个家——面对的方向。以下是如何弄清楚这一点以及为什么它很重要。
 
@@ -16,7 +16,7 @@ Watch
 
 ### 为什么方向很重要
 
-归根结底，一种取向并不比其他取向优越， [梅根·迪瓦恩在一篇关于BobVila.com](https://www.bobvila.com/articles/why-it-matters-which-direction-your-home-faces/)的文章中解释道。每一种都有自己的优势和挑战，所以更重要的是了解这些优势和挑战是什么以及如何解决它们。
+归根结底，一种取向并不比其他取向优越， [梅根·迪瓦恩在一篇关于 BobVila.com](https://www.bobvila.com/articles/why-it-matters-which-direction-your-home-faces/)的文章中解释道。每一种都有自己的优势和挑战，所以更重要的是了解这些优势和挑战是什么以及如何解决它们。
 
 除了确定自然光，住宅朝向还有其他含义，包括与能源效率、供暖和制冷成本、住宅维护和能源流动相关的含义。我们在这里的重点将是装修选择，但 [阅读迪瓦恩的文章](https://www.bobvila.com/articles/why-it-matters-which-direction-your-home-faces/) 来了解更多关于方位影响一个家的其他方式。
 
@@ -30,9 +30,9 @@ Watch
 
 #### 颜色选择
 
-一天中房间获得大部分自然光的时间也可以帮助你选择墙壁、家具和其他装饰的颜色。这是Devine的两个例子:
+一天中房间获得大部分自然光的时间也可以帮助你选择墙壁、家具和其他装饰的颜色。这是 Devine 的两个例子:
 
-> 例如，设计专家可能会让你远离朝西房间的红色和橙色，因为从下午2点开始，朝西的房间获得了大部分阳光。喜欢大胆或深色的人可能想把他们限制在朝南的房间里，这些房间全天光线充足，经得起强烈的色调。
+> 例如，设计专家可能会让你远离朝西房间的红色和橙色，因为从下午 2 点开始，朝西的房间获得了大部分阳光。喜欢大胆或深色的人可能想把他们限制在朝南的房间里，这些房间全天光线充足，经得起强烈的色调。
 
 #### 家具摆放
 

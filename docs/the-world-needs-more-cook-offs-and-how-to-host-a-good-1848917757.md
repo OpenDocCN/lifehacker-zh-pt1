@@ -1,6 +1,6 @@
 # 这个世界需要更多的烹饪比赛(以及如何举办一场精彩的烹饪比赛)
 
-> 原文:[https://life hacker . com/the-world-needs-more-cook-off-and-how-to-host-a good-1848917757](https://lifehacker.com/the-world-needs-more-cook-offs-and-how-to-host-a-good-1848917757)
+> 原文：<https://lifehacker.com/the-world-needs-more-cook-offs-and-how-to-host-a-good-1848917757>
 
 在烹饪中，就像在生活中一样，一点健康的竞争可以激励人们出现、展示和闪耀。烹饪比赛，烘焙比赛，任何一种与食物相关的"off "——将一场以食物为主题的聚会设计成一场比赛将会让客人们对参与派对感到兴奋。
 
@@ -10,7 +10,7 @@ Watch
 
 ## 选择可重复的食物
 
-这是第一步，也是最明显的一步。允许有很多变化的食物是最好的选择。croquembouche-off不会有太多的乐趣或意义，因为你必须有一个非常先进的糕点厨师即兴重复这样一个标准化的食谱(一个例外是 [我们的微波方法](https://lifehacker.com/make-every-component-of-this-croquembouche-in-the-micro-1831153734) )。
+这是第一步，也是最明显的一步。允许有很多变化的食物是最好的选择。croquembouche-off 不会有太多的乐趣或意义，因为你必须有一个非常先进的糕点厨师即兴重复这样一个标准化的食谱(一个例外是 [我们的微波方法](https://lifehacker.com/make-every-component-of-this-croquembouche-in-the-micro-1831153734) )。
 
 另一方面，巧克力曲奇允许大量重复。辣椒是另一种烹饪方式，鸡翅或任何种类的烧烤也是。千层面、肉卷、肉丸、通心粉和奶酪，还有蘸酱也是不错的烹饪题材。如果你的朋友不是烹饪型的，你随时可以喝杯马提尼。
 

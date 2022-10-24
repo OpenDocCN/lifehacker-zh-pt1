@@ -1,6 +1,6 @@
 # 如何辨别你的老板在撒谎(以及如何应对)
 
-> 原文:[https://life hacker . com/how-to-tell-when your-boss ' s lie-and-do-ABO-1849552745](https://lifehacker.com/how-to-tell-when-your-boss-is-lying-and-what-to-do-abo-1849552745)
+> 原文：<https://lifehacker.com/how-to-tell-when-your-boss-is-lying-and-what-to-do-abo-1849552745>
 
 一个 [毒老板](https://lifehacker.com/how-to-deal-with-a-toxic-boss-1846594599) 会让你的工作生活苦不堪言，心理健康也会受到影响。为一个很难与你坦诚相见的人工作，或者在与工作有关的大大小小的问题上撒谎的人工作，可能会让你持续紧张，或者在出现问题时完全惊讶，比如 [一次意想不到的大规模裁员](https://www.npr.org/2022/07/06/1109965538/as-economic-fears-grow-companies-begin-laying-off-workers) 。
 
@@ -19,9 +19,9 @@ Watch
 
 ## 如何应对职场谎言
 
-请记住，以上都不是任何事情的100%保证。有可能你的老板只是一个糟糕的管理者或沟通者，或者他们的行为与他们有关，与你无关。也可能这种行为只是他们的常态。
+请记住，以上都不是任何事情的 100%保证。有可能你的老板只是一个糟糕的管理者或沟通者，或者他们的行为与他们有关，与你无关。也可能这种行为只是他们的常态。
 
-如果很明显你的老板在对你撒谎，而且后果很可能是犯罪性质的，你应该尽快离开——也许可以咨询一下律师。除此之外，应对欺骗的方法既有被动的，也有主动的。在《哈佛商业评论》[的一篇文章中，作家兼顾问Pamela Meyer建议从成本/收益分析开始。与你的老板、他们的老板或人力资源一起面对谎言是否值得承担潜在的后果？](https://hbr.org/2017/03/what-to-do-if-you-catch-your-boss-in-a-lie)
+如果很明显你的老板在对你撒谎，而且后果很可能是犯罪性质的，你应该尽快离开——也许可以咨询一下律师。除此之外，应对欺骗的方法既有被动的，也有主动的。在《哈佛商业评论》[的一篇文章中，作家兼顾问 Pamela Meyer 建议从成本/收益分析开始。与你的老板、他们的老板或人力资源一起面对谎言是否值得承担潜在的后果？](https://hbr.org/2017/03/what-to-do-if-you-catch-your-boss-in-a-lie)
 
 如果你确实想回应，首先考虑你老板撒谎的动机，然后带着好奇心而不是指责去接近他们。可能他们的意图是好的，即使他们的策略不是，你可以在假定他们无罪的情况下得到澄清。
 

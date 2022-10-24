@@ -1,6 +1,6 @@
-# 作为一个公共演讲者，包括在Zoom会议上，控制你的注意力
+# 作为一个公共演讲者，包括在 Zoom 会议上，控制你的注意力
 
-> 原文:[https://life hacker . com/own-your-disruption-as-a-public-speaker-including-du-1845328616](https://lifehacker.com/own-your-distractions-as-a-public-speaker-including-du-1845328616)
+> 原文：<https://lifehacker.com/own-your-distractions-as-a-public-speaker-including-du-1845328616>
 
 本周早些时候，在副总统候选人辩论中，我们看到了参议员卡玛拉愤怒的面部表情，以及一只苍蝇用迈克·彭斯的头作为目的地之间中途停留的两分钟镜头。很快，推特用大量的迷因和评论抓住了苍蝇的处境。辩论结束后， [由于新闻报道和辩论后的分析，这种昆虫在聚光灯下享受了更多的时间](https://www.nytimes.com/2020/10/07/us/politics/the-fly-pence-head.html) 。事实上，唯一似乎没有注意到或者至少承认这一点的人是彭斯本人 lf。
 
@@ -20,4 +20,4 @@ Watch
 
 ### 为什么会这样
 
-Gordon的观点是，我们不仅应该用幽默来证明我们意识到了缩放会议期间出现的任何混乱的背景场景，还应该用幽默来加强我们的演示。“不协调会引人注意，甚至会引人发笑，” [他写](https://www.entrepreneur.com/article/357458) 。“然而，精明的演讲者可以利用这种力量，将其转化为现实，并让它为自己服务。”
+Gordon 的观点是，我们不仅应该用幽默来证明我们意识到了缩放会议期间出现的任何混乱的背景场景，还应该用幽默来加强我们的演示。“不协调会引人注意，甚至会引人发笑，” [他写](https://www.entrepreneur.com/article/357458) 。“然而，精明的演讲者可以利用这种力量，将其转化为现实，并让它为自己服务。”

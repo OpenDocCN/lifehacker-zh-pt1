@@ -1,6 +1,6 @@
 # 这是舀掉饼干的最好方法
 
-> 原文:[https://life hacker . com/this-is-the-best-way to-scoop-your-drop-cookies-1849568018](https://lifehacker.com/this-is-the-best-way-to-scoop-your-drop-cookies-1849568018)
+> 原文：<https://lifehacker.com/this-is-the-best-way-to-scoop-your-drop-cookies-1849568018>
 
 所有的曲奇本来就很美。作为我最喜欢的三样东西之一，我几乎不会拒绝一块饼干，当然不是因为它的外观。但现在有一种水滴饼干美化的趋势，这与确保你的饼干有完美的锯齿状、褶皱的顶部有关。事实证明，有一种“最好”的方式来舀取你的饼干，以达到这种效果。
 

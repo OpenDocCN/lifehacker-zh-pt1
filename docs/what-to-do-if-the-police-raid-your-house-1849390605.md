@@ -1,6 +1,6 @@
 # 如果警察搜查你的房子，你该怎么办
 
-> 原文:[https://life hacker . com/what-do-if-the-police-raid-your house-1849390605](https://lifehacker.com/what-to-do-if-the-police-raid-your-house-1849390605)
+> 原文：<https://lifehacker.com/what-to-do-if-the-police-raid-your-house-1849390605>
 
 每个人都知道警察突袭是什么，但直到最近，我们大多数人可能都认为突袭是有钱有势的人不用担心的事情。但是，正如我们所知，即使是前总统也能看到他们的私人住宅被执法部门搜查。
 

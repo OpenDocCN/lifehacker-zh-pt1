@@ -1,8 +1,8 @@
-# 如何禁用Windows 10烦人的天气小工具
+# 如何禁用 Windows 10 烦人的天气小工具
 
-> 原文:[https://life hacker . com/how-to-disable-windows-10-s-perminant-weather-widget-1847305101](https://lifehacker.com/how-to-disable-windows-10-s-annoying-weather-widget-1847305101)
+> 原文：<https://lifehacker.com/how-to-disable-windows-10-s-annoying-weather-widget-1847305101>
 
-如果你在Windows 10上启用了自动更新，你可能会注意到任务栏中增加了一个新的——相当烦人的——天气和新闻小工具。它被称为“新闻和利益”，微软在1909版更新中为Windows 10添加了的，它突出了Windows 10的所有问题:不一致的设计元素，添加了一个没有人真正要求的功能，以及更多你不需要的杂乱。
+如果你在 Windows 10 上启用了自动更新，你可能会注意到任务栏中增加了一个新的——相当烦人的——天气和新闻小工具。它被称为“新闻和利益”，微软在 1909 版更新中为 Windows 10 添加了的，它突出了 Windows 10 的所有问题:不一致的设计元素，添加了一个没有人真正要求的功能，以及更多你不需要的杂乱。
 
 Watch
 
@@ -10,7 +10,7 @@ Watch
 
 幸运的是，你可以轻松的移除它。方法如下:
 
-1.  **右键单击【Windows 10电脑任务栏的任何部分。它位于屏幕右下角时钟和网络连接图标的左侧。**
+1.  **右键单击【Windows 10 电脑任务栏的任何部分。它位于屏幕右下角时钟和网络连接图标的左侧。**
 2.  选择**新闻和兴趣**。
 3.  点击**关闭**。
 

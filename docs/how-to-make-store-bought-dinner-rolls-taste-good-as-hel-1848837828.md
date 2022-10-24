@@ -1,12 +1,12 @@
 # 如何让商店里买来的晚餐面包卷尝起来美味无比
 
-> 原文:[https://life hacker . com/how-to-make-store-buyed-dinner-rolls-taste-good-as-hel-1848837828](https://lifehacker.com/how-to-make-store-bought-dinner-rolls-taste-good-as-hel-1848837828)
+> 原文：<https://lifehacker.com/how-to-make-store-bought-dinner-rolls-taste-good-as-hel-1848837828>
 
 我最喜欢的黑客风格之一是“提升”商店购买的东西。制作一盒 [蛋糕](https://lifehacker.com/how-to-make-a-boxed-cake-mix-taste-homemade-1839165427) 或 [核仁巧克力混合](https://lifehacker.com/how-to-make-boxed-brownie-mix-taste-homemade-1829269063) 口味自制、 [精选蛋黄酱](https://lifehacker.com/how-to-make-store-bought-mayonnaise-taste-homemade-1848402829) 、用快餐鸡肉制作 [鸡肉沙拉](https://lifehacker.com/transform-leftover-fried-chicken-into-a-super-flavorful-1784395666)——这类东西是我的拿手好戏，宝贝。
 
 Watch
 
-商店里买的晚餐面包卷适合这种即兴表演。标准的做法包括用黄油(通常是大蒜黄油)刷它们，并在它们上面放东西(香草和奶酪等)，但你可以用它变得更奇怪，你应该这样做。毕竟，你只是通过外包面团节省了一大堆时间；你可以多花点时间去zhoosh。
+商店里买的晚餐面包卷适合这种即兴表演。标准的做法包括用黄油(通常是大蒜黄油)刷它们，并在它们上面放东西(香草和奶酪等)，但你可以用它变得更奇怪，你应该这样做。毕竟，你只是通过外包面团节省了一大堆时间；你可以多花点时间去 zhoosh。
 
 ## 混合(分层)你的脂肪
 

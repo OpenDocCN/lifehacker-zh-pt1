@@ -1,8 +1,8 @@
-# 事实上，令人鼓舞的是，5800名接种疫苗的人获得了COVID
+# 事实上，令人鼓舞的是，5800 名接种疫苗的人获得了 COVID
 
-> 原文:[https://life hacker . com/its-实际上-鼓励-5-800-接种疫苗-人-g-1846700044](https://lifehacker.com/its-actually-encouraging-that-5-800-vaccinated-people-g-1846700044)
+> 原文：<https://lifehacker.com/its-actually-encouraging-that-5-800-vaccinated-people-g-1846700044>
 
-疾病预防控制中心发布了一些关于已经完全接种疫苗的人的突破性新冠肺炎感染的信息。坏消息是:尽管接种了疫苗，仍有5800人感染了冠状病毒。好消息是:这是超过6600万人中的一个，突破率为0.008%。
+疾病预防控制中心发布了一些关于已经完全接种疫苗的人的突破性新冠肺炎感染的信息。坏消息是:尽管接种了疫苗，仍有 5800 人感染了冠状病毒。好消息是:这是超过 6600 万人中的一个，突破率为 0.008%。
 
 Watch
 
@@ -10,15 +10,15 @@ Watch
 
 我们目前掌握的信息来自《华尔街日报》的文章[。疾控中心暗示他们将在下周发布更多信息。](https://www.wsj.com/articles/cdc-identifies-small-group-of-covid-19-infections-among-fully-vaccinated-patients-11618490232?mod=hp_lead_pos7)
 
-在突破性感染中，29%是无症状的。只有7%的人住院治疗，只有74人(突破性感染的1.2%，或完全接种疫苗的0.0001%)死于COVID。
+在突破性感染中，29%是无症状的。只有 7%的人住院治疗，只有 74 人(突破性感染的 1.2%，或完全接种疫苗的 0.0001%)死于 COVID。
 
-这些数字非常好。他们表明疫苗非常有效，并可能支持这样一种观点，即即使你在接种疫苗后感染了COVID，你也可能比没有接种疫苗的情况更轻微。(流感疫苗也是如此。)
+这些数字非常好。他们表明疫苗非常有效，并可能支持这样一种观点，即即使你在接种疫苗后感染了 COVID，你也可能比没有接种疫苗的情况更轻微。(流感疫苗也是如此。)
 
-### 这与临床试验的有效率(例如，辉瑞的95%)相比如何？
+### 这与临床试验的有效率(例如，辉瑞的 95%)相比如何？
 
 这是一个不同的计算方法，所以数字不能直接比较。但是两者是兼容的。
 
-在临床试验中，一组人注射真正的疫苗，另一组人注射不含疫苗的安慰剂。随着时间的推移，随着人们的生活，有些人会患上COVID。研究人员 [比较疫苗接种组与安慰剂组](https://twitter.com/nataliexdean/status/1310613705281789961) 的COVID风险。那是你的试验功效数字。
+在临床试验中，一组人注射真正的疫苗，另一组人注射不含疫苗的安慰剂。随着时间的推移，随着人们的生活，有些人会患上 COVID。研究人员 [比较疫苗接种组与安慰剂组](https://twitter.com/nataliexdean/status/1310613705281789961) 的 COVID 风险。那是你的试验功效数字。
 
  [https://lifehacker.com/embed/inset/iframe?id=twitter-1310613705281789961&autosize=1](https://lifehacker.com/embed/inset/iframe?id=twitter-1310613705281789961&autosize=1) 
 
@@ -30,9 +30,9 @@ Watch
 
 ### 如果一个人接种了疫苗，他是如何被感染的？
 
-当我们谈论数百万人时，总会有一些情况不像我们预期的那样发展。每种疫苗都有效力，你可以查看。比如麻疹疫苗 [97%有效](https://www.fda.gov/consumers/consumer-updates/vaccination-best-protection-against-measles) 腮腺炎疫苗 [约88%有效](https://www.cdc.gov/vaccines/vpd/mumps/index.html) 。流感疫苗的有效性每年都有所不同，通常在40%到60%之间。
+当我们谈论数百万人时，总会有一些情况不像我们预期的那样发展。每种疫苗都有效力，你可以查看。比如麻疹疫苗 [97%有效](https://www.fda.gov/consumers/consumer-updates/vaccination-best-protection-against-measles) 腮腺炎疫苗 [约 88%有效](https://www.cdc.gov/vaccines/vpd/mumps/index.html) 。流感疫苗的有效性每年都有所不同，通常在 40%到 60%之间。
 
-为什么不是100%？嗯，有些事情会发生。首先，不是每个人的免疫系统都对疫苗做出正确的反应。免疫系统本来就弱的人可能不会有同样的反应；这就是为什么建议65岁以上的人 注射 [高剂量流感疫苗。](https://vitals.lifehacker.com/do-you-need-a-high-dose-flu-shot-1845169504)
+为什么不是 100%？嗯，有些事情会发生。首先，不是每个人的免疫系统都对疫苗做出正确的反应。免疫系统本来就弱的人可能不会有同样的反应；这就是为什么建议 65 岁以上的人 注射 [高剂量流感疫苗。](https://vitals.lifehacker.com/do-you-need-a-high-dose-flu-shot-1845169504)
 
 另一种可能性是，接种疫苗的人有时仍然会生病，因为他们暴露在一定量的病毒中，使他们的免疫系统不堪重负。这可能是由于大剂量的传染(例如，某个传染性很强的人整天在你面前咳嗽)，也可能是由于其他健康状况 [削弱了你的免疫系统](https://vitals.lifehacker.com/what-it-means-to-be-immunocompromised-and-why-it-matte-1846396812) 。
 

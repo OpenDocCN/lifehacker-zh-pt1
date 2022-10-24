@@ -1,6 +1,6 @@
 # 如何修理一台苦苦挣扎的空调
 
-> 原文:[https://life hacker . com/how-to-fix-a-diving-air-conditioner-1849315016](https://lifehacker.com/how-to-fix-a-struggling-air-conditioner-1849315016)
+> 原文：<https://lifehacker.com/how-to-fix-a-struggling-air-conditioner-1849315016>
 
 我来第一个指出这一点: [太热了](https://gizmodo.com/weather-heatwave-europe-u-s-climate-change-1849199051) 。随着全国许多地区遭受 [过热警告，](https://lifehacker.com/what-to-do-when-theres-an-excessive-heat-warning-1849148961) 确保你的空调尽可能有效运行至关重要。当然，这是假设你已经 [采取了](https://lifehacker.com/how-to-keep-your-ac-unit-working-all-summer-1849027071) 的步骤让你的空调设备准备好运行整个夏天。毕竟，我们将面临一场大热天。
 
@@ -20,7 +20,7 @@ Watch
 
 ## **清理室外机周围的区域**
 
-另一个你的系统可能无法冷却的原因是由于空气冷凝器堵塞。走出室外，清洁您的室外单元，清除任何可能阻碍空气流通的碎片。你可能需要修剪灌木丛，拔掉单元周围的杂草。目的是在设备周围留出大约24英寸的空间，以保证适当的空气流动。
+另一个你的系统可能无法冷却的原因是由于空气冷凝器堵塞。走出室外，清洁您的室外单元，清除任何可能阻碍空气流通的碎片。你可能需要修剪灌木丛，拔掉单元周围的杂草。目的是在设备周围留出大约 24 英寸的空间，以保证适当的空气流动。
 
 ## 何时致电暖通空调专业人员
 

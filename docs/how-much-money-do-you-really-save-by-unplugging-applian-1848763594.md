@@ -1,6 +1,6 @@
 # 拔掉电器真的能省多少钱？
 
-> 原文:[https://life hacker . com/how-much-money-do-much-much-money-you-true-save-by-unplugging-applian-1848763594](https://lifehacker.com/how-much-money-do-you-really-save-by-unplugging-applian-1848763594)
+> 原文：<https://lifehacker.com/how-much-money-do-you-really-save-by-unplugging-applian-1848763594>
 
 你显然知道关灯和关闭电子设备是降低你的用电量和金钱的一种方式。但是把你的手机放在充电器上过夜怎么样，或者让你的设备插着电源，而它们睡着了或者关机了？不用的时候拔掉它们真的值得吗？
 
@@ -8,17 +8,17 @@ Watch
 
 许多家用电子产品和电器 [在关闭或待机时继续消耗能量](https://www.nrdc.org/sites/default/files/home-idle-load-IP.pdf) ，在“睡眠模式”时，以及在打开但不使用时。当设备不执行其主要功能时使用的任何能量都被称为待机功率，消耗的电源有时被称为“能量吸血鬼”
 
-加州大学劳伦斯柏克莱国家实验室 [测量了一长串家用设备在开机、闲置和关机(但仍插着电源)时的待机功耗](https://standby.lbl.gov/data/summary-table/) ，发现范围很大。例如，你的笔记本电脑在睡眠时可以消耗少至0.82瓦或多至54.8瓦的功率，而当完全打开并充电时，甚至当充满电时，功率会大得多。
+加州大学劳伦斯柏克莱国家实验室 [测量了一长串家用设备在开机、闲置和关机(但仍插着电源)时的待机功耗](https://standby.lbl.gov/data/summary-table/) ，发现范围很大。例如，你的笔记本电脑在睡眠时可以消耗少至 0.82 瓦或多至 54.8 瓦的功率，而当完全打开并充电时，甚至当充满电时，功率会大得多。
 
 ### 那么，以美元计算，这又意味着什么呢？
 
-美国能源部[估计](https://www.energy.gov/energysaver/articles/3-easy-tips-reduce-your-standby-power-loads)备用电源的成本可能会使普通家庭每年花费100美元，而来自自然资源保护委员会 的 [数据显示每年的成本约为165美元。](https://www.nrdc.org/sites/default/files/home-idle-load-IP.pdf) 
+美国能源部[估计](https://www.energy.gov/energysaver/articles/3-easy-tips-reduce-your-standby-power-loads)备用电源的成本可能会使普通家庭每年花费 100 美元，而来自自然资源保护委员会 的 [数据显示每年的成本约为 165 美元。](https://www.nrdc.org/sites/default/files/home-idle-load-IP.pdf) 
 
 很难说“吸血鬼”到底消耗了你多少能量，因为功耗取决于你接入的设备数量、这些设备在不同模式下的能耗以及你的使用习惯。此外，电费会波动。伯克利实验室建议 [以下简单计算](https://standby.lbl.gov/faq/#watts) 给你一个大概:
 
-如果一台设备在一年中持续消耗1瓦的电能，那么在这段时间内大约消耗9千瓦时，总成本为1美元。因此，如果你的微波炉 [闲置时平均消耗3瓦](https://standby.lbl.gov/data/summary-table/) ，那就是每年27千瓦时或3美元。
+如果一台设备在一年中持续消耗 1 瓦的电能，那么在这段时间内大约消耗 9 千瓦时，总成本为 1 美元。因此，如果你的微波炉 [闲置时平均消耗 3 瓦](https://standby.lbl.gov/data/summary-table/) ，那就是每年 27 千瓦时或 3 美元。
 
-这看起来不算多，但如果你把所有不用时还插着电源的设备加起来——NRDC估计有65台之多——你就能看出这100美元是怎么花掉的。消费电子产品，如电脑、游戏机和电视占据了一半以上的持续功耗。
+这看起来不算多，但如果你把所有不用时还插着电源的设备加起来——NRDC 估计有 65 台之多——你就能看出这 100 美元是怎么花掉的。消费电子产品，如电脑、游戏机和电视占据了一半以上的持续功耗。
 
 ### 如何在待机电源上省钱
 

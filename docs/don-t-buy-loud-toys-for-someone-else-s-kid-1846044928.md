@@ -1,6 +1,6 @@
 # 不要给别人的孩子买吵闹的玩具
 
-> 原文:[https://life hacker . com/don-t-buy-loud-toys-for-someone-s-kid-1846044928](https://lifehacker.com/don-t-buy-loud-toys-for-someone-else-s-kid-1846044928)
+> 原文：<https://lifehacker.com/don-t-buy-loud-toys-for-someone-else-s-kid-1846044928>
 
 很多年前，我还没有为人父母的时候，我就成了阿姨。我的第一个侄女，大约两岁，喜欢一个叫 [*的节目，哟，嘎巴嘎巴！*](https://www.yogabbagabba.tv/) 那是专门从事音乐和舞蹈的地方。我，作为一个不可思议的有趣的阿姨，给她买了这个。跳舞毯，鼓励孩子们“尽情摇摆”我想象着她尽情地摇摆，用她蹒跚学步的小脚打碎所有的小钥匙。她打算*爱*它*。*
 
@@ -10,9 +10,9 @@ Watch
 
 那是在我儿子出生将近两年前，尽管他从未真正兑现他的威胁(他告诉我他后悔这个选择)，但他确实让我担心了很多年，在我儿子的每次生日或其他送礼活动之前，他都暗示我，今年*可能是“跳舞毯”找到新家的一年。*
 
-*他的观点是，在没有得到明确允许的情况下，把一个声音大得令人讨厌的玩具送给另一个人的孩子，这绝对不是一件酷的事情，我至今仍牢记在心。最近，Reddit用户u/RivetJoint08 提醒了我这一点，他也在这里说这不是一件可爱也不好笑的事情:*
+*他的观点是，在没有得到明确允许的情况下，把一个声音大得令人讨厌的玩具送给另一个人的孩子，这绝对不是一件酷的事情，我至今仍牢记在心。最近，Reddit 用户 u/RivetJoint08 提醒了我这一点，他也在这里说这不是一件可爱也不好笑的事情:*
 
-> *我是一个两岁男孩的父亲。完全冷静，正常，普通的2岁男孩。几个月前，他的阿姨送给他一个嘎嘎叫的鸭子玩具作为生日礼物，她真的很高兴这将是一个令人讨厌的、声音很大的玩具。鸭子还不错。今天，阿姨家的一个朋友给了我们的儿子一套圣诞鼓。他两岁了。他从未表示过对打鼓感兴趣。这很烦人，这是浪费钱，本质上是让我在一个月内把这个垃圾带到Goodwill。在这两种情况下，送礼物的人要么是孩子的父母，要么是即将为人父母的人。父母和父母的朋友，如果你想买一套鼓之类的吵闹的礼物，请向父母报到。*
+> *我是一个两岁男孩的父亲。完全冷静，正常，普通的 2 岁男孩。几个月前，他的阿姨送给他一个嘎嘎叫的鸭子玩具作为生日礼物，她真的很高兴这将是一个令人讨厌的、声音很大的玩具。鸭子还不错。今天，阿姨家的一个朋友给了我们的儿子一套圣诞鼓。他两岁了。他从未表示过对打鼓感兴趣。这很烦人，这是浪费钱，本质上是让我在一个月内把这个垃圾带到 Goodwill。在这两种情况下，送礼物的人要么是孩子的父母，要么是即将为人父母的人。父母和父母的朋友，如果你想买一套鼓之类的吵闹的礼物，请向父母报到。*
 
 *我为人父母的这些年教会了我一个关于为婴儿、幼儿和学龄前儿童制作的音乐玩具的简单事实:他们通常只有一个音量设置，而且这个设置是“大声的”(如果它有两个设置，它们是“大声”和“绝对该死的爆破。”)我不得不相信，这是因为小孩子的注意力持续时间短，每个玩具都想抓住所有可能的注意力。*
 
@@ -20,8 +20,8 @@ Watch
 
 *如果你还没有为人父母，你可能还不知道这个事实。几乎可以肯定，你低估了一个有一个或多个小孩的家庭已经很高的音量水平。但是从现在开始，你应该假设任何会发出声音的玩具，事实上，发出的声音足以唤醒死人。特别是，*特别是，*如果你是在网上购买这个玩具，并且没有亲自听说过，请远离购物车。也许选择一本书来代替——不，不是那些你按下按钮会发出噪音的书，停下来！*
 
-*正如 [u/RivetJoint08](https://www.reddit.com/r/Parenting/comments/klc4ci/unpopular_parenting_opinion_its_not_cutefunny_to/) 所表明的，如果你想继续与父母保持积极的关系，还有另一种类型的玩具是你绝对需要许可才能购买的。这种类型是你可以用T4制作音乐的玩具。*
+*正如 [u/RivetJoint08](https://www.reddit.com/r/Parenting/comments/klc4ci/unpopular_parenting_opinion_its_not_cutefunny_to/) 所表明的，如果你想继续与父母保持积极的关系，还有另一种类型的玩具是你绝对需要许可才能购买的。这种类型是你可以用 T4 制作音乐的玩具。*
 
 *这些年来，我儿子收到了一套很小(但功能强大)的架子鼓、一对真正的马拉卡琴和一套铃，只要想到它们，我的耳朵就会嗡嗡作响。(都来自同一个人——一个幸运的我还能和她说话的人。)*
 
-*如果你*真的*想要那把 [可爱的小狗形状的小吉他](https://www.target.com/p/b-toys-interactive-dog-guitar-woofer/-/A-13527758?ref=tgt_adv_XS000000&AFID=google_pla_df&fndsrc=tgtao&DFA=71700000012732838&CPNG=PLA_Toys%2BShopping_Local&adgroup=SC_Toys&LID=700000001170770pgs&LNM=PRODUCT_GROUP&network=g&device=c&location=9006934&targetid=pla-785837127258&ds_rl=1246978&ds_rl=1248099&gclid=Cj0KCQiArvX_BRCyARIsAKsnTxM9Aj_5e8RQXT0UB91NOL6xU71OoB0AU9aWczLI24ZF4gTk_MrnSdwaAvtJEALw_wcB&gclsrc=aw.ds) 因为1)它无可否认地可爱，2)你知道小孩会喜欢它，3)你认为父母可能不会介意，有一个简单的解决办法:先问父母。即使他们真的不介意，他们也会感谢你的邀请。*
+*如果你*真的*想要那把 [可爱的小狗形状的小吉他](https://www.target.com/p/b-toys-interactive-dog-guitar-woofer/-/A-13527758?ref=tgt_adv_XS000000&AFID=google_pla_df&fndsrc=tgtao&DFA=71700000012732838&CPNG=PLA_Toys%2BShopping_Local&adgroup=SC_Toys&LID=700000001170770pgs&LNM=PRODUCT_GROUP&network=g&device=c&location=9006934&targetid=pla-785837127258&ds_rl=1246978&ds_rl=1248099&gclid=Cj0KCQiArvX_BRCyARIsAKsnTxM9Aj_5e8RQXT0UB91NOL6xU71OoB0AU9aWczLI24ZF4gTk_MrnSdwaAvtJEALw_wcB&gclsrc=aw.ds) 因为 1)它无可否认地可爱，2)你知道小孩会喜欢它，3)你认为父母可能不会介意，有一个简单的解决办法:先问父母。即使他们真的不介意，他们也会感谢你的邀请。*

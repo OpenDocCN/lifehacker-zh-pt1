@@ -1,8 +1,8 @@
 # 如何向你的孩子介绍烹饪
 
-> 原文:[https://life hacker . com/how-to-introduction-your-kids-to-cooking-1846169977](https://lifehacker.com/how-to-introduce-your-kids-to-cooking-1846169977)
+> 原文：<https://lifehacker.com/how-to-introduce-your-kids-to-cooking-1846169977>
 
-在18岁之前，Amber Kelley已经赢得了 [*美食网明星Kids*](https://www.foodnetwork.com/shows/food-network-star-kids) ，写了自己的 [食谱](https://www.amazon.com/gp/product/0762463872?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-introduce-your-kids-to-cooking-1846169977&asc_source=&pf_rd_p=1cac67ce-697a-47be-b2f5-9ae91aab54f2&pf_rd_r=GSC2JCA9VS1SPWQG84WJ&tag=kinjalifehackerlink-20) ，发起了 [成功的YouTube秀](https://www.youtube.com/user/CookWithAmber) ，并入围了n杰米·奥利弗的“寻找美食之星”比赛。但是她通过和父母在厨房里闲逛开始了厨师的职业。
+在 18 岁之前，Amber Kelley 已经赢得了 [*美食网明星 Kids*](https://www.foodnetwork.com/shows/food-network-star-kids) ，写了自己的 [食谱](https://www.amazon.com/gp/product/0762463872?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-introduce-your-kids-to-cooking-1846169977&asc_source=&pf_rd_p=1cac67ce-697a-47be-b2f5-9ae91aab54f2&pf_rd_r=GSC2JCA9VS1SPWQG84WJ&tag=kinjalifehackerlink-20) ，发起了 [成功的 YouTube 秀](https://www.youtube.com/user/CookWithAmber) ，并入围了 n 杰米·奥利弗的“寻找美食之星”比赛。但是她通过和父母在厨房里闲逛开始了厨师的职业。
 
 Watch
 
@@ -20,13 +20,13 @@ Watch
 
 这些技能中的大部分都可以在厨房里和父母一起学习，但是在大多数社区也有外部资源。
 
-“我在我们当地的自然市场上了一些烹饪课，特别记得当时我还太小，不能被允许参加他们的刀工课，当时只有10岁，”Kelley说。“但我通过帮助妈妈学到了很多东西。”
+“我在我们当地的自然市场上了一些烹饪课，特别记得当时我还太小，不能被允许参加他们的刀工课，当时只有 10 岁，”Kelley 说。“但我通过帮助妈妈学到了很多东西。”
 
 ### 收获回报
 
 教孩子做饭有一系列好处。当他们年轻时，做一些小任务，这有助于教授和加强精细的运动技能，他们通过触摸不同类型的食物或烹饪所需的材料来学习纹理。它还可以帮助建立信心或成就感，因为它们有助于完成产品。多名家庭成员的参与，也有助于在父母和孩子之间建立持久的联系和亲密关系。
 
-“烹饪是我们(我的家庭)如此亲密的一个重要因素，”凯利说。“这是我们都喜欢的东西。当我开始我的YouTube频道，它成长为一个企业，因为我太年轻，它需要我的整个家庭来帮助，所以我们有点像一个家庭一起经营这个企业。这也是一件大事。”
+“烹饪是我们(我的家庭)如此亲密的一个重要因素，”凯利说。“这是我们都喜欢的东西。当我开始我的 YouTube 频道，它成长为一个企业，因为我太年轻，它需要我的整个家庭来帮助，所以我们有点像一个家庭一起经营这个企业。这也是一件大事。”
 
 学习烹饪技能也有助于让孩子们接触营养和健康均衡饮食的概念。凯利指出，当她上二年级时，同学们取笑她午餐总是吃自制的食物，而不是预先包装好的加工过的零食。
 
@@ -46,7 +46,7 @@ Watch
 
 随着许多孩子在疫情期间在网上学习，烹饪也是让那些可能感到孤独或焦虑并需要创造性发泄的人全神贯注的好任务。由于家人长期隔离在一起，烹饪新东西也是保持关系健康的一种方式。
 
-“我们都在轮换，”凯利说。“我14岁的姐姐也做饭。这对我们来说是一件有趣的事情，因为我们都可以找到一个食谱，为家里的其他人做一道菜；它让我们在一天结束时聚在一起。在这段时间里，每个人都花很多时间在自己的房子里和家人在一起，这对我们来说很新鲜。
+“我们都在轮换，”凯利说。“我 14 岁的姐姐也做饭。这对我们来说是一件有趣的事情，因为我们都可以找到一个食谱，为家里的其他人做一道菜；它让我们在一天结束时聚在一起。在这段时间里，每个人都花很多时间在自己的房子里和家人在一起，这对我们来说很新鲜。
 
 凯利的节目和烹饪书旨在让孩子们觉得烹饪应该是有趣的、容易理解的，而不是令人生畏的——父母在传授这些课程中扮演着重要的角色。
 

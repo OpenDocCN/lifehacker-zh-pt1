@@ -1,6 +1,6 @@
 # 蒸你的方式，以无污点的酒杯
 
-> 原文:[https://life hacker . com/steam-your-way-to-spot-free-wine-glasses-1848812957](https://lifehacker.com/steam-your-way-to-spot-free-wine-glasses-1848812957)
+> 原文：<https://lifehacker.com/steam-your-way-to-spot-free-wine-glasses-1848812957>
 
 喝酒是一种乐趣——一种高雅的乐趣——没有什么能像脏污和污点一样破坏高雅的乐趣。如果我给朋友、家人和/或敌人斟酒，我需要我的酒杯闪闪发光，宝贝。毕竟，我要维护一个(非常具体的)名声。(我可能不是社会所认为的“优雅”，但我是干净的。)
 

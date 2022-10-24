@@ -1,6 +1,6 @@
 # 下次面试时带上三个关键故事
 
-> 原文:[https://life hacker . com/bring-three-key-stories-with-you-to-next-job-inter-761573855](https://lifehacker.com/bring-three-key-stories-with-you-to-your-next-job-inter-761573855)
+> 原文：<https://lifehacker.com/bring-three-key-stories-with-you-to-your-next-job-inter-761573855>
 
 下一次你准备工作面试时，不要试图排练几十个常见问题的答案，而是想三个广泛的故事，描述你做了伟大的工作，成功地与难相处的人合作，或迎接挑战。无论如何，真实的故事和有形的对话比股票答案走得更远。
 
@@ -12,4 +12,4 @@ Watch
 
 《美国新闻与世界报道》提供了许多其他有用的面试准备技巧 ，但这一条真的能让你与众不同。我们常常太专注于得到问题的答案*对吗*，以至于我们忘记了向招聘经理展示一幅完整、真实的自我形象同样重要(如果不是更重要的话)。
 
-*本文最初发表于2013年7月，2021年1月21日更新，以刷新死链接，执行副本编辑，更改标题照片，并使内容与当前Lifehacker风格保持一致。*
+*本文最初发表于 2013 年 7 月，2021 年 1 月 21 日更新，以刷新死链接，执行副本编辑，更改标题照片，并使内容与当前 Lifehacker 风格保持一致。*

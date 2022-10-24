@@ -1,18 +1,18 @@
-# 今年九月你可以在花园里种植的11种最好的东西
+# 今年九月你可以在花园里种植的 11 种最好的东西
 
-> 原文:[https://life hacker . com/11-of-the-best-this-the-this-1849453269](https://lifehacker.com/11-of-the-best-things-you-can-plant-in-your-garden-this-1849453269)
+> 原文：<https://lifehacker.com/11-of-the-best-things-you-can-plant-in-your-garden-this-1849453269>
 
 夏天可能结束了，但这并不意味着园艺季节也结束了。许多植物喜欢秋天带来的凉爽气温和较短的白天，这意味着九月是规划花园更新的好时机。
 
 首先:如果你还没有，在美国农业部网站 上 [查找你的耐寒区域是个好主意。这将帮助你选择适合在你居住的地方九月种植的作物，让你在春天(或秋天，甚至冬天)获得令人满意的收成。一般来说，九月种植的最佳候选品种分为三类:快速生长的蔬菜、春季收获的蔬菜和秋季或春季开花的花卉。这里有一些让你开始的好选择。](https://planthardiness.ars.usda.gov)
 
-虽然萝卜是典型的春季蔬菜，但它们喜欢适中的温度，生长速度非常快，这使它们成为理想的秋季菜园候选品种。如果你能在第一次霜冻 前4-6周挤出一些种植时间 [，你几乎随时都能吃到美味的萝卜。](https://www.almanac.com/plant/radishes)
+虽然萝卜是典型的春季蔬菜，但它们喜欢适中的温度，生长速度非常快，这使它们成为理想的秋季菜园候选品种。如果你能在第一次霜冻 前 4-6 周挤出一些种植时间 [，你几乎随时都能吃到美味的萝卜。](https://www.almanac.com/plant/radishes)
 
-如果你生活在温暖的气候中，你可能还有时间种植花椰菜。老农历推荐 [在初霜](https://www.almanac.com/plant/broccoli) 前85-100天播种西兰花种子。
+如果你生活在温暖的气候中，你可能还有时间种植花椰菜。老农历推荐 [在初霜](https://www.almanac.com/plant/broccoli) 前 85-100 天播种西兰花种子。
 
 生菜生长速度极快，是夏末(或初秋)种植的理想选择。一定要选择适合你所在地区秋季天气的莴苣品种。莴苣在凉爽的天气下生长旺盛，所以如果你住的地方九月仍然很热， [选择耐热品种](https://www.botanicalinterests.com/product/Heat-Tolerant-Lettuces-and-Other-Greens) 。
 
-[根据云杉](https://www.thespruce.com/growing-arugula-in-garden-pots-848160) 的说法，芝麻菜从种子开始生长大约需要40天，这意味着在第一次霜冻之前你可能有足够的时间开始生长。阳光充足时效果最好，所以要确保你的植物每天至少有六个小时来获得最佳效果。
+[根据云杉](https://www.thespruce.com/growing-arugula-in-garden-pots-848160) 的说法，芝麻菜从种子开始生长大约需要 40 天，这意味着在第一次霜冻之前你可能有足够的时间开始生长。阳光充足时效果最好，所以要确保你的植物每天至少有六个小时来获得最佳效果。
 
 秋天的菠菜可以在几周内收获——如果你只摘外面的叶子，你的植物可以在整个冬天甚至春天继续生长。《老农历》建议选择抗寒性好的品种，在幼苗生长时小心地间苗。
 

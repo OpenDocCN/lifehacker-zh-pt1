@@ -1,6 +1,6 @@
 # 只需提出以下要求，即可免除您的信用卡年费
 
-> 原文:[https://life hacker . com/ask-to-get-your-annual-信用卡免年费-1693217970](https://lifehacker.com/ask-to-get-your-annual-credit-card-fee-waived-1693217970)
+> 原文：<https://lifehacker.com/ask-to-get-your-annual-credit-card-fee-waived-1693217970>
 
 一些信用卡附带费用，特别是如果他们提供 [甜蜜奖励计划](http://twocents.lifehacker.com/money-advice-not-everyone-agrees-on-using-credit-card-1594620799) 。如果你的卡有年费，打电话给运营商看看他们是否会免除它是值得的。
 
@@ -16,4 +16,4 @@ Watch
 
 无论你做什么决定，打电话询问你的选择并不难，这样你就可以做出明智的选择。检查您的信用卡年费是在开户周年日收取还是在每年年初收取，并设置一个日历提醒，这样每当该日期再次到来时，您都记得打电话。
 
-*这篇文章最初发表于2015年，并于2020年更新，以包括额外的上下文并符合Lifehacker风格指南。*
+*这篇文章最初发表于 2015 年，并于 2020 年更新，以包括额外的上下文并符合 Lifehacker 风格指南。*

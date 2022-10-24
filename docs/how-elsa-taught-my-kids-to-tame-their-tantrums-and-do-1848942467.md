@@ -1,6 +1,6 @@
 # 艾尔莎如何教我的孩子驯服他们的脾气(和做家务)
 
-> 原文:[https://life hacker . com/how-Elsa-teached-my-kids-tame-the-tantrums-and-do-1848942467](https://lifehacker.com/how-elsa-taught-my-kids-to-tame-their-tantrums-and-do-1848942467)
+> 原文：<https://lifehacker.com/how-elsa-taught-my-kids-to-tame-their-tantrums-and-do-1848942467>
 
 我最近意识到，在过去几年里，当涉及到我的孩子并帮助他们管理(或不管理)他们巨大的情绪时，我一直在错误地解读艾尔莎在 *Frozen* 中的“放手”这个大数字。我终于意识到，这首歌是*而不是*关于表达你的情绪有多棒——但我仍然可以利用艾尔莎来帮助我的孩子更好地控制他们的情绪，避免大发脾气，并弥补过去的错误。
 

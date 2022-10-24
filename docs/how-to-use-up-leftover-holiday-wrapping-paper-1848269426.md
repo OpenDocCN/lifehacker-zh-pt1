@@ -1,6 +1,6 @@
 # 如何用完剩余的节日包装纸
 
-> 原文:[https://life hacker . com/how-to-use-up-left-holiday-wrapping-paper-1848269426](https://lifehacker.com/how-to-use-up-leftover-holiday-wrapping-paper-1848269426)
+> 原文：<https://lifehacker.com/how-to-use-up-leftover-holiday-wrapping-paper-1848269426>
 
 袜子挂好了，礼物包好了，然后再拆开，节日的送礼环节已经接近尾声。但是当你为这一年收拾东西的时候，你注意到你有一些剩余的包装纸。
 

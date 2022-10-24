@@ -1,6 +1,6 @@
 # 牛奶漆和粉笔漆的区别，以及各自的使用时间
 
-> 原文:[https://life hacker . com/the-difference-in-milk-paint-and-chalk-paint-and-1847616888](https://lifehacker.com/the-difference-between-milk-paint-and-chalk-paint-and-1847616888)
+> 原文：<https://lifehacker.com/the-difference-between-milk-paint-and-chalk-paint-and-1847616888>
 
 就算你以前没听说过奶漆或者粉笔漆，你也绝对见过。除此之外，我们这里指的粉笔画不是那种你可以用来把任何表面变成你自己的黑板的深色粉笔画。那是另外一回事。
 
@@ -12,7 +12,7 @@ Watch
 
 ## 牛奶颜料与粉笔颜料
 
-除了上面提到的这些，牛奶漆和粉笔漆还有其他的相似之处， [根据Wallender](https://www.thespruce.com/milk-paint-vs-chalk-paint-4587357) 。首先，两者都是水基的，易于混合，快干，无光泽，含有最少量的挥发性有机化合物(VOCs)。
+除了上面提到的这些，牛奶漆和粉笔漆还有其他的相似之处， [根据 Wallender](https://www.thespruce.com/milk-paint-vs-chalk-paint-4587357) 。首先，两者都是水基的，易于混合，快干，无光泽，含有最少量的挥发性有机化合物(VOCs)。
 
 事实上，它们的成分几乎完全相同。除了水基之外，牛奶颜料和粉笔颜料都是由矿物质组成的，碳酸钙是这场展览的主角，其他矿物质也是嘉宾，还有赭石、安巴、氧化铁和油烟等颜料， [瓦伦德解释说](https://www.thespruce.com/milk-paint-vs-chalk-paint-4587357) 。
 
@@ -24,4 +24,4 @@ Watch
 
 牛奶漆也是一种块状物，如果你想创造一种老化的，有条纹的漆面，这是一件好事。为了让宜家椅子看起来更旧，如果你打磨使用过牛奶漆的表面，一些牛奶漆会剥落，让家具看起来更破旧。
 
-同时，c 哈尔克漆，用平板烘干...粉笔末。但是，正如 [Wallender指出](https://www.thespruce.com/milk-paint-vs-chalk-paint-4587357) 的那样，它也可以用来“通过用细砂纸打磨多层来创造一种现代、光滑、无条纹的纹理”，因此可能更加通用。
+同时，c 哈尔克漆，用平板烘干...粉笔末。但是，正如 [Wallender 指出](https://www.thespruce.com/milk-paint-vs-chalk-paint-4587357) 的那样，它也可以用来“通过用细砂纸打磨多层来创造一种现代、光滑、无条纹的纹理”，因此可能更加通用。

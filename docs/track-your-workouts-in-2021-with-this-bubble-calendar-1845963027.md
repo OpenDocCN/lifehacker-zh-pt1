@@ -1,12 +1,12 @@
-# 用这款泡泡日历记录你在2021年的训练
+# 用这款泡泡日历记录你在 2021 年的训练
 
-> 原文:[https://life hacker . com/track-your-workouts-in-2021 with this-bubble-calendar-1845963027](https://lifehacker.com/track-your-workouts-in-2021-with-this-bubble-calendar-1845963027)
+> 原文：<https://lifehacker.com/track-your-workouts-in-2021-with-this-bubble-calendar-1845963027>
 
-如果你是那些总是发现填写扫描图令人满意的书呆子之一，你会喜欢这个可打印的习惯跟踪器。由reddit用户u/Propelissa创建，这是一个 [完整的2021年日历，采用填充气泡格式](https://www.reddit.com/r/XXRunning/comments/klwlsw/created_this_fillinthebubble_2021_printable/) 。
+如果你是那些总是发现填写扫描图令人满意的书呆子之一，你会喜欢这个可打印的习惯跟踪器。由 reddit 用户 u/Propelissa 创建，这是一个 [完整的 2021 年日历，采用填充气泡格式](https://www.reddit.com/r/XXRunning/comments/klwlsw/created_this_fillinthebubble_2021_printable/) 。
 
 Watch
 
-创作者说，它是根据“舰队之脚”作为斯特拉发挑战的奖品发送的日历设计的。该版本有易于印刷的8.5x11英寸尺寸，或者如果您喜欢，也可以有 [8x10英寸](https://i.imgur.com/9DJ0hfL.jpg) 的变体。
+创作者说，它是根据“舰队之脚”作为斯特拉发挑战的奖品发送的日历设计的。该版本有易于印刷的 8.5x11 英寸尺寸，或者如果您喜欢，也可以有 [8x10 英寸](https://i.imgur.com/9DJ0hfL.jpg) 的变体。
 
 这个想法是用它来跟踪你一年中的锻炼，每次你去跑步或在健身房记录一段时间，就填满一个圆圈。但是你可以把它用在任何你喜欢的习惯上。
 

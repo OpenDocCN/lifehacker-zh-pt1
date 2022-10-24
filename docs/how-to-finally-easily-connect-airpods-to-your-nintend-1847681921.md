@@ -1,22 +1,22 @@
-# 如何最终(轻松地)将AirPods连接到您的任天堂Switch
+# 如何最终(轻松地)将 AirPods 连接到您的任天堂 Switch
 
-> 原文:[https://life hacker . com/how-to-finally-easy-connect-ai rpods-to-your-nintend-1847681921](https://lifehacker.com/how-to-finally-easily-connect-airpods-to-your-nintend-1847681921)
+> 原文：<https://lifehacker.com/how-to-finally-easily-connect-airpods-to-your-nintend-1847681921>
 
-在过去的四年里，许多设备都抛弃了耳机插孔，而任天堂Switch却反其道而行之；该公司*只有*支持有线耳机，没有像AirPods一样轻松连接蓝牙耳机或耳塞的选项。您过去需要昂贵的解决方案才能在交换机上获得无线音频；但是现在，很洒脱。
+在过去的四年里，许多设备都抛弃了耳机插孔，而任天堂 Switch 却反其道而行之；该公司*只有*支持有线耳机，没有像 AirPods 一样轻松连接蓝牙耳机或耳塞的选项。您过去需要昂贵的解决方案才能在交换机上获得无线音频；但是现在，很洒脱。
 
 Watch
 
-在过去，如果你想将你的开关音频传输到蓝牙耳机或耳塞，你需要购买一个蓝牙适配器，像 [HomeSpot的产品](https://www.amazon.com/dp/B07L9SL7ZT/?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-finally-easily-connect-airpods-to-your-nintend-1847681921&asc_source=&tag=kinjalifehackerlink-20) 。根据您的游戏方式，您可以将适配器插入交换机本身或您的dock。虽然您仍然可以使用这些设备作为解决方案，但它们已经没有必要了。
+在过去，如果你想将你的开关音频传输到蓝牙耳机或耳塞，你需要购买一个蓝牙适配器，像 [HomeSpot 的产品](https://www.amazon.com/dp/B07L9SL7ZT/?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-finally-easily-connect-airpods-to-your-nintend-1847681921&asc_source=&tag=kinjalifehackerlink-20) 。根据您的游戏方式，您可以将适配器插入交换机本身或您的 dock。虽然您仍然可以使用这些设备作为解决方案，但它们已经没有必要了。
 
-## 蓝牙音频是13.0.0交换机更新的一部分
+## 蓝牙音频是 13.0.0 交换机更新的一部分
 
-需要说明的是，这是任天堂Switch 13 . 0 . 0更新的一个全新特性。为了在您的设置中看到该选项，您需要确保至少更新到该版本。要检查，进入**设置>系统**，然后检查**系统更新**下的**当前版本**。如果读数至少是13.0.0，你就可以走了。如果没有，选择**系统更新**，安装最新更新。
+需要说明的是，这是任天堂 Switch 13 . 0 . 0 更新的一个全新特性。为了在您的设置中看到该选项，您需要确保至少更新到该版本。要检查，进入**设置>系统**，然后检查**系统更新**下的**当前版本**。如果读数至少是 13.0.0，你就可以走了。如果没有，选择**系统更新**，安装最新更新。
 
-## 如何连接AirPods和其他蓝牙音频设备进行切换
+## 如何连接 AirPods 和其他蓝牙音频设备进行切换
 
 更新您的开关后，进入**设置>蓝牙音频**。选择“**配对设备**，您的交换机将开始寻找蓝牙设备。将您尝试连接的蓝牙设备置于配对模式，以便交换机可以找到它。(如果您不知道如何配对，请查找您的特定蓝牙设备。)
 
-例如，使用AirPods Pro，将两个耳塞都放在外壳中，按住背面的按钮，然后打开外壳。表壳正面的灯会变成白色；这是配对模式指示器。盯着开关，等待AirPods Pro出现。一旦您设备名称出现，选择它，然后允许您的交换机配对。如果配对成功，您将看到以下信息:
+例如，使用 AirPods Pro，将两个耳塞都放在外壳中，按住背面的按钮，然后打开外壳。表壳正面的灯会变成白色；这是配对模式指示器。盯着开关，等待 AirPods Pro 出现。一旦您设备名称出现，选择它，然后允许您的交换机配对。如果配对成功，您将看到以下信息:
 
 > 连接到蓝牙音频。
 > 

@@ -1,6 +1,6 @@
 # 如何使用阻力带而不伤手
 
-> 原文:[https://life hacker . com/how-to-use-resistance-bands-without-injury-your-hands-1849384771](https://lifehacker.com/how-to-use-resistance-bands-without-hurting-your-hands-1849384771)
+> 原文：<https://lifehacker.com/how-to-use-resistance-bands-without-hurting-your-hands-1849384771>
 
 阻力带用途广泛，便于携带，可以为各种锻炼提供足够重的阻力，使它们成为您健身包中的一个宝贵补充。不幸的是，最好的一种带子是没有手柄的长而结实的那种——这意味着握起来不舒服。
 
@@ -20,4 +20,4 @@ Watch
 
 如果有一个手柄，你可以在需要的时候把它放在带子上，然后把它拿掉，这不是很好吗？虽然普通的阻力带手柄效果不是很好，但有专门为这种类型的阻力带制作的产品，如 [这些钩型手柄](https://valorfitness.com/products/resistance-band-handles-mb-7) 。
 
-或者使用粗握杆。(Fat Gripz是一个品牌名称，但也有其他产品做同样的事情。)它们通常用在杠铃或哑铃手柄上，使手柄更宽，并在你坚持的时候给你的前臂肌肉更多挑战。但是由于它们很容易滑到你想抓住的任何东西上，所以它们是阻力带的完美抓手，正如这个视频显示的。
+或者使用粗握杆。(Fat Gripz 是一个品牌名称，但也有其他产品做同样的事情。)它们通常用在杠铃或哑铃手柄上，使手柄更宽，并在你坚持的时候给你的前臂肌肉更多挑战。但是由于它们很容易滑到你想抓住的任何东西上，所以它们是阻力带的完美抓手，正如这个视频显示的。

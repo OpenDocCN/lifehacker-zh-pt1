@@ -1,6 +1,6 @@
 # 如何保护你的车免受阳光和热的伤害
 
-> 原文:[https://life hacker . com/how-to-protect-your vehicle from the sun and heat-damage-1849077805](https://lifehacker.com/how-to-protect-your-vehicle-from-sun-and-heat-damage-1849077805)
+> 原文：<https://lifehacker.com/how-to-protect-your-vehicle-from-sun-and-heat-damage-1849077805>
 
 你知道 [你需要防晒霜](https://lifehacker.com/10-sizzling-sunscreen-tips-for-a-burn-free-summer-1847174089) 和层层防晒，以免你被 [严重晒伤](https://lifehacker.com/how-to-tell-if-your-sunburn-might-actually-need-medical-1848996583) 。显而易见，如果紫外线对你有害，那么它也会对其他东西有害——甚至是没有皮肤覆盖的东西。例如，你的汽车可能会受到阳光的伤害，但正如你可以代表你的身体进行干预一样，你也可以代表你的财产进行干预。
 

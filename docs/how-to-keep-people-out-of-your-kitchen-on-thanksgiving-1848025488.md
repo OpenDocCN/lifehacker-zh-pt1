@@ -1,6 +1,6 @@
 # 如何在感恩节让人们远离你的厨房
 
-> 原文:[https://life hacker . com/how-to-keep-people-out-of-your ' s kitchen-1848025488](https://lifehacker.com/how-to-keep-people-out-of-your-kitchen-on-thanksgiving-1848025488)
+> 原文：<https://lifehacker.com/how-to-keep-people-out-of-your-kitchen-on-thanksgiving-1848025488>
 
 当我坐下来阐述这个话题时，我正在深呼吸。我的嘴唇撅起来了吗？是的。我的鼻孔张开了吗？你打赌。我的屁股握紧了吗？大概吧。甚至一想到人们拥挤在厨房里，问我问题，在我需要打开抽屉的准确时刻站在那个抽屉前面，我需要集中精力完成感恩节烹饪任务时，我就会产生噪音。
 
@@ -26,7 +26,7 @@ Watch
 
 ## 设置其他活动
 
-有些人很难在重要的日子不捐款。为什么不给他们闲着的手一些别的事情做呢？你可以有一个姜饼造房子的桌子，团队在那里比赛组装最好看的房子并赢得奖励。拿出一些建筑用纸和记号笔，让人们想出他们最好的拒绝贺卡。一个1000块拼图的挑战，一轮人类的卡片，或者你想做什么？都能让人不再烦你。
+有些人很难在重要的日子不捐款。为什么不给他们闲着的手一些别的事情做呢？你可以有一个姜饼造房子的桌子，团队在那里比赛组装最好看的房子并赢得奖励。拿出一些建筑用纸和记号笔，让人们想出他们最好的拒绝贺卡。一个 1000 块拼图的挑战，一轮人类的卡片，或者你想做什么？都能让人不再烦你。
 
 ## 提前设计一份工作清单
 
@@ -38,4 +38,4 @@ Watch
 
 ## 告诉他们滚开
 
-当所有其他方法都失败时，总有一种轻松的方式告诉人们你需要空间。(他们是你的家人和密友吧？这应该让你有一定程度的诚实。要走礼貌但直接的路线，试着微笑，“我需要多一点时间。在我完成之前，每个人都可以去另一个房间吗？”如果你的家人更直言不讳，你总是可以保持真实。借鉴Quora上的 [乔·杰罗尼莫·马丁内斯](https://www.quora.com/profile/Joe-Geronimo-Martinez) 的做法，他的 [解决方案](https://www.quora.com/How-can-I-keep-guests-from-trying-to-help-out-in-the-kitchen-on-Thanksgiving-Whats-the-best-way-to-politely-decline-their-help) 是宣布:“没人会进我他妈的厨房。明白了吗？”
+当所有其他方法都失败时，总有一种轻松的方式告诉人们你需要空间。(他们是你的家人和密友吧？这应该让你有一定程度的诚实。要走礼貌但直接的路线，试着微笑，“我需要多一点时间。在我完成之前，每个人都可以去另一个房间吗？”如果你的家人更直言不讳，你总是可以保持真实。借鉴 Quora 上的 [乔·杰罗尼莫·马丁内斯](https://www.quora.com/profile/Joe-Geronimo-Martinez) 的做法，他的 [解决方案](https://www.quora.com/How-can-I-keep-guests-from-trying-to-help-out-in-the-kitchen-on-Thanksgiving-Whats-the-best-way-to-politely-decline-their-help) 是宣布:“没人会进我他妈的厨房。明白了吗？”

@@ -1,6 +1,6 @@
 # 你应该多久给你的狗洗一次澡？
 
-> 原文:[https://life hacker . com/你应该多久洗一次狗-1846458397](https://lifehacker.com/how-often-should-you-wash-your-dog-1846458397)
+> 原文：<https://lifehacker.com/how-often-should-you-wash-your-dog-1846458397>
 
 狗可能是最受普遍喜爱的动物，也喜欢自己的污秽。它们嗅其他狗的屁股来打招呼。他们兴高采烈地在泥里打滚，还有许多比泥脏得多的东西。它们，偶尔， [津津有味地吃](https://www.hudsonanimalhospitalnyc.com/services/dogs/blog/why-do-dogs-eat-poop) 的便便。有些狗会毫不犹豫地杀死患有狂犬病的动物，并把它们带进你的家，作为一种令人厌恶的纪念品。
 
@@ -12,11 +12,11 @@ Watch
 
 因为决定什么时候给你的狗洗澡是一门不精确的科学，这里有一个方法来处理你的狗狗的洗发方案:考虑你的狗的皮毛的长度，它的整体健康状况和它的生活方式。
 
-这些标准是由美国养犬俱乐部提出的，该俱乐部为不同的狗建议不同的规则。AKC指出，一般来说，中长皮毛的狗应该每四到六周梳理一次，这取决于它们会陷入何种污秽之中。
+这些标准是由美国养犬俱乐部提出的，该俱乐部为不同的狗建议不同的规则。AKC 指出，一般来说，中长皮毛的狗应该每四到六周梳理一次，这取决于它们会陷入何种污秽之中。
 
-宠物专家和名人狗狗美容师Jorge Bendersky告诉AKC:
+宠物专家和名人狗狗美容师 Jorge Bendersky 告诉 AKC:
 
-> 对于拥有中大型皮毛的狗来说，只要在两次洗澡之间恰当地保养皮毛，就需要从每周一次到每4到6周洗一次澡。
+> 对于拥有中大型皮毛的狗来说，只要在两次洗澡之间恰当地保养皮毛，就需要从每周一次到每 4 到 6 周洗一次澡。
 
 也就是说，如果你经常给你的狗洗澡，确保你用的洗发水是温和的。不要使用会去除狗狗皮毛中天然油脂的洗发水。 [《犬类杂志》解释说](https://www.caninejournal.com/how-often-to-bathe-a-dog/#:~:text=You%20can%20wash%20your%20dog,could%20be%20even%20more%20frequent).&text=Your%20dog%20needs%20natural%20oils,So%20don't%20overdo%20it!) 每三个月洗一次澡可能没问题，前提是你的小狗没有难闻的气味【强调他们的】:
 

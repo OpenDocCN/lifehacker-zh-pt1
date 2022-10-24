@@ -1,12 +1,12 @@
-# 如何快速录制Mac的屏幕以捕捉狂野的瞬间
+# 如何快速录制 Mac 的屏幕以捕捉狂野的瞬间
 
-> 原文:[https://life hacker . com/how-to-fast-record-your-MAC-screen-to-capture-a-wil-1848263347](https://lifehacker.com/how-to-quickly-record-your-macs-screen-to-capture-a-wil-1848263347)
+> 原文：<https://lifehacker.com/how-to-quickly-record-your-macs-screen-to-capture-a-wil-1848263347>
 
-也许你想指导某人使用一个应用程序，向你的父母展示如何使用一个网站，或者在视频通话中捕捉一个狂野的瞬间。简而言之，有很多原因可以让你制作一个Mac屏幕上的视频。
+也许你想指导某人使用一个应用程序，向你的父母展示如何使用一个网站，或者在视频通话中捕捉一个狂野的瞬间。简而言之，有很多原因可以让你制作一个 Mac 屏幕上的视频。
 
 Watch
 
-幸运的是，Mac有一个内置的屏幕录制工具，你可以很快开始。如果你运行的是最新版本的macOS，你可以使用Mac新的截图栏工具来录制视频，但该功能仅适用于运行macOS 10.14 Mojave或更高版本的Mac。如果你使用的是旧版本的macOS，你可以使用QuickTime应用程序(我们将在最后讨论)。
+幸运的是，Mac 有一个内置的屏幕录制工具，你可以很快开始。如果你运行的是最新版本的 macOS，你可以使用 Mac 新的截图栏工具来录制视频，但该功能仅适用于运行 macOS 10.14 Mojave 或更高版本的 Mac。如果你使用的是旧版本的 macOS，你可以使用 QuickTime 应用程序(我们将在最后讨论)。
 
 截图栏可以使用**命令** + **Shift** + **5** 快捷键调用。在这里，您可以根据需要选择“**记录整个屏幕**或“**记录选定部分**”。然后，点击**选项**按钮。
 
@@ -14,14 +14,14 @@ Watch
 
 一个新的**录制**按钮将出现在菜单栏中。一旦你完成录制，只需点击该按钮保存视频。您也可以使用**命令** + **控制** + **Esc** 键盘快捷键来停止录制。
 
-完成录制后，只需前往指定位置查看视频并在QuickTime中播放即可。
+完成录制后，只需前往指定位置查看视频并在 QuickTime 中播放即可。
 
-## 如何在QuickTime中录制您的屏幕
+## 如何在 QuickTime 中录制您的屏幕
 
-说到QuickTime，你也可以使用该应用程序来录制你的屏幕。打开QuickTime app，进入**文件** > **新画面录制**即可上手。
+说到 QuickTime，你也可以使用该应用程序来录制你的屏幕。打开 QuickTime app，进入**文件** > **新画面录制**即可上手。
 
-在 [macOS Monterey](https://lifehacker.com/31-new-macos-monterey-features-youll-actually-want-to-u-1847900965) 中，这只是打开了我们上面提到的截图栏。但如果你运行的是旧版本的macOS，你会看到一个不同的屏幕录制界面。
+在 [macOS Monterey](https://lifehacker.com/31-new-macos-monterey-features-youll-actually-want-to-u-1847900965) 中，这只是打开了我们上面提到的截图栏。但如果你运行的是旧版本的 macOS，你会看到一个不同的屏幕录制界面。
 
 在这里，单击下拉菜单选择您的麦克风和鼠标点击设置。然后，点击红色的**录制**按钮，开始录制屏幕。
 
-单击任意位置来录制整个屏幕。要记录特定区域，请拖动鼠标选择它。记录结束后，点击菜单栏中的**停止**按钮，停止记录。您将在QuickTime中看到录像的预览。在这里，您可以查看、编辑或保存录像。
+单击任意位置来录制整个屏幕。要记录特定区域，请拖动鼠标选择它。记录结束后，点击菜单栏中的**停止**按钮，停止记录。您将在 QuickTime 中看到录像的预览。在这里，您可以查看、编辑或保存录像。

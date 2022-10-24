@@ -1,8 +1,8 @@
-# Windows 11让微软商店变得实际可用
+# Windows 11 让微软商店变得实际可用
 
-> 原文:[https://life hacker . com/windows-11-makes-the-Microsoft-store-actually-usable-1847866689](https://lifehacker.com/windows-11-makes-the-microsoft-store-actually-useable-1847866689)
+> 原文：<https://lifehacker.com/windows-11-makes-the-microsoft-store-actually-useable-1847866689>
 
-微软商店过去一直难以获得用户的认可。它因功能失调或完全缺失关键应用程序而闻名。但随着Windows 11的升级，带来了重大改进和更多功能的承诺。如果你下载Windows 11并使用微软商店，以下是需要注意的关键功能。
+微软商店过去一直难以获得用户的认可。它因功能失调或完全缺失关键应用程序而闻名。但随着 Windows 11 的升级，带来了重大改进和更多功能的承诺。如果你下载 Windows 11 并使用微软商店，以下是需要注意的关键功能。
 
 Watch
 
@@ -16,7 +16,7 @@ Watch
 
 几年前，微软试图将插件集成到其操作系统中，但最终决定放弃。但是，任务栏中的一个新按钮会打开一个小部件面板，其中包括天气、交通、日历和其他基本内容。
 
-打开小部件面板后，你会注意到Microsoft Store侧边栏还包括主页、应用、游戏和娱乐等部分。在新的娱乐插件中，用户可以下载一些他们喜欢的流媒体服务，或者访问电影和游戏插件。
+打开小部件面板后，你会注意到 Microsoft Store 侧边栏还包括主页、应用、游戏和娱乐等部分。在新的娱乐插件中，用户可以下载一些他们喜欢的流媒体服务，或者访问电影和游戏插件。
 
 ## 弹出式商店
 
@@ -24,10 +24,10 @@ Watch
 
 这是一个受欢迎的更新，允许更快地访问商店，而不必通过微软商店本身。
 
-## 改进的Xbox集成
+## 改进的 Xbox 集成
 
-Windows 11改善了与Xbox应用程序的集成，玩家将能够通过Xbox Game Pass玩100多种游戏。此外，Epic Games Store是你现在可以在微软商店下载的原生应用之一。
+Windows 11 改善了与 Xbox 应用程序的集成，玩家将能够通过 Xbox Game Pass 玩 100 多种游戏。此外，Epic Games Store 是你现在可以在微软商店下载的原生应用之一。
 
-这来得正是时候，考虑到今年秋天将有更多的PC游戏 发布并提供给Windows 11用户。例如，*帝国时代4，* *Forza Horizon 5，*和 *Halo Infinite* 都将在未来几个月内发布。
+这来得正是时候，考虑到今年秋天将有更多的 PC 游戏 发布并提供给 Windows 11 用户。例如，*帝国时代 4，* *Forza Horizon 5，*和 *Halo Infinite* 都将在未来几个月内发布。
 
-遗憾的是，很多PC都达不到 [Windows 11严苛的硬件要求](https://lifehacker.com/what-is-a-tpm-and-why-do-you-need-one-to-run-windows-11-1847186073)；你可以下载 [PC健康检查app](https://www.microsoft.com/en-us/windows/windows-11) 看看你的是否满足安装Windows 11访问微软商店的最低系统要求。如果没有， [我们有一个指南](https://lifehacker.com/how-to-turn-windows-10-into-windows-11-when-you-can-t-a-1847719257) 让Windows 10 *感觉*有点像Windows 11。
+遗憾的是，很多 PC 都达不到 [Windows 11 严苛的硬件要求](https://lifehacker.com/what-is-a-tpm-and-why-do-you-need-one-to-run-windows-11-1847186073)；你可以下载 [PC 健康检查 app](https://www.microsoft.com/en-us/windows/windows-11) 看看你的是否满足安装 Windows 11 访问微软商店的最低系统要求。如果没有， [我们有一个指南](https://lifehacker.com/how-to-turn-windows-10-into-windows-11-when-you-can-t-a-1847719257) 让 Windows 10 *感觉*有点像 Windows 11。

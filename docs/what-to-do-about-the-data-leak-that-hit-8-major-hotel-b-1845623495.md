@@ -1,8 +1,8 @@
-# 8家主要酒店预订网站发生数据泄露，该怎么办
+# 8 家主要酒店预订网站发生数据泄露，该怎么办
 
-> 原文:[https://life hacker . com/what-to-do-about-the-data-leak-that-hit-8-major-hotel-b-1845623495](https://lifehacker.com/what-to-do-about-the-data-leak-that-hit-8-major-hotel-b-1845623495)
+> 原文：<https://lifehacker.com/what-to-do-about-the-data-leak-that-hit-8-major-hotel-b-1845623495>
 
-一个安全措施不当的亚马逊网络服务(AWS)服务器留下了超过1000万份来自 [众多云酒店网站](https://www.websiteplanet.com/blog/prestige-soft-breach-report/) 的酒店预订日志，这些日志被公开暴露，潜在地将数百万客人置于危险之中。服务器现在是安全的，没有证据表明数据被滥用(还没有)，但是这些信息非常敏感，任何从2013年开始使用以下酒店网站的人都应该格外警惕他们的数据:
+一个安全措施不当的亚马逊网络服务(AWS)服务器留下了超过 1000 万份来自 [众多云酒店网站](https://www.websiteplanet.com/blog/prestige-soft-breach-report/) 的酒店预订日志，这些日志被公开暴露，潜在地将数百万客人置于危险之中。服务器现在是安全的，没有证据表明数据被滥用(还没有)，但是这些信息非常敏感，任何从 2013 年开始使用以下酒店网站的人都应该格外警惕他们的数据:
 
 *   阿哥达
 *   莫扎特传
@@ -13,7 +13,7 @@
 *   Omnibees
 *   军刀
 
-AWC的服务器保存了超过1000万条日志，尽管网站Planet的安全团队称受影响的访客数量可能会更高，因为一些日志包含多人。这些日志包含:
+AWC 的服务器保存了超过 1000 万条日志，尽管网站 Planet 的安全团队称受影响的访客数量可能会更高，因为一些日志包含多人。这些日志包含:
 
 Watch
 

@@ -1,12 +1,12 @@
 # 请不要对不喝酒的人说这些话
 
-> 原文:[https://life hacker . com/please-don-t-say-things-someone-who-dont-drin-1848059452](https://lifehacker.com/please-dont-say-these-things-to-someone-who-doesnt-drin-1848059452)
+> 原文：<https://lifehacker.com/please-dont-say-these-things-to-someone-who-doesnt-drin-1848059452>
 
 新年到了，随之而来的是一个狂欢的夜晚。节日通常伴随着许多节日，从感恩节到醉酒的秘密圣诞老人交换到新年前夕，经常有机会聚集在一起尽情欢乐——大多数都有大量的酒精。
 
 Watch
 
-如果你是清醒的或者试图限制你的酒精摄入量，这可能是一段令人担忧的时间。随着聚会越来越多，喝酒的压力也越来越大，即使是善意的，也会让不喝酒的客人感到不安。但是，据《华盛顿邮报》 的 [报道，整整30%的美国成年人根本不喝酒。因此，本着尊重人们的选择、隐私和舒适的精神，当有人拒绝成人饮料时，这里有一些*不能说的话。*](https://www.washingtonpost.com/news/wonk/wp/2014/09/25/think-you-drink-a-lot-this-chart-will-tell-you/)
+如果你是清醒的或者试图限制你的酒精摄入量，这可能是一段令人担忧的时间。随着聚会越来越多，喝酒的压力也越来越大，即使是善意的，也会让不喝酒的客人感到不安。但是，据《华盛顿邮报》 的 [报道，整整 30%的美国成年人根本不喝酒。因此，本着尊重人们的选择、隐私和舒适的精神，当有人拒绝成人饮料时，这里有一些*不能说的话。*](https://www.washingtonpost.com/news/wonk/wp/2014/09/25/think-you-drink-a-lot-this-chart-will-tell-you/)
 
 ## “为什么不呢？”
 

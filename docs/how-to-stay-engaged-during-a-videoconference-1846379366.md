@@ -1,12 +1,12 @@
 # 如何在视频会议中保持专注
 
-> 原文:[https://life hacker . com/how-to-stay-engaged-in-a-video-1846379366](https://lifehacker.com/how-to-stay-engaged-during-a-videoconference-1846379366)
+> 原文：<https://lifehacker.com/how-to-stay-engaged-during-a-videoconference-1846379366>
 
 唯一比新冠肺炎疫情期间的单调隔离更可预测的是视频会议的一致性。盯着屏幕的必要性使“变焦疲劳”成为一种非常真实的情况，显然对普通上班族的影响不亚于好莱坞偶像阿尔·帕西诺。
 
 Watch
 
-在周日晚上的金球奖上，我可以说，这位80岁的老人在半远程制作期间，当他拨通电话成为屏幕上的另一张脸时，他看起来有点走神。帕西诺呆滞的眼神( [他真的在睡觉吗？](https://twitter.com/slytherinus/status/1366216597212459011?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1366216597212459011%7Ctwgr%5E%7Ctwcon%5Es1_&ref_url=https%3A%2F%2Fwww.huffpost.com%2Fentry%2Fal-pacino-sleeping-golden-globes_n_603cbb1cc5b6d7794ae06576) )之所以具有普遍的吸引力，是因为谁没有在呼呼大睡时精神恍惚过呢？
+在周日晚上的金球奖上，我可以说，这位 80 岁的老人在半远程制作期间，当他拨通电话成为屏幕上的另一张脸时，他看起来有点走神。帕西诺呆滞的眼神( [他真的在睡觉吗？](https://twitter.com/slytherinus/status/1366216597212459011?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1366216597212459011%7Ctwgr%5E%7Ctwcon%5Es1_&ref_url=https%3A%2F%2Fwww.huffpost.com%2Fentry%2Fal-pacino-sleeping-golden-globes_n_603cbb1cc5b6d7794ae06576) )之所以具有普遍的吸引力，是因为谁没有在呼呼大睡时精神恍惚过呢？
 
  [https://lifehacker.com/embed/inset/iframe?id=twitter-1366216873944219650&autosize=1](https://lifehacker.com/embed/inset/iframe?id=twitter-1366216873944219650&autosize=1) 
 
@@ -20,7 +20,7 @@ Watch
 
 ### 关闭打开的浏览器选项卡
 
-被浏览器中打开的标签分散注意力是很正常的，尤其是当一个会议并不重要的时候。因为你可能会在打盹的会议中浏览更有趣的标签，所以关闭所有因为特定原因没有打开的页面。如果你的摄像头开着，你的同事就能知道你是在浏览Twitter还是在看昨晚篮球赛的集锦，而不是一直盯着说话的人。
+被浏览器中打开的标签分散注意力是很正常的，尤其是当一个会议并不重要的时候。因为你可能会在打盹的会议中浏览更有趣的标签，所以关闭所有因为特定原因没有打开的页面。如果你的摄像头开着，你的同事就能知道你是在浏览 Twitter 还是在看昨晚篮球赛的集锦，而不是一直盯着说话的人。
 
 就我个人而言，我是一个储物者，所以我理解关闭不再有价值的任性标签的不安。不过，如果你是一个无法控制冲动滚动的人，那就必须这么做。
 

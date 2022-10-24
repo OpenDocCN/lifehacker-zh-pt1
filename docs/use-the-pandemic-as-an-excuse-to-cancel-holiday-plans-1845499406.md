@@ -1,6 +1,6 @@
 # 以疫情为借口取消度假计划
 
-> 原文:[https://life hacker . com/use-the-疫情作为取消假期计划的借口-1845499406](https://lifehacker.com/use-the-pandemic-as-an-excuse-to-cancel-holiday-plans-1845499406)
+> 原文：<https://lifehacker.com/use-the-pandemic-as-an-excuse-to-cancel-holiday-plans-1845499406>
 
 我们中的一些人喜欢旅游，或者在假期与家人、朋友和同事共度时光。有些人不知道。对于后一类人来说，我有一个好消息:你有一个完美的内在借口来退出任何和所有你不想参加的假期计划。(以防你不知道我说的是哪个借口:这是我们目前所处的疫情。)
 

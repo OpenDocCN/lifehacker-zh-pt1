@@ -1,6 +1,6 @@
-# 永远不要放进洗碗机的8样东西
+# 永远不要放进洗碗机的 8 样东西
 
-> 原文:[https://life hacker . com/8-永远不要放进洗碗机的东西-1848341293](https://lifehacker.com/8-things-you-should-never-put-in-your-dishwasher-1848341293)
+> 原文：<https://lifehacker.com/8-things-you-should-never-put-in-your-dishwasher-1848341293>
 
 没有洗碗机，我们中的许多人，包括我自己，将很难兴旺发达。当然，我们会*活下来，*但是被埋在一堆泛滥的、永无止境的烹饪工具、盘子和要洗的食物容器下面。(这似乎是永无止境的，即使是有洗碗机的*。)* 
 

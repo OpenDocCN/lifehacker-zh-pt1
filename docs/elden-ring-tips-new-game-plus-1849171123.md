@@ -1,26 +1,26 @@
-# 在等待DLC的过程中，让Elden Ring焕然一新的八种方法
+# 在等待 DLC 的过程中，让 Elden Ring 焕然一新的八种方法
 
-> 原文:[https://kotaku.com/elden-ring-tips-new-game-plus-1849171123](https://kotaku.com/elden-ring-tips-new-game-plus-1849171123)
+> 原文：<https://kotaku.com/elden-ring-tips-new-game-plus-1849171123>
 
-对我来说，埃尔登戒指仍然是一个新游戏，但它也是许多玩家已经投入数十甚至数百个小时的游戏，任何游戏，无论多么伟大，过一段时间后都会失去光泽。一个新的大事件开始召唤你， [像*霓虹白*](https://kotaku.com/neon-white-shortcuts-secrets-fps-anime-goty-2022-indie-1849114139) ，或者也许你变得专注于未来并开始重新观看[*口袋妖怪猩红*和*紫罗兰*预告片](https://kotaku.com/pokemon-scarlet-violet-trailer-professors-lechonk-co-op-1849004871) 直到你的眼球爆炸。但是，尽管 *Elden Ring* 看起来不像你第一次玩它时那么闪亮，但你的一部分仍然会被它吸引，也许想第一次完成它，或者也许想了解game plus提供了什么新功能。你所需要的只是一些能帮助你找回第一次穿越两地的魔力的东西。
+对我来说，埃尔登戒指仍然是一个新游戏，但它也是许多玩家已经投入数十甚至数百个小时的游戏，任何游戏，无论多么伟大，过一段时间后都会失去光泽。一个新的大事件开始召唤你， [像*霓虹白*](https://kotaku.com/neon-white-shortcuts-secrets-fps-anime-goty-2022-indie-1849114139) ，或者也许你变得专注于未来并开始重新观看[*口袋妖怪猩红*和*紫罗兰*预告片](https://kotaku.com/pokemon-scarlet-violet-trailer-professors-lechonk-co-op-1849004871) 直到你的眼球爆炸。但是，尽管 *Elden Ring* 看起来不像你第一次玩它时那么闪亮，但你的一部分仍然会被它吸引，也许想第一次完成它，或者也许想了解 game plus 提供了什么新功能。你所需要的只是一些能帮助你找回第一次穿越两地的魔力的东西。
 
 好消息是，我这里有八个建议来保持你们的关系新鲜。
 
  [https://kotaku.com/embed/inset/iframe?id=youtube-video-IJ_J8TlR9Hs&start=0](https://kotaku.com/embed/inset/iframe?id=youtube-video-IJ_J8TlR9Hs&start=0) 
 
-我是一个超级FromSoftware迷，我通常每年至少重播一款游戏(除了*黑暗之魂2* )(我很少重播*黑暗之魂2* )(因为它很烂)，没有什么能让那些十二岁的游戏感觉永远“新”得像参与FromSoftware社区一样。
+我是一个超级 FromSoftware 迷，我通常每年至少重播一款游戏(除了*黑暗之魂 2* )(我很少重播*黑暗之魂 2* )(因为它很烂)，没有什么能让那些十二岁的游戏感觉永远“新”得像参与 FromSoftware 社区一样。
 
-拥有140万会员的[*Elden Ring*subreddit](https://www.reddit.com/r/Eldenring/)将通过每天的帖子和讨论来刷新你对游戏的兴趣，它也是一个获得快速社区反馈、 [同情](https://www.reddit.com/r/Eldenring/comments/vx3vor/what_stupid_thing_did_a_message_make_you_do/) 或惊叹 [迷因](https://www.reddit.com/r/Eldenring/comments/vwi3my/diplomatic_solutions_to_elden_ring_problems/) 的有用地方。
+拥有 140 万会员的[*Elden Ring*subreddit](https://www.reddit.com/r/Eldenring/)将通过每天的帖子和讨论来刷新你对游戏的兴趣，它也是一个获得快速社区反馈、 [同情](https://www.reddit.com/r/Eldenring/comments/vx3vor/what_stupid_thing_did_a_message_make_you_do/) 或惊叹 [迷因](https://www.reddit.com/r/Eldenring/comments/vwi3my/diplomatic_solutions_to_elden_ring_problems/) 的有用地方。
 
-我个人痴迷于详细的 *Elden Ring* YouTube视频——我最喜欢的一些专注于for软件游戏的YouTube用户包括VaatiVidya，他勤奋地制作 [研究过的知识视频](https://www.youtube.com/watch?v=ikUiOKTv-Y8) ，女巫Zullie，他分享 [剪切和隐藏内容](https://www.youtube.com/watch?v=c2yYt42u_eo) ，以及SquillaKilla，他的 [噱头运行](https://www.youtube.com/watch?v=oMTmv5juaOE) 摧毁我的大脑(偶尔在我睡不着的时候充当我的白噪音)。还有无数其他引人入胜的*埃尔登戒指* [视频](https://www.youtube.com/watch?v=RzGzm1JagTw)[飘带](https://www.twitch.tv/dragtrashly)[甚至Etsy店面](https://www.etsy.com/market/elden_ring) 。让算法带你进入甜蜜的爱情隧道。
+我个人痴迷于详细的 *Elden Ring* YouTube 视频——我最喜欢的一些专注于 for 软件游戏的 YouTube 用户包括 VaatiVidya，他勤奋地制作 [研究过的知识视频](https://www.youtube.com/watch?v=ikUiOKTv-Y8) ，女巫 Zullie，他分享 [剪切和隐藏内容](https://www.youtube.com/watch?v=c2yYt42u_eo) ，以及 SquillaKilla，他的 [噱头运行](https://www.youtube.com/watch?v=oMTmv5juaOE) 摧毁我的大脑(偶尔在我睡不着的时候充当我的白噪音)。还有无数其他引人入胜的*埃尔登戒指* [视频](https://www.youtube.com/watch?v=RzGzm1JagTw)[飘带](https://www.twitch.tv/dragtrashly)[甚至 Etsy 店面](https://www.etsy.com/market/elden_ring) 。让算法带你进入甜蜜的爱情隧道。
 
  [https://kotaku.com/embed/inset/iframe?id=youtube-video-lhhMQpAm0ac&start=0](https://kotaku.com/embed/inset/iframe?id=youtube-video-lhhMQpAm0ac&start=0) 
 
 在你了解了*埃尔登环*社区之后，承诺去了解*埃尔登环*的社区，它繁荣的非可玩角色群体。
 
-在你的第一次 *Elden Ring* 尝试中，很容易让精心设计的任务线半途而废，特别是如果你对FromSoftware RPGs中复杂、不透明的NPC任务线不熟悉的话。你可能会花更多的时间来寻找你在战斗中的立足点，而不是决定你应该在什么时候传送到哪个地方来接收哪个角色的魔法，神秘，大戳武器，但现在你有几个月的游戏时间，值得赶上你可能已经和错过的联系。
+在你的第一次 *Elden Ring* 尝试中，很容易让精心设计的任务线半途而废，特别是如果你对 FromSoftware RPGs 中复杂、不透明的 NPC 任务线不熟悉的话。你可能会花更多的时间来寻找你在战斗中的立足点，而不是决定你应该在什么时候传送到哪个地方来接收哪个角色的魔法，神秘，大戳武器，但现在你有几个月的游戏时间，值得赶上你可能已经和错过的联系。
 
-如果你有一个未完成的游戏，和你遇到的所有NPC谈谈，看看你在他们的任务线上处于什么位置。任务线可能是无情的，通常需要晦涩的行动来推进它们，但它们并没有你想象的那么严格。通过与NPC交谈和阅读他们给你的物品描述，你可以找出很多问题(同样，求助于*埃尔登环*社区)。在你目前的游戏中，现在开始玩米莉森还不算太晚，或者你可以玩一个新游戏来继续每一个松散的线索。
+如果你有一个未完成的游戏，和你遇到的所有 NPC 谈谈，看看你在他们的任务线上处于什么位置。任务线可能是无情的，通常需要晦涩的行动来推进它们，但它们并没有你想象的那么严格。通过与 NPC 交谈和阅读他们给你的物品描述，你可以找出很多问题(同样，求助于*埃尔登环*社区)。在你目前的游戏中，现在开始玩米莉森还不算太晚，或者你可以玩一个新游戏来继续每一个松散的线索。
 
 任务线让你专注于复杂的背景故事、新地点、物品和经历。真正致力于它们可以让 *Elden Ring* 感觉像一个完全不同的游戏，有着完全不同的目标。
 
@@ -50,13 +50,13 @@
 
 埃尔登环中真正的自由意味着脱离剧本。这看起来像是把自己变成了一个故障猎人，或者试图做一些可能会杀了你的事情，而不在乎被杀。跳到你不应该跳的东西上，用箭射服远处的战场首领，毒死你看到的每一个敌人。
 
-找到捷径、变通办法和便宜的拍摄。尝试一些你在网上找到的的怪异mod，成为埃尔登领主，除了 [你也是荷马辛普森](https://www.youtube.com/watch?v=b_FKkxVJfZk) 。
+找到捷径、变通办法和便宜的拍摄。尝试一些你在网上找到的的怪异 mod，成为埃尔登领主，除了 [你也是荷马辛普森](https://www.youtube.com/watch?v=b_FKkxVJfZk) 。
 
 把游戏当作一种消遣的工具可能会觉得愚蠢至极，但这样做也会让你成为愚蠢的先锋。让*埃尔登戒指* [成为第三人称射击游戏](https://www.youtube.com/watch?v=z-ZvHLaz_ZU) 或者潜入冥界，你可以独自一人从无聊中解脱出来。
 
  [https://kotaku.com/embed/inset/iframe?id=youtube-video-zGRNmf94g3c&start=0](https://kotaku.com/embed/inset/iframe?id=youtube-video-zGRNmf94g3c&start=0) 
 
-如果你是一个不太喜欢传统或者成就贪婪的人，埃尔登戒指的六种不同结局可能是一个足够令人满意的胡萝卜，尽管它们需要你完成游戏六次(o [r保存并重新加载你的文件](https://www.reddit.com/r/Eldenring/comments/t8qopm/how_to_get_all_ending_in_one_playthrough/) 以将成就打包到一个游戏中)，尽管为了获得每个结局 需要六种特定的方式。
+如果你是一个不太喜欢传统或者成就贪婪的人，埃尔登戒指的六种不同结局可能是一个足够令人满意的胡萝卜，尽管它们需要你完成游戏六次(o [r 保存并重新加载你的文件](https://www.reddit.com/r/Eldenring/comments/t8qopm/how_to_get_all_ending_in_one_playthrough/) 以将成就打包到一个游戏中)，尽管为了获得每个结局 需要六种特定的方式。
 
 在这六个游戏中，你可以使用我之前的一些技巧，比如尝试新的建造或者任务线，或者你可以通过尝试速度或者噱头来娱乐自己。给自己任意的限制，比如没有升级，没有升级，或者没有少女，看看你在一次又一次地解开你成为艾尔登领主的追求中走了多远。
 

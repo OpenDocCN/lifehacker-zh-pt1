@@ -1,8 +1,8 @@
-# 如果你讨厌圣诞节，10部电影值得一看
+# 如果你讨厌圣诞节，10 部电影值得一看
 
-> 原文:[https://life hacker . com/10-movies-to-watch-if-you-hate-Christmas-1848158906](https://lifehacker.com/10-movies-to-watch-if-you-hate-christmas-1848158906)
+> 原文：<https://lifehacker.com/10-movies-to-watch-if-you-hate-christmas-1848158906>
 
-你说，圣诞节就是一坨屎？圣诞电影真的很糟糕吗？那么，与其第八十亿次看《第34街的奇迹》或《孤独的T2之家》来支持假日工业综合体，不如看一部反圣诞电影。我保证不会有暖心的事，也不会有节日的魔法，不会有欢乐，也不会有光明。
+你说，圣诞节就是一坨屎？圣诞电影真的很糟糕吗？那么，与其第八十亿次看《第 34 街的奇迹》或《孤独的 T2 之家》来支持假日工业综合体，不如看一部反圣诞电影。我保证不会有暖心的事，也不会有节日的魔法，不会有欢乐，也不会有光明。
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-o1hhiACv1vc&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-o1hhiACv1vc&start=0) 
 
@@ -12,7 +12,7 @@
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-t2zPRNgzBrM&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-t2zPRNgzBrM&start=0) 
 
-我每年假期都会看这部电影。恐怖电影 、*中的、[圣诞恶魔](https://lifehacker.com/15-bloody-good-holiday-adjacent-horror-movies-1848213352#replies)*就像一只装满刀片的袜子。它讲述了哈利·斯塔德林的故事，一个不可爱的失败者，他童年时与圣诞节有关的性创伤导致了他是圣诞老人的错觉——但却是一个杀人的圣诞老人。表面上看，相当标准的恐怖电影，但肮脏，肮脏，70年代末的氛围和明星布兰登·马加特真正疯狂的表演使这部电影脱颖而出。但是是《圣诞恶魔》的结局让它从“非常好”变成了“永恒的节日经典”我不会破坏它，但*圣诞邪恶的*大结局是电影史上最伟大的电影结局之一，不是开玩笑。
+我每年假期都会看这部电影。恐怖电影 、*中的、[圣诞恶魔](https://lifehacker.com/15-bloody-good-holiday-adjacent-horror-movies-1848213352#replies)*就像一只装满刀片的袜子。它讲述了哈利·斯塔德林的故事，一个不可爱的失败者，他童年时与圣诞节有关的性创伤导致了他是圣诞老人的错觉——但却是一个杀人的圣诞老人。表面上看，相当标准的恐怖电影，但肮脏，肮脏，70 年代末的氛围和明星布兰登·马加特真正疯狂的表演使这部电影脱颖而出。但是是《圣诞恶魔》的结局让它从“非常好”变成了“永恒的节日经典”我不会破坏它，但*圣诞邪恶的*大结局是电影史上最伟大的电影结局之一，不是开玩笑。
 
 **流**:抖动
 
@@ -30,7 +30,7 @@
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-Y_EviQj5tvA&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-Y_EviQj5tvA&start=0) 
 
-2004年翻拍的《僵尸的黎明》可能更令人兴奋，但1978年的《T2的黎明》是一部更好、更有思想的电影。在最好的僵尸电影中，僵尸是隐喻性的，在这里，他们代表了过度消费主义。亡灵被他们生命中最重要的地方所吸引:商场。他们的消费欲望(包括商品和大脑)是如此强烈，甚至死亡都无法阻止。*《僵尸的黎明》*表面上看与圣诞节无关，但大批眼神空洞的食尸鬼冲进商场大门，就像黑色星期五购物者冲击沃尔玛一样。
+2004 年翻拍的《僵尸的黎明》可能更令人兴奋，但 1978 年的《T2 的黎明》是一部更好、更有思想的电影。在最好的僵尸电影中，僵尸是隐喻性的，在这里，他们代表了过度消费主义。亡灵被他们生命中最重要的地方所吸引:商场。他们的消费欲望(包括商品和大脑)是如此强烈，甚至死亡都无法阻止。*《僵尸的黎明》*表面上看与圣诞节无关，但大批眼神空洞的食尸鬼冲进商场大门，就像黑色星期五购物者冲击沃尔玛一样。
 
 **流媒体** : Starz
 
@@ -54,18 +54,18 @@
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-hWq7a8Tin8g&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-hWq7a8Tin8g&start=0) 
 
-每个人可能都在迪士尼+上观看彼得·杰克逊的冗长的披头士纪录片，但苹果电视的*天鹅绒地下* doc要好得多。当甲壳虫乐队每年都发行蹩脚的圣诞唱片时，地下天鹅绒乐队正忙着成为威胁性的吸毒噪音摇滚歌手，挑战艺术表达的界限，并重新发明摇滚，甚至都懒得去管。天鹅绒地铁对圣诞节来说太冷了。他们太酷了，我打赌他们甚至不知道T2什么时候是圣诞节。像地下天鹅绒，而不是披头士。
+每个人可能都在迪士尼+上观看彼得·杰克逊的冗长的披头士纪录片，但苹果电视的*天鹅绒地下* doc 要好得多。当甲壳虫乐队每年都发行蹩脚的圣诞唱片时，地下天鹅绒乐队正忙着成为威胁性的吸毒噪音摇滚歌手，挑战艺术表达的界限，并重新发明摇滚，甚至都懒得去管。天鹅绒地铁对圣诞节来说太冷了。他们太酷了，我打赌他们甚至不知道 T2 什么时候是圣诞节。像地下天鹅绒，而不是披头士。
 
 **流媒体**:苹果+
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-R-1J4lGs4OE&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-R-1J4lGs4OE&start=0) 
 
-雪莉·温特斯主演了这部来自英国的有毒的圣诞恐怖电影，她简直太棒了。Roo阿姨是一个看似善良的寡妇，她为当地的孤儿举办了一年一度的圣诞过夜派对。但是就像每个对圣诞节特别感兴趣的人一样，鲁阿姨正在补偿一些事情:特别是，她把女儿的木乃伊放在阁楼里，她那薄薄的理智面具正在滑落。任何回家过圣诞节的人都会联想到这个无助的孤儿和一个疯子被困在一所房子里的故事，警督在电影结尾的忧郁声明肯定会引起共鸣:“可怜的小恶魔，他们可能会做噩梦，直到他们死去。”
+雪莉·温特斯主演了这部来自英国的有毒的圣诞恐怖电影，她简直太棒了。Roo 阿姨是一个看似善良的寡妇，她为当地的孤儿举办了一年一度的圣诞过夜派对。但是就像每个对圣诞节特别感兴趣的人一样，鲁阿姨正在补偿一些事情:特别是，她把女儿的木乃伊放在阁楼里，她那薄薄的理智面具正在滑落。任何回家过圣诞节的人都会联想到这个无助的孤儿和一个疯子被困在一所房子里的故事，警督在电影结尾的忧郁声明肯定会引起共鸣:“可怜的小恶魔，他们可能会做噩梦，直到他们死去。”
 
 **流媒体**:黄金视频
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-vuyktJMzAIQ&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-vuyktJMzAIQ&start=0) 
 
-最后，如果你真的想了解你对圣诞节的仇恨，就像深入挖掘*方式*去发现以前不为人知的未切割的地雷，纯粹的圣诞节厌恶，不要看*一个非常乡村的圣诞节，*但是T5】点击此链接 查看“看过这个项目的顾客也看过”列表。继续往下钻:有数百部，也许是数千部低成本的脑残圣诞抢钱电影正在亚马逊的厕所里腐烂。有令人不安的 [CGI圣诞屁](https://www.amazon.com/Yummy-Gummy-Search-Santa/dp/B07XLZSXF2?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/10-movies-to-watch-if-you-hate-christmas-1848158906&asc_source=&tag=kinjalifehackerlink-20) ，坏的 [木偶圣诞屎](https://www.amazon.com/gp/video/detail/B07ZPGBSBN/ref=atv_hm_hom_1_c_myhimm_2_2?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/10-movies-to-watch-if-you-hate-christmas-1848158906&asc_source=&tag=kinjalifehackerlink-20) ，愚蠢的 [浪漫的圣诞公爵](https://www.amazon.com/gp/video/detail/B016UEK5RW/ref=atv_dp_amz_det_c_UTPsmN_1_9?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/10-movies-to-watch-if-you-hate-christmas-1848158906&asc_source=&tag=kinjalifehackerlink-20) ，愤世嫉俗的 [基于信仰的“圣诞屎](https://www.amazon.com/Believe-Shawnee-Smith/dp/B06XSBYXR3?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/10-movies-to-watch-if-you-hate-christmas-1848158906&asc_source=&tag=kinjalifehackerlink-20) ，甚至还有更具体的圣诞屎的整个子流派，像 [圣诞节+可爱的动物](https://www.amazon.com/gp/video/detail/B079Y937CS/ref=atv_dp_amz_det_c_UTPsmN_1_1?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/10-movies-to-watch-if-you-hate-christmas-1848158906&asc_source=&tag=kinjalifehackerlink-20) 和 [比我们想象的还要糟糕。](https://www.amazon.com/gp/video/detail/B08M9QR9B1/ref=atv_dp_amz_det_c_UTPsmN_1_2?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/10-movies-to-watch-if-you-hate-christmas-1848158906&asc_source=&tag=kinjalifehackerlink-20)
+最后，如果你真的想了解你对圣诞节的仇恨，就像深入挖掘*方式*去发现以前不为人知的未切割的地雷，纯粹的圣诞节厌恶，不要看*一个非常乡村的圣诞节，*但是 T5】点击此链接 查看“看过这个项目的顾客也看过”列表。继续往下钻:有数百部，也许是数千部低成本的脑残圣诞抢钱电影正在亚马逊的厕所里腐烂。有令人不安的 [CGI 圣诞屁](https://www.amazon.com/Yummy-Gummy-Search-Santa/dp/B07XLZSXF2?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/10-movies-to-watch-if-you-hate-christmas-1848158906&asc_source=&tag=kinjalifehackerlink-20) ，坏的 [木偶圣诞屎](https://www.amazon.com/gp/video/detail/B07ZPGBSBN/ref=atv_hm_hom_1_c_myhimm_2_2?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/10-movies-to-watch-if-you-hate-christmas-1848158906&asc_source=&tag=kinjalifehackerlink-20) ，愚蠢的 [浪漫的圣诞公爵](https://www.amazon.com/gp/video/detail/B016UEK5RW/ref=atv_dp_amz_det_c_UTPsmN_1_9?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/10-movies-to-watch-if-you-hate-christmas-1848158906&asc_source=&tag=kinjalifehackerlink-20) ，愤世嫉俗的 [基于信仰的“圣诞屎](https://www.amazon.com/Believe-Shawnee-Smith/dp/B06XSBYXR3?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/10-movies-to-watch-if-you-hate-christmas-1848158906&asc_source=&tag=kinjalifehackerlink-20) ，甚至还有更具体的圣诞屎的整个子流派，像 [圣诞节+可爱的动物](https://www.amazon.com/gp/video/detail/B079Y937CS/ref=atv_dp_amz_det_c_UTPsmN_1_1?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/10-movies-to-watch-if-you-hate-christmas-1848158906&asc_source=&tag=kinjalifehackerlink-20) 和 [比我们想象的还要糟糕。](https://www.amazon.com/gp/video/detail/B08M9QR9B1/ref=atv_dp_amz_det_c_UTPsmN_1_2?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/10-movies-to-watch-if-you-hate-christmas-1848158906&asc_source=&tag=kinjalifehackerlink-20)
 
 **流媒体**:黄金视频

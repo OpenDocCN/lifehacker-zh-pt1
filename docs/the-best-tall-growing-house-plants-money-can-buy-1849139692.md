@@ -1,6 +1,6 @@
 # 钱能买到的最好的高大的室内植物
 
-> 原文:[https://life hacker . com/the-best-tall-growing-house-plants-money-can-buy-1849139692](https://lifehacker.com/the-best-tall-growing-house-plants-money-can-buy-1849139692)
+> 原文：<https://lifehacker.com/the-best-tall-growing-house-plants-money-can-buy-1849139692>
 
 当我们装饰我们的家时，我们倾向于关注我们能接触到的区域。这至少在一定程度上是因为，除非你有一个在房间里滑动的花哨的图书馆梯子，否则你可能会尽量减少使用梯子到达房间较高部分的时间。
 
@@ -10,7 +10,7 @@ Watch
 
 ## 皇家棕榈
 
-**潜在高度**:高达10英尺
+**潜在高度**:高达 10 英尺
 
 *   生长缓慢，但 [在明亮、间接的光线下生长最快](https://www.realsimple.com/home-organizing/gardening/indoor/houseplants-that-grow-tall)
 *   喜欢高湿度
@@ -18,16 +18,16 @@ Watch
 
 ## 天堂鸟
 
-**潜在高度**:室内6英尺
+**潜在高度**:室内 6 英尺
 
 *   喜欢 [明亮、间接的阳光](https://www.realsimple.com/home-organizing/gardening/indoor/houseplants-that-grow-tall)
-*   在野外可以长到25英尺高
+*   在野外可以长到 25 英尺高
 *   长大了
 *   擦拭树叶——它们容易积灰
 
 ## 摇钱树
 
-潜在高度:6到8英尺
+潜在高度:6 到 8 英尺
 
 *   喜欢明亮的间接光线
 *   有一个 [紧凑的根系](https://www.mindbodygreen.com/articles/tall-indoor-plants/) ，所以喜欢在较小的花盆里
@@ -36,7 +36,7 @@ Watch
 
 ## 奥黛丽榕树
 
-潜在高度:5到10英尺
+潜在高度:5 到 10 英尺
 
 *   喜欢明亮的间接光线
 *   在潮湿环境中生长旺盛，所以放在加湿器附近或定期喷洒叶子
@@ -44,7 +44,7 @@ Watch
 
 ## 蛇类植物
 
-**潜在高度**:高达5英尺
+**潜在高度**:高达 5 英尺
 
 *   非常 [低维护](https://www.realsimple.com/home-organizing/gardening/indoor/houseplants-that-grow-tall) 适合新手
 *   它们是多肉植物，所以不要浇水过多或喷雾
@@ -52,7 +52,7 @@ Watch
 
 ## 橡胶树
 
-潜在高度:3到10英尺
+潜在高度:3 到 10 英尺
 
 *   喜欢明亮的光线
 *   会在朝南或朝西的窗户里长得最快吗

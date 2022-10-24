@@ -1,6 +1,6 @@
-# 你的2022春季动漫指南
+# 你的 2022 春季动漫指南
 
-> 原文:[https://kotaku . com/anime-spring-2022-season-网飞-funimation-crunchy roll-1848831655](https://kotaku.com/anime-spring-2022-season-netflix-funimation-crunchyroll-1848831655)
+> 原文：<https://kotaku.com/anime-spring-2022-season-netflix-funimation-crunchyroll-1848831655>
 
 春天又一次来到了，就像樱花的发芽一样，新的动漫正在遍地开花。
 
@@ -8,15 +8,15 @@
 
  [https://kotaku.com/embed/inset/iframe?id=youtube-video-PQbCVl_CDzI&start=0](https://kotaku.com/embed/inset/iframe?id=youtube-video-PQbCVl_CDzI&start=0) 
 
-工作室:制作I.G
+工作室:制作 I.G
 
 **流派:**体育
 
-首播日期:4月9日
+首播日期:4 月 9 日
 
 **在哪里观看:**
 
-**一句话讲的是什么:**在错过了中学足球队的重要比赛和进入一个好足球俱乐部的机会后，一名有抱负的年轻球员引起了J联赛高中足球队教练的注意。
+**一句话讲的是什么:**在错过了中学足球队的重要比赛和进入一个好足球俱乐部的机会后，一名有抱负的年轻球员引起了 J 联赛高中足球队教练的注意。
 
  [https://kotaku.com/embed/inset/iframe?id=youtube-video-b21XZo55TNw&start=0](https://kotaku.com/embed/inset/iframe?id=youtube-video-b21XZo55TNw&start=0) 
 
@@ -24,7 +24,7 @@
 
 **流派:**伊势凯，奇幻，生活切片
 
-首播日期:4月11日
+首播日期:4 月 11 日
 
 **在哪里观看:**
 
@@ -36,9 +36,9 @@
 
 **类型:**动作、冒险、奇幻
 
-首映日期:3月20日
+首映日期:3 月 20 日
 
-**观看地点:** [松脆卷](https://www.crunchyroll.com/boruto-naruto-next-generations) 和Funimation
+**观看地点:** [松脆卷](https://www.crunchyroll.com/boruto-naruto-next-generations) 和 Funimation
 
 **一句话的内容:**鸣人的爱吵闹的儿子鸣人继续追求超越他的父亲，成为世界上最强的忍者。
 
@@ -48,7 +48,7 @@
 
 **流派:**体育
 
-首播日期:4月6日
+首播日期:4 月 6 日
 
 **在哪里观看:**
 
@@ -60,11 +60,11 @@
 
 **流派:**奇幻
 
-首映日期:4月3日
+首映日期:4 月 3 日
 
 **在哪里观看:**
 
-**一句话讲的是:**自从*发生毁灭性的战斗以来，三年过去了，黑色代码*让新京都变成了一片废墟，市民的魔法被窃取，前国王Kikka在逃。
+**一句话讲的是:**自从*发生毁灭性的战斗以来，三年过去了，黑色代码*让新京都变成了一片废墟，市民的魔法被窃取，前国王 Kikka 在逃。
 
  [https://kotaku.com/embed/inset/iframe?id=youtube-video-4dhHnE_Jsbo&start=0](https://kotaku.com/embed/inset/iframe?id=youtube-video-4dhHnE_Jsbo&start=0) 
 
@@ -72,7 +72,7 @@
 
 **流派:**言情
 
-首播日期:4月23日
+首播日期:4 月 23 日
 
 **在哪里观看:**
 
@@ -80,11 +80,11 @@
 
  [https://kotaku.com/embed/inset/iframe?id=youtube-video-yi6zNeKaDbU&start=0](https://kotaku.com/embed/inset/iframe?id=youtube-video-yi6zNeKaDbU&start=0) 
 
-**工作室:**优美达公司x Graphinica
+**工作室:**优美达公司 x Graphinica
 
 **类型:**戏剧，生活片段
 
-首播日期:1月7日
+首播日期:1 月 7 日
 
 **在哪里观看:**
 
@@ -96,7 +96,7 @@
 
 **流派:**戏剧
 
-首播日期:4月9日
+首播日期:4 月 9 日
 
 **在哪里看** : [脆饼](https://www.crunchyroll.com/dance-dance-danseur)
 
@@ -108,7 +108,7 @@
 
 **类型:**机器人，Harem
 
-首播日期:4月8日
+首播日期:4 月 8 日
 
 **在哪里观看:**
 
@@ -120,7 +120,7 @@
 
 **类型:**冒险、幻想
 
-首播日期:4月7日
+首播日期:4 月 7 日
 
 **在哪里观看:**
 
@@ -132,7 +132,7 @@
 
 **类型:**喜剧、奇幻
 
-首播日期:4月10日
+首播日期:4 月 10 日
 
 **在哪里观看:**
 
@@ -144,7 +144,7 @@
 
 **型:T1】 Sci-Fi**
 
-首映日期:3月23日
+首映日期:3 月 23 日
 
 **在哪里观看:**
 
@@ -156,7 +156,7 @@
 
 **流派:**体育
 
-首播日期:4月2日
+首播日期:4 月 2 日
 
 **在哪里观看:**
 
@@ -164,23 +164,23 @@
 
  [https://kotaku.com/embed/inset/iframe?id=youtube-video-7FyMj9kC1G4&start=0](https://kotaku.com/embed/inset/iframe?id=youtube-video-7FyMj9kC1G4&start=0) 
 
-工作室:制作I.G
+工作室:制作 I.G
 
 **型:T1】 Sci-Fi**
 
-首播日期:5月23日
+首播日期:5 月 23 日
 
 **观看地点:** [网飞](https://www.netflix.com/title/81030224)
 
-**一句话讲的是什么:**草薙少校和第九部在网飞CGI动画延续的*孤胆战侠*中打击一波新的网络犯罪。
+**一句话讲的是什么:**草薙少校和第九部在网飞 CGI 动画延续的*孤胆战侠*中打击一波新的网络犯罪。
 
  [https://kotaku.com/embed/inset/iframe?id=youtube-video-zfkzTnEE_Sk&start=0](https://kotaku.com/embed/inset/iframe?id=youtube-video-zfkzTnEE_Sk&start=0) 
 
-**工作室:**银链x刃
+**工作室:**银链 x 刃
 
 **流派:**动作、奇幻
 
-首播日期:4月6日
+首播日期:4 月 6 日
 
 **在哪里观看:**
 
@@ -192,7 +192,7 @@
 
 **类型:**喜剧
 
-首映日期:4月9日
+首映日期:4 月 9 日
 
 **在哪里观看:**
 
@@ -200,11 +200,11 @@
 
  [https://kotaku.com/embed/inset/iframe?id=youtube-video-cxTxrKrYkcY&start=0](https://kotaku.com/embed/inset/iframe?id=youtube-video-cxTxrKrYkcY&start=0) 
 
-**工作室:** A-1影业
+**工作室:** A-1 影业
 
 **类型:**喜剧
 
-首播日期:4月9日
+首播日期:4 月 9 日
 
 **观看地点:** [松脆卷](https://www.crunchyroll.com/kaguya-sama-love-is-war) 和 [Funimation](https://www.funimation.com/shows/kaguya-sama-love-is-war/)
 
@@ -216,7 +216,7 @@
 
 **流派:**动作
 
-首播日期:4月10日
+首播日期:4 月 10 日
 
 **观看地点:** [松脆卷](https://www.crunchyroll.com/kingdom) 和 [Funimation](https://www.funimation.com/shows/kingdom/)
 
@@ -228,11 +228,11 @@
 
 类型:喜剧，爱情，生活片段
 
-首播日期:4月6日
+首播日期:4 月 6 日
 
 **观看地点:** [网飞](https://www.netflix.com/title/81228573)
 
-**一句话的内容:**一名年轻的高中生试图克服她严重的社交焦虑症，并交100个朋友。
+**一句话的内容:**一名年轻的高中生试图克服她严重的社交焦虑症，并交 100 个朋友。
 
  [https://kotaku.com/embed/inset/iframe?id=youtube-video-WLzmLUtVkxA&start=0](https://kotaku.com/embed/inset/iframe?id=youtube-video-WLzmLUtVkxA&start=0) 
 
@@ -240,7 +240,7 @@
 
 **类型:**喜剧，生活片段
 
-首映日期:3月10日
+首映日期:3 月 10 日
 
 **观看地点:** [网飞](https://www.netflix.com/title/81275353)
 
@@ -248,11 +248,11 @@
 
  [https://kotaku.com/embed/inset/iframe?id=youtube-video-PDPPW_a7uAU&start=0](https://kotaku.com/embed/inset/iframe?id=youtube-video-PDPPW_a7uAU&start=0) 
 
-工作室:制作I.G
+工作室:制作 I.G
 
 **类型:**动作，剧情，科幻
 
-首播日期:4月7日
+首播日期:4 月 7 日
 
 **在哪里观看:**
 
@@ -264,7 +264,7 @@
 
 **类型:**喜剧爱情片
 
-首播日期:4月2日
+首播日期:4 月 2 日
 
 **观看地点:** [富尼玛尼安](https://www.crunchyroll.com/love-after-world-domination)
 
@@ -272,11 +272,11 @@
 
  [https://kotaku.com/embed/inset/iframe?id=youtube-video-yOLFWlA5afk&start=0](https://kotaku.com/embed/inset/iframe?id=youtube-video-yOLFWlA5afk&start=0) 
 
-**工作室:**日本动画x OLM
+**工作室:**日本动画 x OLM
 
 **流派:**体育
 
-首播日期:4月2日
+首播日期:4 月 2 日
 
 **在哪里观看:**
 
@@ -288,11 +288,11 @@
 
 **流派:**奇幻
 
-首映日期:4月3日
+首映日期:4 月 3 日
 
 **在哪里观看:**
 
-**一句话讲的是:**在《T2》的最后一季中，一个被迫杀死女巫的魔法女孩Iroha Tamaki继续寻找她与Kyubey之间契约背后的真相。
+**一句话讲的是:**在《T2》的最后一季中，一个被迫杀死女巫的魔法女孩 Iroha Tamaki 继续寻找她与 Kyubey 之间契约背后的真相。
 
  [https://kotaku.com/embed/inset/iframe?id=youtube-video-NiFncExBq68&start=0](https://kotaku.com/embed/inset/iframe?id=youtube-video-NiFncExBq68&start=0) 
 
@@ -300,7 +300,7 @@
 
 **类型:**喜剧
 
-首映日期:4月1日
+首映日期:4 月 1 日
 
 **在哪里观看:**
 
@@ -312,7 +312,7 @@
 
 **流派:**动作
 
-首播日期:4月19日
+首播日期:4 月 19 日
 
 **观看地点:** [网飞](https://www.netflix.com/title/81002003)
 
@@ -324,7 +324,7 @@
 
 **流派:**动作、奇幻
 
-首播日期:4月6日
+首播日期:4 月 6 日
 
 **观看地点:** [松脆卷](https://www.crunchyroll.com/the-rising-of-the-shield-hero) 和 [Funimation](https://www.funimation.com/shows/the-rising-of-the-shield-hero/)
 
@@ -336,7 +336,7 @@
 
 **流派:**戏剧，超自然
 
-首播日期:1月9日
+首播日期:1 月 9 日
 
 **观看地点:** [松脆卷](https://www.crunchyroll.com/requiem-of-the-rose-king/episode-1-wars-of-the-roses-842204) 和 [Funimation](https://www.funimation.com/shows/requiem-of-the-rose-king/)
 
@@ -348,7 +348,7 @@
 
 **类型:**喜剧、言情
 
-首映日期:4月1日
+首映日期:4 月 1 日
 
 **在哪里观看:**
 
@@ -360,7 +360,7 @@
 
 **类型:**动作、冒险
 
-首映日期:2月6日
+首映日期:2 月 6 日
 
 **在哪里观看:**
 
@@ -372,11 +372,11 @@
 
 **流派:**动作、奇幻
 
-首播日期:4月7日
+首播日期:4 月 7 日
 
 **在哪里观看:**
 
-**一句话:一个游戏玩家被MMO变成了一副盔甲里的骷髅，他必须隐藏自己的身份，以免被误认为是怪物。**
+**一句话:一个游戏玩家被 MMO 变成了一副盔甲里的骷髅，他必须隐藏自己的身份，以免被误认为是怪物。**
 
  [https://kotaku.com/embed/inset/iframe?id=youtube-video-utyXdk4G0-w&start=0](https://kotaku.com/embed/inset/iframe?id=youtube-video-utyXdk4G0-w&start=0) 
 
@@ -384,7 +384,7 @@
 
 **流派:**言情
 
-首播日期:4月9日
+首播日期:4 月 9 日
 
 **在哪里观看:**
 
@@ -392,11 +392,11 @@
 
  [https://kotaku.com/embed/inset/iframe?id=youtube-video-ofXigq9aIpo&start=0](https://kotaku.com/embed/inset/iframe?id=youtube-video-ofXigq9aIpo&start=0) 
 
-**工作室:** WIT工作室和Cloverworks
+**工作室:** WIT 工作室和 Cloverworks
 
 **类型:**喜剧
 
-首播日期:4月9日
+首播日期:4 月 9 日
 
 **在哪里观看:**
 
@@ -408,11 +408,11 @@
 
 **流派:**动作
 
-首播日期:4月8日
+首播日期:4 月 8 日
 
 **观看地点:** [网飞](https://www.netflix.com/title/80039972)
 
-**一句话讲的是什么:**阔别11年后，野生老虎和新秀巴纳比·布鲁克斯这对不般配的超级英雄搭档迎来了第二季
+**一句话讲的是什么:**阔别 11 年后，野生老虎和新秀巴纳比·布鲁克斯这对不般配的超级英雄搭档迎来了第二季
 
  [https://kotaku.com/embed/inset/iframe?id=youtube-video-BJQ9XP4ic7I&start=0](https://kotaku.com/embed/inset/iframe?id=youtube-video-BJQ9XP4ic7I&start=0) 
 
@@ -420,7 +420,7 @@
 
 **流派:**戏剧
 
-首播日期:4月5日
+首播日期:4 月 5 日
 
 **在哪里观看:**
 
@@ -432,7 +432,7 @@
 
 **类型:**奇幻、言情
 
-首映日期:4月3日
+首映日期:4 月 3 日
 
 **在哪里观看:**
 
@@ -440,11 +440,11 @@
 
  [https://kotaku.com/embed/inset/iframe?id=youtube-video-AudT7Av-pv4&start=0](https://kotaku.com/embed/inset/iframe?id=youtube-video-AudT7Av-pv4&start=0) 
 
-工作室:制作I.G
+工作室:制作 I.G
 
 **流派:**动作
 
-首播日期:4月14日
+首播日期:4 月 14 日
 
 **观看地点:** [网飞](https://www.netflix.com/title/80231373)
 
@@ -456,7 +456,7 @@
 
 **流派:**超自然
 
-首播日期:5月16日
+首播日期:5 月 16 日
 
 **观看地点:** [网飞](https://www.netflix.com/title/80996247)
 

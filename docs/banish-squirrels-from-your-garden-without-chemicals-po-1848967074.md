@@ -1,6 +1,6 @@
 # 驱逐松鼠从你的花园没有化学品，毒药，或陷阱
 
-> 原文:[https://life hacker . com/exhibit-squires-from-your ' s garden-without-chemicals-po-1848967074](https://lifehacker.com/banish-squirrels-from-your-garden-without-chemicals-po-1848967074)
+> 原文：<https://lifehacker.com/banish-squirrels-from-your-garden-without-chemicals-po-1848967074>
 
 我过去常常嘲笑我的祖父，因为他们都非常讨厌松鼠，以至于他们会滑稽地竭尽全力让松鼠远离喂鸟者。现在我有了自己的花园，我开始理解他们为什么痴迷于摆脱这些毛茸茸的尾巴。他们会吃嫩嫩的新芽、种子和任何他们能找到的蔬菜。
 
@@ -14,7 +14,7 @@ Watch
 
 ## 为大花园做一个更大的松鼠屏障
 
-你可能会注意到这个计划中的一个致命缺陷:当你的植物长得超出篮子时，你会怎么做？为了让松鼠远离你的大植物，你可以使用 [金属网](https://www.homedepot.com/p/PEAK-5-ft-L-x-24-in-H-Galvanized-Steel-Welded-Hardware-Mesh-with-1-4-inch-x-1-4-inch-Mesh-Size-Garden-Fence-3333/315112109?source=shoppingads&locale=en-US) 和 [栅栏柱](https://www.farmstore.com/product/48-inch-poly-step-in-fence-post/?gclid=CjwKCAjw4ayUBhA4EiwATWyBriBXsNYlh5wpvvN0H_JcoWlc4y0wuClAyOR2EActgb6hz3Qg7RpsmxoCMcEQAvD_BwE) 来制作你自己的网围栏，在你的花园床的每个角落放置一根柱子，并在它周围和顶部上方拉伸网。使用景观花园钉将网的底部边缘固定在地面上，或者将网的边缘埋入6英寸深(因为松鼠会找到任何它们可以穿过的缝隙，然后吃你的蔬菜进城)。如果你不想自己做网罩，你也可以找现成的网罩来买，尽管它们在T21更贵。
+你可能会注意到这个计划中的一个致命缺陷:当你的植物长得超出篮子时，你会怎么做？为了让松鼠远离你的大植物，你可以使用 [金属网](https://www.homedepot.com/p/PEAK-5-ft-L-x-24-in-H-Galvanized-Steel-Welded-Hardware-Mesh-with-1-4-inch-x-1-4-inch-Mesh-Size-Garden-Fence-3333/315112109?source=shoppingads&locale=en-US) 和 [栅栏柱](https://www.farmstore.com/product/48-inch-poly-step-in-fence-post/?gclid=CjwKCAjw4ayUBhA4EiwATWyBriBXsNYlh5wpvvN0H_JcoWlc4y0wuClAyOR2EActgb6hz3Qg7RpsmxoCMcEQAvD_BwE) 来制作你自己的网围栏，在你的花园床的每个角落放置一根柱子，并在它周围和顶部上方拉伸网。使用景观花园钉将网的底部边缘固定在地面上，或者将网的边缘埋入 6 英寸深(因为松鼠会找到任何它们可以穿过的缝隙，然后吃你的蔬菜进城)。如果你不想自己做网罩，你也可以找现成的网罩来买，尽管它们在 T21 更贵。
 
 ## 防止松鼠进入你花园的其他材料
 
@@ -22,4 +22,4 @@ Watch
 
 你基本上想要任何能让光线和水通过，但没有足够大的洞让松鼠通过的东西。选择屏障材料时要考虑的一件事是，它应该有足够大的孔，让蜜蜂等传粉者仍然可以穿过它们。
 
-使用松鼠笼和栅栏的好处是它们不会伤害松鼠或其他野生动物。你的“鼠笼”可以在每个季节重复使用，并且可以根据不同的花园布局进行简单的重新配置。像往常一样，只要记住在你挖掘或驱赶栅栏柱之前，你应该拨打美国的811s .—这样你就能确保你当地的公共设施远离你的道路。
+使用松鼠笼和栅栏的好处是它们不会伤害松鼠或其他野生动物。你的“鼠笼”可以在每个季节重复使用，并且可以根据不同的花园布局进行简单的重新配置。像往常一样，只要记住在你挖掘或驱赶栅栏柱之前，你应该拨打美国的 811s .—这样你就能确保你当地的公共设施远离你的道路。

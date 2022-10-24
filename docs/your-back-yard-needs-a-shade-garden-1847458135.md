@@ -1,18 +1,18 @@
 # 你的后院需要一个遮荫花园
 
-> 原文:[https://life hacker . com/your ' s back-yard-need-a shade-garden-1847458135](https://lifehacker.com/your-back-yard-needs-a-shade-garden-1847458135)
+> 原文：<https://lifehacker.com/your-back-yard-needs-a-shade-garden-1847458135>
 
 决定在哪里种植你的花园很大程度上取决于阳光照射——太阳照射你的院子的地方，以及持续多长时间。但是遮荫可能比你想象的更有帮助，保护你的植物免受夏季高温的伤害，防止它们被晒伤或变得过于干燥。有些植物甚至更喜欢树荫而不是阳光。
 
 Watch
 
-如果你选择了正确的植物，你的花园可以达到户外空间T2 T3，而T4通常得不到太多的阳光。这里有一些种植在阴凉处茁壮成长的花园的技巧。
+如果你选择了正确的植物，你的花园可以达到户外空间 T2 T3，而 T4 通常得不到太多的阳光。这里有一些种植在阴凉处茁壮成长的花园的技巧。
 
 ## 什么是绿荫花园？
 
 遮荫花园里的植物几乎不需要阳光就能生长。如果你的院子里有很多带遮阳篷的树，很少光线可以透过，或者如果你的房子或门廊长时间阻挡光线照射到你的后院，一个荫凉花园可能很适合你。
 
-算个什么s小无光？根据 [园艺师](https://www.gardenista.com/posts/garden-decoder-shade-garden/) 的说法，绿荫花园指的是可以在每天少于四小时的日照下生存的植物。
+算个什么 s 小无光？根据 [园艺师](https://www.gardenista.com/posts/garden-decoder-shade-garden/) 的说法，绿荫花园指的是可以在每天少于四小时的日照下生存的植物。
 
 ## 有三种色调
 
@@ -30,7 +30,7 @@ Watch
 
 考虑你想要创造的类型的空间。如果你想要一个可以坐在树荫下欣赏风景的地方，你可能会想在门廊或花园长凳旁边种植像 [杜鹃花](https://www.bhg.com/gardening/plant-dictionary/shrub/rhododendron/) 这样需要部分遮荫并且看起来很漂亮的开花灌木。或者还有 [clethra](https://www.bhg.com/gardening/trees-shrubs-vines/shrubs/shrubs-for-shade/?slide=slide_86346255-4c0b-4514-b42b-a463e8b42813#slide_86346255-4c0b-4514-b42b-a463e8b42813) ，它开出浅粉色的花。对于茂盛的绿色植物，有 [玉簪](https://www.bhg.com/gardening/plant-dictionary/perennial/hosta/) 植物与石道配合良好。
 
-如果你想要一个可以在你阴凉的院子里生存的菜园，Real Simple建议像菠菜、甜菜和羽衣甘蓝这样的低热量蔬菜，其中的[也可以熬过](https://lifehacker.com/how-to-plant-a-fall-garden-and-the-best-time-to-do-it-1847449313)。如果你想覆盖更多的地面，或者用一些能在低矮的浅色草坪上存活的植物来代替你的草(除了低矮的浅色草)，你可能会选择蔓延的植物，比如紫色的苜蓿，或者黑色的蒙多草。
+如果你想要一个可以在你阴凉的院子里生存的菜园，Real Simple 建议像菠菜、甜菜和羽衣甘蓝这样的低热量蔬菜，其中的[也可以熬过](https://lifehacker.com/how-to-plant-a-fall-garden-and-the-best-time-to-do-it-1847449313)。如果你想覆盖更多的地面，或者用一些能在低矮的浅色草坪上存活的植物来代替你的草(除了低矮的浅色草)，你可能会选择蔓延的植物，比如紫色的苜蓿，或者黑色的蒙多草。
 
 ## 打理绿荫花园时需要注意的事项
 

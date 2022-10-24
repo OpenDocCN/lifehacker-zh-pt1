@@ -1,6 +1,6 @@
 # 当你在工作中偷东西被抓住时该怎么办
 
-> 原文:[https://life hacker . com/what-to-do-what-what-what-what-do-when-you-catched-from-work-1849022521](https://lifehacker.com/what-to-do-when-youre-caught-stealing-from-work-1849022521)
+> 原文：<https://lifehacker.com/what-to-do-when-youre-caught-stealing-from-work-1849022521>
 
 我高度鼓励 [在合理的范围内从你的工作场所](https://lifehacker.com/how-to-steal-enough-food-from-your-employer-to-make-you-1849008703) 偷窃。抢夺笔，从办公室聚会上拿走剩余的汽水——[这不是什么新鲜事](https://theinterviewguys.com/petty-theft-at-work/) 。但是显然重要的是保持你的小偷小摸在合理范围内，永远不要被你的经理当场抓住。
 
@@ -28,7 +28,7 @@ Watch
 
 ## **避免刑事指控**
 
-希望在你的雇主采取行动通知当局之前，和你坐下来讨论你的错误行为。 [CareerAddict写道](https://www.careeraddict.com/what-to-do-if-you-get-caught-stealing-at-work)建议尝试达成协议，这样你就不会受到刑事指控。这份协议可能会涉及你同意离开公司，也许偿还你偷的东西，但这比昂贵的法律费用要好。
+希望在你的雇主采取行动通知当局之前，和你坐下来讨论你的错误行为。 [CareerAddict 写道](https://www.careeraddict.com/what-to-do-if-you-get-caught-stealing-at-work)建议尝试达成协议，这样你就不会受到刑事指控。这份协议可能会涉及你同意离开公司，也许偿还你偷的东西，但这比昂贵的法律费用要好。
 
 ## 没有专业人士的帮助，先不要签任何东西
 

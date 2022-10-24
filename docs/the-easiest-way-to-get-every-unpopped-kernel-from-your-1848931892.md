@@ -1,8 +1,8 @@
 # 从你的爆米花中取出所有未爆玉米粒的最简单方法
 
-> 原文:[https://life hacker . com/the-easy-way to-get-every-un-popped-from-your-1848931892](https://lifehacker.com/the-easiest-way-to-get-every-unpopped-kernel-from-your-1848931892)
+> 原文：<https://lifehacker.com/the-easiest-way-to-get-every-unpopped-kernel-from-your-1848931892>
 
-抖音的海报有夸大其事的倾向。他们做出各种各样的承诺“让你大吃一惊”和“改变你做xyz的方式”，并喜欢告诉你，你一直在“做错这件事”。但是剥去所有的夸张，他们的主张往往有一个真理的内核。
+抖音的海报有夸大其事的倾向。他们做出各种各样的承诺“让你大吃一惊”和“改变你做 xyz 的方式”，并喜欢告诉你，你一直在“做错这件事”。但是剥去所有的夸张，他们的主张往往有一个真理的内核。
 
 Watch [https://lifehacker.com/embed/inset/iframe?id=tiktok-7093484609714818347&autosize=1](https://lifehacker.com/embed/inset/iframe?id=tiktok-7093484609714818347&autosize=1) 
 

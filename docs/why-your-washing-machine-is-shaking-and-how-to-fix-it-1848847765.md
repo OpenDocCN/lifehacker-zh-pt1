@@ -1,6 +1,6 @@
 # 为什么你的洗衣机在摇晃，如何修理
 
-> 原文:[https://life hacker . com/why-your ' s wash-machine-shaking-and-how-to-fix it-1848847765](https://lifehacker.com/why-your-washing-machine-is-shaking-and-how-to-fix-it-1848847765)
+> 原文：<https://lifehacker.com/why-your-washing-machine-is-shaking-and-how-to-fix-it-1848847765>
 
 第一次听的时候，噪音会很刺耳。似乎不知从哪里冒出来的，听起来就像一架直升飞机正降落在你的屋顶上，或者一列货运火车正快速穿过你的墙壁进入你的家。房间和里面的东西可能会像小地震时一样摇晃。
 

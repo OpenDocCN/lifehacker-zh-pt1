@@ -1,6 +1,6 @@
 # 矛盾如何帮助你做出更好的决定
 
-> 原文:[https://life hacker . com/how-be-ambiguity-can-help-you-make-better-decisions-1847133403](https://lifehacker.com/how-being-ambivalent-can-help-you-make-better-decisions-1847133403)
+> 原文：<https://lifehacker.com/how-being-ambivalent-can-help-you-make-better-decisions-1847133403>
 
 有些决定需要深思熟虑——权衡利弊，努力达到最好的结果。但是有些人对几乎所有事情都犹豫不决，无论是大事还是小事。不管你是在和一个矛盾的人打交道，还是你自己就是一个矛盾的人，你都知道这会很烦人。
 

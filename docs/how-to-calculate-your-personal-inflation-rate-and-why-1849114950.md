@@ -1,16 +1,16 @@
 # 如何计算你的个人通货膨胀率(以及为什么你应该这样做)
 
-> 原文:[https://life hacker . com/how-to-calculate-your personal-inflation-rate-and-why-1849114950](https://lifehacker.com/how-to-calculate-your-personal-inflation-rate-and-why-1849114950)
+> 原文：<https://lifehacker.com/how-to-calculate-your-personal-inflation-rate-and-why-1849114950>
 
-如果你在过去的几个月里哪怕只看一次新闻(或者试图购买基本上任何东西)，你就会知道美国目前正在处理一点通货膨胀问题。与去年这个时候相比，食品价格上涨了10.1%。新车价格上涨了13.7%。酒店价格上涨了22.2%，机票价格上涨了37.8%，汽油价格上涨了48.7%。长话短说:几乎所有东西的价格都大幅上涨。
+如果你在过去的几个月里哪怕只看一次新闻(或者试图购买基本上任何东西)，你就会知道美国目前正在处理一点通货膨胀问题。与去年这个时候相比，食品价格上涨了 10.1%。新车价格上涨了 13.7%。酒店价格上涨了 22.2%，机票价格上涨了 37.8%，汽油价格上涨了 48.7%。长话短说:几乎所有东西的价格都大幅上涨。
 
 Watch
 
-虽然通货膨胀确实会影响到每个人，但它对每个人的影响并不相同。例如，如果你是城市居民，购买新车或加满油箱的价格不太可能影响你。租金的上涨对那些在美国农村拥有土地的人来说毫无意义。这意味着，当你看到关于通货膨胀如何同比上升9%的头条新闻时，它对你个人的影响可能高于或低于。但是你如何确定呢？[Artifex金融集团的道格·金赛创造了他所谓的“个人通货膨胀计算器”](https://www.kiplinger.com/personal-finance/inflation/604823/what-is-your-personal-inflation-rate)——一种工具，用于计算如何在不断变化的通货膨胀环境中重新评估你的预算。
+虽然通货膨胀确实会影响到每个人，但它对每个人的影响并不相同。例如，如果你是城市居民，购买新车或加满油箱的价格不太可能影响你。租金的上涨对那些在美国农村拥有土地的人来说毫无意义。这意味着，当你看到关于通货膨胀如何同比上升 9%的头条新闻时，它对你个人的影响可能高于或低于。但是你如何确定呢？[Artifex 金融集团的道格·金赛创造了他所谓的“个人通货膨胀计算器”](https://www.kiplinger.com/personal-finance/inflation/604823/what-is-your-personal-inflation-rate)——一种工具，用于计算如何在不断变化的通货膨胀环境中重新评估你的预算。
 
 ## 你个人的通货膨胀率是多少？
 
-你的个人通货膨胀率是通货膨胀如何影响你的具体每月预算。为了找出你的个人通货膨胀率，把你的账单输入到 [个人通货膨胀计算器](https://info.artifexfinancial.com/personal-inflation-rate) ，然后它会告诉你根据从消费者价格指数中提取的数据，你应该期望每一行项目增加百分之多少。 [Kinsey解释说，](https://www.kiplinger.com/personal-finance/inflation/604823/what-is-your-personal-inflation-rate)“T我创建的工作表采用了一些最常见的家庭支出类别，并允许我们输入这些类别的年度金额。然后应用每个项目的通货膨胀系数，得出当期该项目或服务的估计价格。然后，我们把所有这些预算项目加起来，根据差额得出个人通货膨胀率。”
+你的个人通货膨胀率是通货膨胀如何影响你的具体每月预算。为了找出你的个人通货膨胀率，把你的账单输入到 [个人通货膨胀计算器](https://info.artifexfinancial.com/personal-inflation-rate) ，然后它会告诉你根据从消费者价格指数中提取的数据，你应该期望每一行项目增加百分之多少。 [Kinsey 解释说，](https://www.kiplinger.com/personal-finance/inflation/604823/what-is-your-personal-inflation-rate)“T 我创建的工作表采用了一些最常见的家庭支出类别，并允许我们输入这些类别的年度金额。然后应用每个项目的通货膨胀系数，得出当期该项目或服务的估计价格。然后，我们把所有这些预算项目加起来，根据差额得出个人通货膨胀率。”
 
 这给了你一个微调后的通胀率，而不是劳工统计局发布的一揽子信息。
 
@@ -28,7 +28,7 @@ Watch
 
 杂货账单。虽然食品的整体成本上升，但有 [几种商品的价格在过去一个月*下降*](https://lifehacker.com/these-food-prices-actually-went-down-this-month-1849046356)。碎牛肉、苹果和猪排只是一些可以减轻你的食品账单的食物。如果你想出去吃饭，也有一些提供免费产品的连锁餐厅应用程序，如果你愿意玩他们的游戏，这些应用程序还可以提供免费产品。
 
-**差旅费。如果你想在今年夏天出远门，但由于通货膨胀不得不在T2大幅削减旅行预算，你有几个选择。首先， [你可以看看这些比Airbnb](https://lifehacker.com/the-best-vacation-rental-alternatives-to-airbnb-1849088885) 便宜的替代品。接下来， [你可以乘坐一家不会收取你携带随身行李费用的航空公司](https://lifehacker.com/these-airlines-let-you-carry-on-for-free-1849106506) 。或者 [你可以选择一天 t rip而不是](https://lifehacker.com/50-of-the-cheapest-day-trips-to-take-across-the-us-1849058582) ，看看你的州能提供的最好的东西。**
+**差旅费。如果你想在今年夏天出远门，但由于通货膨胀不得不在 T2 大幅削减旅行预算，你有几个选择。首先， [你可以看看这些比 Airbnb](https://lifehacker.com/the-best-vacation-rental-alternatives-to-airbnb-1849088885) 便宜的替代品。接下来， [你可以乘坐一家不会收取你携带随身行李费用的航空公司](https://lifehacker.com/these-airlines-let-you-carry-on-for-free-1849106506) 。或者 [你可以选择一天 t rip 而不是](https://lifehacker.com/50-of-the-cheapest-day-trips-to-take-across-the-us-1849058582) ，看看你的州能提供的最好的东西。**
 
 **电话账单。**可能没有真正的方式过没有手机的日子， [但是你可以让你的话费更便宜](https://lifehacker.com/the-easiest-ways-to-cut-down-your-cell-phone-bill-1849014104) 。一些简单的步骤，如注册自动转账、购买无限量数据或选择家庭计划，就可以降低这一固定成本。
 

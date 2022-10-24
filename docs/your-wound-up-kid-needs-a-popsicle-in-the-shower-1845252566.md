@@ -1,16 +1,16 @@
 # 你受伤的孩子洗澡时需要一根冰棒
 
-> 原文:[https://life hacker . com/your-wind-kid-need-a冰棒-in-the-shower-1845252566](https://lifehacker.com/your-wound-up-kid-needs-a-popsicle-in-the-shower-1845252566)
+> 原文：<https://lifehacker.com/your-wound-up-kid-needs-a-popsicle-in-the-shower-1845252566>
 
 有时候，当你的孩子对某件事感到紧张时，不管是焦虑、兴奋还是精力充沛，让他们振作起来或平静下来的最好方法就是感官体验。洗澡或淋浴是一个好的开始；然而，在混合物中加入一根冰棒会使它更上一层楼。
 
 Watch
 
-[Reddit用户u/Bigglesmith](https://www.reddit.com/r/Parenting/comments/j3ra4a/to_the_person_who_taught_me_about_popsicle) 解释道:
+[Reddit 用户 u/Bigglesmith](https://www.reddit.com/r/Parenting/comments/j3ra4a/to_the_person_who_taught_me_about_popsicle) 解释道:
 
 > 前一段时间，我看到一个评论，说有人的母亲在洗澡时给他们冰棍，让他们冷静下来，重新调整情绪。我不记得那个帖子或那个人了，但是这个提示改变了游戏规则！现在，如果我觉得我的孩子变得太兴奋或太敏感或其他什么，我建议我们在淋浴时吃一根冰棒，就像她体内的一切都立即平静下来。
 > 
-> 每次我们冰棒淋浴，我觉得平静下来，我发誓要发布一些东西，以防发帖人看到，可以看到他们的小轶事对我的家庭产生了什么影响。谢谢你，随机的陌生人，谢谢你给了我迄今为止收到的最随机最有效的育儿小贴士！我的孩子喜欢它，我也喜欢它，每个人都很开心。冰棒淋浴ftw！
+> 每次我们冰棒淋浴，我觉得平静下来，我发誓要发布一些东西，以防发帖人看到，可以看到他们的小轶事对我的家庭产生了什么影响。谢谢你，随机的陌生人，谢谢你给了我迄今为止收到的最随机最有效的育儿小贴士！我的孩子喜欢它，我也喜欢它，每个人都很开心。冰棒淋浴 ftw！
 > 
 > TL；热博士和冷博士都是如此强烈，把它们放在一起才有意义！
 

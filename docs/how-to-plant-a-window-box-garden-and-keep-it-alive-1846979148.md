@@ -1,6 +1,6 @@
 # 如何种植窗盒花园，并保持其活力
 
-> 原文:[https://life hacker . com/how-to-plant-a-window-box-garden-and-keep-it-alive-1846979148](https://lifehacker.com/how-to-plant-a-window-box-garden-and-keep-it-alive-1846979148)
+> 原文：<https://lifehacker.com/how-to-plant-a-window-box-garden-and-keep-it-alive-1846979148>
 
 疫情推动的园艺热潮对拥有院子、社区花园甚至阳台的人来说都是好事。但是对于我们这些不具备以上条件的人来说，户外园艺的选择和以往一样有限。但是有一种方法可以种植东西——即使是在公寓里——你不应该睡在上面:窗盒花园。贝丝·哈帕兹最近为美联社写了一篇关于培育这种微型菜园的文章 ，并分享了专家们关于如何种植自己的菜园并让它存活的建议。
 
@@ -10,7 +10,7 @@ Watch
 
 对于住在公寓楼里的人来说，一个窗台花圃可能是他们施展园艺技能的唯一机会。但是在安装的时候考虑安全性也很重要。纽约布鲁克林植物园 [的社区项目经理尼娜·布朗告诉美联社](https://apnews.com/article/plants-environment-and-nature-lifestyle-gardening-f498fd1700a56cd7e2bd8c6bccf93a4c) “人们确实会被落下的窗户盒子砸死。
 
-那么，你如何确保你的窗盒花园不是一个安全风险？根据Harpaz的说法:
+那么，你如何确保你的窗盒花园不是一个安全风险？根据 Harpaz 的说法:
 
 > 就像你使用空调一样，确保你的窗户是安全的，这样它们就不会在暴风雨中倒下或被吹倒。由于这些潜在的危险，房东、建筑协会和财产保险公司有时会禁止使用窗箱。室内窗盒是一个不错的选择。
 
@@ -18,7 +18,7 @@ Watch
 
 因为窗箱式花园附属于或非常靠近建筑物，它们通常接收有限的阳光。所以在种植某些东西之前，检查一下它需要什么样的阳光照射，以及它是否适合你现有的窗户空间。
 
-窗户的位置也决定了你需要多久给你的小花园浇一次水。Harpaz写道:“窗台花箱比地下植物干得更快，所以它们需要大量浇水，尤其是朝南的时候。”
+窗户的位置也决定了你需要多久给你的小花园浇一次水。Harpaz 写道:“窗台花箱比地下植物干得更快，所以它们需要大量浇水，尤其是朝南的时候。”
 
 如果你决定选择多肉植物来抵消水的情况，它们往往在朝南或朝西的窗户上表现最好，英国萨里郡皇家园艺学会韦斯利花园的馆长马修·波特奇告诉美联社 。
 
@@ -54,4 +54,4 @@ Watch
 
 “拥有真正漂亮的窗盒的人正在剪掉枯死的、枯萎的叶子和花朵，”来自的园艺家瑞安·伯努瓦告诉美联社记者。他们还确保给他们的箱型花园充足的水，并“改变了很多事情”。有些植物只会在一个季节看起来很好。”
 
-对于更多的想法和技巧，Harpaz建议看看Chantal Aida Gordon和Ryan Benoit的书 [*如何开窗盒*](https://www.penguinrandomhouse.com/books/554657/how-to-window-box-by-chantal-aida-gordon-and-ryan-benoit/) ，该书提供了16种不同的开窗盒概念，包括“丛林盒子”、“南方美女”和“小岛”
+对于更多的想法和技巧，Harpaz 建议看看 Chantal Aida Gordon 和 Ryan Benoit 的书 [*如何开窗盒*](https://www.penguinrandomhouse.com/books/554657/how-to-window-box-by-chantal-aida-gordon-and-ryan-benoit/) ，该书提供了 16 种不同的开窗盒概念，包括“丛林盒子”、“南方美女”和“小岛”

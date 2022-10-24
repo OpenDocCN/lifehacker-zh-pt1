@@ -1,6 +1,6 @@
 # 全球疫情期间如何庆祝世界旅游日
 
-> 原文:[https://life hacker . com/how-to-欢庆全球旅游日-pand-1845191927](https://lifehacker.com/how-to-celebrate-world-tourism-day-during-a-global-pand-1845191927)
+> 原文：<https://lifehacker.com/how-to-celebrate-world-tourism-day-during-a-global-pand-1845191927>
 
 今天是世界旅游日，虽然我们全年的旅游选择都非常有限，但这并不意味着我们不应该庆祝这个日子。是的，我们正在谈论虚拟旅行。(又来了。像其他人一样，我们在疫情开始的时候对数字旅行进行了猛烈的抨击，当时它似乎是一个短暂的新事物。但是几个月后，我们在这里，仍然大部分时间被困在家里。
 

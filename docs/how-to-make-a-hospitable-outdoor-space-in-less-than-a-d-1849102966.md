@@ -1,6 +1,6 @@
 # 如何在不到一天的时间内打造一个好客的户外空间
 
-> 原文:[https://life hacker . com/how-to-make-a-how-how-how-a-how-how-come-a-how-how-to-how-make-a-how-coastable-outdoor-space-in-less-a-d-1849102966](https://lifehacker.com/how-to-make-a-hospitable-outdoor-space-in-less-than-a-d-1849102966)
+> 原文：<https://lifehacker.com/how-to-make-a-hospitable-outdoor-space-in-less-than-a-d-1849102966>
 
 如果你足够幸运，住在一个有户外空间的家里，你可能应该使用它。无论你有几英亩土地，一个紧凑的后院，还是一个公寓阳台，都完全有可能创建一个专用的、好客的区域，在那里你可以坐下来享受户外生活——即使你没有预算、时间或技能来建造一个别致的露台。
 
@@ -35,7 +35,7 @@ Watch
 
 ## 添加坐的地方
 
-接下来，添加一些座位和一块可用作桌子的物件。同样，如果你的预算很低，你可以用你手头的任何东西，即使它们不匹配。还有几个 [户外坐席](https://lifehacker.com/how-to-spruce-up-your-outdoor-living-space-in-the-cheap-1847492628) 的DIY选项。
+接下来，添加一些座位和一块可用作桌子的物件。同样，如果你的预算很低，你可以用你手头的任何东西，即使它们不匹配。还有几个 [户外坐席](https://lifehacker.com/how-to-spruce-up-your-outdoor-living-space-in-the-cheap-1847492628) 的 DIY 选项。
 
 ## 定制空间
 

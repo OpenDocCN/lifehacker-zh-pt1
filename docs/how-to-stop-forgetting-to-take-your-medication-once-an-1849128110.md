@@ -1,8 +1,8 @@
 # 如何一劳永逸地停止忘记服药
 
-> 原文:[https://life hacker . com/how-to-stop-forgot-to-take-your-drug-once-a-1849128110](https://lifehacker.com/how-to-stop-forgetting-to-take-your-medication-once-an-1849128110)
+> 原文：<https://lifehacker.com/how-to-stop-forgetting-to-take-your-medication-once-an-1849128110>
 
-美国人平均在 [左右兼顾12种处方药](https://www.statista.com/statistics/315476/prescriptions-in-us-per-capita-by-age-group/) 。虽然这个数字肯定被那些吃了很多药的老年人扭曲了，但我们中的许多人都被开了一种我们需要每天服用的处方药。B 但总的来说，我们不太擅长这样做——[一项研究显示](https://www.nytimes.com/2017/04/17/well/the-cost-of-not-taking-your-medicine.html) 令人难以置信的是，50%的美国人未能坚持他们的药物治疗计划，这意味着他们经常跳过剂量或干脆完全忘记一种药物。
+美国人平均在 [左右兼顾 12 种处方药](https://www.statista.com/statistics/315476/prescriptions-in-us-per-capita-by-age-group/) 。虽然这个数字肯定被那些吃了很多药的老年人扭曲了，但我们中的许多人都被开了一种我们需要每天服用的处方药。B 但总的来说，我们不太擅长这样做——[一项研究显示](https://www.nytimes.com/2017/04/17/well/the-cost-of-not-taking-your-medicine.html) 令人难以置信的是，50%的美国人未能坚持他们的药物治疗计划，这意味着他们经常跳过剂量或干脆完全忘记一种药物。
 
 Watch
 

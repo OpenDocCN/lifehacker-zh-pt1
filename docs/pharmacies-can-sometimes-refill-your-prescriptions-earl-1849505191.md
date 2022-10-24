@@ -1,6 +1,6 @@
 # 药店有时可以提前重新给你开药
 
-> 原文:[https://life hacker . com/pharmaceuticals-can-some-times-re-fill-your-处方药-earl-1849505191](https://lifehacker.com/pharmacies-can-sometimes-refill-your-prescriptions-earl-1849505191)
+> 原文：<https://lifehacker.com/pharmacies-can-sometimes-refill-your-prescriptions-earl-1849505191>
 
 你可能听过我们 的建议( [)，甚至！)去度假的时候多带些药物，或者在你的应急装备包里多备一些。但是，如果你经常服用的药物是处方药，你应该从哪里获得这些额外的剂量呢？输入提前续杯。](https://lifehacker.com/check-your-emergency-supplies-now-1805912935)
 
@@ -12,7 +12,7 @@ Watch
 *   您的药物已遗失或被盗。
 *   可能会有天气紧急情况——例如，如果天气预报预测你所在的地区会有飓风。
 
-你也可以因为其他原因提前续杯，比如当你要离职的时候。政策各不相同，但在 [这个R eddit线程](https://www.reddit.com/r/LifeProTips/comments/v84skr/lpt_if_you_know_or_suspect_that_you_are_going_to/) 几个人报告说，在这种情况下，他们能够获得“假期”续杯，而不必假装他们正在度假。
+你也可以因为其他原因提前续杯，比如当你要离职的时候。政策各不相同，但在 [这个 R eddit 线程](https://www.reddit.com/r/LifeProTips/comments/v84skr/lpt_if_you_know_or_suspect_that_you_are_going_to/) 几个人报告说，在这种情况下，他们能够获得“假期”续杯，而不必假装他们正在度假。
 
 ## 如何请求提前续杯
 
@@ -22,4 +22,4 @@ Watch
 
 像阿片类药物这样的受管制药物通常不提供早期补充。与你的药剂师谈谈什么是合格的，如果你不能提前补充所有药物，你有什么选择。如果您在旅行，有时您可以将您的处方转到目的地的药房。
 
-在一些州，药店被特别授权在紧急情况下提前配药。例如，在佛罗里达州，如果州长发布了紧急公告，药剂师可以分发30天的基本药物供应，并在事后通知提供者。疾控中心有 [一份处方紧急状态法这里有](https://blogs.cdc.gov/publichealthmatters/2019/09/prescription-preparedness/) 。
+在一些州，药店被特别授权在紧急情况下提前配药。例如，在佛罗里达州，如果州长发布了紧急公告，药剂师可以分发 30 天的基本药物供应，并在事后通知提供者。疾控中心有 [一份处方紧急状态法这里有](https://blogs.cdc.gov/publichealthmatters/2019/09/prescription-preparedness/) 。

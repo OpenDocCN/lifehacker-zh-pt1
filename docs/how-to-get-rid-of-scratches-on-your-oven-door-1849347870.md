@@ -1,6 +1,6 @@
 # 如何去除烤箱门上的划痕
 
-> 原文:[https://life hacker . com/how-to-get-out-of-scratchs-on-your-oven-door-1849347870](https://lifehacker.com/how-to-get-rid-of-scratches-on-your-oven-door-1849347870)
+> 原文：<https://lifehacker.com/how-to-get-rid-of-scratches-on-your-oven-door-1849347870>
 
 随着时间的推移，厨房电器的正常磨损开始产生影响，让我们曾经干净的烤箱、洗碗机和冰箱留下丁丁声、凹痕和划痕。以你烤箱门上的玻璃窗为例。除了被各种食物污渍覆盖之外，它们还会随着时间的推移积累划痕。
 
@@ -14,7 +14,7 @@ Watch
 
 ### 碳酸氢钠
 
-用1:1的比例将小苏打和水混合成糊状。将棉球浸入糊状物中，然后在刮痕上打圈摩擦几秒钟。用干净的软布蘸温水擦拭表面。如果划痕还在，再试一次。
+用 1:1 的比例将小苏打和水混合成糊状。将棉球浸入糊状物中，然后在刮痕上打圈摩擦几秒钟。用干净的软布蘸温水擦拭表面。如果划痕还在，再试一次。
 
 ### 牙膏
 

@@ -1,6 +1,6 @@
 # 你的凉拌卷心菜需要一点胡椒果冻
 
-> 原文:[https://life hacker . com/what-your-coleslaw-needs-a little-pepper-jelly-1847320486](https://lifehacker.com/what-your-coleslaw-needs-is-a-little-pepper-jelly-1847320486)
+> 原文：<https://lifehacker.com/what-your-coleslaw-needs-is-a-little-pepper-jelly-1847320486>
 
 凉拌卷心菜可能是一件棘手的事情。糟糕的沙拉味道淡而无味，但好的沙拉则提供了一种完美的香甜和松脆，可以与各种丰富和咸的烧烤食物相媲美，我最喜欢的是 [猪肉](https://lifehacker.com/how-to-smoke-your-first-pork-shoulder-on-a-charcoal-gri-1847204124) 。好的沙拉取决于好的技术——你可以 [在这里](https://lifehacker.com/stop-making-bad-coleslaw-1826269204) 阅读所有相关内容——最好的沙拉通常是最简单的，就配料而言。
 

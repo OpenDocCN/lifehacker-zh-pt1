@@ -1,6 +1,6 @@
 # 度假时如何让你的植物保持活力
 
-> 原文:[https://life hacker . com/how-to-keep-your-plants-when your-vacation-1846942600](https://lifehacker.com/how-to-keep-your-plants-alive-when-youre-on-vacation-1846942600)
+> 原文：<https://lifehacker.com/how-to-keep-your-plants-alive-when-youre-on-vacation-1846942600>
 
 如果你有一个充满植物的家，当你不在的时候，很难有朋友可靠地照顾它们。另外，如果没有人每天过来给你的植物提供它们需要的特殊护理，那该怎么办呢？这里有一些小窍门，可以在你休假时让你的植物保持快乐和健康。
 
@@ -16,7 +16,7 @@ Watch
 
 #### 将植物放在浴缸或儿童水池中作为蓄水池
 
-如果你有几株热带植物，也许没有足够的酒瓶，你可以在浴缸里给你的植物提供它们需要的水分。园艺作家芭芭拉·普莱森特 告诉 [房子漂亮](https://www.housebeautiful.com/lifestyle/a33563512/how-to-keep-your-plants-alive-while-youre-on-vacation/) l度假时照料多种室内植物的最好方法是在你的浴缸里放一到两英寸的水。将花盆底部的所有托盘拿走，将每株植物一起放入盆中。植物会通过排水孔吸收水分，在你不在的时候按需饮用。使用 [儿童池](https://traveltips.usatoday.com/keep-flowers-alive-vacation-1662.html) 为你的室外植物进行同样的过程。
+如果你有几株热带植物，也许没有足够的酒瓶，你可以在浴缸里给你的植物提供它们需要的水分。园艺作家芭芭拉·普莱森特 告诉 [房子漂亮](https://www.housebeautiful.com/lifestyle/a33563512/how-to-keep-your-plants-alive-while-youre-on-vacation/) l 度假时照料多种室内植物的最好方法是在你的浴缸里放一到两英寸的水。将花盆底部的所有托盘拿走，将每株植物一起放入盆中。植物会通过排水孔吸收水分，在你不在的时候按需饮用。使用 [儿童池](https://traveltips.usatoday.com/keep-flowers-alive-vacation-1662.html) 为你的室外植物进行同样的过程。
 
 #### 将植物按类型分类
 

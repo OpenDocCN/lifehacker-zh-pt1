@@ -1,6 +1,6 @@
 # 事实上，政治电视节目可以毫不掩饰地准确描述美国政府
 
-> 原文:[https://life hacker . com/actually-political-TV-shows-can-be-unflattery-accu-1846849059](https://lifehacker.com/actually-political-tv-shows-can-be-unflatteringly-accu-1846849059)
+> 原文：<https://lifehacker.com/actually-political-tv-shows-can-be-unflatteringly-accu-1846849059>
 
 政治电视节目是美国娱乐的一个主要部分，像《纸牌屋》这样的耸人听闻的电视剧或者像《T2》《副总统》这样的角色驱动的喜剧给我们提供了一个真实的政府系统内部运作的虚拟视角。虽然大多数都被夸大了，像*丑闻*(尽管是基于真实的修复者 [朱迪·史密斯](https://abc7chicago.com/scandal-abcs-olivia-pope-judy-smith/324838/) )，但其他人仍然可以教给我们一两件关于政府内部实际运作的事情。让我们看看一些我们最喜欢的电视节目，看看它们是如何比我们想象的更准确地描绘政府的。
 
@@ -8,9 +8,9 @@ Watch
 
 ### 论警察军事化
 
-虚构的布鲁克林第99分局，由雷蒙德·霍尔特(安德烈·布拉格饰)队长领导，安迪·萨姆伯格饰演侦探杰克·佩拉尔塔。在第一季第19集中，名为“ [战术村](https://brooklyn99.fandom.com/wiki/Tactical_Village) ”九九部队使用高性能武器和军用级机械进行演习。虽然这是严肃的训练，但队员们对玩这些他们称之为“玩具”的东西感到兴奋。
+虚构的布鲁克林第 99 分局，由雷蒙德·霍尔特(安德烈·布拉格饰)队长领导，安迪·萨姆伯格饰演侦探杰克·佩拉尔塔。在第一季第 19 集中，名为“ [战术村](https://brooklyn99.fandom.com/wiki/Tactical_Village) ”九九部队使用高性能武器和军用级机械进行演习。虽然这是严肃的训练，但队员们对玩这些他们称之为“玩具”的东西感到兴奋。
 
-虽然这是对警察部队武器的喜剧表演，但向当地警察部门提供军用级机械是真实的。全国各地的警区通过补贴项目从军方获得装备(有时是全新的)，如 [1033项目](https://project1033.org/?gclid=Cj0KCQjwytOEBhD5ARIsANnRjVgPpeLG6KWS5E3XDU9DYq7sP7T5DaCYV37GPhujNRbx47rXPQ4mZxkaAlzmEALw_wcB)；许多其他项目 [为小选区提供军事武器](https://www.washingtonpost.com/politics/2020/07/20/where-do-police-departments-get-their-military-style-gear-heres-what-we-dont-know/) 比如坦克和攻城槌。
+虽然这是对警察部队武器的喜剧表演，但向当地警察部门提供军用级机械是真实的。全国各地的警区通过补贴项目从军方获得装备(有时是全新的)，如 [1033 项目](https://project1033.org/?gclid=Cj0KCQjwytOEBhD5ARIsANnRjVgPpeLG6KWS5E3XDU9DYq7sP7T5DaCYV37GPhujNRbx47rXPQ4mZxkaAlzmEALw_wcB)；许多其他项目 [为小选区提供军事武器](https://www.washingtonpost.com/politics/2020/07/20/where-do-police-departments-get-their-military-style-gear-heres-what-we-dont-know/) 比如坦克和攻城槌。
 
 所以，很吓人，但是很准确:*布鲁克林九九*用讽刺的手法来说明警察队伍的军事化，以及他们的员工参与其中的激动态度。
 
@@ -20,7 +20,7 @@ Watch
 
 我与布鲁克林民主党县委员会成员科琳·休斯(Colleen Hughes)进行了交谈，让她了解什么是最现实的，休斯发现节目中特别有趣的一个元素是拉选票的想法。
 
-休斯告诉Lifehacker:“从本质上来说，鞭挞投票意味着确保/施压/与你的政党成员讨价还价，根据政党纲领投票，而不是根据他们自己的个人利益或他们的捐助者或选民的利益投票。”休斯说，鞭挞投票是国会议员推动公理法案通过的准确表现。
+休斯告诉 Lifehacker:“从本质上来说，鞭挞投票意味着确保/施压/与你的政党成员讨价还价，根据政党纲领投票，而不是根据他们自己的个人利益或他们的捐助者或选民的利益投票。”休斯说，鞭挞投票是国会议员推动公理法案通过的准确表现。
 
 ### 论地方政府的重要性
 
@@ -42,7 +42,7 @@ Watch
 
 ### 论领导中的自我不安全感
 
-热门HBO节目《副总统》(T0)、《副总统》(T1)重点讲述了副总统的办公室，尽管《T2副总统》(T3)没有准确描绘政府程序，但夸张的角色在自我方面往往令人惊讶地真实。
+热门 HBO 节目《副总统》(T0)、《副总统》(T1)重点讲述了副总统的办公室，尽管《T2 副总统》(T3)没有准确描绘政府程序，但夸张的角色在自我方面往往令人惊讶地真实。
 
 曾在奥巴马政府下工作的前内幕人士汤米·维特证实，政府官员和国会议员的自我中心行为完全正确。维多在播客 [*上告诉副总统作家大卫·曼德尔【Pod Save America*](https://www.thewrap.com/obama-aides-say-veep-accurate-west-wing-house-cards/) “你们这些家伙抓住了自我的脆弱性，以及日复一日的决策白痴。”
 

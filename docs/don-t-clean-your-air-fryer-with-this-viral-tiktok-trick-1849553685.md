@@ -1,6 +1,6 @@
 # 不要用这种病毒性抖音病毒来清洁你的空气油炸锅
 
-> 原文:[https://life hacker . com/don-t-clean-your-air-fryer-with this-viral-tiktok-trick-1849553685](https://lifehacker.com/don-t-clean-your-air-fryer-with-this-viral-tiktok-trick-1849553685)
+> 原文：<https://lifehacker.com/don-t-clean-your-air-fryer-with-this-viral-tiktok-trick-1849553685>
 
 又是一天，又是一个 [误入歧途的来自抖音](https://lifehacker.com/tiktok-s-overloading-trend-is-a-crappy-way-to-clean-y-1849545412) 的清洗黑客，让你将 [后悔尝试](https://lifehacker.com/never-cook-these-things-in-your-air-fryer-1848462042) 。在流行的视频分享应用上流传的最新清洁技巧都是关于 [空气油炸锅](https://lifehacker.com/the-first-15-things-you-should-cook-in-your-new-air-fry-1848217324)——但据报道这种特殊的黑客正在破坏人们的空气油炸锅。
 
@@ -8,7 +8,7 @@ Watch
 
 ## 什么是抖音空气油炸锅清洁黑客？
 
-这种黑客技术拥有你在快速清洁技巧中寻找的所有成功品质，因此在抖音各地受到广泛吹捧:它承诺(并在技术上提供)在三分钟内实现吱吱作响的T2清洁空气油炸锅，而且它看起来足够令人满意，足以拍摄。你应该在油炸锅的抽屉里装满水和肥皂，把它放回设备里，然后把温度调高三分钟。当你倒掉热水时，它会留下一个闪闪发光的干净的内部。视频有[app](https://www.tiktok.com/@lovekeesh/video/7036754046811786502?is_copy_url=1&is_from_webapp=v1&q=airfryer%20cleaning%20hack&t=1663606415713)。
+这种黑客技术拥有你在快速清洁技巧中寻找的所有成功品质，因此在抖音各地受到广泛吹捧:它承诺(并在技术上提供)在三分钟内实现吱吱作响的 T2 清洁空气油炸锅，而且它看起来足够令人满意，足以拍摄。你应该在油炸锅的抽屉里装满水和肥皂，把它放回设备里，然后把温度调高三分钟。当你倒掉热水时，它会留下一个闪闪发光的干净的内部。视频有[app](https://www.tiktok.com/@lovekeesh/video/7036754046811786502?is_copy_url=1&is_from_webapp=v1&q=airfryer%20cleaning%20hack&t=1663606415713)。
 
 ## 有什么问题吗？
 

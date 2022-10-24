@@ -1,6 +1,6 @@
 # 如何在不花钱的情况下“翻新”你的客厅
 
-> 原文:[https://life hacker . com/how-to-renov-1847550002](https://lifehacker.com/how-to-renovate-your-living-room-without-spending-renov-1847550002)
+> 原文：<https://lifehacker.com/how-to-renovate-your-living-room-without-spending-renov-1847550002>
 
 当然，也许你希望你有几千美元来更新你的客厅，这样它就可以展示一台新的——巨大的——电视(加上环绕声)，新的嵌入式照明，一个可以放松的大型皮革组合，以及一个由你最喜欢的当地工匠手工制作的咖啡桌。那个*确实*听起来不错。但是如果你的预算明显比这个少，你仍然可以做一些改变，增加一些东西，给房间一种更新的感觉。
 
@@ -22,8 +22,8 @@ Watch
 
 #### 重新摆放家具
 
-一个不用花一分钱就能让你的客厅看起来完全不一样的方法是重新摆放家具，比如T2、T3、T4和T5。移动座位，让它们面对面，给空间注入新的活力，让谈话有优先顺序。或者创造一个新的焦点，比如一个壁炉或一件艺术品。在Instagram上，home decor DIYer[dwellaware](https://www.instagram.com/dwellaware/?utm_source=ig_embed&ig_rid=0b5ec31b-7423-49ca-a4bf-7a2f8e836fed)向我们展示了如何创作一幅画布壁画，当电视机不使用时，它可以卷起来*盖在电视机上。*
+一个不用花一分钱就能让你的客厅看起来完全不一样的方法是重新摆放家具，比如 T2、T3、T4 和 T5。移动座位，让它们面对面，给空间注入新的活力，让谈话有优先顺序。或者创造一个新的焦点，比如一个壁炉或一件艺术品。在 Instagram 上，home decor DIYer[dwellaware](https://www.instagram.com/dwellaware/?utm_source=ig_embed&ig_rid=0b5ec31b-7423-49ca-a4bf-7a2f8e836fed)向我们展示了如何创作一幅画布壁画，当电视机不使用时，它可以卷起来*盖在电视机上。*
 
  [https://lifehacker.com/embed/inset/iframe?id=instagram-CS1pikUnfbU&autosize=1](https://lifehacker.com/embed/inset/iframe?id=instagram-CS1pikUnfbU&autosize=1) 
 
-你所需要的只是电视机上方的一个，一块正方形的 [画布](https://www.dickblick.com/products/blick-unprimed-cotton-canvas-by-the-yard/?clickTracking=true&wmcp=pla&wmcid=items&wmckw=07334-1772&gclid=Cj0KCQjwsZKJBhC0ARIsAJ96n3WVdGgrO0woBqydXzEuMvISmHwzisIg81CivX0hYPg-vbX703oCn0IaAlf0EALw_wcB) 或者比你的电视机尺寸稍大一点的布料， [布料颜料](https://www.michaels.com/apparel-crafts/fabric-paint/876004966) ，以及一些[【velcro](https://tntcosplaysupply.com/product/velcro-brand-industrial-strength-heavy-duty-stick-on/)(所有这些你只要花40多美元就能买到)。首先，在电视机上方安装一个浮动搁板来框住它。然后，用颜料和有趣的设计装饰你的画布，并按照视频所示粘贴velcro。将你的作品贴在电视上方的架子上，卷起，在看电视的时候贴在velcro上；当屏幕变暗时，把它滚回来。
+你所需要的只是电视机上方的一个，一块正方形的 [画布](https://www.dickblick.com/products/blick-unprimed-cotton-canvas-by-the-yard/?clickTracking=true&wmcp=pla&wmcid=items&wmckw=07334-1772&gclid=Cj0KCQjwsZKJBhC0ARIsAJ96n3WVdGgrO0woBqydXzEuMvISmHwzisIg81CivX0hYPg-vbX703oCn0IaAlf0EALw_wcB) 或者比你的电视机尺寸稍大一点的布料， [布料颜料](https://www.michaels.com/apparel-crafts/fabric-paint/876004966) ，以及一些[【velcro](https://tntcosplaysupply.com/product/velcro-brand-industrial-strength-heavy-duty-stick-on/)(所有这些你只要花 40 多美元就能买到)。首先，在电视机上方安装一个浮动搁板来框住它。然后，用颜料和有趣的设计装饰你的画布，并按照视频所示粘贴 velcro。将你的作品贴在电视上方的架子上，卷起，在看电视的时候贴在 velcro 上；当屏幕变暗时，把它滚回来。

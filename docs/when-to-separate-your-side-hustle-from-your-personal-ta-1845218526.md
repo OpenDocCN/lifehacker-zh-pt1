@@ -1,14 +1,14 @@
 # 什么时候把你的兼职和你的个人税分开
 
-> 原文:[https://life hacker . com/when-to-separate-your-side-hustle-from-your-personal-ta-1845218526](https://lifehacker.com/when-to-separate-your-side-hustle-from-your-personal-ta-1845218526)
+> 原文：<https://lifehacker.com/when-to-separate-your-side-hustle-from-your-personal-ta-1845218526>
 
-根据2019年Bankrate调查 [，我们生活在零工经济时代，近一半的美国人通过兼职赚取额外的现金。但是什么时候你应该把你的生意看作是一个正当的生意，并且和你的个人纳税申报表分开纳税呢？](https://www.bankrate.com/personal-finance/side-hustles-survey-june-2019) 
+根据 2019 年 Bankrate 调查 [，我们生活在零工经济时代，近一半的美国人通过兼职赚取额外的现金。但是什么时候你应该把你的生意看作是一个正当的生意，并且和你的个人纳税申报表分开纳税呢？](https://www.bankrate.com/personal-finance/side-hustles-survey-june-2019) 
 
 Watch
 
 ### **知道你的副业何时变成了一门生意**
 
-当你的兼职已经不仅仅是一种爱好时，是时候把你的财务分开了。美国国税局将爱好定义为“不以盈利为目的”的个人追求。这是一个模糊的定义，尤其是因为你仍然可以通过业余爱好赚钱(例如，在Etsy上卖画)，但经验法则是，如果你在五年内有三年盈利，国税局可能会认为你在经营一家企业。国税局还将考虑的其他问题:
+当你的兼职已经不仅仅是一种爱好时，是时候把你的财务分开了。美国国税局将爱好定义为“不以盈利为目的”的个人追求。这是一个模糊的定义，尤其是因为你仍然可以通过业余爱好赚钱(例如，在 Etsy 上卖画)，但经验法则是，如果你在五年内有三年盈利，国税局可能会认为你在经营一家企业。国税局还将考虑的其他问题:
 
 *   你在爱好上投入的时间和精力是否表明有盈利的意图？
 *   你依靠业余爱好的收入吗？
@@ -41,9 +41,9 @@ Watch
 
 将个人和商业支出混在一起会导致纳税时头疼。为了方便记账，把你的个人资金和商业资金(以及收据)完全分开。
 
-#### 将你兼职收入的30-40%用于缴税
+#### 将你兼职收入的 30-40%用于缴税
 
-与自由职业者收入相关的营业税很难预测到最后一块钱，但一个常见的经验法则是将你收入的30%到40%用于联邦、州和自雇税。如果你预计在年度纳税申报表中欠下1000美元或更多的自由职业收入税，你将被要求按季度纳税。
+与自由职业者收入相关的营业税很难预测到最后一块钱，但一个常见的经验法则是将你收入的 30%到 40%用于联邦、州和自雇税。如果你预计在年度纳税申报表中欠下 1000 美元或更多的自由职业收入税，你将被要求按季度纳税。
 
 #### **使你的企业成为合法实体**
 
@@ -51,7 +51,7 @@ Watch
 
 #### **申请雇主身份证号码(EIN)**
 
-你可以给他们一个 [EIN，而不是](https://www.irs.gov/businesses/small-businesses-self-employed/employer-id-numbers) ，而不是把你的社会安全号码提供给客户、顾客或供应商。也称为纳税人识别号，EIN是美国国税局用来跟踪你的业务收入。你还需要一个EIN在你的银行开一个商业账户，并雇用员工。
+你可以给他们一个 [EIN，而不是](https://www.irs.gov/businesses/small-businesses-self-employed/employer-id-numbers) ，而不是把你的社会安全号码提供给客户、顾客或供应商。也称为纳税人识别号，EIN 是美国国税局用来跟踪你的业务收入。你还需要一个 EIN 在你的银行开一个商业账户，并雇用员工。
 
 #### **申请邓氏号码**
 
@@ -59,7 +59,7 @@ Watch
 
 #### **实行单独的会计制度**
 
-如果你自己经营一家非常小的企业，雇佣一名会计或簿记员可能会很贵。幸运的是，有一些很好的会计软件选项具有自动化功能，例如从PayPal或Square同步您的交易。一些最常用的程序包括 [QuickBook s在线会计](https://quickbooks.intuit.com/accounting/)[fresh books](https://www.freshbooks.com/)[Xero](https://www.xero.com/us/)和 [Wave](https://www.waveapps.com/) (这是免费的)。
+如果你自己经营一家非常小的企业，雇佣一名会计或簿记员可能会很贵。幸运的是，有一些很好的会计软件选项具有自动化功能，例如从 PayPal 或 Square 同步您的交易。一些最常用的程序包括 [QuickBook s 在线会计](https://quickbooks.intuit.com/accounting/)[fresh books](https://www.freshbooks.com/)[Xero](https://www.xero.com/us/)和 [Wave](https://www.waveapps.com/) (这是免费的)。
 
 #### **记录你花在工作上的时间**
 

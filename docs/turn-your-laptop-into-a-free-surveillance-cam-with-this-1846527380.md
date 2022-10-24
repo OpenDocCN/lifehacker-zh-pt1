@@ -1,6 +1,6 @@
 # 通过这个网站把你的笔记本电脑变成一个免费的监控摄像头
 
-> 原文:[https://life hacker . com/turn-your-laptop-to-a-free-monitoring-cam with this-1846527380](https://lifehacker.com/turn-your-laptop-into-a-free-surveillance-cam-with-this-1846527380)
+> 原文：<https://lifehacker.com/turn-your-laptop-into-a-free-surveillance-cam-with-this-1846527380>
 
 作为一名宠物主人，你很可能回到家或者醒来后发现你的住处附近有一些深夜恶作剧的证据。不过，幸运的是， i 如果你想为某个特定区域设置一些快速监控(也许你有爱管闲事的室友，或者你正在出城，并感到偏执)，你可以查看网站 [critter.camera](https://critter.camera/) 。
 

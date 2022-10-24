@@ -1,6 +1,6 @@
 # 如果你小时候被“父母化”了，该如何恢复
 
-> 原文:[https://life hacker . com/how-to-recover-if-you-are-parentalized-as-a-child-1847318087](https://lifehacker.com/how-to-recover-if-you-were-parentified-as-a-child-1847318087)
+> 原文：<https://lifehacker.com/how-to-recover-if-you-were-parentified-as-a-child-1847318087>
 
 经历“父母化”的孩子是那些成长过快的孩子，因为他们被期望承担兄弟姐妹或自己父母的角色。一个孩子成为父母有很多原因——有些是可以避免的，有些是不可以的；但不管怎样，亲子关系的影响是迅速而持久的。
 

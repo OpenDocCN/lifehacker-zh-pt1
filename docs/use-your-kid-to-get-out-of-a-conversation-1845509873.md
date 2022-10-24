@@ -1,6 +1,6 @@
 # 利用你的孩子来摆脱谈话
 
-> 原文:[https://life hacker . com/use-your-kid-to-get-out-of-a-conversation-1845509873](https://lifehacker.com/use-your-kid-to-get-out-of-a-conversation-1845509873)
+> 原文：<https://lifehacker.com/use-your-kid-to-get-out-of-a-conversation-1845509873>
 
 儿童——尤其是年轻的孩子——在大多数情况下都很不方便。我不是在责怪他们，我只是说，一个人没有意识到做一些基本的事情是多么容易，比如说，走出前门，直到他们有小孩跟着他们一起走。当有孩子参与时，一切都变得更难、更慢、更复杂。
 

@@ -1,18 +1,18 @@
 # 如何拥抱极简主义，克里斯汀·普拉特
 
-> 原文:[https://life hacker . com/how-to-embrace-minimalism-with-Christine-Platt-1846811593](https://lifehacker.com/how-to-embrace-minimalism-with-christine-platt-1846811593)
+> 原文：<https://lifehacker.com/how-to-embrace-minimalism-with-christine-platt-1846811593>
 
 本周，在作家兼倡导者克里斯汀·普拉特(又名 [、非裔极简主义者](https://www.instagram.com/afrominimalist/) )的帮助下，我们将学习如何削减我们的物品，拥抱极简主义的生活方式。克里斯汀自己从过度消费到极简主义的个人旅程是一个灵感，她帮助我们理解从我们的童年到所有权心理的一切是如何导致我们持有远远超过我们需要的东西。听听克里斯汀的建议，告诉你如何在不让自己不知所措的情况下开始整理，如何成为极简主义者，以及为什么成为极简主义者的第一步不是你所想的那样。
 
 Watch
 
-克里斯汀的新书 [*这位非洲裔女作家的生活指南*](https://www.simonandschuster.com/books/The-Afrominimalists-Guide-to-Living-with-Less/Christine-Platt/9781982168049?utm_medium=tiller_press_other&utm_source=author_post&utm_campaign=the_afrominimalists_guide_to_living_with_less&utm_content=the_afrominimalists_guide_to_living_with_less) 将于6月15日出版。
+克里斯汀的新书 [*这位非洲裔女作家的生活指南*](https://www.simonandschuster.com/books/The-Afrominimalists-Guide-to-Living-with-Less/Christine-Platt/9781982168049?utm_medium=tiller_press_other&utm_source=author_post&utm_campaign=the_afrominimalists_guide_to_living_with_less&utm_content=the_afrominimalists_guide_to_living_with_less) 将于 6 月 15 日出版。
 
 [https://art19.com/shows/96bf1671-b079-4f44-b7d2-e95d655de263/episodes/d2d3f53a-9686-415d-9b68-64a3c0114e66/embed](https://art19.com/shows/96bf1671-b079-4f44-b7d2-e95d655de263/episodes/d2d3f53a-9686-415d-9b68-64a3c0114e66/embed)
 
 T2】
 
-听听上面的升级或者在所有通常提供播客的地方找到我们，包括[Google Play](https://play.google.com/music/listen?u=0#/ps/Illldmn6f4jkwb32lslhae3laru)[Spotify](https://open.spotify.com/show/43qzAEOZ861D4aXaBXaRKj)[iHeartRadio](https://www.iheart.com/podcast/8-The-Upgrade-by-Lifehacker-28037794)和NPR一号。
+听听上面的升级或者在所有通常提供播客的地方找到我们，包括[Google Play](https://play.google.com/music/listen?u=0#/ps/Illldmn6f4jkwb32lslhae3laru)[Spotify](https://open.spotify.com/show/43qzAEOZ861D4aXaBXaRKj)[iHeartRadio](https://www.iheart.com/podcast/8-The-Upgrade-by-Lifehacker-28037794)和 NPR 一号。
 
 ## **本周集锦**
 
@@ -28,11 +28,11 @@ T2】
 
 这是她缓慢而稳定的清理方法之一:
 
-> 我在Instagram上发起的一个挑战实际上是鼓励人们在一年的时间里每天放下一件事。和...在年底，你至少会放下365件事情。所以有很多人报名参加了这个挑战，因为他们觉得，好吧，这让我减轻了很多压力。他们走进自己的衣柜，说，我要放弃一件事。然后也许有些日子他们放下了30件[事]，有些日子他们放下了60件[事]，但是有些日子不堪重负，他们放下了一件。但正是这种想法，你会慢慢地，肯定地到达这个地方，达到你的目标，生活得更少，你知道，感受这种解放的感觉，没有压力，试图让这像这个周末战士任务。一个周末来清理你过去几十年积累的所有东西？大声说出来，听起来绝对不可能。对大多数人来说，就是这样。我就想，你为什么要给自己这么大的压力，尤其是当这是一个永无止境的旅程的时候？
+> 我在 Instagram 上发起的一个挑战实际上是鼓励人们在一年的时间里每天放下一件事。和...在年底，你至少会放下 365 件事情。所以有很多人报名参加了这个挑战，因为他们觉得，好吧，这让我减轻了很多压力。他们走进自己的衣柜，说，我要放弃一件事。然后也许有些日子他们放下了 30 件[事]，有些日子他们放下了 60 件[事]，但是有些日子不堪重负，他们放下了一件。但正是这种想法，你会慢慢地，肯定地到达这个地方，达到你的目标，生活得更少，你知道，感受这种解放的感觉，没有压力，试图让这像这个周末战士任务。一个周末来清理你过去几十年积累的所有东西？大声说出来，听起来绝对不可能。对大多数人来说，就是这样。我就想，你为什么要给自己这么大的压力，尤其是当这是一个永无止境的旅程的时候？
 
-想听更多Christine的建议，我们建议听完整集。
+想听更多 Christine 的建议，我们建议听完整集。
 
-对未来的剧集有什么反馈或想法吗？想上节目吗？请拨打347-687-8109给我们留言，或者给upgrade@lifehacker.com发送语音备忘录。
+对未来的剧集有什么反馈或想法吗？想上节目吗？请拨打 347-687-8109 给我们留言，或者给 upgrade@lifehacker.com 发送语音备忘录。
 
 ### **一集文字记录**
 

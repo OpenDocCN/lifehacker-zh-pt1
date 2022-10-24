@@ -1,12 +1,12 @@
 # 如何将复古和现代家居设计融合在一起
 
-> 原文:[https://life hacker . com/how-to-mix-vintage-and-modern-home-design-in-a-way-that-1845606826](https://lifehacker.com/how-to-mix-vintage-and-modern-home-design-in-a-way-that-1845606826)
+> 原文：<https://lifehacker.com/how-to-mix-vintage-and-modern-home-design-in-a-way-that-1845606826>
 
-去传统家具店，看到一个你喜欢的地板样板间，然后买下来，在你自己的家里重新打造一灯一灯的样子，这样的日子已经一去不复返了。现在，我们的家被精心“策划”,以反映我们的个人风格和哲学——或者至少在Instagram上看起来不错。
+去传统家具店，看到一个你喜欢的地板样板间，然后买下来，在你自己的家里重新打造一灯一灯的样子，这样的日子已经一去不复返了。现在，我们的家被精心“策划”,以反映我们的个人风格和哲学——或者至少在 Instagram 上看起来不错。
 
 Watch
 
-这种造型经常将现代设计与一些有品味的复古作品相结合。听起来不错，但是你实际上是怎么做的呢？新奥尔良刊物 [Gambit向当地的一些室内设计师](https://www.nola.com/gambit/news/the_latest/article_185388d0-1d4a-11eb-9cc3-a3859d3ef90d.html) 寻求一些建议。他们是这样说的。
+这种造型经常将现代设计与一些有品味的复古作品相结合。听起来不错，但是你实际上是怎么做的呢？新奥尔良刊物 [Gambit 向当地的一些室内设计师](https://www.nola.com/gambit/news/the_latest/article_185388d0-1d4a-11eb-9cc3-a3859d3ef90d.html) 寻求一些建议。他们是这样说的。
 
 ### 围绕一件经典作品进行设计
 

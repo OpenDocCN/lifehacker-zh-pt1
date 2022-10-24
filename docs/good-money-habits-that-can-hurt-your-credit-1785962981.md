@@ -1,6 +1,6 @@
 # 良好的理财习惯会损害你的信用
 
-> 原文:[https://life hacker . com/good-money-habits-that-can-bad-your-credit-1785962981](https://lifehacker.com/good-money-habits-that-can-hurt-your-credit-1785962981)
+> 原文：<https://lifehacker.com/good-money-habits-that-can-hurt-your-credit-1785962981>
 
 信贷以神秘的、有时是矛盾的方式运作。如果你有良好的理财习惯，并且用你的钱做正确的事情，你会认为你的信用评分会很好。然而，事情并不总是这样发展——有时明智的金融举措并不是最好的信贷举措。
 
@@ -8,7 +8,7 @@ Watch
 
 ### **根本不用信用卡**
 
-据Experian 统计，美国人均信用卡余额为6194美元。你会认为远离信用卡是明智的金融举措，因为高利率让它们看起来像一个 [债务陷阱](https://twocents.lifehacker.com/common-debt-traps-that-keep-you-living-paycheck-to-pa-1637915715) 。你认为它们有风险是正确的——它们确实有风险。
+据 Experian 统计，美国人均信用卡余额为 6194 美元。你会认为远离信用卡是明智的金融举措，因为高利率让它们看起来像一个 [债务陷阱](https://twocents.lifehacker.com/common-debt-traps-that-keep-you-living-paycheck-to-pa-1637915715) 。你认为它们有风险是正确的——它们确实有风险。
 
 然而，信用卡非常方便，越来越与我们的日常生活密不可分，无论我们用它租车、网上购物、开酒吧结账，还是用于紧急支出。它们对建立信用也至关重要:如果你没有信用记录，很难获得贷款、信用卡或抵押贷款。更重要的是， [票据提供者在法律上被允许对信用“有风险”的客户收取更多的](https://twocents.lifehacker.com/if-you-have-poor-credit-beware-extra-charges-on-your-m-1739284301) 。如果你完全没有信用，他们可能会认为你是一个风险。
 
@@ -24,9 +24,9 @@ Watch
 
 如果你对债务持谨慎态度，你对信用卡公司提供高信用额度的本能反应可能是断然拒绝。这是一个健康的反应——毕竟，你不想诱惑自己，不必要地使用信用卡。
 
-虽然这看起来很明智，但低信用额度实际上阻止了你建立更高的信用评分，这要归功于一种名为 [的信用利用。](https://twocents.lifehacker.com/why-you-should-aim-for-1-credit-utilization-1844489591) 简而言之，信用利用率就是你实际使用的信用量与你可用的信用量之比。例如，如果你的信用额度是10，000美元，你有1，000美元的债务，你的信用利用率是10%。这个比例越低，你的分数越高。
+虽然这看起来很明智，但低信用额度实际上阻止了你建立更高的信用评分，这要归功于一种名为 [的信用利用。](https://twocents.lifehacker.com/why-you-should-aim-for-1-credit-utilization-1844489591) 简而言之，信用利用率就是你实际使用的信用量与你可用的信用量之比。例如，如果你的信用额度是 10，000 美元，你有 1，000 美元的债务，你的信用利用率是 10%。这个比例越低，你的分数越高。
 
-当然，你可以通过使用很少的债务来保持这个比率很低。然而，增加它的另一种方法是使用更高的限制。如果你的信用卡公司将你的限额提高到20，000美元，你的比率会突然下降到5%，理论上，你的分数会增加。事实上，根据 [信用因果](https://www.creditkarma.com/credit-cards/i/credit-card-utilization-and-your-credit-score) ，这里有一个你的比率如何影响你的信用评分的细目分类。
+当然，你可以通过使用很少的债务来保持这个比率很低。然而，增加它的另一种方法是使用更高的限制。如果你的信用卡公司将你的限额提高到 20，000 美元，你的比率会突然下降到 5%，理论上，你的分数会增加。事实上，根据 [信用因果](https://www.creditkarma.com/credit-cards/i/credit-card-utilization-and-your-credit-score) ，这里有一个你的比率如何影响你的信用评分的细目分类。
 
 请注意，1%利用率的分数比完全不使用任何信用要好。这是因为债权人希望看到你能处理好收费和还款，而不会超支。
 
@@ -34,13 +34,13 @@ Watch
 
 ### **关闭旧卡**
 
-假设你刚刚还清了你的最后一张信用卡，你正式摆脱了债务。下一步就是取消它们，对吗？不一定，因为它会降低你的信用评分。这是因为你的分数的15%取决于你的信用历史的长度。根据FICO，这包括:
+假设你刚刚还清了你的最后一张信用卡，你正式摆脱了债务。下一步就是取消它们，对吗？不一定，因为它会降低你的信用评分。这是因为你的分数的 15%取决于你的信用历史的长度。根据 FICO，这包括:
 
 > *   How long has your credit account been established, including the age of your earliest account, the age of your latest account and the average age of all your accounts?
 > *   How long has a specific credit account been established?
 > *   How long have you been using a specific account?
 
-这也不仅仅是历史。你的信用额度占你得分的30%。通过关闭一个账户，你降低了你的可用信用，这意味着你的利用率增加。因此，你的分数可能会下降。然而，如果你一开始就有良好的信用，这种下降应该是最小和短暂的。
+这也不仅仅是历史。你的信用额度占你得分的 30%。通过关闭一个账户，你降低了你的可用信用，这意味着你的利用率增加。因此，你的分数可能会下降。然而，如果你一开始就有良好的信用，这种下降应该是最小和短暂的。
 
 保持高信用额度的一个方法是打开一张未使用的信用卡，并定期监控它，以确保余额始终为零。根据卡的不同，您还可以设置余额提醒，以便在卡上有交易时自动通知您。作为预防措施，你甚至可以销毁实体卡。
 
@@ -50,7 +50,7 @@ Watch
 
 ### **更多了解您的信用评分**
 
-与许多人认为的相反，没有单一的信用评分。公司使用不同的分数来衡量你的信用度，但最常见的是你的一般FICO评分，它是衡量你整体信用的一个不错的标准。 [FICO提供了一些关于他们如何计算这个数字的一般见解](http://www.myfico.com/crediteducation/whatsinyourscore.aspx) :你的信用利用、支付历史和账户历史构成了你得分的大部分。
+与许多人认为的相反，没有单一的信用评分。公司使用不同的分数来衡量你的信用度，但最常见的是你的一般 FICO 评分，它是衡量你整体信用的一个不错的标准。 [FICO 提供了一些关于他们如何计算这个数字的一般见解](http://www.myfico.com/crediteducation/whatsinyourscore.aspx) :你的信用利用、支付历史和账户历史构成了你得分的大部分。
 
 当你首先知道你的分数是如何计算出来的，你就有了一个更好的保持分数的想法——有时尽管你有最好的意图。
 

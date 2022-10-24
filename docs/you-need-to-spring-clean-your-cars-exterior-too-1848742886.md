@@ -1,6 +1,6 @@
 # 你也需要春季清洗你的车的外表
 
-> 原文:[https://life hacker . com/you-need-to-spring-clean-your cars-exterior-too-1848742886](https://lifehacker.com/you-need-to-spring-clean-your-cars-exterior-too-1848742886)
+> 原文：<https://lifehacker.com/you-need-to-spring-clean-your-cars-exterior-too-1848742886>
 
 尽管这个国家的部分地区今天早上开始下雪，但从技术上来说现在是春天——这意味着是时候进行一些春季大扫除了。你的车也不例外。
 
@@ -14,7 +14,7 @@ Watch
 
 你的车底是一整季都暴露在盐和其他冬季垃圾中的部分，但因为它在视线之外，所以洗车时很容易忘记。
 
-当然，如果你把车开到洗车场，你可以要求清洗，但这件事你可以自己做。你所需要的只是一根花园水管、一个洒水器和一些耐心。It部门的这个 [post仍然运行](https://itstillruns.com/clear-obdii-codes-7353429.html) 分解流程。
+当然，如果你把车开到洗车场，你可以要求清洗，但这件事你可以自己做。你所需要的只是一根花园水管、一个洒水器和一些耐心。It 部门的这个 [post 仍然运行](https://itstillruns.com/clear-obdii-codes-7353429.html) 分解流程。
 
 ## 检查你的挡风玻璃雨刮片
 

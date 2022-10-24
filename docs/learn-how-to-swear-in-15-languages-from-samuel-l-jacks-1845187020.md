@@ -1,20 +1,20 @@
-# 从塞缪尔·L·杰克逊学习如何用15种语言骂人
+# 从塞缪尔·L·杰克逊学习如何用 15 种语言骂人
 
-> 原文:[https://life hacker . com/learn-how-to-swear-in-15-languages-from-Samuel-l-jacks-1845187020](https://lifehacker.com/learn-how-to-swear-in-15-languages-from-samuel-l-jacks-1845187020)
+> 原文：<https://lifehacker.com/learn-how-to-swear-in-15-languages-from-samuel-l-jacks-1845187020>
 
-名人借他们的声音和才华来帮助拉选票并不罕见——尤其是在总统选举年。但是这次有点不同，因为塞缪尔·L·杰克逊提供了一个用15种不同语言骂人的大师班。如果这还不足以激励你检查你的选民登记状况，我们不知道还有什么。以下是如何向商界精英学习国际诅咒的方法。
+名人借他们的声音和才华来帮助拉选票并不罕见——尤其是在总统选举年。但是这次有点不同，因为塞缪尔·L·杰克逊提供了一个用 15 种不同语言骂人的大师班。如果这还不足以激励你检查你的选民登记状况，我们不知道还有什么。以下是如何向商界精英学习国际诅咒的方法。
 
 Watch
 
 ### 如何和塞缪尔·L·杰克逊一起上脏话课
 
-这一切都始于9月14日，当时杰克逊在推特上说，如果2500人点击他的人数页面来查看他们的选民登记状态，他会教我们如何用15种不同的语言发誓。
+这一切都始于 9 月 14 日，当时杰克逊在推特上说，如果 2500 人点击他的人数页面来查看他们的选民登记状态，他会教我们如何用 15 种不同的语言发誓。
 
  [https://lifehacker.com/embed/inset/iframe?id=twitter-1305575344867389440&autosize=1](https://lifehacker.com/embed/inset/iframe?id=twitter-1305575344867389440&autosize=1) 
 
-不出意外，没多久就达到了他的目的。事实上，一名来自headset[的代表告诉Thrillist](https://www.thrillist.com/news/nation/samuel-l-jackson-swearing-lseson-twitter) 说，在一天之内，杰克逊提示了8060人检查他们的选民登记状态。
+不出意外，没多久就达到了他的目的。事实上，一名来自 headset[的代表告诉 Thrillist](https://www.thrillist.com/news/nation/samuel-l-jackson-swearing-lseson-twitter) 说，在一天之内，杰克逊提示了 8060 人检查他们的选民登记状态。
 
-就在第二天，正如承诺的那样，杰克逊给我们上了一堂终极骂人课。“你出现了，为我们的选民行动目标而出现了，”他在诅咒课堂视频中说。“现在，是我履行诺言时候了。让我们用15种语言骂人吧。”
+就在第二天，正如承诺的那样，杰克逊给我们上了一堂终极骂人课。“你出现了，为我们的选民行动目标而出现了，”他在诅咒课堂视频中说。“现在，是我履行诺言时候了。让我们用 15 种语言骂人吧。”
 
  [https://lifehacker.com/embed/inset/iframe?id=twitter-1305990493583618049&autosize=1](https://lifehacker.com/embed/inset/iframe?id=twitter-1305990493583618049&autosize=1) 
 

@@ -1,6 +1,6 @@
 # 如何在你的空气油炸锅中制作奶酪块
 
-> 原文:[https://life hacker . com/how-to-make-cheese-nuggets-in-your-air-fryer-1849191120](https://lifehacker.com/how-to-make-cheese-nuggets-in-your-air-fryer-1849191120)
+> 原文：<https://lifehacker.com/how-to-make-cheese-nuggets-in-your-air-fryer-1849191120>
 
 你喜欢奶酪吗？你喜欢吃鸡块吗？你喜欢把东西扔进空气油炸锅里，看看会发生什么吗？那么，让我给你介绍奶酪块，也被称为“空气油炸哈洛米”
 
@@ -21,4 +21,4 @@ Watch
 *   哈洛米
 *   上菜用柠檬，或者你最喜欢的蘸酱
 
-把你的空气油炸锅调到华氏375度。将哈洛米切成厚片，煎5-6分钟，翻转一次，直到角变成深棕色，外表形成一层精致、酥脆的外皮。立即与新鲜柠檬或你选择的蘸酱一起食用。
+把你的空气油炸锅调到华氏 375 度。将哈洛米切成厚片，煎 5-6 分钟，翻转一次，直到角变成深棕色，外表形成一层精致、酥脆的外皮。立即与新鲜柠檬或你选择的蘸酱一起食用。

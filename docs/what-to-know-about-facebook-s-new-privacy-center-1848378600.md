@@ -1,8 +1,8 @@
 # 关于脸书的新“隐私中心”你知道些什么
 
-> 原文:[https://life hacker . com/what-to-know-to-know-about-Facebook-s-new-privacy-center-1848378600](https://lifehacker.com/what-to-know-about-facebook-s-new-privacy-center-1848378600)
+> 原文：<https://lifehacker.com/what-to-know-about-facebook-s-new-privacy-center-1848378600>
 
-脸书 [引入了新的隐私中心](https://about.fb.com/news/2022/01/introducing-privacy-center/) ，让用户对平台如何收集和使用他们的数据有更多的控制权。Meta的前同名公司长期以来一直是投诉和关注其隐私和数据政策的对象。现在，用户对脸书可以访问哪些数据有了更多的发言权。
+脸书 [引入了新的隐私中心](https://about.fb.com/news/2022/01/introducing-privacy-center/) ，让用户对平台如何收集和使用他们的数据有更多的控制权。Meta 的前同名公司长期以来一直是投诉和关注其隐私和数据政策的对象。现在，用户对脸书可以访问哪些数据有了更多的发言权。
 
 Watch
 
@@ -23,7 +23,7 @@ Watch
 *   **安全:**主要部分，您可以在其中配置大多数可用的安全选项。该模块包括双因素身份验证(2FA)设置。
 *   **分享:**你可以控制哪些人可以看到你的内容，并限制某些人的访问。
 *   **采集:**可以管理现场和非现场数据采集的部分。
-*   **使用:**包含脸书母公司Meta如何以及为什么使用所收集数据的信息。您可以在这里控制和限制Meta对数据的使用。
+*   **使用:**包含脸书母公司 Meta 如何以及为什么使用所收集数据的信息。您可以在这里控制和限制 Meta 对数据的使用。
 *   **Ads:** 包含与广告相关的数据收集信息的部分。在此模块中，您可以管理广告个性化并控制脸书向其第三方广告合作伙伴提供的数据。
 
 其中每个部分都提供了有关脸书如何收集和使用您的数据的宝贵信息，以及有关控制、限制或更改您授予脸书的权限的相关选项。

@@ -1,8 +1,8 @@
 # 如何防止冰坝毁坏你的屋顶
 
-> 原文:[https://life hacker . com/how-to-prevent-of-ice-dams-worning-your roof-1848423205](https://lifehacker.com/how-to-prevent-ice-dams-from-ruining-your-roof-1848423205)
+> 原文：<https://lifehacker.com/how-to-prevent-ice-dams-from-ruining-your-roof-1848423205>
 
-当你的屋顶上有雪时，冰坝是冻结和解冻循环的结果，它们会吮吸T2。它们会损坏你的屋顶和排水沟，在最糟糕的情况下，它们甚至会损坏你家的结构。但是你可以(也应该)做一些事情来预防和减轻冰坝。
+当你的屋顶上有雪时，冰坝是冻结和解冻循环的结果，它们会吮吸 T2。它们会损坏你的屋顶和排水沟，在最糟糕的情况下，它们甚至会损坏你家的结构。但是你可以(也应该)做一些事情来预防和减轻冰坝。
 
 Watch
 
@@ -12,11 +12,11 @@ Watch
 
 ## 在你的房子上安装除冰系统
 
-如果你知道冰坝在你家很常见，你可以安装一条大约每100英尺70美元的除冰电缆。虽然自行安装的除冰电缆会有所帮助，但如果你从屋顶耙或扫雪，它们会造成潜在的危险，因为电缆可能会移位。
+如果你知道冰坝在你家很常见，你可以安装一条大约每 100 英尺 70 美元的除冰电缆。虽然自行安装的除冰电缆会有所帮助，但如果你从屋顶耙或扫雪，它们会造成潜在的危险，因为电缆可能会移位。
 
 如果你居住的地区结冰是一个常见的问题，专业安装的除冰系统是一个不错的选择。虽然安装永久性加热板可能很贵，但这比更换屋顶或修理漏水造成的损坏要便宜。
 
-## 当T2开始下大雪时，使用屋顶耙
+## 当 T2 开始下大雪时，使用屋顶耙
 
 一旦开始下雪，防止冰坝和冰柱的一个很好的方法就是用一个 [屋顶耙](https://www.homedepot.com/p/Suncast-Telescoping-Snow-Sweeper-SB80024/207206768?source=shoppingads&locale=en-US&&mtc=Shopping-B-F_D28I-G-D28I-028_011_TOOLS-NA-NA-NA-SMART-NA-NA-SMART_SHP&cm_mmc=Shopping-B-F_D28I-G-D28I-028_011_TOOLS-NA-NA-NA-SMART-NA-NA-SMART_SHP-71700000080837639-58700006820161831-92700061597938470&gclid=CjwKCAiA3L6PBhBvEiwAINlJ9ANenFr-2ydDErKed01ZIbwX4ZX-NIOVw-hbx2Al3MT9z2PmR1iFuRoCfsIQAvD_BwE&gclsrc=aw.ds) 耙你的腿的下边缘。这些有各种尺寸和长度，所以找到一个适合你屋顶的应该不难。如果在雪还没有融化之前，雪还很软，这种方法效果最好。
 

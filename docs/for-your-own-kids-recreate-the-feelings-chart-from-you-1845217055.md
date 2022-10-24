@@ -1,8 +1,8 @@
 # 对你自己的孩子来说，重新制作你童年时的“情感图表”
 
-> 原文:[https://life hacker . com/for-your-own-kids-recreate-the-feeling-chart-from-you-1845217055](https://lifehacker.com/for-your-own-kids-recreate-the-feelings-chart-from-you-1845217055)
+> 原文：<https://lifehacker.com/for-your-own-kids-recreate-the-feelings-chart-from-you-1845217055>
 
-我们现在都有很多强烈的感受，围绕着T1做着* *手势。*即使是我们当中最有自知之明的人，也很难确定我们每时每刻的感受。对我们的孩子来说就更难了，他们还在学习用语言表达他们所有的强烈感受。*
+我们现在都有很多强烈的感受，围绕着 T1 做着* *手势。*即使是我们当中最有自知之明的人，也很难确定我们每时每刻的感受。对我们的孩子来说就更难了，他们还在学习用语言表达他们所有的强烈感受。*
 
 Watch
 

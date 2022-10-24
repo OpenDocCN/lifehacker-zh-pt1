@@ -1,6 +1,6 @@
 # 你的负罪感对你有什么帮助
 
-> 原文:[https://life hacker . com/how-your-crime-can-help-you-1849630252](https://lifehacker.com/how-your-guilt-can-actually-help-you-1849630252)
+> 原文：<https://lifehacker.com/how-your-guilt-can-actually-help-you-1849630252>
 
 犯错后，感到内疚是一件好事——这意味着你有同理心。有时我们的内疚是自我强加的，无益的，就像你让自己放松后，随后觉得 [不够有成效](https://lifehacker.com/how-to-get-over-productivity-guilt-1831146802) 。其他时候，内疚是向前做得更好的强大动力，比如在你没能为你爱的人腾出时间之后。一旦你已经 [恰当地为无论是什么导致你胃里的那个讨厌的坑](https://lifehacker.com/how-to-apologize-so-people-forgive-you-1829036692) 道歉，是时候克服你的罪恶感并把它作为一个工具了。以下是如何将你的负罪感转化为富有成效的改变计划。
 

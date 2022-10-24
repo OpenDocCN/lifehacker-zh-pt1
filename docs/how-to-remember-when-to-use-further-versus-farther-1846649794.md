@@ -1,6 +1,6 @@
 # 如何记住何时使用“更远”和“更远”
 
-> 原文:[https://life hacker . com/how-to-remember-when-use-further-vs . further-1846649794](https://lifehacker.com/how-to-remember-when-to-use-further-versus-farther-1846649794)
+> 原文：<https://lifehacker.com/how-to-remember-when-to-use-further-versus-farther-1846649794>
 
 英语中有很多听起来相似、意思相似的词，但如果我们想准确地使用它们，它们确实有自己的特殊位置。 [谁和谁](https://lifehacker.com/how-to-remember-the-difference-between-who-and-whom-1837581203) 。 [影响和作用](https://lifehacker.com/how-to-use-affect-versus-effect-1836526644) 。 [同情和移情](https://lifehacker.com/how-to-spot-the-difference-between-sympathy-and-empathy-1846238721) 。 [极至最上](https://offspring.lifehacker.com/there-is-a-difference-between-utmost-and-upmost-1840387221?_ga=2.64523311.12052950.1617629119-1005621258.1579806507) 。还有特别让人头疼的 [躺着，躺着，躺着，躺着](https://lifehacker.com/how-to-use-lay-lie-lain-and-laid-1836703066) 。另一个容易让人犯错的是非常相似的*更远的*对*更远的*。
 

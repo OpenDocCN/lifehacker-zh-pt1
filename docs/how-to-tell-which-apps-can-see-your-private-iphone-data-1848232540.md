@@ -1,16 +1,16 @@
-# 如何辨别哪些应用程序可以看到你的私人iPhone数据
+# 如何辨别哪些应用程序可以看到你的私人 iPhone 数据
 
-> 原文:[https://life hacker . com/how-to-tell-the-app-can-see-your-private-iphone-data-1848232540](https://lifehacker.com/how-to-tell-which-apps-can-see-your-private-iphone-data-1848232540)
+> 原文：<https://lifehacker.com/how-to-tell-which-apps-can-see-your-private-iphone-data-1848232540>
 
-每年，苹果都会发布新的功能，既提高了iPhone的数据隐私，又为整个行业树立了新的标杆。有了iOS 15，一切都是透明的。 [iOS 15.2](https://lifehacker.com/16-of-the-best-ios-15-2-feature-updates-worth-knowing-a-1848199396) 带来了一个名为App Privacy Report的新功能，它提供了一个可视化的、易于阅读的报告，报告了一个应用程序使用或传输你的私人数据的所有方式。
+每年，苹果都会发布新的功能，既提高了 iPhone 的数据隐私，又为整个行业树立了新的标杆。有了 iOS 15，一切都是透明的。 [iOS 15.2](https://lifehacker.com/16-of-the-best-ios-15-2-feature-updates-worth-knowing-a-1848199396) 带来了一个名为 App Privacy Report 的新功能，它提供了一个可视化的、易于阅读的报告，报告了一个应用程序使用或传输你的私人数据的所有方式。
 
 Watch
 
-## 如何在iPhone和iPad上启用应用隐私报告
+## 如何在 iPhone 和 iPad 上启用应用隐私报告
 
-应用隐私报告是升级到iOS 15.2或iPadOS 15.2后默认不启用的功能之一。进入**设置** > **隐私** > **App隐私报告**，点击“**开启App隐私报告**启用该功能。
+应用隐私报告是升级到 iOS 15.2 或 iPadOS 15.2 后默认不启用的功能之一。进入**设置** > **隐私** > **App 隐私报告**，点击“**开启 App 隐私报告**启用该功能。
 
-你的iPhone将开始记录应用程序和网络活动。用了一些app之后再回来看数据报告。
+你的 iPhone 将开始记录应用程序和网络活动。用了一些 app 之后再回来看数据报告。
 
 ## 如何阅读你的应用隐私报告
 
@@ -18,7 +18,7 @@ Watch
 
 ## 数据和传感器访问
 
-在这里，您将看到一个应用程序访问您iPhone的传感器或应用程序数据的时间和次数，包括您的相机、位置、通讯录、照片图库或麦克风。这个是你能够判断一个应用程序是否正在访问数据它不应该被访问的地方——如果是，你可以进入特定的设置来禁用访问。
+在这里，您将看到一个应用程序访问您 iPhone 的传感器或应用程序数据的时间和次数，包括您的相机、位置、通讯录、照片图库或麦克风。这个是你能够判断一个应用程序是否正在访问数据它不应该被访问的地方——如果是，你可以进入特定的设置来禁用访问。
 
 ## 应用程序网络活动
 

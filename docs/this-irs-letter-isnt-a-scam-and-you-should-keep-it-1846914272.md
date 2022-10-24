@@ -1,6 +1,6 @@
 # 这封国税局的信不是骗局，你应该保留它
 
-> 原文:[https://life hacker . com/this-IRS-letter-not-a-scam-and-you-should-keep-it-1846914272](https://lifehacker.com/this-irs-letter-isnt-a-scam-and-you-should-keep-it-1846914272)
+> 原文：<https://lifehacker.com/this-irs-letter-isnt-a-scam-and-you-should-keep-it-1846914272>
 
 考虑到大量的税务欺诈，明智的做法是警惕声称来自美国国税局的不寻常信件。然而，如果你最近收到了一封由美国国税局和白宫联合发出的信，确认你已经获得了刺激资金，重要的是要知道这不是一个骗局，你应该保留它。
 
@@ -8,18 +8,18 @@ Watch
 
 ### 信里有什么？
 
-财政部的这封信被称为“1444-C号通知”，是美国国税局的一封正式信函，确认第三笔刺激款项已被批准并自动存入您的账户(或签发给您的支票)。这封信包含了乔·拜登的信息，开头是:
+财政部的这封信被称为“1444-C 号通知”，是美国国税局的一封正式信函，确认第三笔刺激款项已被批准并自动存入您的账户(或签发给您的支票)。这封信包含了乔·拜登的信息，开头是:
 
-> “我的美国同胞们，2021年3月11日，我签署了美国救援计划，这部法律将有助于为美国接种疫苗，并为包括你们在内的数亿美国人提供即时的经济救济。”
+> “我的美国同胞们，2021 年 3 月 11 日，我签署了美国救援计划，这部法律将有助于为美国接种疫苗，并为包括你们在内的数亿美国人提供即时的经济救济。”
 
-信中还提供了联系信息，以防你没有收到付款。正如商业改善局主席理查德·埃普斯坦所说， [向NBC](https://nbc24.com/news/local/better-business-bureau-stimulus-check-letters-are-not-a-scam) :
+信中还提供了联系信息，以防你没有收到付款。正如商业改善局主席理查德·埃普斯坦所说， [向 NBC](https://nbc24.com/news/local/better-business-bureau-stimulus-check-letters-are-not-a-scam) :
 
-> “这封信说的是，如果你在7天内没有收到钱，可以拨打800号码或登录网站让他们知道，希望他们能找出问题所在，并把钱给你。”
+> “这封信说的是，如果你在 7 天内没有收到钱，可以拨打 800 号码或登录网站让他们知道，希望他们能找出问题所在，并把钱给你。”
 
 ### **为什么我需要保留这封信？**
 
-如果你认为你的第三张刺激支票计算不公平，你可以稍后使用这封信来追踪失踪的资金，当你提交2021年的税收时，这可能会作为退税信贷发放(同时，你可以 [使用这个计算器](https://turbotax.intuit.com/stimulus-check/) 来估计你欠了多少)。为此，美国国税局建议 [暂时保留字母](https://www.irs.gov/newsroom/heres-why-some-people-got-more-than-one-notice-about-their-economic-impact-payments) 。如果国税局的计算基于你2019年的纳税申报单，并且你的收入水平或受抚养人数量在去年发生了变化，使你有资格获得更大的刺激付款，这一点尤其重要。
+如果你认为你的第三张刺激支票计算不公平，你可以稍后使用这封信来追踪失踪的资金，当你提交 2021 年的税收时，这可能会作为退税信贷发放(同时，你可以 [使用这个计算器](https://turbotax.intuit.com/stimulus-check/) 来估计你欠了多少)。为此，美国国税局建议 [暂时保留字母](https://www.irs.gov/newsroom/heres-why-some-people-got-more-than-one-notice-about-their-economic-impact-payments) 。如果国税局的计算基于你 2019 年的纳税申报单，并且你的收入水平或受抚养人数量在去年发生了变化，使你有资格获得更大的刺激付款，这一点尤其重要。
 
 ### 如果我把我的信扔了怎么办？
 
-并不是一切都没了。根据CNET，你应该可以使用国税局网站 在你的个人联邦税收账户 [中找到相同的信息(首先选择蓝色的**创建或查看你的账户**按钮来创建账户)。注意，如果没有马上看到刺激支付信息，可能会延迟三周，](https://www.irs.gov/payments/view-your-tax-account) [根据IRS](https://www.irs.gov/payments/view-your-tax-account) 。
+并不是一切都没了。根据 CNET，你应该可以使用国税局网站 在你的个人联邦税收账户 [中找到相同的信息(首先选择蓝色的**创建或查看你的账户**按钮来创建账户)。注意，如果没有马上看到刺激支付信息，可能会延迟三周，](https://www.irs.gov/payments/view-your-tax-account) [根据 IRS](https://www.irs.gov/payments/view-your-tax-account) 。

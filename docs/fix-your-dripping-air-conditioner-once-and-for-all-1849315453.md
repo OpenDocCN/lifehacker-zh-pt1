@@ -1,6 +1,6 @@
 # 一劳永逸地修理你滴水的空调
 
-> 原文:[https://life hacker . com/fix-your-drilling-air-conditioner-once-and-all-1849315453](https://lifehacker.com/fix-your-dripping-air-conditioner-once-and-for-all-1849315453)
+> 原文：<https://lifehacker.com/fix-your-dripping-air-conditioner-once-and-for-all-1849315453>
 
 夏天住在没有空调的是痛苦的，但这并不意味着有空调就没有痛苦。必要的设备需要的维护和保养，但是即使有适当的保养，它们有一个看起来不可避免的显著特点:它们是*湿的*。它们滴下来。有时，当它们不能正常工作时，它们会滴到你家里。
 

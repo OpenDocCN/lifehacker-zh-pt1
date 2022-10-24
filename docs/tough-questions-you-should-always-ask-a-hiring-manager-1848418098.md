@@ -1,6 +1,6 @@
 # 你应该经常问招聘经理的棘手问题
 
-> 原文:[https://life hacker . com/tough-questions-you-should-ask-a-only-ask-a-hiring-manager-1848418098](https://lifehacker.com/tough-questions-you-should-always-ask-a-hiring-manager-1848418098)
+> 原文：<https://lifehacker.com/tough-questions-you-should-always-ask-a-hiring-manager-1848418098>
 
 你已经到了一份工作面试的尾声，或者你刚刚得到了一份新的工作。你感觉很自信。然后，你未来的潜在经理问你是否有问题要问*他们*。你如何机智地直接从你未来老板那里获得关于你未来老板的关键信息？
 
@@ -34,7 +34,7 @@ Watch
 
 ## 我所有的面试官都是男性。我能和团队中的一些女性谈谈，听听她们更多的经历吗？
 
-这个问题来自Instagram的产品设计师 [莉莉·科宁斯](https://www.instagram.com/lilykonings/) 。科宁斯写道，她是从那里得到这个消息的，“一位候选人明确要求与我交谈，当时我是团队中唯一的女性。(剧透:在我们通话后，她接受了报价。)“如果你打算进入一个新的工作场所，在你加入之前听取不同的观点会有所帮助。
+这个问题来自 Instagram 的产品设计师 [莉莉·科宁斯](https://www.instagram.com/lilykonings/) 。科宁斯写道，她是从那里得到这个消息的，“一位候选人明确要求与我交谈，当时我是团队中唯一的女性。(剧透:在我们通话后，她接受了报价。)“如果你打算进入一个新的工作场所，在你加入之前听取不同的观点会有所帮助。
 
 ## **最终想法**
 

@@ -1,6 +1,6 @@
 # 为什么你应该在旅行后列一份打包清单
 
-> 原文:[https://life hacker . com/why-you-should-make-a-packing-list-after-you-trip-1848699664](https://lifehacker.com/why-you-should-make-a-packing-list-after-your-trip-1848699664)
+> 原文：<https://lifehacker.com/why-you-should-make-a-packing-list-after-your-trip-1848699664>
 
 你有没有在旅行中总是忘记带的东西？有一段时间，我在出差时总是忘记带钱包——我总是带着一个笔记本电脑包，但谁想带着它出去吃饭呢？— 我去野营时总是忘记带螺丝刀，去取下我最喜欢的野营地放在柴火捆上的小把手。
 

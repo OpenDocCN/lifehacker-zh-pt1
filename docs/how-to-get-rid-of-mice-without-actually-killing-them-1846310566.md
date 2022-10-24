@@ -1,6 +1,6 @@
 # 如何在不杀死老鼠的情况下除掉它们
 
-> 原文:[https://life hacker . com/how-to-摆脱老鼠而不杀死它们-1846310566](https://lifehacker.com/how-to-get-rid-of-mice-without-actually-killing-them-1846310566)
+> 原文：<https://lifehacker.com/how-to-get-rid-of-mice-without-actually-killing-them-1846310566>
 
 没有人喜欢老鼠为患，但不是每个人都想伤害可能已经渗入你家的毛茸茸的害虫。幸运的是，你可以避开老鼠，而不会让它们的小尸体散落在你的地板上、阁楼上或它们可能藏身的任何地方。
 

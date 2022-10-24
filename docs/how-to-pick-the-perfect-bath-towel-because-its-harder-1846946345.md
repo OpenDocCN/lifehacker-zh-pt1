@@ -1,12 +1,12 @@
 # 如何挑选完美的浴巾，因为这比你想象的要难
 
-> 原文:[https://life hacker . com/how-to-pick-the-perfect-bath-weather-that-hard-1846946345](https://lifehacker.com/how-to-pick-the-perfect-bath-towel-because-its-harder-1846946345)
+> 原文：<https://lifehacker.com/how-to-pick-the-perfect-bath-towel-because-its-harder-1846946345>
 
-第一次(或者每次)购买毛巾时，你可能会根据1)最便宜的和2)是不是毛巾来选择。但事实证明，如果你的毛巾预算有一定的灵活性(记住这是一项投资)，你可能会有兴趣了解更多不同类型的毛巾。
+第一次(或者每次)购买毛巾时，你可能会根据 1)最便宜的和 2)是不是毛巾来选择。但事实证明，如果你的毛巾预算有一定的灵活性(记住这是一项投资)，你可能会有兴趣了解更多不同类型的毛巾。
 
 Watch
 
-以下是如何挑选一个最适合你独特沐浴需求的，由《纽约时报》 的文章 [中Wirecutter的Jackie Revere提供。](https://www.nytimes.com/2021/05/18/realestate/tips-buying-bath-towels.html)
+以下是如何挑选一个最适合你独特沐浴需求的，由《纽约时报》 的文章 [中 Wirecutter 的 Jackie Revere 提供。](https://www.nytimes.com/2021/05/18/realestate/tips-buying-bath-towels.html)
 
 ### 弄清楚你想从毛巾上得到什么
 
@@ -32,7 +32,7 @@ Watch
 
 #### 大小
 
-浴巾没有标准尺寸，但是 [Revere说](https://www.nytimes.com/2021/05/18/realestate/tips-buying-bath-towels.html) 一条 28乘55英寸的浴巾应该适合中等身高的人。虽然毛巾看起来应该是一刀切的东西，但事实并非如此。从技术上讲，如果你只是在浴室里用毛巾擦干身体，毛巾的大小并不重要。
+浴巾没有标准尺寸，但是 [Revere 说](https://www.nytimes.com/2021/05/18/realestate/tips-buying-bath-towels.html) 一条 28 乘 55 英寸的浴巾应该适合中等身高的人。虽然毛巾看起来应该是一刀切的东西，但事实并非如此。从技术上讲，如果你只是在浴室里用毛巾擦干身体，毛巾的大小并不重要。
 
 但是，如果你想做电视和电影中人们做的事情，在他们的腋窝下裹一条毛巾，在他们的客厅跳舞时像无肩带连衣裙一样穿着它，那些特别丰满或较宽的人可能会选择更大的毛巾。里维尔说，或者更准确地说，是浴巾的一种更长更宽的版本。
 

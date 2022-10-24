@@ -1,6 +1,6 @@
 # 如何让你的猫使用怪异的垃圾垫
 
-> 原文:[https://life hacker . com/how-to-make-your ' s-team-1846359503](https://lifehacker.com/how-to-make-your-cats-use-the-freaking-litter-mat-1846359503)
+> 原文：<https://lifehacker.com/how-to-make-your-cats-use-the-freaking-litter-mat-1846359503>
 
 猫很棒；不断踩他们的垃圾不是。如果你买了一个捕捉猫砂的垫子，只是为了看你的猫每次从猫砂箱出来时，戏剧性地跃过垫子，跳到你刚刚打扫过的地板上，你可能会想，你为什么还要费心。在你花钱买一台机器人吸尘器之前，试着把垃圾箱转过来，让它面向墙壁。
 

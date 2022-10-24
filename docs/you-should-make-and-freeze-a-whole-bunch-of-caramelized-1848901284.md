@@ -1,8 +1,8 @@
 # 你应该制作并冷冻一整串焦糖洋葱
 
-> 原文:[https://life hacker . com/you-should-make-and-freeze-a whole-bunch-of-caramelized-1848901284](https://lifehacker.com/you-should-make-and-freeze-a-whole-bunch-of-caramelized-1848901284)
+> 原文：<https://lifehacker.com/you-should-make-and-freeze-a-whole-bunch-of-caramelized-1848901284>
 
-适当焦糖化的洋葱——又深又甜又软——不能冲。你可以用 [一点糖和小苏打](https://lifehacker.com/caramelize-onions-in-half-the-time-5742230) 来欺骗，但是如果你是一个纯粹主义者，你会在那个锅里呆上 [至少45分钟](https://lifehacker.com/you-cannot-caramelize-onions-without-patience-1823404064) ，可能更久。你在那里的时候，不妨多做一些，把剩菜冷冻起来。烹饪史上没有人做过太多的焦糖洋葱。更有可能的是，你沮丧地看着一个巨大的洋葱被煮到只有半杯甜的、粘粘的切片或小块，然后想“该死。我应该多做一些。”你应该多做一些。你应该多做一些。每次你发现自己在做焦糖洋葱——蘸酱、鸡蛋或汉堡——你应该至少加倍，如果不是四倍的话。准备一大堆焦糖洋葱，然后把你一次吃不完的都冷冻起来。
+适当焦糖化的洋葱——又深又甜又软——不能冲。你可以用 [一点糖和小苏打](https://lifehacker.com/caramelize-onions-in-half-the-time-5742230) 来欺骗，但是如果你是一个纯粹主义者，你会在那个锅里呆上 [至少 45 分钟](https://lifehacker.com/you-cannot-caramelize-onions-without-patience-1823404064) ，可能更久。你在那里的时候，不妨多做一些，把剩菜冷冻起来。烹饪史上没有人做过太多的焦糖洋葱。更有可能的是，你沮丧地看着一个巨大的洋葱被煮到只有半杯甜的、粘粘的切片或小块，然后想“该死。我应该多做一些。”你应该多做一些。你应该多做一些。每次你发现自己在做焦糖洋葱——蘸酱、鸡蛋或汉堡——你应该至少加倍，如果不是四倍的话。准备一大堆焦糖洋葱，然后把你一次吃不完的都冷冻起来。
 
 Watch
 

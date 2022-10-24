@@ -1,6 +1,6 @@
 # 你应该煎一个煮熟的鸡蛋
 
-> 原文:[https://life hacker . com/you-should-fry-a hard-watch-egg-1849144291](https://lifehacker.com/you-should-fry-a-hard-boiled-egg-1849144291)
+> 原文：<https://lifehacker.com/you-should-fry-a-hard-boiled-egg-1849144291>
 
 我最喜欢的一些食物是蛋白质的实用来源。农家干酪、牛肉干、煮鸡蛋——当我意识到我早就不饿了的时候，我可以抓起这些东西往我脸上塞。(事实证明，成为一名美食作家并不会自动让一个人擅长识别饥饿信号。)煮鸡蛋是我最喜欢的早餐之一，但有时我想吃点温暖、有质感的东西，一个冰冷、光滑的煮鸡蛋是不够的。
 

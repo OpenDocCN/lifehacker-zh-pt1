@@ -1,8 +1,8 @@
 # 如何和孩子谈论令人心烦的时事
 
-> 原文:[https://life hacker . com/how-to-talk-to-kids-upsetting-current-events-1846007672](https://lifehacker.com/how-to-talk-to-kids-about-upsetting-current-events-1846007672)
+> 原文：<https://lifehacker.com/how-to-talk-to-kids-about-upsetting-current-events-1846007672>
 
-很多时候，我们可以和孩子一起准备“”的大型会谈。我们可以研究和计划如何与他们谈论从性到色情，从LGBTQ问题到种族主义的一切。但是，不知从哪里来的，一些意想不到的——和令人深感不安的——出现在新闻中。毁灭性的飓风。大规模枪击。一群暴徒闯入了我们国家的国会大厦。
+很多时候，我们可以和孩子一起准备“”的大型会谈。我们可以研究和计划如何与他们谈论从性到色情，从 LGBTQ 问题到种族主义的一切。但是，不知从哪里来的，一些意想不到的——和令人深感不安的——出现在新闻中。毁灭性的飓风。大规模枪击。一群暴徒闯入了我们国家的国会大厦。
 
 Watch
 

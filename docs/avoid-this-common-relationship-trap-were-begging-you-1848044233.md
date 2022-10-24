@@ -1,6 +1,6 @@
 # 避免这种常见的关系陷阱，我们求你了
 
-> 原文:[https://life hacker . com/avoid-this-common-relationship-trap-were-being-you-1848044233](https://lifehacker.com/avoid-this-common-relationship-trap-were-begging-you-1848044233)
+> 原文：<https://lifehacker.com/avoid-this-common-relationship-trap-were-begging-you-1848044233>
 
 新的关系会令人兴奋，因为你会在更深的层次上了解某人，了解他们的背景以及是什么让他们成功。然后，如果你继续和这个人交往，你会更加了解他们，包括他们的目标、恐惧和世界观。
 
@@ -8,7 +8,7 @@ Watch
 
 这个过程也会暴露出他们一些不太理想的特质——比如沟通困难，总是必须正确，或者无法设定或接受个人界限。
 
-根据佩珀代因大学特许婚姻和家庭治疗师兼心理学兼职教授 [Teyhou Smyth博士、](https://www.psychologytoday.com/us/contributors/teyhou-smyth-phd-lmft) 的说法，通常情况下，在关系的某一点上，一对夫妇可能认为他们知道关于对方的一切，因此开始对他们伴侣的想法、感受和动机做出假设。
+根据佩珀代因大学特许婚姻和家庭治疗师兼心理学兼职教授 [Teyhou Smyth 博士、](https://www.psychologytoday.com/us/contributors/teyhou-smyth-phd-lmft) 的说法，通常情况下，在关系的某一点上，一对夫妇可能认为他们知道关于对方的一切，因此开始对他们伴侣的想法、感受和动机做出假设。
 
 在《今日心理》 最近的一篇文章中，史密斯讨论了当人们对他们的伴侣做出假设时会发生什么，以及如何避免这种常见关系陷阱。
 
@@ -38,4 +38,4 @@ Watch
 *   对你来说什么是重要的？(无论是一般情况，还是特定场景)
 *   我可以和你分享我对此的想法和感受吗？
 
-根据Smyth的说法，这里的想法是给情侣们一个机会来解决话题，进行日常生活中可能不会出现的对话。她说的关键是让双方带着脆弱性回答问题，目的是在现有的(并避免未来的)假设变成怨恨或冲突之前解决它们。
+根据 Smyth 的说法，这里的想法是给情侣们一个机会来解决话题，进行日常生活中可能不会出现的对话。她说的关键是让双方带着脆弱性回答问题，目的是在现有的(并避免未来的)假设变成怨恨或冲突之前解决它们。

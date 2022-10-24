@@ -1,6 +1,6 @@
-# 我们在杂货店购物时常犯的10个错误，以及如何改正它们
+# 我们在杂货店购物时常犯的 10 个错误，以及如何改正它们
 
-> 原文:[https://life hacker . com/top-10-errors-we-make-when-that-shopping-how-1700039890](https://lifehacker.com/top-10-mistakes-we-make-when-grocery-shopping-and-how-1700039890)
+> 原文：<https://lifehacker.com/top-10-mistakes-we-make-when-grocery-shopping-and-how-1700039890>
 
 购买杂货是我们大多数人可能做得更好的普遍家务之一，无论是在食物上省钱的还是减少购物时间的。以下是我们在杂货店容易犯的十个常见错误，以及如何避免它们。
 
@@ -8,7 +8,7 @@
 
 你也可以问问当地的商店什么时候降价，什么时候进货，这样你就能买到最新鲜的食物。当食品杂货 [在](http://lifehacker.com/a-month-by-month-guide-to-grocery-sales-5877851#_ga=1.2098483.2004117440.1429967269) 月打折时，囤积它们也是值得的；例如，四月是购买烘焙用品的好时机。
 
-我们大多数人只想带着食品袋进出超市。为了尽快做到这一点，我们需要一个结帐策略。快速车道，尽管它的名字叫 [，可能并不是最快的车道](https://lifehacker.com/why-express-checkout-lanes-are-a-waste-of-time-5972618) 。 [迷信见鬼的13号](http://lifehacker.com/choose-lucky-lane-13-for-speedy-supermarket-checkouts-5822559#_ga=1.4571568.2004117440.1429967269) 或 [中的一条球道最左边的](http://lifehacker.com/choose-the-left-line-instead-of-the-right-for-a-possibl-1649425419#_ga=1.4571568.2004117440.1429967269) 可能是更好的选择。或者， [算一算](http://lifehacker.com/how-to-choose-the-fastest-line-at-the-market-5369876#_ga=1.4571568.2004117440.1429967269) 估计一下已经在线的人的篮子里有多少物品。如果你在自助结账，帮你自己一个忙，只刷商品 [，不要找条形码](http://lifehacker.com/stop-searching-for-the-barcode-to-get-through-self-chec-1697862623#_ga=1.7130545.2004117440.1429967269) 。
+我们大多数人只想带着食品袋进出超市。为了尽快做到这一点，我们需要一个结帐策略。快速车道，尽管它的名字叫 [，可能并不是最快的车道](https://lifehacker.com/why-express-checkout-lanes-are-a-waste-of-time-5972618) 。 [迷信见鬼的 13 号](http://lifehacker.com/choose-lucky-lane-13-for-speedy-supermarket-checkouts-5822559#_ga=1.4571568.2004117440.1429967269) 或 [中的一条球道最左边的](http://lifehacker.com/choose-the-left-line-instead-of-the-right-for-a-possibl-1649425419#_ga=1.4571568.2004117440.1429967269) 可能是更好的选择。或者， [算一算](http://lifehacker.com/how-to-choose-the-fastest-line-at-the-market-5369876#_ga=1.4571568.2004117440.1429967269) 估计一下已经在线的人的篮子里有多少物品。如果你在自助结账，帮你自己一个忙，只刷商品 [，不要找条形码](http://lifehacker.com/stop-searching-for-the-barcode-to-get-through-self-chec-1697862623#_ga=1.7130545.2004117440.1429967269) 。
 
 和其他零售商一样，杂货店都是 [设](https://lifehacker.com/think-of-supermarkets-like-obstacle-courses-to-avoid-ov-5902266) [来哄骗你](http://lifehacker.com/keep-your-grocery-bill-low-by-avoiding-these-marketing-5231106#_ga=1.7130545.2004117440.1429967269) 购买超过你需要的东西。即使你不相信他们的营销伎俩，也很容易抓住太多，尤其是当东西在打折或有东西吸引你的眼球(或鼻子——比如新鲜烤鸡的香味)时。了解在杂货店最常见的冲动购物在你去购物之前，一定要带着购物清单去购物，如果物品容易腐烂，避免大量购买。还有，把孩子留在家里。
 
@@ -26,4 +26,4 @@
 
 简而言之，购物时你需要一个计划。也许最重要的计划是你的饮食计划，它解决了几个常见的错误。以下是如何 [开始计划你的每周膳食](https://lifehacker.com/how-to-plan-your-weekly-meals-stress-free-30791921) ，如何在预算紧张的情况下做，以及一些我们最喜欢的膳食计划应用 。
 
-*这个故事最初发表于2015年4月，并于2021年4月29日更新为幻灯片，提供了新的照片和信息。*
+*这个故事最初发表于 2015 年 4 月，并于 2021 年 4 月 29 日更新为幻灯片，提供了新的照片和信息。*

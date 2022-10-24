@@ -1,8 +1,8 @@
 # 你不应该用薄荷茶来诱导流产
 
-> 原文:[https://life hacker . com/you-should-never-use-pennyroyal-tea-to-induced-an-aborti-1849124593](https://lifehacker.com/you-should-never-use-pennyroyal-tea-to-induce-an-aborti-1849124593)
+> 原文：<https://lifehacker.com/you-should-never-use-pennyroyal-tea-to-induce-an-aborti-1849124593>
 
-自从罗伊诉韦德诉T2案被推翻以来，人们一直在谈论在现代医疗程序出现之前堕胎是什么样子。甚至在古代历史上，堕胎都是通过外科手术和药物技术进行的；本·富兰克林 [在他的一本书](https://www.npr.org/2022/05/18/1099542962/abortion-ben-franklin-roe-wade-supreme-court-leak) 中包含了一个著名的草药流产协议。所以，当然，在过去的几天里，在家人工流产的方法引起了很多讨论。香草听起来比衣架好听，不是吗？
+自从罗伊诉韦德诉 T2 案被推翻以来，人们一直在谈论在现代医疗程序出现之前堕胎是什么样子。甚至在古代历史上，堕胎都是通过外科手术和药物技术进行的；本·富兰克林 [在他的一本书](https://www.npr.org/2022/05/18/1099542962/abortion-ben-franklin-roe-wade-supreme-court-leak) 中包含了一个著名的草药流产协议。所以，当然，在过去的几天里，在家人工流产的方法引起了很多讨论。香草听起来比衣架好听，不是吗？
 
 Watch
 
@@ -10,7 +10,7 @@ Watch
 
 ## 哪种草药最适合在家人工流产？
 
-老实说，一个都没有。如果你需要堕胎，从你所在地区或附近的诊所和求助热线开始。( [全国堕胎基金网](https://abortionfunds.org/) 可以帮你找到身边的支持。)如果你在怀孕早期，希望找到一些可以在家服用的药物，你真正想要的是米索前列醇，它可以单独服用，也可以与米非司酮一起服用。这些是药丸，不是草药。他们工作，他们安全。在 Roe 被推翻之前， [有20个州可以合法地邮寄这些药丸](https://lifehacker.com/you-can-now-legally-get-an-abortion-by-mail-in-20-state-1846693265) 并使用它们来进行人工流产。
+老实说，一个都没有。如果你需要堕胎，从你所在地区或附近的诊所和求助热线开始。( [全国堕胎基金网](https://abortionfunds.org/) 可以帮你找到身边的支持。)如果你在怀孕早期，希望找到一些可以在家服用的药物，你真正想要的是米索前列醇，它可以单独服用，也可以与米非司酮一起服用。这些是药丸，不是草药。他们工作，他们安全。在 Roe 被推翻之前， [有 20 个州可以合法地邮寄这些药丸](https://lifehacker.com/you-can-now-legally-get-an-abortion-by-mail-in-20-state-1846693265) 并使用它们来进行人工流产。
 
 今天，它们在你所在地区的合法性可能有所不同，但是这些网站是合法的，并且可能能够帮助你获得堕胎药物:
 
@@ -33,16 +33,16 @@ Watch
 
 用草药诱导流产是有风险的，不仅仅是因为它可能无效。最著名的堕胎药有尸体计数。
 
-例如， [这里有两个摄取薄荷油的案例](https://www.researchgate.net/profile/Barry-Rumack/publication/236313709_Pennyroyal_Oil_Poisoning_and_Hepatotoxicity/links/00b7d534d5d7c103bf000000/Pennyroyal-Oil-Poisoning-and-Hepatotoxicity.pdf) 写于1979年。一名妇女摄入了大约30毫升的油，医生怀疑这是企图堕胎或自杀。她来到医院吐血，两天后死于内出血以及肝脏和肾脏受损等症状。第二个病例是一名妇女，她喝了10毫升的橄榄油，由于极度头晕而去了医院，几天后带着正常功能的肝脏回家。然而，她还是怀孕了。
+例如， [这里有两个摄取薄荷油的案例](https://www.researchgate.net/profile/Barry-Rumack/publication/236313709_Pennyroyal_Oil_Poisoning_and_Hepatotoxicity/links/00b7d534d5d7c103bf000000/Pennyroyal-Oil-Poisoning-and-Hepatotoxicity.pdf) 写于 1979 年。一名妇女摄入了大约 30 毫升的油，医生怀疑这是企图堕胎或自杀。她来到医院吐血，两天后死于内出血以及肝脏和肾脏受损等症状。第二个病例是一名妇女，她喝了 10 毫升的橄榄油，由于极度头晕而去了医院，几天后带着正常功能的肝脏回家。然而，她还是怀孕了。
 
 有趣的是，将薄荷油用作堕胎药可能根本不起作用。毒理学家瑞安·马里诺在[的推特上写道:“人类的数据说不是真的，不是先毒死那个女人。”](https://twitter.com/RyanMarino/status/1541074403991093249)
 
-其他一些草药可能会导致流产，但不一定会杀死你，但如果你沿着这条思路走下去，可能值得问自己是否真的没有其他选择。药师晶蜜卡特 [告诉Mic](https://www.mic.com/articles/128589/women-are-learning-about-herbal-abortion-online-here-s-why-that-s-a-problem?utm_source=policymicTBLR&utm_medium=style&utm_campaign=social) :
+其他一些草药可能会导致流产，但不一定会杀死你，但如果你沿着这条思路走下去，可能值得问自己是否真的没有其他选择。药师晶蜜卡特 [告诉 Mic](https://www.mic.com/articles/128589/women-are-learning-about-herbal-abortion-online-here-s-why-that-s-a-problem?utm_source=policymicTBLR&utm_medium=style&utm_campaign=social) :
 
 > “你完全可以(用草药)人工流产，但这是一件大事，”霍尼卡特说。“你不仅很痛苦，可能还会有很多情绪或精神上的困扰。你的身体正在经历(w) 振铃器；你可能会无意中开始出血。草药流产放大了医疗程序的同样风险。”
 
 最后一句话抓住了传递茶和草药油配方的人所忽略的重要一点:T 他的*是*一个医疗程序。在这种情况下，你可能甚至不知道合适的剂量、需要注意的副作用、成功率或你所冒的风险。你能接受其他任何东西吗？
 
-更重要的是，可供DIY使用的信息往往是不完整和矛盾的。例如， [一个网站](http://www.sisterzeus.com/BlueCoh.htm) 将蓝升麻描述为“一个强大的女性盟友”，但接着又说它对作者不起作用。在一篇关于草药流产的 [DNAinfo文章中，受访者暗示，一些草药医生认为这种不确定性是有利的，因为它让最终结果“听天由命”](https://www.dnainfo.com/new-york/20111220/washington-heights-inwood/women-resort-overthecounter-remedies-end-pregnancies-wahi/)
+更重要的是，可供 DIY 使用的信息往往是不完整和矛盾的。例如， [一个网站](http://www.sisterzeus.com/BlueCoh.htm) 将蓝升麻描述为“一个强大的女性盟友”，但接着又说它对作者不起作用。在一篇关于草药流产的 [DNAinfo 文章中，受访者暗示，一些草药医生认为这种不确定性是有利的，因为它让最终结果“听天由命”](https://www.dnainfo.com/new-york/20111220/washington-heights-inwood/women-resort-overthecounter-remedies-end-pregnancies-wahi/)
 
-一位讨论了她祖母的草药笔记本 中有关堕胎药的摘录的redditor可能说得最好:“除非你完全接受死亡而不是继续怀孕，否则这是不值得的，调查一下药物流产，即使你不得不非法运送它们，它也会更安全。”
+一位讨论了她祖母的草药笔记本 中有关堕胎药的摘录的 redditor 可能说得最好:“除非你完全接受死亡而不是继续怀孕，否则这是不值得的，调查一下药物流产，即使你不得不非法运送它们，它也会更安全。”

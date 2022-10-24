@@ -1,6 +1,6 @@
 # 展示你的植物的聪明方法，不需要花盆
 
-> 原文:[https://life hacker . com/clever-ways-show-out-of-your-plants-the-not-contract-a-1848824905](https://lifehacker.com/clever-ways-to-show-off-your-plants-that-dont-involve-a-1848824905)
+> 原文：<https://lifehacker.com/clever-ways-to-show-off-your-plants-that-dont-involve-a-1848824905>
 
 无论你是在疫情期间喜欢室内植物，还是一直喜欢它们活跃你生活空间的能力，你可能已经为你最喜欢的叶子收集了相当多的花盆和其他容器。不幸的是，在某些时候，大多数人会耗尽窗台、茶几、柜台和其他平面上的空间。(有些人可能已经达到了这一点。)
 
@@ -20,4 +20,4 @@ Watch
 
 ## 活墙
 
-如果你有更多的时间(和耐心)并且真的想去做，你可以在家里建一面活墙(或者至少是活墙的一部分)。它让植物看起来像是从你的墙上长出来的——通常是在一个被框架包围的区域。(他们的真的是在某个版本的 [壁挂式](https://lifehacker.com/grow-in-small-spaces-with-the-wall-hanging-plant-holder-375921) 。)这些来自HGTV的 [逐步说明](https://www.hgtv.com/outdoors/gardens/garden-styles-and-types/how-to-create-a-living-wall) 将带您了解整个过程。
+如果你有更多的时间(和耐心)并且真的想去做，你可以在家里建一面活墙(或者至少是活墙的一部分)。它让植物看起来像是从你的墙上长出来的——通常是在一个被框架包围的区域。(他们的真的是在某个版本的 [壁挂式](https://lifehacker.com/grow-in-small-spaces-with-the-wall-hanging-plant-holder-375921) 。)这些来自 HGTV 的 [逐步说明](https://www.hgtv.com/outdoors/gardens/garden-styles-and-types/how-to-create-a-living-wall) 将带您了解整个过程。

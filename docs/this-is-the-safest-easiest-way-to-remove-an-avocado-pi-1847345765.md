@@ -1,6 +1,6 @@
 # 这是去除鳄梨核最安全、最简单的方法
 
-> 原文:[https://life hacker . com/this-is-the-safe-easy-a-an-avocado-pi-1847345765](https://lifehacker.com/this-is-the-safest-easiest-way-to-remove-an-avocado-pi-1847345765)
+> 原文：<https://lifehacker.com/this-is-the-safest-easiest-way-to-remove-an-avocado-pi-1847345765>
 
 人们可以采取多种方法从奶油般的鳄梨果肉中去除圆、滑、核。你可以把所有东西——果核和所有东西——都挤到碗里，但这只在你需要捣碎的鳄梨时才管用。然而，如果你想要漂亮的楔形或薄片来制作美观的吐司，你需要在不挤压水果的情况下取出它们。你总是可以用锋利的刀重击它，但这种操作并非没有风险——由摆动的刀片导致的鳄梨相关的手部受伤非常常见，它们有自己的名字(“鳄梨手”)。
 

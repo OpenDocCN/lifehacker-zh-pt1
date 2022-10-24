@@ -1,6 +1,6 @@
 # 如何为你的花园种植一个自然的隐私屏障
 
-> 原文:[https://life hacker . com/how-to-grow-a-natural-privacy-screen-for-your-garden-1848816182](https://lifehacker.com/how-to-grow-a-natural-privacy-screen-for-your-garden-1848816182)
+> 原文：<https://lifehacker.com/how-to-grow-a-natural-privacy-screen-for-your-garden-1848816182>
 
 随着春天的到来预示着温暖、阳光的下午提前到来，花更多时间在你的院子里听起来很诱人。但是，在甲板上啜饮早间咖啡，同时凝视着邻居的垃圾桶，听起来就不那么平静了。无论你是有爱管闲事的邻居，还是只想减少街上的噪音，天然屏障都有帮助。这里有一些在你的院子或花园周围种植隐私屏的方法。
 

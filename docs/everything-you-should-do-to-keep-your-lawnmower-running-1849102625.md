@@ -1,6 +1,6 @@
 # 为了让你的割草机整个夏天都运转，你应该做的一切
 
-> 原文:[https://life hacker . com/everything-you-should-do-to-keep your ' s lawn mower-running-1849102625](https://lifehacker.com/everything-you-should-do-to-keep-your-lawnmower-running-1849102625)
+> 原文：<https://lifehacker.com/everything-you-should-do-to-keep-your-lawnmower-running-1849102625>
 
 在夏天和秋天保持你的院子的良好状态足以对抗天气和杂草——你也不需要你的割草机出现问题。但是,一些剪草机的问题可以完全避免——并且你的剪草机的寿命可以延长——如果你每个季节进行一次基本维护清单。
 

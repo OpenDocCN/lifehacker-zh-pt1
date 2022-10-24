@@ -1,6 +1,6 @@
 # 用牧场调料包你的炸鸡
 
-> 原文:[https://life hacker . com/use-ranch-dream-to-bread-to-to-bread-to-to-the-to-the-bread-to-to-to-the-bread-to-to-to-bread-to-to-to-bread-to-to-bread-to-to-bread-to-](https://lifehacker.com/use-ranch-dressing-to-bread-your-fried-chicken-1847886237)
+> 原文：<https://lifehacker.com/use-ranch-dressing-to-bread-your-fried-chicken-1847886237>
 
 让面粉或面包屑粘在鸡肉上是制作炸鸡的重要步骤。你可以精心制作一个三步面粉鸡蛋面包，或者你可以 [在肉上涂上蛋黄酱](https://lifehacker.com/use-mayo-to-bread-chicken-nuggets-1835096685) ，然后把它扔进面粉或面包屑(或任何你喜欢的面包屑)。也可以用牧场调料。
 

@@ -1,6 +1,6 @@
 # 为什么你应该在冷冻蔬菜前先将它们焯一下
 
-> 原文:[https://life hacker . com/why-you-should-branch-before-crystalline-t-1849569633](https://lifehacker.com/why-you-should-blanch-your-vegetables-before-freezing-t-1849569633)
+> 原文：<https://lifehacker.com/why-you-should-blanch-your-vegetables-before-freezing-t-1849569633>
 
 批量购买蔬菜是一个很好的方法，可以节省购买已经很便宜(或不那么便宜)的蔬菜的钱。他们中的许多人会在凉爽干燥的地方保存几个星期，但即使是最狂热的蔬菜爱好者也会发现自己吃了太多的好东西。在这样的时刻，你会转向你的冰箱。
 
@@ -8,7 +8,7 @@ Watch
 
 但是不同于 [生姜](https://lifehacker.com/freeze-your-ginger-for-easier-grating-1846547281) 甚至 [西红柿](https://lifehacker.com/freeze-tomatoes-to-preserve-them-easily-1797948442) ，将胡萝卜或西兰花等生蔬菜放入塑料冷冻袋并放入冰箱是不够的。这样做会对蔬菜的味道、质地甚至颜色产生不利影响。为了确保你的蔬菜尽可能长时间保持良好的品质，你需要先将它们焯一下。
 
-在她的关于冷冻胡萝卜的文章 中，专业家庭经济学家Getty Stewart解释说，热烫比单独冷冻更能有效地阻止酶的作用(使胡萝卜“老化”):
+在她的关于冷冻胡萝卜的文章 中，专业家庭经济学家 Getty Stewart 解释说，热烫比单独冷冻更能有效地阻止酶的作用(使胡萝卜“老化”):
 
 > 像大多数蔬菜一样，胡萝卜含有酶，这使得它们在收获后继续老化，即使是在我们的冰箱里。衰老过程不会在寒冷的温度下停止，即使是在冰冻的温度下。为了阻止酶的作用并保持味道、颜色、质地和营养的损失，你需要在冷冻前将蔬菜预煮，包括像胡萝卜这样的块根类蔬菜。幸运的是，热烫非常简单。
 

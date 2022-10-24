@@ -1,12 +1,12 @@
 # 如何用过氧化氢清洁变色的透气盖
 
-> 原文:[https://life hacker . com/how-to-clean-your-colonded-vent-covers-with-hydrogen-1847575933](https://lifehacker.com/how-to-clean-your-discolored-vent-covers-with-hydrogen-1847575933)
+> 原文：<https://lifehacker.com/how-to-clean-your-discolored-vent-covers-with-hydrogen-1847575933>
 
 脏和变色是有区别的，塑料透气盖可能两者都有。虽然许多家庭都有金属制成的通风口盖，但塑料也相对常见。白色塑料通风口盖的一个缺点是，随着时间的推移，它们会变黄，最终变色。
 
 Watch
 
-如果发生这种情况，再多的油脂或清洁产品也不能立刻让它们恢复原来的颜色——但似乎浸泡在一些过氧化氢中可以达到这个效果。在《今日美国》 [【问题解决】](https://www.usatoday.com/problemsolved/) vertical的 [一段视频](https://www.usatoday.com/videos/tech/problemsolved/2021/08/25/how-clean-plastic-vent-covers/5572557001/) 中，记者克里斯托夫·崔准熙演示了如何做到这一点，并解释了为什么它首先会发生。以下是需要了解的内容。
+如果发生这种情况，再多的油脂或清洁产品也不能立刻让它们恢复原来的颜色——但似乎浸泡在一些过氧化氢中可以达到这个效果。在《今日美国》 [【问题解决】](https://www.usatoday.com/problemsolved/) vertical 的 [一段视频](https://www.usatoday.com/videos/tech/problemsolved/2021/08/25/how-clean-plastic-vent-covers/5572557001/) 中，记者克里斯托夫·崔准熙演示了如何做到这一点，并解释了为什么它首先会发生。以下是需要了解的内容。
 
 ## 如何使用过氧化氢来增白变色的塑料透气盖
 

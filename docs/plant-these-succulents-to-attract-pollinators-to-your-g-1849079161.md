@@ -1,6 +1,6 @@
 # 种植这些肉质植物来吸引授粉者到你的花园
 
-> 原文:[https://life hacker . com/plant-these-lucky-to-your-g-1849079161](https://lifehacker.com/plant-these-succulents-to-attract-pollinators-to-your-g-1849079161)
+> 原文：<https://lifehacker.com/plant-these-succulents-to-attract-pollinators-to-your-g-1849079161>
 
 当我们想到吸引传粉昆虫的植物时，脑海中浮现出带有雄蕊、雌蕊和可见花粉的花朵。但是并不是每个人都生活在可以种植这种植物的地区。
 
@@ -35,7 +35,7 @@ Watch
 
 ## 山楂
 
-*   花朵的直径约为1英寸
+*   花朵的直径约为 1 英寸
 *   在阴凉处生长良好
 *   吸引蜜蜂和蝴蝶
 

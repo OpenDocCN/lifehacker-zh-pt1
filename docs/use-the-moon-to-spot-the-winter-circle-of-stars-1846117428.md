@@ -1,6 +1,6 @@
 # 利用月亮来发现恒星的“冬季圈”
 
-> 原文:[https://life hacker . com/use-the-moon-to-spot-the-winter-circle-of-stars-1846117428](https://lifehacker.com/use-the-moon-to-spot-the-winter-circle-of-stars-1846117428)
+> 原文：<https://lifehacker.com/use-the-moon-to-spot-the-winter-circle-of-stars-1846117428>
 
 虽然这听起来像是网络明星 之战的 [的更舒适、更寒冷的版本，但“冬季星星圈”实际上是发生在夜空中的事情，而不是在加利福尼亚州佩珀代因大学的球场上。(好吧，从技术上来说，它只是被称为“冬季圆圈”——或“冬季六边形”——但它是由恒星组成的。)这里是什么是冬圈，以及在接下来的几个晚上如何看到它。](https://www.youtube.com/watch?v=-KyxkNsIo-s) 
 
@@ -10,7 +10,7 @@ Watch
 
 基本上，它是北半球冬季(南半球的夏季)展示的最亮的星星的集合。根据 [EarthSky](https://earthsky.org/favorite-star-patterns/winter-circle-highlights-brightest-winter-stars) 的说法，冬圈不是一个星座，而是一个“ [星号](https://earthsky.org/astronomy-essentials/definition-what-is-a-constellation-asterism) ”，或者“形成一个图案的突出的恒星群，如此引人注目，以至于有一个单独的名称。”
 
-此外，正如你可能已经猜到它的另一个名字——冬季六边形——冬季圆并不是一个完美的圆。那么为什么取这个名字呢？EarthSky的 [团队解释说](https://earthsky.org/tonight/identify-the-stars-of-the-winter-circle) “从我们北半球的位置来看，每年夏末秋初的黎明前都能看到这些同样明亮的星星。“每年冬天的晚上都能看到它们。故名冬圈。”
+此外，正如你可能已经猜到它的另一个名字——冬季六边形——冬季圆并不是一个完美的圆。那么为什么取这个名字呢？EarthSky 的 [团队解释说](https://earthsky.org/tonight/identify-the-stars-of-the-winter-circle) “从我们北半球的位置来看，每年夏末秋初的黎明前都能看到这些同样明亮的星星。“每年冬天的晚上都能看到它们。故名冬圈。”
 
 ### 如何找到冬圈
 

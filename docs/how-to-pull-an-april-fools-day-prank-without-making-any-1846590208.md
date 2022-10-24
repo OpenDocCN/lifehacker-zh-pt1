@@ -1,12 +1,12 @@
 # 如何在不树敌的情况下搞一个愚人节恶作剧
 
-> 原文:[https://life hacker . com/how-to-pull-an-April-fool-day-prank-without-making-any-1846590208](https://lifehacker.com/how-to-pull-an-april-fools-day-prank-without-making-any-1846590208)
+> 原文：<https://lifehacker.com/how-to-pull-an-april-fools-day-prank-without-making-any-1846590208>
 
 一般来说，愚人节有三种可能性:最终引发笑声的恼人的恶作剧，走极端的可怕恶作剧，以及品牌提醒我们不要发 [推特](https://www.vox.com/the-goods/2019/4/1/18290776/april-fools-day-brand-worst-pranks-history-google) 的机会。
 
 Watch
 
-如果你在4月1日醒来，怀着偷偷摸摸的野心想开一个愚人节玩笑，确保你不会造成不必要的破坏。毕竟有好的笑话和坏的笑话，甚至(或尤其是)说到这个恶作剧的国庆节。当计划你的诡计时知道*不*做什么是很重要的。
+如果你在 4 月 1 日醒来，怀着偷偷摸摸的野心想开一个愚人节玩笑，确保你不会造成不必要的破坏。毕竟有好的笑话和坏的笑话，甚至(或尤其是)说到这个恶作剧的国庆节。当计划你的诡计时知道*不*做什么是很重要的。
 
 ### 不要拿死亡或疾病开玩笑
 
@@ -20,11 +20,11 @@ Watch
 
 ### 没有假的*好的*新闻更新要么请
 
-当有坏消息时，不要伪装成好消息传播谎言。不要告诉一个渴望的高中生他们进了他们梦想的学校，而他们没有，也不要突然打电话告诉别人你给他们买了一只小狗T2，而事实上你没有。当人们面对现实时，建立起一个人，却眼睁睁地看着他们的快乐逐渐消失，这本身就有些残酷。这里的大前提是:不要做一个混蛋。
+当有坏消息时，不要伪装成好消息传播谎言。不要告诉一个渴望的高中生他们进了他们梦想的学校，而他们没有，也不要突然打电话告诉别人你给他们买了一只小狗 T2，而事实上你没有。当人们面对现实时，建立起一个人，却眼睁睁地看着他们的快乐逐渐消失，这本身就有些残酷。这里的大前提是:不要做一个混蛋。
 
 ### 什么是合适的笑话是主观的，但是它们是可行的
 
-说到开一个没有任何界限的玩笑，你必须了解你的听众。这是我的同事Meghan Moravcik Walbert最近解释的关于儿童 的事情，但同样的教训也适用于成年人。制造一些烹饪恶作剧，比如说，用 [巧克力包裹棉球，然后送给你的一个朋友](https://www.reddit.com/r/AskReddit/comments/gf104/reddit_what_is_the_worst_april_fools_joke_played/c1n5zi6?utm_source=share&utm_medium=web2x&context=3) ，这酷吗？当然，我想，只要确保不会有过敏反应或窒息的危险。
+说到开一个没有任何界限的玩笑，你必须了解你的听众。这是我的同事 Meghan Moravcik Walbert 最近解释的关于儿童 的事情，但同样的教训也适用于成年人。制造一些烹饪恶作剧，比如说，用 [巧克力包裹棉球，然后送给你的一个朋友](https://www.reddit.com/r/AskReddit/comments/gf104/reddit_what_is_the_worst_april_fools_joke_played/c1n5zi6?utm_source=share&utm_medium=web2x&context=3) ，这酷吗？当然，我想，只要确保不会有过敏反应或窒息的危险。
 
 在捉弄某人之前，了解你和他之间的关系是有好处的。这个人是不是可能会因为成为恶作剧的接收者而产生情绪反应，或者他们会欣赏精心策划的恶作剧，即使是以他们自己为代价？
 

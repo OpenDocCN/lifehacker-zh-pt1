@@ -1,6 +1,6 @@
 # 用罐装南瓜做一份烈性调味汁
 
-> 原文:[https://life hacker . com/make-a-punchy-vinagreet-with-canned-punching-1849622070](https://lifehacker.com/make-a-punchy-vinaigrette-with-canned-pumpkin-1849622070)
+> 原文：<https://lifehacker.com/make-a-punchy-vinaigrette-with-canned-pumpkin-1849622070>
 
 这是一个每个人都试图尽可能多地吃南瓜和南瓜香料口味的食物和饮料的季节。很好玩。很喜庆。有点失控了。不过没关系。南瓜热没有消退的迹象——至少在“商人乔”活着的时候没有——所以我们不妨接受它。为什么不做一个南瓜调味汁呢？为什么不把它倒在由苦菜、烤南瓜和南瓜籽做成的沙拉上呢？为什么不活了？
 
@@ -14,11 +14,11 @@ Watch
 
 #### 成分:
 
-*   1/4杯中性油，如植物油或菜籽油
-*   1/4杯苹果醋
-*   2汤匙罐装南瓜
-*   1汤匙第戎芥末
-*   1汤匙枫糖浆
+*   1/4 杯中性油，如植物油或菜籽油
+*   1/4 杯苹果醋
+*   2 汤匙罐装南瓜
+*   1 汤匙第戎芥末
+*   1 汤匙枫糖浆
 *   一撮盐
 *   一小撮白胡椒
 *   一小撮肉桂

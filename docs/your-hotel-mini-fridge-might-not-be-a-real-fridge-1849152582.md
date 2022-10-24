@@ -1,6 +1,6 @@
 # 你酒店的迷你冰箱可能不是真的冰箱
 
-> 原文:[https://life hacker . com/your-hotel-mini-冰箱-可能不是真的冰箱-1849152582](https://lifehacker.com/your-hotel-mini-fridge-might-not-be-a-real-fridge-1849152582)
+> 原文：<https://lifehacker.com/your-hotel-mini-fridge-might-not-be-a-real-fridge-1849152582>
 
 你有没有把餐馆的剩菜放在酒店的迷你冰箱里，第二天早上却奇怪它们为什么会这样...温暖？你不是在想象。酒店冰箱的温度通常可以保持饮料凉爽，但还不足以让食物或药物远离“危险区域”
 
@@ -8,15 +8,15 @@ Watch
 
 ## 酒店冰箱需要多冷才能保证食物安全？
 
-说到食品安全，易腐食品(包括像餐馆剩菜这样的熟食)在“危险区”的时间绝对不能超过两个小时。那个区域是从华氏40度到140度。食物在滚烫的时候是安全的(这就是为什么你可以让东西在慢炖锅里炖几个小时)，当它在冰箱里的时候通常是安全的，因为你家里的冰箱可能设定在40度以下。(越低越好，只要东西不结冰——A调整你的冰箱到30度左右到T6】让食物保存更久 。)
+说到食品安全，易腐食品(包括像餐馆剩菜这样的熟食)在“危险区”的时间绝对不能超过两个小时。那个区域是从华氏 40 度到 140 度。食物在滚烫的时候是安全的(这就是为什么你可以让东西在慢炖锅里炖几个小时)，当它在冰箱里的时候通常是安全的，因为你家里的冰箱可能设定在 40 度以下。(越低越好，只要东西不结冰——A 调整你的冰箱到 30 度左右到 T6】让食物保存更久 。)
 
-如果酒店的冰箱温度达到40度或更高——很多都是这样——你就不应该依赖它来保持食物足够冷以安全食用。在危险区域，细菌会滋生，你可能会吃到恶心、变质的食物。在最坏的情况下，你 [可能会食物中毒](https://theconversation.com/your-fridge-might-not-be-cold-enough-to-keep-food-safe-70262) 。
+如果酒店的冰箱温度达到 40 度或更高——很多都是这样——你就不应该依赖它来保持食物足够冷以安全食用。在危险区域，细菌会滋生，你可能会吃到恶心、变质的食物。在最坏的情况下，你 [可能会食物中毒](https://theconversation.com/your-fridge-might-not-be-cold-enough-to-keep-food-safe-70262) 。
 
 ## 为什么我的酒店迷你冰箱如此温暖？
 
 当酒店管理层决定客房供应什么样的冰箱时，他们会考虑到(越冷的冰箱用的电越多)和噪音(冰箱运转的声音可能会让客人心烦)。他们很可能也说服自己，人们大多只是冷藏饮料，并不关心食品安全。
 
-所以我们让酒店员工排练一句台词，说你的房间 [是如何备有“冷却器”而不是冰箱](https://www.tripadvisor.com/FAQ_Answers-g608947-d278215-t2499422-I_keep_reading_the_fridge_in_the_rooms_are_not.html) 。或者 [在论坛上嘲笑](http://We are constantly confused by guests saying the fridge ruined their food because it doesn't stay frozen.) 当冰箱不像家里的冰箱时，酒店的客人会感到惊讶。“我平均每周都会收到一次关于冰箱的投诉，”其中一人写道。更糟糕的是:酒店冰箱的最新趋势是一个小睡功能，当你睡觉时 [关闭冰箱8小时](https://knitec.com/absocold-refrigerators/) 。
+所以我们让酒店员工排练一句台词，说你的房间 [是如何备有“冷却器”而不是冰箱](https://www.tripadvisor.com/FAQ_Answers-g608947-d278215-t2499422-I_keep_reading_the_fridge_in_the_rooms_are_not.html) 。或者 [在论坛上嘲笑](http://We are constantly confused by guests saying the fridge ruined their food because it doesn't stay frozen.) 当冰箱不像家里的冰箱时，酒店的客人会感到惊讶。“我平均每周都会收到一次关于冰箱的投诉，”其中一人写道。更糟糕的是:酒店冰箱的最新趋势是一个小睡功能，当你睡觉时 [关闭冰箱 8 小时](https://knitec.com/absocold-refrigerators/) 。
 
 现在，并不是每个酒店的冰箱都保持在不安全的温度下。如果你有一个能真正冷藏食物的冰箱，而且顶部可能有一个小冷冻室，那你应该觉得自己很幸运。但是如果迷你冰箱看起来很热，把它开大()还是关小？ )没用，不是你的想象，是冰箱。
 

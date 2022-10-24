@@ -1,6 +1,6 @@
 # 房屋维护费用最高的州
 
-> 原文:[https://life hacker . com/the-most-expense-States-for-home-maintenance-1848476549](https://lifehacker.com/the-most-expensive-states-for-home-maintenance-1848476549)
+> 原文：<https://lifehacker.com/the-most-expensive-states-for-home-maintenance-1848476549>
 
 当决定在哪里买房时，有很多因素需要考虑:邻居、公共交通选择、学区、文化活动、天气、与家人的距离(无论你喜欢他们是远还是近)——清单还在继续。当然，还有金融方面的因素，比如该地区的房价、和总体生活成本。
 
@@ -12,9 +12,9 @@ Watch
 
 ## 房屋维护费用最高的州
 
-在我们了解哪些州上榜之前，让我们先来谈谈它们是如何上榜的。Angi (前Angie's List)进行的一项调查 [中，以下各州被确定为房屋维护费用最高的州，该调查询问了1000名房主最近的房屋维修情况(他们雇佣了专业人员，而不是DIY工作)，然后根据他们的平均房屋维修费用计算出每个州花费在服务上的总金额。](https://www.angi.com/articles/most-expensive-states-for-home-maintenance.htm)
+在我们了解哪些州上榜之前，让我们先来谈谈它们是如何上榜的。Angi (前 Angie's List)进行的一项调查 [中，以下各州被确定为房屋维护费用最高的州，该调查询问了 1000 名房主最近的房屋维修情况(他们雇佣了专业人员，而不是 DIY 工作)，然后根据他们的平均房屋维修费用计算出每个州花费在服务上的总金额。](https://www.angi.com/articles/most-expensive-states-for-home-maintenance.htm)
 
-根据调查，家庭保养最贵的前10个州是:
+根据调查，家庭保养最贵的前 10 个州是:
 
 1.  得克萨斯州
 2.  佛罗里达州

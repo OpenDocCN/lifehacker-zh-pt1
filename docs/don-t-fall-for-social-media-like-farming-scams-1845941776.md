@@ -1,6 +1,6 @@
 # 不要陷入社交媒体“像农业一样”的骗局
 
-> 原文:[https://life hacker . com/don-t-fall-for-social-media-like-farming-scams-1845941776](https://lifehacker.com/don-t-fall-for-social-media-like-farming-scams-1845941776)
+> 原文：<https://lifehacker.com/don-t-fall-for-social-media-like-farming-scams-1845941776>
 
 商业改善局 [警告人们](https://www.bbb.org/article/news-releases/23522-scam-alert-how-to-spot-a-fake-social-media-giveaway) 不要陷入“喜欢农业”的社交媒体骗局，这些骗局提供奖励来换取参与，如喜欢或评论。棘手的是，有些比赛是合法的，所以你需要知道如何识别假的。
 
@@ -8,7 +8,7 @@ Watch
 
 ## **骗局如何运作**
 
-你可能会在脸书或Instagram等社交网站上看到推广赠品、承诺现金、礼品卡或其他 [高价商品(如房车](https://www.wthr.com/article/features/trending-today/facebook-contest-scam-likes-shares-rv-tiny-homes/531-f5a2b1d1-4aeb-4f41-9356-fc9f76c1ee61) )的帖子，可以通过喜欢或评论帖子来“赢得”。当然，这些奖项实际上并不存在。那么有什么问题呢，尤其是如果你只是喜欢或评论一个帖子的话？正如商业改善局所说:
+你可能会在脸书或 Instagram 等社交网站上看到推广赠品、承诺现金、礼品卡或其他 [高价商品(如房车](https://www.wthr.com/article/features/trending-today/facebook-contest-scam-likes-shares-rv-tiny-homes/531-f5a2b1d1-4aeb-4f41-9356-fc9f76c1ee61) )的帖子，可以通过喜欢或评论帖子来“赢得”。当然，这些奖项实际上并不存在。那么有什么问题呢，尤其是如果你只是喜欢或评论一个帖子的话？正如商业改善局所说:
 
 > 与许多骗局一样，这种被称为“类农业”的技术有几个不同的目的。通常，免费帖子本身最初是无害的——尽管是假的。但当骗子收集到足够多的喜欢和分享时，他们会编辑帖子，并添加一些恶意的内容，如恶意软件的链接。其他时候，一旦骗子达到他们的目标点赞数，他们就会剥离页面的原始内容，并用它来推广垃圾产品或在黑市上出售。
 
@@ -20,7 +20,7 @@ Watch
 
 ### 来自一个未经证实的账户
 
-经过社交媒体平台验证的账户不太可能是骗局。在账户名称旁边寻找Twitter、Instagram或脸书的官方蓝色复选标记。此外，脸书的任何一家公司都会在左栏有一个“页面透明”框，它会告诉你账户背后的真实实体。然而，并不是所有的合法账户都经过验证，所以你也要寻找其他可能的骗局的迹象。
+经过社交媒体平台验证的账户不太可能是骗局。在账户名称旁边寻找 Twitter、Instagram 或脸书的官方蓝色复选标记。此外，脸书的任何一家公司都会在左栏有一个“页面透明”框，它会告诉你账户背后的真实实体。然而，并不是所有的合法账户都经过验证，所以你也要寻找其他可能的骗局的迹象。
 
 ### 这个账户非常新
 
@@ -34,4 +34,4 @@ Watch
 
 许多在线诈骗——尤其是传销——依靠人们在比赛中标记他人，以达到尽可能多的潜在受害者。这种方法太有效了:当人们被他们信任的不知情的人标记时，比如家人或朋友，他们更有可能延续这个骗局。但是许多人也发现以这种方式被贴上标签很烦人，而且基于标签的促销不太可能符合大多数品牌的营销价值。如果赠品比赛需要大量额外的工作，请三思而后行。
 
-如果你发现了一个骗局，使用BBB.org/ScamTracker报告它。
+如果你发现了一个骗局，使用 BBB.org/ScamTracker 报告它。

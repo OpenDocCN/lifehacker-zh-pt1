@@ -1,8 +1,8 @@
-# iOS 14中最好的信息新功能
+# iOS 14 中最好的信息新功能
 
-> 原文:[https://life hacker . com/the-best-new-features-for-messages-in-IOs-14-1845380251](https://lifehacker.com/the-best-new-features-for-messages-in-ios-14-1845380251)
+> 原文：<https://lifehacker.com/the-best-new-features-for-messages-in-ios-14-1845380251>
 
-苹果的iMessage一直是发送和接收文本的优越方法(当然只是从iPhone到iPhone)。随着iOS 14的推出，现在被简单称为“消息”的东西有了一些新功能，这对我们当中狂热的群发短信者来说是真正的好处。
+苹果的 iMessage 一直是发送和接收文本的优越方法(当然只是从 iPhone 到 iPhone)。随着 iOS 14 的推出，现在被简单称为“消息”的东西有了一些新功能，这对我们当中狂热的群发短信者来说是真正的好处。
 
 <aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled The Best New Features for Messages in iOS 14](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/the-best-messaging-apps-on-android-are-still-worse-than-1832234073)</aside>
 

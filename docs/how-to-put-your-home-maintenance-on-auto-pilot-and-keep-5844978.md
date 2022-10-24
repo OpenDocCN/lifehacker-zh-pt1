@@ -1,6 +1,6 @@
 # 今年如何让你的家庭保养自动进行
 
-> 原文:[https://life hacker . com/how-to-put-your-home-maintenance-on-auto-pilot-and-keep-5844978](https://lifehacker.com/how-to-put-your-home-maintenance-on-auto-pilot-and-keep-5844978)
+> 原文：<https://lifehacker.com/how-to-put-your-home-maintenance-on-auto-pilot-and-keep-5844978>
 
 家庭维护是那些容易忘记或推迟的事情之一，因为许多任务只需要偶尔做一次或一年做几次。但是，如果你不小心的话，你可能会变成邻居家的那栋房子，院子里杂草丛生，油漆剥落，还有一系列昂贵但本可以避免的维修。
 
@@ -24,13 +24,13 @@ Watch
 
 #### 如果你使用谷歌日历
 
-只需点击 [此链接](https://www.google.com/calendar/render?cid=9fjf6vkf1ou50j2umnju2lnrss%40group.calendar.google.com) 即可订阅样片时间表。如果您想要自定义复制到您的Google日历的任务，请单击任何项目，并通过单击“复制到我的日历”链接将其复制到您自己的Google日历，然后根据需要调整日期。
+只需点击 [此链接](https://www.google.com/calendar/render?cid=9fjf6vkf1ou50j2umnju2lnrss%40group.calendar.google.com) 即可订阅样片时间表。如果您想要自定义复制到您的 Google 日历的任务，请单击任何项目，并通过单击“复制到我的日历”链接将其复制到您自己的 Google 日历，然后根据需要调整日期。
 
 #### 如果您使用其他日历
 
 如果你不使用谷歌日历，你可以从下面的链接下载各种格式的日历。日历下面是按季节对这些维修和任务的描述。
 
-[XML日历](http://www.google.com/calendar/feeds/9fjf6vkf1ou50j2umnju2lnrss%40group.calendar.google.com/public/basic)||[iCal版本](http://www.google.com/calendar/ical/9fjf6vkf1ou50j2umnju2lnrss%40group.calendar.google.com/public/basic.ics)||[HTML版本](http://www.google.com/calendar/embed?src=9fjf6vkf1ou50j2umnju2lnrss%40group.calendar.google.com)
+[XML 日历](http://www.google.com/calendar/feeds/9fjf6vkf1ou50j2umnju2lnrss%40group.calendar.google.com/public/basic)||[iCal 版本](http://www.google.com/calendar/ical/9fjf6vkf1ou50j2umnju2lnrss%40group.calendar.google.com/public/basic.ics)||[HTML 版本](http://www.google.com/calendar/embed?src=9fjf6vkf1ou50j2umnju2lnrss%40group.calendar.google.com)
 
 ### 你应该包括哪些家庭维护任务？
 
@@ -38,7 +38,7 @@ Watch
 
 #### 秋天做什么
 
-当天气开始变冷时，注意你的取暖设备和防风雨设备。我已经把这些任务分散在10月的两个周末和11月的一个周末，但是，同样，你可以调整你的时间表。
+当天气开始变冷时，注意你的取暖设备和防风雨设备。我已经把这些任务分散在 10 月的两个周末和 11 月的一个周末，但是，同样，你可以调整你的时间表。
 
 #### **户外**
 
@@ -57,7 +57,7 @@ Watch
 *   检查烟雾探测器和一氧化碳探测器，必要时更换电池。还要检查灭火器。这是一个很好的时间来做消防演习和审查你的应急文件。
 *   拆除空调或用防风雨罩保护(如果适用)。
 *   检查阁楼的绝缘，泄漏，隐藏松鼠等。当你知道要找什么的时候，一个简单的阁楼检查 很容易做到。
-*   冲洗热水器，清除沉淀物。下面是DIY网 的一些 [说明。](http://www.diynetwork.com/how-to/how-to-drain-a-water-heater/index.html)
+*   冲洗热水器，清除沉淀物。下面是 DIY 网 的一些 [说明。](http://www.diynetwork.com/how-to/how-to-drain-a-water-heater/index.html)
 *   如果有热水供暖，给散热器放气。当系统正在使用时不要这样做，因为水将会变热。
 *   检查厨房、浴室设备和橱柜是否漏水，必要时通过重新填缝或重新灌浆厨房或浴室的台面和瓷砖来防止水渍。
 
@@ -95,4 +95,4 @@ Watch
 
 重要的是你实际上记得完成这些必不可少的任务(所以你不会像我一样突然发现鸽子整个冬天都住在你的阁楼里。).
 
-这个故事最初发表于2011年，并于2020年12月28日更新，以符合Lifehacker风格指南。
+这个故事最初发表于 2011 年，并于 2020 年 12 月 28 日更新，以符合 Lifehacker 风格指南。

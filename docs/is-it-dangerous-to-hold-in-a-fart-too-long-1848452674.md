@@ -1,12 +1,12 @@
 # 屁憋太久危险吗？
 
-> 原文:[https://life hacker . com/is-it-dangerous-to-hold in a far-a屁太久-1848452674](https://lifehacker.com/is-it-dangerous-to-hold-in-a-fart-too-long-1848452674)
+> 原文：<https://lifehacker.com/is-it-dangerous-to-hold-in-a-fart-too-long-1848452674>
 
 我们都经历过。你在第一次约会，或者在开会，或者试图成为一个体贴的飞机乘客——不管什么原因，你在放屁。当然，这是不舒服的——但是这会对你的健康有危险吗？放屁不会导致你死亡吗？你会死于无声却致命的死亡吗？(好了，我说完了。)
 
 Watch
 
-大多数人每天放屁5到23次 ，但是任何数量的社会压力都可能迫使你阻止这些讨厌的家伙。以下是你需要知道的关于让你的气体积聚而不是让它破裂的潜在后果。
+大多数人每天放屁 5 到 23 次 ，但是任何数量的社会压力都可能迫使你阻止这些讨厌的家伙。以下是你需要知道的关于让你的气体积聚而不是让它破裂的潜在后果。
 
 ## **为什么我们首先放屁**
 
@@ -14,7 +14,7 @@ Watch
 
 ## 憋着放屁危险吗？
 
-众所周知，憋着 [胀气会导致](https://pubmed.ncbi.nlm.nih.gov/3068547/) 消化不良、腹胀和疼痛的感觉。此外，正如 [Healthline指出的](https://www.healthline.com/health/digestive-health/holding-in-farts#side-effects-of-holding-it-in) ，憋着放屁带来的额外社会压力往往会让你的身体更加不适。
+众所周知，憋着 [胀气会导致](https://pubmed.ncbi.nlm.nih.gov/3068547/) 消化不良、腹胀和疼痛的感觉。此外，正如 [Healthline 指出的](https://www.healthline.com/health/digestive-health/holding-in-farts#side-effects-of-holding-it-in) ，憋着放屁带来的额外社会压力往往会让你的身体更加不适。
 
 幸运的是，很少有科学证据表明，除了暂时的不适之外，憋住屁会导致严重的健康问题。除了极少数情况，这些气体总会找到出路的。
 

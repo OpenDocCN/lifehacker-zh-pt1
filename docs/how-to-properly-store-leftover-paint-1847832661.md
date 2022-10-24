@@ -1,8 +1,8 @@
 # 如何正确储存剩余的油漆
 
-> 原文:[https://life hacker . com/how-to-rightly-store-left-paint-1847832661](https://lifehacker.com/how-to-properly-store-leftover-paint-1847832661)
+> 原文：<https://lifehacker.com/how-to-properly-store-leftover-paint-1847832661>
 
-尽管从技术上讲，一加仑油漆应该覆盖400平方英尺 ，但情况并非总是如此。另外，你可能正在画一个空间，却不知道它到底有多大。无论哪种方式，都很容易错误地估计一个项目需要多少油漆，当你完成后会剩下一些。
+尽管从技术上讲，一加仑油漆应该覆盖 400 平方英尺 ，但情况并非总是如此。另外，你可能正在画一个空间，却不知道它到底有多大。无论哪种方式，都很容易错误地估计一个项目需要多少油漆，当你完成后会剩下一些。
 
 Watch
 
@@ -26,4 +26,4 @@ Watch
 
 ## 把它存放在正确的地方
 
-最好将油漆储存在阴凉干燥的地方，远离阳光。 处理任何一种颜料都是一个好主意，尤其是当颜料储存在透明的玻璃罐中时。此外，你要确保那里的温度保持在零度以上——理想情况下， [在华氏60-80度之间](https://www.hgtv.com/design/make-and-celebrate/handmade/how-to-store-leftover-paint) 。最后，一定要把颜料 [放在高架子](https://www.hgtv.com/design/make-and-celebrate/handmade/how-to-store-leftover-paint) 上，远离食物、饮料、小孩。
+最好将油漆储存在阴凉干燥的地方，远离阳光。 处理任何一种颜料都是一个好主意，尤其是当颜料储存在透明的玻璃罐中时。此外，你要确保那里的温度保持在零度以上——理想情况下， [在华氏 60-80 度之间](https://www.hgtv.com/design/make-and-celebrate/handmade/how-to-store-leftover-paint) 。最后，一定要把颜料 [放在高架子](https://www.hgtv.com/design/make-and-celebrate/handmade/how-to-store-leftover-paint) 上，远离食物、饮料、小孩。

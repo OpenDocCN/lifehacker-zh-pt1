@@ -1,26 +1,26 @@
 # 学习苹果序列号的秘密语言(当你还可以的时候)
 
-> 原文:[https://life hacker . com/learn-the-secret-language-of-apple-serial-numbers-whil-1846693527](https://lifehacker.com/learn-the-secret-language-of-apple-serial-numbers-whil-1846693527)
+> 原文：<https://lifehacker.com/learn-the-secret-language-of-apple-serial-numbers-whil-1846693527>
 
-苹果正计划今年为MAC和MacBook重新格式化其序列号 。目前，MAC电脑使用与其他苹果产品相同的12位字母数字序列号，但苹果公司将很快将其转换为8至12个字符长的随机字符串。
+苹果正计划今年为 MAC 和 MacBook 重新格式化其序列号 。目前，MAC 电脑使用与其他苹果产品相同的 12 位字母数字序列号，但苹果公司将很快将其转换为 8 至 12 个字符长的随机字符串。
 
 Watch
 
-这看起来似乎是一个无关紧要的变化，但新的序列号将使查找新MAC和MacBooks的重要信息变得更加困难。2010年至2021年初生产的所有苹果设备都有序列号，这些序列号说明了苹果设备的制造时间和地点、具体型号以及硬件配置。
+这看起来似乎是一个无关紧要的变化，但新的序列号将使查找新 MAC 和 MacBooks 的重要信息变得更加困难。2010 年至 2021 年初生产的所有苹果设备都有序列号，这些序列号说明了苹果设备的制造时间和地点、具体型号以及硬件配置。
 
-这些信息有助于用户了解产品何时因制造错误 而被召回 [，或者集体诉讼](https://lifehacker.com/find-out-if-apple-recalled-your-macbook-pro-1835729373) [是否仅包括某个地区的设备](https://lifehacker.com/how-to-get-in-on-the-lawsuit-against-apples-terrible-ma-1846560840)；或者如果需要T10】更换丢失或损坏的零件T12】；。它还帮助您确定一个 [翻新产品是否合法](https://lifehacker.com/how-to-tell-if-your-iphone-is-refurbished-by-looking-at-1835974840) 。
+这些信息有助于用户了解产品何时因制造错误 而被召回 [，或者集体诉讼](https://lifehacker.com/find-out-if-apple-recalled-your-macbook-pro-1835729373) [是否仅包括某个地区的设备](https://lifehacker.com/how-to-get-in-on-the-lawsuit-against-apples-terrible-ma-1846560840)；或者如果需要 T10】更换丢失或损坏的零件 T12】；。它还帮助您确定一个 [翻新产品是否合法](https://lifehacker.com/how-to-tell-if-your-iphone-is-refurbished-by-looking-at-1835974840) 。
 
-苹果肯定会有办法解码这些随机字符串，但它们对想要自己找到这些信息的普通用户没有帮助——至少在新的MAC电脑上。
+苹果肯定会有办法解码这些随机字符串，但它们对想要自己找到这些信息的普通用户没有帮助——至少在新的 MAC 电脑上。
 
-幸运的是，苹果的其他产品将保留12位串行格式，它们仍然会打印2010年至2021年初生产的所有MAC和MacBooks。只要你的苹果设备有一个12位的序列号，你就可以用它来了解更多关于它的来历。
+幸运的是，苹果的其他产品将保留 12 位串行格式，它们仍然会打印 2010 年至 2021 年初生产的所有 MAC 和 MacBooks。只要你的苹果设备有一个 12 位的序列号，你就可以用它来了解更多关于它的来历。
 
 ### 如何解码苹果序列号
 
-有 [工具可以扫描和解码](https://everymac.com/ultimate-mac-lookup/?search_keywords=DLXD5123DCP7) 苹果的12位序列号，但是一旦你知道每个数字的含义，你就可以自己阅读大量的信息。
+有 [工具可以扫描和解码](https://everymac.com/ultimate-mac-lookup/?search_keywords=DLXD5123DCP7) 苹果的 12 位序列号，但是一旦你知道每个数字的含义，你就可以自己阅读大量的信息。
 
-首先，你需要找到你的设备的序列号。往往是 [印在一个设备](https://support.apple.com/en-us/HT204308) 的外面，在**通用>下的设置app里也有关于>序列号的。**这个数字看起来像这样:“DMPC8[#][#][#]N70M。”
+首先，你需要找到你的设备的序列号。往往是 [印在一个设备](https://support.apple.com/en-us/HT204308) 的外面，在**通用>下的设置 app 里也有关于>序列号的。**这个数字看起来像这样:“DMPC8[#][#][#]N70M。”
 
-一旦你找到了，就该解码了。从左到右，这个数字的每一部分告诉你一些关于你的设备。例如，前两位数字是组装厂ID，它告诉您Apple设备的制造地:
+一旦你找到了，就该解码了。从左到右，这个数字的每一部分告诉你一些关于你的设备。例如，前两位数字是组装厂 ID，它告诉您 Apple 设备的制造地:
 
 *   1C，4H，WQ，F7: 中国
 *   7J，YM: 中国鸿海/富士康
@@ -49,7 +49,7 @@ Watch
 
 剩余的七个字符代表产品的型号:
 
-*   数字6到8是随机代码，确保在同一年同一周同一工厂制造的每个设备都有一个唯一的序列号。
-*   数字9到11设备型号和代。所有苹果产品型号都可以在列表中找到。
+*   数字 6 到 8 是随机代码，确保在同一年同一周同一工厂制造的每个设备都有一个唯一的序列号。
+*   数字 9 到 11 设备型号和代。所有苹果产品型号都可以在列表中找到。
 
-*   最后一位数字表示设备的配置，如颜色/存储选项等。这些因设备而异。例如，iPhone序列号末尾的“M”表示其颜色，而iPad上的“1”表示其硬件配置。
+*   最后一位数字表示设备的配置，如颜色/存储选项等。这些因设备而异。例如，iPhone 序列号末尾的“M”表示其颜色，而 iPad 上的“1”表示其硬件配置。

@@ -1,6 +1,6 @@
 # 如何做好自己的基本自行车保养
 
-> 原文:[https://life hacker . com/how-do-your-own-your-own-basic-bike-maintenance-1849097471](https://lifehacker.com/how-to-do-your-own-basic-bike-maintenance-1849097471)
+> 原文：<https://lifehacker.com/how-to-do-your-own-basic-bike-maintenance-1849097471>
 
 无论是油价上涨，还是冒险的欲望让你盯着放在车库后面太久的自行车，了解定期维护的基本知识可以节省你的时间和麻烦。让你的自行车保持良好的工作状态将会节省你的修理费，让你的骑行更加舒适和愉快。这里有一些简单的保养任务，你可以自己做，让你的自行车保持良好的状态。
 

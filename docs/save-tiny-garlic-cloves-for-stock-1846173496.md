@@ -1,6 +1,6 @@
 # 把小蒜瓣留作存货
 
-> 原文:[https://life hacker . com/save-tiny-蒜瓣换股票-1846173496](https://lifehacker.com/save-tiny-garlic-cloves-for-stock-1846173496)
+> 原文：<https://lifehacker.com/save-tiny-garlic-cloves-for-stock-1846173496>
 
 我讨厌小蒜瓣。我非常讨厌他们。最让我失望的事情莫过于剥开大蒜头的纸质外皮，却发现它是由许多微小的蒜瓣组成的，而不是数量更少的美丽、肥胖的蒜瓣。
 

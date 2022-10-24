@@ -1,6 +1,6 @@
 # 在泥瓦罐里种植你自己的豆芽
 
-> 原文:[https://life hacker . com/grow-your-own-sprouts-in-a-mason-jar-1847281896](https://lifehacker.com/grow-your-own-sprouts-in-a-mason-jar-1847281896)
+> 原文：<https://lifehacker.com/grow-your-own-sprouts-in-a-mason-jar-1847281896>
 
 豆芽是多用途的小植物，你可以添加到面包、沙拉和三明治中；他们提供从清淡到辛辣的各种口味； *和* [它们可以让你的血糖水平保持在较低的水平](https://www.webmd.com/diet/sprouts-good-for-you#1) 。它们可以是一餐饭中的一种后天获得的质地(有些是多筋的或松脆的)但是 [种类繁多的豆芽](https://theselfsufficientliving.com/types-of-sprouts-to-grow-for-a-healthy-diet/) 让你可以有选择性。一旦你*选定了*，你就可以在自己的厨房里轻松种植——你只需要一个罐子和一些粗棉布。
 
@@ -10,7 +10,7 @@ Watch
 
 ## 为什么你应该自己种豆芽
 
-在一餐中加入豆芽可以增加水分、质地和营养，如叶酸、锰、纤维和维生素C、A和k。然而，吃豆芽也有一些风险:生豆芽(和一些炒豆芽)可能含有危险的细菌，如大肠杆菌 [和沙门氏菌](https://www.healthline.com/nutrition/raw-sprouts#TOC_TITLE_HDR_7) 。豆芽生长的温暖潮湿的环境会滋生细菌，导致食物中毒和严重疾病。
+在一餐中加入豆芽可以增加水分、质地和营养，如叶酸、锰、纤维和维生素 C、A 和 k。然而，吃豆芽也有一些风险:生豆芽(和一些炒豆芽)可能含有危险的细菌，如大肠杆菌 [和沙门氏菌](https://www.healthline.com/nutrition/raw-sprouts#TOC_TITLE_HDR_7) 。豆芽生长的温暖潮湿的环境会滋生细菌，导致食物中毒和严重疾病。
 
 在家里种植豆芽实际上可以减少滋生和感染大肠杆菌或其他有害细菌的机会。然而，风险仍然存在，因此素食烹饪网站 [Hello Veggie](https://helloveggie.co/growing-your-own-sprouts/) 建议在处理豆芽时洗手，冷藏，如果它们闻起来很奇怪或变得黏糊糊，就扔掉它们。食品与健康网站 [正确饮食](https://www.eatright.org/homefoodsafety/safety-tips/food/are-sprouts-safe-to-eat) 还建议在食用前清洗豆芽，为了显著降低风险，将豆芽放入炒菜、汤和炖菜中烹饪，以进一步杀死任何细菌。
 
@@ -31,8 +31,8 @@ Watch
 *   橡皮筋
 *   你选择发芽的种子
 
-首先，在一个泥瓦罐(最好是广口的)里装满一到两汤匙的种子。然后，在种子上浇上两英寸的温水，让它们静置一夜。第一天晚上过后，拿起你的粗棉布，把它包在罐子口，用橡皮筋固定。然后你要把罐子里的水排掉，倒入新的水来冲洗种子。刷一下周围的水，然后再一次排干。为了更容易冲洗和排水，你可能想花大约10美元买一个 [发芽罐盖](https://lifewithoutplastic.com/stainless-steel-sprouting-lid-and-ring-for-regular-mouth-mason-jars/?gclid=CjwKCAjw87SHBhBiEiwAukSeUcV471Frrm2gkXVqnHrMulj6szsV5lm5tGOSi24VSOG42Xc4s-Ev6RoCXDMQAvD_BwE) ，但这不是必要的。
+首先，在一个泥瓦罐(最好是广口的)里装满一到两汤匙的种子。然后，在种子上浇上两英寸的温水，让它们静置一夜。第一天晚上过后，拿起你的粗棉布，把它包在罐子口，用橡皮筋固定。然后你要把罐子里的水排掉，倒入新的水来冲洗种子。刷一下周围的水，然后再一次排干。为了更容易冲洗和排水，你可能想花大约 10 美元买一个 [发芽罐盖](https://lifewithoutplastic.com/stainless-steel-sprouting-lid-and-ring-for-regular-mouth-mason-jars/?gclid=CjwKCAjw87SHBhBiEiwAukSeUcV471Frrm2gkXVqnHrMulj6szsV5lm5tGOSi24VSOG42Xc4s-Ev6RoCXDMQAvD_BwE) ，但这不是必要的。
 
-保持种子被覆盖，每8到12个小时继续这个过程，直到新芽长到理想的大小。 [Hello Veggie](https://helloveggie.co/growing-your-own-sprouts/) 建议将罐子放在避光的地方几天，然后放在阳光间接照射的地方，以便最佳生长。一旦豆芽按照你的喜好装满罐子，彻底冲洗干净，就可以吃了。
+保持种子被覆盖，每 8 到 12 个小时继续这个过程，直到新芽长到理想的大小。 [Hello Veggie](https://helloveggie.co/growing-your-own-sprouts/) 建议将罐子放在避光的地方几天，然后放在阳光间接照射的地方，以便最佳生长。一旦豆芽按照你的喜好装满罐子，彻底冲洗干净，就可以吃了。
 
 一定要把豆芽放在有盖的容器里，放在冰箱里，以避免任何危险的细菌。

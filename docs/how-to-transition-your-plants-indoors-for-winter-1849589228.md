@@ -1,6 +1,6 @@
 # 如何让你的植物在室内过冬
 
-> 原文:[https://life hacker . com/how-to-transition-your-plants-室内过冬-1849589228](https://lifehacker.com/how-to-transition-your-plants-indoors-for-winter-1849589228)
+> 原文：<https://lifehacker.com/how-to-transition-your-plants-indoors-for-winter-1849589228>
 
 室内植物可能很挑剔。这是因为当它们生长在花盆中时，它们不会像室外植物那样与其他物种或相同类型的土壤发生同样的相互作用。尽管我们尽了最大努力，但我们就是无法完全模仿植物的外部环境。但是我们可以做一些事情来缓解从室外到室内的过渡压力，让它们整个冬天都保持旺盛的生命力。
 
@@ -12,15 +12,15 @@ Watch
 
 *   何【托】何
 *   祈祷瓶
-*   S tiff硬毛刷
-*   entle肥皂
+*   S tiff 硬毛刷
+*   entle 肥皂
 *   新鲜盆栽土
 *   一把大剪刀
 *   喝酒
 *   一个大浴盆
 *   保暖手套
 
-如果你不确定如何给盆栽植物施肥，你也可以选择使用 [土壤Ph值测试套件](https://www.acehardware.com/departments/lawn-and-garden/lawn-care/soil-conditioners/73750?store=16513&gclid=CjwKCAjwvsqZBhAlEiwAqAHElY-9XODL6laWtLR6-SO7VUHhlcFpJ8Bps7EK8se1g9hetr5Ym8Se5BoC1pYQAvD_BwE&gclsrc=aw.ds) 。
+如果你不确定如何给盆栽植物施肥，你也可以选择使用 [土壤 Ph 值测试套件](https://www.acehardware.com/departments/lawn-and-garden/lawn-care/soil-conditioners/73750?store=16513&gclid=CjwKCAjwvsqZBhAlEiwAqAHElY-9XODL6laWtLR6-SO7VUHhlcFpJ8Bps7EK8se1g9hetr5Ym8Se5BoC1pYQAvD_BwE&gclsrc=aw.ds) 。
 
 接下来，开始修剪枯死或受损的部分，为你的植物过渡做准备。这将有助于它们适应新的环境，并有望长出新芽。使用干净的剪刀，用酒精在植物之间擦拭刀片向下以避免意外传播植物可能有的任何疾病。这也是一个很好的时间来挑选容器表层土壤中的任何碎片。
 
@@ -32,7 +32,7 @@ Watch
 
 接下来，使用喷雾瓶或软管(取决于植物的大小和强度)喷射出任何昆虫，如蚜虫。一些园丁会使用 [印楝油](https://www.thespruce.com/using-neem-oil-as-an-organic-insecticide-2132579) 或肥皂水来杀死叶子上的虫子，但用棉球轻轻一扫就能达到目的，而且对植物的伤害较小。如果你发现你有严重的虫害，你应该隔离那株植物，并在把它带进房子之前对它进行处理。
 
-如果需要的话，这也是给土壤施肥的好时机。你可以用一个 [Ph测试套件](https://www.acehardware.com/departments/lawn-and-garden/lawn-care/soil-conditioners/73750?store=16513&gclid=CjwKCAjwvsqZBhAlEiwAqAHElY-9XODL6laWtLR6-SO7VUHhlcFpJ8Bps7EK8se1g9hetr5Ym8Se5BoC1pYQAvD_BwE&gclsrc=aw.ds) 来确定土壤是否平衡。确保为你的特定类型的植物调整Ph值，以避免肥料休克。如果你不确定你特定室内植物的需求，你通常可以从当地大学园艺推广中心获得信息。
+如果需要的话，这也是给土壤施肥的好时机。你可以用一个 [Ph 测试套件](https://www.acehardware.com/departments/lawn-and-garden/lawn-care/soil-conditioners/73750?store=16513&gclid=CjwKCAjwvsqZBhAlEiwAqAHElY-9XODL6laWtLR6-SO7VUHhlcFpJ8Bps7EK8se1g9hetr5Ym8Se5BoC1pYQAvD_BwE&gclsrc=aw.ds) 来确定土壤是否平衡。确保为你的特定类型的植物调整 Ph 值，以避免肥料休克。如果你不确定你特定室内植物的需求，你通常可以从当地大学园艺推广中心获得信息。
 
 ## 慢慢过渡室内植物
 

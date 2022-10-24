@@ -1,22 +1,22 @@
 # 你应该参加这些免费的个人理财课程
 
-> 原文:[https://life hacker . com/you-should-take-these-free-courses-on-personal-finance-1847331922](https://lifehacker.com/you-should-take-these-free-courses-on-personal-finance-1847331922)
+> 原文：<https://lifehacker.com/you-should-take-these-free-courses-on-personal-finance-1847331922>
 
 众所周知，财务知识在美国是一个问题，因为不到三分之一的成年人在四十多岁时了解基本财务知识。但是你也不需要成为一名专家，因为知道一些基本知识会有很大帮助。幸运的是，有很多涵盖个人理财话题的在线课程，你甚至不用花一毛钱。以下是一些免费的例子:
 
 ## **每个人都应该知道的金融基础知识**
 
-这个LinkedI n课程很容易开始，因为它只有一个多小时，解释了关于银行、信用评分、股票市场、保险和退休储蓄的基础知识。30天的LinkedI n学习试用期是免费的，之后你每月支付29.99美元，或每年订阅19.99美元(如果你只对这一门课程感兴趣，别忘了取消试用)。 [点击这里了解更多信息](https://www.linkedin.com/learning/financial-basics-everyone-should-know) 。
+这个 LinkedI n 课程很容易开始，因为它只有一个多小时，解释了关于银行、信用评分、股票市场、保险和退休储蓄的基础知识。30 天的 LinkedI n 学习试用期是免费的，之后你每月支付 29.99 美元，或每年订阅 19.99 美元(如果你只对这一门课程感兴趣，别忘了取消试用)。 [点击这里了解更多信息](https://www.linkedin.com/learning/financial-basics-everyone-should-know) 。
 
 Watch
 
-## **Alison.com的金融素养课程**
+## **Alison.com 的金融素养课程**
 
-这是一门短期金融课程，需要6到10个小时完成。这个网站很笨重，但是这个课程在个人理财方面做得很好，比如预算、远离债务和退休规划。 [更多信息，点击这里](https://alison.com/course/financial-literacy?irclickid=XJswRbUd4xyLTeUwUx0Mo37TUkBydUWrSWet0o0&utm_source=IR&utm_medium=Digital%20Defynd%20-%20S&partner_type_id=&utm_campaign=ONLINE_TRACKING_LINK&utm_content=&irgwc=1) 。
+这是一门短期金融课程，需要 6 到 10 个小时完成。这个网站很笨重，但是这个课程在个人理财方面做得很好，比如预算、远离债务和退休规划。 [更多信息，点击这里](https://alison.com/course/financial-literacy?irclickid=XJswRbUd4xyLTeUwUx0Mo37TUkBydUWrSWet0o0&utm_source=IR&utm_medium=Digital%20Defynd%20-%20S&partner_type_id=&utm_campaign=ONLINE_TRACKING_LINK&utm_content=&irgwc=1) 。
 
 ## **年轻人的财务规划**
 
-来自在线教育平台Coursera，本课程涵盖财务目标设定、预算、借款、信贷、储蓄、和投资。关于如何成为一名理财规划师，还有最后一个模块可能不是每个人都感兴趣，但其余的材料涵盖了所有的基础知识。如果你每周留出5-7个小时，这个课程就是四周。 [点击这里了解更多信息](https://www.coursera.org/learn/financial-planning) 。
+来自在线教育平台 Coursera，本课程涵盖财务目标设定、预算、借款、信贷、储蓄、和投资。关于如何成为一名理财规划师，还有最后一个模块可能不是每个人都感兴趣，但其余的材料涵盖了所有的基础知识。如果你每周留出 5-7 个小时，这个课程就是四周。 [点击这里了解更多信息](https://www.coursera.org/learn/financial-planning) 。
 
 ## **人人理财:智能决策工具**
 

@@ -1,6 +1,6 @@
 # 背痛者的最佳园艺工具
 
-> 原文:[https://life hacker . com/the-best-gardening-tools-for-any one-back-pain-1848776200](https://lifehacker.com/the-best-gardening-tools-for-anyone-with-back-pain-1848776200)
+> 原文：<https://lifehacker.com/the-best-gardening-tools-for-anyone-with-back-pain-1848776200>
 
 园艺季节充满了希望:新鲜的蔬菜、美丽的花朵和成就感。B 但是它也可以是一种— 字面意思— 颈部(和背部)的疼痛。跪、蹲、伸、抬、拉都是花园养护的一部分，有时这些事情甚至会让最热情的园丁也感到头疼。防止受伤会让你在院子里的时光更加愉快。这里有几个工具可以让你的拇指保持绿色，脊椎保持挺直。
 
@@ -20,11 +20,11 @@ Watch
 
 还有 [滚动凳](https://www.hayneedle.com/product/miraclegrorollnkneel4in1gardenaccessory.cfm?source=pla&kwid=GardeningAccessories%20level05&tid=DFOM005-1&srsltid=AWLEVJxidBqano0D3y1ybn_fk9WFmirXWEFLUYCIyS91EfdgLqdOdUSAmLA) 兼作储物和护膝，让你背上的装备更轻松，也是。对于那些已经有背部问题，但仍然迫不及待地想涉足污垢的人来说，一辆 [花园滑板车](https://www.plowhearth.com/https://www.plowhearth.com/p/55703?aff=6443) 是一个很好的选择。这些凳子比一般的花园凳子更结实，让你在工作时可以坐着。
 
-## 试用e xtra手柄和加长件
+## 试用 e xtra 手柄和加长件
 
 使用铲子、耙子和水管等工具经常会导致背痛。使用加长件和附件可以减少你背上的压力，让这些工具使用起来更舒适。在铲子、耙子或锄头上放一个 [第二手柄](https://www.homedepot.com/p/Heft-18-in-Ergonomic-Back-saving-Multi-tool-Secondary-Handle-Pack-of-2-HEFT-STD-2/302006759?g_store=&source=shoppingads&locale=en-US&pla&mtc=Shopping-BF-F_Brand-G-Multi-NA-Multi-NA-Feed-PLA_LIA-NA-NA-Catchall_PLA&cm_mmc=Shopping-BF-F_Brand-G-Multi-NA-Multi-NA-Feed-PLA_LIA-NA-NA-Catchall_PLA-71700000014585962-58700001236285396-92700067144412302&gclid=Cj0KCQjwgMqSBhDCARIsAIIVN1XZw9ib_Wde0P7WW-pKUL_BwLozNgSk2bKyXdUgddIC_hU0Fl3zt_0aAoDyEALw_wcB&gclsrc=aw.ds) 以使用更多杠杆是使用这些工具时保持直立的一个好方法。
 
-要想少弯腰少蹲地浇水，试试aT2】浇水棒T4。在院子里工作时，站得更直，保持下背部不紧张，将有助于防止受伤。
+要想少弯腰少蹲地浇水，试试 aT2】浇水棒 T4。在院子里工作时，站得更直，保持下背部不紧张，将有助于防止受伤。
 
 ## 立式除草机
 

@@ -1,6 +1,6 @@
 # 用推扫把代替铲子来清扫小雪
 
-> 原文:[https://life hacker . com/use-a-push-broom-for-light-snow-而不是-铲子-1846306234](https://lifehacker.com/use-a-push-broom-for-light-snow-instead-of-a-shovel-1846306234)
+> 原文：<https://lifehacker.com/use-a-push-broom-for-light-snow-instead-of-a-shovel-1846306234>
 
 当我写这篇文章的时候，我在宾夕法尼亚州东部的家外面正在下雪。又来了。雪断断续续地下了很长时间，这几乎很滑稽——除了我们经过“我们到底把这些东西放在哪里？”许多天前的阶段，它仍然继续下跌。不过，我知道这场雪的意思是，很快我丈夫就会穿上外套和靴子，出去打扫。因为如果你有合适的扫帚，当你有几英寸厚的粉状物时，它甚至会比铲子更好。
 

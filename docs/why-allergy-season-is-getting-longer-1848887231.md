@@ -1,12 +1,12 @@
 # 为什么过敏季节变长了
 
-> 原文:[https://life hacker . com/why-allergy-season-being-longer-1848887231](https://lifehacker.com/why-allergy-season-is-getting-longer-1848887231)
+> 原文：<https://lifehacker.com/why-allergy-season-is-getting-longer-1848887231>
 
 如果过敏季节似乎一年比一年糟糕，你可能没有想到。研究花粉时间和运动的科学家发现，过敏季节真的变得越来越长，而且可能更严重。
 
 Watch
 
-关于这个主题的一个很好的读物是 [这篇来自](https://theconversation.com/pollen-season-is-getting-longer-and-more-intense-with-climate-change-heres-what-allergy-sufferers-can-expect-in-the-future-179158) 的对话，它给出了一些最近研究的可读摘要。在过去的几十年里，花粉季节已经变得更长了，春季过敏季节比以前提前了3到22天，秋季花粉季节开始得更晚。
+关于这个主题的一个很好的读物是 [这篇来自](https://theconversation.com/pollen-season-is-getting-longer-and-more-intense-with-climate-change-heres-what-allergy-sufferers-can-expect-in-the-future-179158) 的对话，它给出了一些最近研究的可读摘要。在过去的几十年里，花粉季节已经变得更长了，春季过敏季节比以前提前了 3 到 22 天，秋季花粉季节开始得更晚。
 
 每个花粉季节的确切长度取决于你在哪里以及你对什么过敏。在南方，生长期已经很长了。所以气候变化的影响在北方更明显，那里冬天的天气和春天的温暖有更明显的区别。
 
@@ -16,7 +16,7 @@ Watch
 
 ## 对此该怎么办
 
-这里的大问题是气候变化，这是我们无法在个人层面上解决的。相反，我们需要让企业和政府清醒过来，开始解决问题；开始阅读 [这篇来自Gizmodo](https://gizmodo.com/it-s-now-or-never-we-have-3-years-to-reverse-course-1848745616) 的关于利害攸关问题的文章。
+这里的大问题是气候变化，这是我们无法在个人层面上解决的。相反，我们需要让企业和政府清醒过来，开始解决问题；开始阅读 [这篇来自 Gizmodo](https://gizmodo.com/it-s-now-or-never-we-have-3-years-to-reverse-course-1848745616) 的关于利害攸关问题的文章。
 
 至于你的个人健康，我们有 [条关于过敏体质者的建议](https://lifehacker.com/top-10-ways-to-tame-and-deal-with-your-allergies-1757499217) 。保持室内清洁，在户外呆一段时间后更换衣服，有助于将室内的花粉保持在最低水平。空气净化器也是一个好主意:自从我在卧室安装了一台空气净化器后，我的室内和室外过敏症都有了很大的改善。
 

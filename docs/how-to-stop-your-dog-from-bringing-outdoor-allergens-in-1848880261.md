@@ -1,6 +1,6 @@
 # 如何阻止你的狗把户外过敏原带进你家
 
-> 原文:[https://life hacker . com/how-to-stop-your dog-from-bring-outdoor-过敏原-in-1848880261](https://lifehacker.com/how-to-stop-your-dog-from-bringing-outdoor-allergens-in-1848880261)
+> 原文：<https://lifehacker.com/how-to-stop-your-dog-from-bringing-outdoor-allergens-in-1848880261>
 
 即使是室内的狗有时也必须出去，无论是去大自然的厕所，散步，还是四处跑一跑。正如你所知，在有降水的日子里，室外发生的任何事情都会随之进入室内，包括花粉。
 
@@ -16,7 +16,7 @@ Watch
 
 除了它们的皮毛，花粉还会积聚在它们的脚上(包括头顶、指甲之间)、耳朵里、胡须上或面部毛发上——几乎任何地方。
 
-得克萨斯州怀特豪斯的怀特豪斯兽医医院的兽医萨拉·奥乔亚(DVM) 和SeniorTailWaggers.com告诉Lifehacker说:“这些[花粉]可以很容易地快速转移到你的房子里和家具上。”。"很多时候你甚至可以在它们的皮毛上看到花粉"
+得克萨斯州怀特豪斯的怀特豪斯兽医医院的兽医萨拉·奥乔亚(DVM) 和 SeniorTailWaggers.com 告诉 Lifehacker 说:“这些[花粉]可以很容易地快速转移到你的房子里和家具上。”。"很多时候你甚至可以在它们的皮毛上看到花粉"
 
 ## 如何防止你的狗把过敏原带进你家
 

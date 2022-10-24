@@ -1,8 +1,8 @@
 # 如何不粗鲁地结束令人讨厌的谈话
 
-> 原文:[https://life hacker . com/how-to-end-a-noise-conversation-without-be-rude-1849469617](https://lifehacker.com/how-to-end-an-annoying-conversation-without-being-rude-1849469617)
+> 原文：<https://lifehacker.com/how-to-end-an-annoying-conversation-without-being-rude-1849469617>
 
-闲聊的一个被低估的障碍斗争不是如何让谈话继续下去，而是如何优雅地让它死去。也许对方提起了2016年的选举。或者他们想开始的播客。或者他们的离婚。不管怎样，你都在拼命寻找一个出口标志，这样你就可以继续前进，和其他人交谈，*任何人*其他人。
+闲聊的一个被低估的障碍斗争不是如何让谈话继续下去，而是如何优雅地让它死去。也许对方提起了 2016 年的选举。或者他们想开始的播客。或者他们的离婚。不管怎样，你都在拼命寻找一个出口标志，这样你就可以继续前进，和其他人交谈，*任何人*其他人。
 
 Watch
 

@@ -1,6 +1,6 @@
 # 使用谷歌新的价格比较工具找到划算的交易
 
-> 原文:[https://life hacker . com/find-great-deals-with-Google-new-price-comparison-tool-1845468034](https://lifehacker.com/find-great-deals-with-googles-new-price-comparison-tool-1845468034)
+> 原文：<https://lifehacker.com/find-great-deals-with-googles-new-price-comparison-tool-1845468034>
 
 随着假期的临近，对于那些害怕网上购物的人来说，这里有一些好消息:谷歌正在让在谷歌购物上比较价格变得更加容易。
 
@@ -10,7 +10,7 @@ Watch
 
 虽然这一功能仍在推出，这意味着你可能还看不到它，但这里有三种方法可以通过谷歌比较一件商品的价格:
 
-*   在谷歌购物手机app中找到( [安卓](https://play.google.com/store/apps/details?id=com.google.android.apps.shopping.express&hl=en_US&gl=US) / [iOS](https://apps.apple.com/us/app/google-shopping-compare-buy/id690229094) )
+*   在谷歌购物手机 app 中找到( [安卓](https://play.google.com/store/apps/details?id=com.google.android.apps.shopping.express&hl=en_US&gl=US) / [iOS](https://apps.apple.com/us/app/google-shopping-compare-buy/id690229094) )
 *   在上搜索[shopping.google.com](http://shopping.google.com)T3】
 *   使用常规的谷歌搜索，点击结果页面顶部的**“购物”**标签。
 

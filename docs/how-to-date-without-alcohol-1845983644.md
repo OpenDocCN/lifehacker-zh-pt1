@@ -1,6 +1,6 @@
 # 如何不喝酒约会
 
-> 原文:[https://life hacker . com/how-date-without-alcohol-1845983644](https://lifehacker.com/how-to-date-without-alcohol-1845983644)
+> 原文：<https://lifehacker.com/how-to-date-without-alcohol-1845983644>
 
 约会是艰难的。如果你正在真诚地尝试寻找一个特别的人，这就要求你接受一定程度的脆弱。和一个按照的传统思维，约会中尴尬和焦虑的成分可以通过喝酒得到一定程度的缓解。
 
@@ -18,7 +18,7 @@ Watch
 
 根据恋爱咨询平台 [Relationup](https://www.relationup.com/) 的创始人兼首席恋爱顾问朗达·米尔拉德 的说法，在第一次约会时执行一项共同的任务可以让一段新的恋情有一个良好的开端。
 
-2019年她 [告诉奔忙](https://www.bustle.com/p/21-sober-first-date-ideas-where-your-personality-can-really-shine-18370904) :
+2019 年她 [告诉奔忙](https://www.bustle.com/p/21-sober-first-date-ideas-where-your-personality-can-really-shine-18370904) :
 
 > 人们通过一起经历和参与一项任务来建立联系。这个活动本身创造了一个互动的机会，这种机会在你们礼貌地坐在桌子对面时是不会发生的。在一项活动中，你在协商、妥协、合作、要求、分享，并且经常朝着一个共同的目标努力。
 
@@ -34,7 +34,7 @@ Watch
 
 在最近的一篇特写中，《纽约时报》的 [提到了几个:](https://www.nytimes.com/2020/12/29/fashion/weddings/finding-love-without-alcohol.html)
 
-> 在传统的约会应用程序之外，还有在线平台，如 [12StepMatch](https://www.12stepmatch.com/) 、 [恋爱恢复期](https://loveinrecovery.com/) 和 [单身和清醒](https://singleandsober.com/) 据了解，在那里没有人喝酒。 [Loosid app](https://loosidapp.com/) ，一个2018年开始的清醒社交网络，提供无酒指南、聊天群和清醒的约会平台。
+> 在传统的约会应用程序之外，还有在线平台，如 [12StepMatch](https://www.12stepmatch.com/) 、 [恋爱恢复期](https://loveinrecovery.com/) 和 [单身和清醒](https://singleandsober.com/) 据了解，在那里没有人喝酒。 [Loosid app](https://loosidapp.com/) ，一个 2018 年开始的清醒社交网络，提供无酒指南、聊天群和清醒的约会平台。
 
 如果你不介意网上约会，这是清醒单身人士的绝佳刷卡方式。
 

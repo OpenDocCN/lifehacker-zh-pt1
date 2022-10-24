@@ -1,6 +1,6 @@
 # 现在在公共交通工具上必须戴口罩
 
-> 原文:[https://life hacker . com/masks-are-now-mandatory-on-public-transit-1846174383](https://lifehacker.com/masks-are-now-mandatory-on-public-transit-1846174383)
+> 原文：<https://lifehacker.com/masks-are-now-mandatory-on-public-transit-1846174383>
 
 从今天开始，疾病预防控制中心正式要求旅客在火车、飞机、公共汽车、出租车、乘坐股票和其他形式的“公共交通工具”上戴口罩这个命令， [，你可以在这里读到](https://www.cdc.gov/quarantine/pdf/Mask-Order-CDC_GMTF_01-29-21-p.pdf) ，提供了一个严格的定义，什么算“面具”——头巾和面罩不算。
 
@@ -12,9 +12,9 @@ Watch
 
 如果你拒绝戴口罩，司机或乘务员应该拒绝为你服务。如果你在旅途中摘下面具并拒绝戴上，他们会把你踢出去。你也违反了联邦法律。
 
-新规定不适用于为个人用途驾驶自己汽车的人，但它适用于优步和Lyft等拼车公司的司机和乘客。
+新规定不适用于为个人用途驾驶自己汽车的人，但它适用于优步和 Lyft 等拼车公司的司机和乘客。
 
-两岁以下的儿童或因残疾而无法安全佩戴口罩的人不需要佩戴口罩。司机或乘务人员可以要求你提供证明你有相关残疾的文件。(以下是为什么 [这不是HIPAA违规](https://lifehacker.com/hipaa-doesnt-mean-you-cant-ask-people-why-they-arent-we-1844519626) )。)
+两岁以下的儿童或因残疾而无法安全佩戴口罩的人不需要佩戴口罩。司机或乘务人员可以要求你提供证明你有相关残疾的文件。(以下是为什么 [这不是 HIPAA 违规](https://lifehacker.com/hipaa-doesnt-mean-you-cant-ask-people-why-they-arent-we-1844519626) )。)
 
 ### 我能摘下来吗？
 
@@ -24,7 +24,7 @@ Watch
 
 ### **什么算口罩？**
 
-CDC [将](https://www.cdc.gov/quarantine/masks/mask-travel-guidance.html) 定义为可接受的口罩，包括N95s、外科口罩和大多数布口罩。这个面具还得用 [捂着你那该死的鼻子](https://lifehacker.com/put-your-mask-over-your-damn-nose-1844132568) 来数。
+CDC [将](https://www.cdc.gov/quarantine/masks/mask-travel-guidance.html) 定义为可接受的口罩，包括 N95s、外科口罩和大多数布口罩。这个面具还得用 [捂着你那该死的鼻子](https://lifehacker.com/put-your-mask-over-your-damn-nose-1844132568) 来数。
 
 <aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Masks Are Now Mandatory on Public Transit](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/put-your-mask-over-your-damn-nose-1844132568)</aside>
 

@@ -1,6 +1,6 @@
 # 如何在工作中不再是一个超额完成者(以及为什么你应该这样做)
 
-> 原文:[https://life hacker . com/how-to-stop-be-a-over-achieveer-in-work-why-you-1849570011](https://lifehacker.com/how-to-stop-being-an-overachiever-at-work-and-why-you-1849570011)
+> 原文：<https://lifehacker.com/how-to-stop-being-an-overachiever-at-work-and-why-you-1849570011>
 
 所以你认为自己是安静放弃者 的对立面(如果你没听说过，这是一个严重的用词不当)。相反，你是 [一个超额完成者](https://lifehacker.com/how-to-know-if-youre-an-overachiever-1844178406)——总是努力完成越来越多的事情。正如我们之前说过的，过度工作带来的压力会适得其反，实际上损害了你做好工作的能力。即使你喜欢把所有的时间和精力都投入到工作中，在你过度劳累之前设定界限也是很重要的。
 

@@ -1,6 +1,6 @@
 # 我们把碳水化合物都算错了
 
-> 原文:[https://life hacker . com/were-counting-carbs-all-wrong-1847652381](https://lifehacker.com/were-counting-carbs-all-wrong-1847652381)
+> 原文：<https://lifehacker.com/were-counting-carbs-all-wrong-1847652381>
 
 对于我们中的许多人来说，我们的营养方法包括计算碳水化合物，无论是遵循酮或低碳水化合物饮食，还是瞄准每天特定比例的宏。我们也倾向于根据标准将食物分为“好的碳水化合物”和“坏的碳水化合物”，比如它们是否是快速消化的碳水化合物或者它们是否有更多的纤维。
 

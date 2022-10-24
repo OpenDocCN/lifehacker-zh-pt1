@@ -1,12 +1,12 @@
 # 为什么你需要在感恩节前去当地的旧货店
 
-> 原文:[https://life hacker . com/why-you-before-th-1848024398](https://lifehacker.com/why-you-need-to-visit-your-local-thrift-store-before-th-1848024398)
+> 原文：<https://lifehacker.com/why-you-need-to-visit-your-local-thrift-store-before-th-1848024398>
 
 如果你有一个肉卤盘，你可能一年用一次。也许两次。如果你没有肉卤盘，你可能从未想过你需要它。如果你不主持感恩节，你就不需要:你不需要一个肉卤盘。你不需要一个大盘子来盛火鸡。你不需要馅饼服务器。但是如果你是感恩节的主人呢？嗯，你需要这些东西，而你当地的旧货店是找到它们的最好地方。现在就走。
 
 Watch
 
-我喜欢在 [餐厅供应商店](https://lifehacker.com/why-the-restaurant-supply-store-will-be-the-hero-of-you-1847982785) 购买刀具、砧板和存储容器，但商誉是我最喜欢购买“零件”的地方在它的墙壁里，我发现了e 命名的涂层铸铁荷兰烤箱(大约14美元)，许多漂亮的上菜勺子(每个1 美元)，可爱的吧台，以及一块漂亮的比利时 [Descoware](https://en.wikipedia.org/wiki/Descoware) 售价整整8美元。(几天后，我在一家“正规”古董店看到了同样的作品，价格是它的五倍)。
+我喜欢在 [餐厅供应商店](https://lifehacker.com/why-the-restaurant-supply-store-will-be-the-hero-of-you-1847982785) 购买刀具、砧板和存储容器，但商誉是我最喜欢购买“零件”的地方在它的墙壁里，我发现了 e 命名的涂层铸铁荷兰烤箱(大约 14 美元)，许多漂亮的上菜勺子(每个 1 美元)，可爱的吧台，以及一块漂亮的比利时 [Descoware](https://en.wikipedia.org/wiki/Descoware) 售价整整 8 美元。(几天后，我在一家“正规”古董店看到了同样的作品，价格是它的五倍)。
 
 大盘子、沙拉勺、上菜勺、沙拉碗、砂锅菜、开胃菜、面包篮、酒杯、肉卤盘——所有这些宝贝都可以在旧货店以便宜的价格买到——这个价格点对我来说很重要，尤其是对那些不会日常使用的物品。这也是一个收集餐具、备用盘子和咖啡杯的好地方(这样你就可以给每个人*提供咖啡和他们的馅饼】。*
 

@@ -1,6 +1,6 @@
 # 冬天不要打开挡风玻璃雨刷
 
-> 原文:[https://life hacker . com/stop-put-put-your-winter-weathe-1846312964](https://lifehacker.com/stop-putting-your-windshield-wipers-up-in-winter-weathe-1846312964)
+> 原文：<https://lifehacker.com/stop-putting-your-windshield-wipers-up-in-winter-weathe-1846312964>
 
 那些在每年冬天(有时也是秋天和春天)都有很多冰和雪的地方长大和/或学习如何驾驶的人，可能多年来已经养成了一些习惯，帮助他们适应不愉快的条件。又或许，你刚开始做某件事是因为你父母就是这么做的，你从来没有真正质疑过。
 
@@ -10,7 +10,7 @@ Watch
 
 ### 放下雨刷
 
-正如Williams在一篇为Drive 撰写的文章中对 [所做的解释，将你的挡风玻璃刮水器放置在冬季的空中是为了避免它们在挡风玻璃上冻结(因此，卡住)。这是可以理解的。](https://www.thedrive.com/news/39327/dont-put-your-windshield-wipers-up-in-winter)
+正如 Williams 在一篇为 Drive 撰写的文章中对 [所做的解释，将你的挡风玻璃刮水器放置在冬季的空中是为了避免它们在挡风玻璃上冻结(因此，卡住)。这是可以理解的。](https://www.thedrive.com/news/39327/dont-put-your-windshield-wipers-up-in-winter)
 
 然而，他说这样做实际上弊大于利。:
 

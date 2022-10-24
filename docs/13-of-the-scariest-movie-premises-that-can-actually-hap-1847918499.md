@@ -1,6 +1,6 @@
-# 13个可能发生的最恐怖的电影场景
+# 13 个可能发生的最恐怖的电影场景
 
-> 原文:[https://life hacker . com/13-of-the-terrible-movie-premises-the-can-actual-hap-1847918499](https://lifehacker.com/13-of-the-scariest-movie-premises-that-can-actually-hap-1847918499)
+> 原文：<https://lifehacker.com/13-of-the-scariest-movie-premises-that-can-actually-hap-1847918499>
 
 作为一个有点理性，有点成熟的人，我可以处理鬼片。一旦电影结束，我就可以安全地恢复正常的生活，因为我知道那些鬼魂、恶魔和僵尸可能伤害不了我。但是心理惊悚片？入室抢劫吗？报复心强的前恋人？这是那种让我毛骨悚然的恐怖电影，即使灯亮了，我也不会忘记。
 
@@ -10,9 +10,9 @@
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-oaQjuZXZVaM&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-oaQjuZXZVaM&start=0) 
 
-不要和2000年的同名电影混淆，*《守望者》* (2016)基于 [德里克和](https://www.thecut.com/2018/11/the-haunting-of-657-boulevard-in-westfield-new-jersey.html) 玛利亚·布罗德斯的经历，一对现实生活中的夫妇搬进了他们梦想中的房子，却被一个匿名的跟踪者折磨。当然，跟踪和入室抢劫已经够吓人的了。再加上死鸟和鸟面具的图案，你会彻底被吓到。
+不要和 2000 年的同名电影混淆，*《守望者》* (2016)基于 [德里克和](https://www.thecut.com/2018/11/the-haunting-of-657-boulevard-in-westfield-new-jersey.html) 玛利亚·布罗德斯的经历，一对现实生活中的夫妇搬进了他们梦想中的房子，却被一个匿名的跟踪者折磨。当然，跟踪和入室抢劫已经够吓人的了。再加上死鸟和鸟面具的图案，你会彻底被吓到。
 
-**哪里看:**亚马逊Prime
+**哪里看:**亚马逊 Prime
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-eIvbEC8N3cA&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-eIvbEC8N3cA&start=0) 
 
@@ -22,7 +22,7 @@
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-4sYSyuuLk5g&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-4sYSyuuLk5g&start=0) 
 
-这部2011年的惊悚片去年又开始流行，出于一些难以想象的原因，就像我们之前说过的 [，它完全值得重温](https://lifehacker.com/its-worth-watching-contagion-again-1845257759) 。看着全球疫情开始时社会崩溃。神经病。
+这部 2011 年的惊悚片去年又开始流行，出于一些难以想象的原因，就像我们之前说过的 [，它完全值得重温](https://lifehacker.com/its-worth-watching-contagion-again-1845257759) 。看着全球疫情开始时社会崩溃。神经病。
 
 **去哪里看:**数码租赁
 
@@ -48,7 +48,7 @@
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-0Fv3gU-ed7Y&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-0Fv3gU-ed7Y&start=0) 
 
-坦率地说，当谈到突出M. Night Shyamalan romp时，我宁愿花一些时间在 [让你变老的海滩](https://knowyourmeme.com/memes/the-beach-that-makes-you-old) 。唉，所有夏马兰式的转折中最有可能的发生在*之行。*两个孩子去一个偏远的农场看望他们的祖父母，但是孩子们发现这对老夫妇参与了令人深感不安的活动，而孩子们回家的机会似乎随着时间的流逝越来越渺茫。
+坦率地说，当谈到突出 M. Night Shyamalan romp 时，我宁愿花一些时间在 [让你变老的海滩](https://knowyourmeme.com/memes/the-beach-that-makes-you-old) 。唉，所有夏马兰式的转折中最有可能的发生在*之行。*两个孩子去一个偏远的农场看望他们的祖父母，但是孩子们发现这对老夫妇参与了令人深感不安的活动，而孩子们回家的机会似乎随着时间的流逝越来越渺茫。
 
 **在哪里看:**富博电视、直播电视、数码租赁
 
@@ -62,7 +62,7 @@
 
 快讯:鲨鱼很可怕。你猜怎么着？我不在乎你那些关于鲨鱼袭击有多罕见的“统计数据”。幸运的是，我并不孤单:与鲨鱼相关的恐怖事件并不少见，无论你是《大白鲨》的经典粉丝，还是开明的《T2》的欣赏者。
 
-《开放水域》是《T2》[,大致是根据汤姆和艾琳·朗尼根的真实故事](https://screenrant.com/open-water-movie-true-story-shark-encounter-explained/) 改编的，他们在1998年和一个潜水小组去大堡礁潜水，却意外地被遗忘在鲨鱼出没的水域。
+《开放水域》是《T2》[,大致是根据汤姆和艾琳·朗尼根的真实故事](https://screenrant.com/open-water-movie-true-story-shark-encounter-explained/) 改编的，他们在 1998 年和一个潜水小组去大堡礁潜水，却意外地被遗忘在鲨鱼出没的水域。
 
 **在哪里看:**富博电视和数码租赁
 

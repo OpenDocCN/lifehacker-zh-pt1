@@ -1,12 +1,12 @@
 # 看在上帝的份上，请不要把汽油随便装在容器里
 
-> 原文:[https://life hacker . com/for-the-love-of-god-please-not-put-in-random-1846889530](https://lifehacker.com/for-the-love-of-god-please-dont-put-gasoline-in-random-1846889530)
+> 原文：<https://lifehacker.com/for-the-love-of-god-please-dont-put-gasoline-in-random-1846889530>
 
 非常时期需要非常手段，但如果你所在的地区汽油短缺，这并不是一个很好的理由来给水瓶或塑料袋加气。如果你必须储存汽油，但是把你的汽油*储存在合适的汽油罐里*。
 
 Watch
 
-如果你只是通过将汽油注入你的汽车来与它互动，你可能会简单地认为它是某种能让汽车行驶的神奇果汁。但是它也有其他的物理和化学特性。你大概知道我 t的 [惊人的易燃](https://www.youtube.com/watch?v=fF0gOFkq1w0) 。还有，我tT9】融塑T11】。
+如果你只是通过将汽油注入你的汽车来与它互动，你可能会简单地认为它是某种能让汽车行驶的神奇果汁。但是它也有其他的物理和化学特性。你大概知道我 t 的 [惊人的易燃](https://www.youtube.com/watch?v=fF0gOFkq1w0) 。还有，我 tT9】融塑 T11】。
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-ZzrNBXxyUJ4&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-ZzrNBXxyUJ4&start=0) 
 
@@ -18,7 +18,7 @@ Watch
 
 发泄和压力是怎么回事？汽油是一种液体，它很想变成气体。它会随着时间的推移而蒸发，其烟雾特别易燃。如果你曾经关注过一部有汽车追逐镜头的动作片，你会回忆起汽油 [爆炸](https://youtu.be/Bf36kO50YBk?t=628) 。
 
-这也意味着你真的不想储存大量的汽油，无论是在一辆一辆[捆在你汽车](https://twitter.com/senpizzo/status/1392621795203747844?s=20)T5】后备箱里的袋子里，还是在一辆一辆[绑在拖车](https://twitter.com/evren__7/status/1392279838740733958)T10】上的巨型油箱里。检查你当地的法规:在许多地区，没有特别的许可，你不能在你的房子里或你的财产上有超过25加仑的汽油。(还有，是的，最好把它放在一个不与你家相连的棚子或车库之类的地方。)
+这也意味着你真的不想储存大量的汽油，无论是在一辆一辆[捆在你汽车](https://twitter.com/senpizzo/status/1392621795203747844?s=20)T5】后备箱里的袋子里，还是在一辆一辆[绑在拖车](https://twitter.com/evren__7/status/1392279838740733958)T10】上的巨型油箱里。检查你当地的法规:在许多地区，没有特别的许可，你不能在你的房子里或你的财产上有超过 25 加仑的汽油。(还有，是的，最好把它放在一个不与你家相连的棚子或车库之类的地方。)
 
 汽油在高温下蒸发得更快，所以你要保持它的凉爽。请不要在后备箱或后座装着大量汽油的情况下开车；内置油箱已经够危险了，你的汽车设计者努力工作，防止它在发生事故时撞死你。
 

@@ -1,18 +1,18 @@
 # 当你独自抚养孩子时，如何度过就寝时间
 
-> 原文:[https://life hacker . com/how-to-get-through-bedrome-when-you-re-solo-育儿-1848166666](https://lifehacker.com/how-to-get-through-bedtime-when-you-re-solo-parenting-1848166666)
+> 原文：<https://lifehacker.com/how-to-get-through-bedtime-when-you-re-solo-parenting-1848166666>
 
 如果你是小孩子的父母，你可能会对每晚的就寝时间感到有些恐惧。有如此多的事情要做，移动，光滑的部分，亢奋的孩子，和卫生危险(见:洗澡水，饮水)要处理——加上对混乱和拖延的无与伦比的胃口，似乎在就寝时间倒计时开始时就开始了。
 
 Watch
 
-在我的房子里，有赤裸的侧手翻，听起来像踩踏的走廊追逐，还有足以损坏耳膜的尖叫声。当我还在为晚餐后厨房没有打扫干净而焦虑时，当所有的噪音在晚上9点左右结束时，我会有这种焦虑，这是一个争吵最少的美好夜晚。
+在我的房子里，有赤裸的侧手翻，听起来像踩踏的走廊追逐，还有足以损坏耳膜的尖叫声。当我还在为晚餐后厨房没有打扫干净而焦虑时，当所有的噪音在晚上 9 点左右结束时，我会有这种焦虑，这是一个争吵最少的美好夜晚。
 
 唯一比作为一个混乱的家长标签团队的一部分试图管理所有疯狂的能量更糟糕的事情是什么？自己做。我们向日复一日这样做的单亲父母致敬——你可能很久以前就掌握了这个游戏。对于那些因为配偶偶尔不在而被迫独自就寝的人，这里有一些建议可以帮助你毫发无损地到达就寝时间的另一边。
 
 ## **早点开始他们的就寝时间**
 
-如果你和你的伴侣能在45分钟内一起完成，你应该为自己安排至少一个半小时的预算。预料到每件事都将花费更长的时间，并为通常花费的时间做两倍的预算。然后，你可以放松对准时的限制，避免因为每一次延误而变得(更加)不正常，而不是和一个无法实现的最后期限赛跑，沉浸在你落后了并且每个人明天都不可能醒来的无声担忧中。
+如果你和你的伴侣能在 45 分钟内一起完成，你应该为自己安排至少一个半小时的预算。预料到每件事都将花费更长的时间，并为通常花费的时间做两倍的预算。然后，你可以放松对准时的限制，避免因为每一次延误而变得(更加)不正常，而不是和一个无法实现的最后期限赛跑，沉浸在你落后了并且每个人明天都不可能醒来的无声担忧中。
 
 ## 准备好所有的东西
 
@@ -34,4 +34,4 @@ Watch
 
 虽然不太理想，但多一点屏幕时间可以让独自睡觉变得可以忍受。在我们家，我们用睡前表演作为诱饵，让他们快速完成动作。谁先准备好，谁就有第一次表演的机会。(如果他们每个人都有个人设备，那就更容易了。)
 
-也不要回避使用计时器。您可以设置它用于淋浴、睡衣、和刷牙，以及用于所有电视/ipad需要关闭的时候。如果你不喜欢更多的屏幕时间，可以使用贴纸图表或 [睡前清单](https://www.etsy.com/listing/865728255/kids-bedtime-checklist-chore-chart-kid?gpla=1&gao=1&&utm_source=google&utm_medium=cpc&utm_campaign=shopping_us_e-paper_and_party_supplies-paper-calendars_and_planners-other&utm_custom1=_k_CjwKCAiAhreNBhAYEiwAFGGKPOCRGVKxLyYU-GDU-wFxaFoaJzRueGXIqcVsqny7f_8aTrbsfzRKShoCnHQQAvD_BwE_k_&utm_content=go_12563207983_123128383561_507186760546_pla-315469720974_c__865728255_12768591&utm_custom2=12563207983&gclid=CjwKCAiAhreNBhAYEiwAFGGKPOCRGVKxLyYU-GDU-wFxaFoaJzRueGXIqcVsqny7f_8aTrbsfzRKShoCnHQQAvD_BwE) 来帮助你。你可以为他们设定一个完成所有任务的目标时间，只要目标时间到了，就额外提供10分钟他们喜欢的活动。
+也不要回避使用计时器。您可以设置它用于淋浴、睡衣、和刷牙，以及用于所有电视/ipad 需要关闭的时候。如果你不喜欢更多的屏幕时间，可以使用贴纸图表或 [睡前清单](https://www.etsy.com/listing/865728255/kids-bedtime-checklist-chore-chart-kid?gpla=1&gao=1&&utm_source=google&utm_medium=cpc&utm_campaign=shopping_us_e-paper_and_party_supplies-paper-calendars_and_planners-other&utm_custom1=_k_CjwKCAiAhreNBhAYEiwAFGGKPOCRGVKxLyYU-GDU-wFxaFoaJzRueGXIqcVsqny7f_8aTrbsfzRKShoCnHQQAvD_BwE_k_&utm_content=go_12563207983_123128383561_507186760546_pla-315469720974_c__865728255_12768591&utm_custom2=12563207983&gclid=CjwKCAiAhreNBhAYEiwAFGGKPOCRGVKxLyYU-GDU-wFxaFoaJzRueGXIqcVsqny7f_8aTrbsfzRKShoCnHQQAvD_BwE) 来帮助你。你可以为他们设定一个完成所有任务的目标时间，只要目标时间到了，就额外提供 10 分钟他们喜欢的活动。

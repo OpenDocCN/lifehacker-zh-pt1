@@ -1,6 +1,6 @@
 # 如何在家里蒸馏自己的水
 
-> 原文:[https://life hacker . com/how-to-distilt-your-own-water-in-home-1848824908](https://lifehacker.com/how-to-distill-your-own-water-at-home-1848824908)
+> 原文：<https://lifehacker.com/how-to-distill-your-own-water-at-home-1848824908>
 
 尽管在商店里找到蒸馏水并不困难，但如果你发现自己需要(或想要)在家自制，你可以很容易地做到。好消息是，你不需要任何花哨的设备来完成这项工作。坏消息是这需要一些时间。以下是需要了解的内容。
 
@@ -20,7 +20,7 @@ Watch
 *   一个较小的锅或其他耐热容器(如金属或玻璃碗)放在较大的锅里
 *   一些锅架(或任何你通常用来拿热锅而不会烫伤自己的东西)
 *   冰
-*   8杯水
+*   8 杯水
 
 除此之外，你还需要一些时间和耐心。最好知道进入它。
 

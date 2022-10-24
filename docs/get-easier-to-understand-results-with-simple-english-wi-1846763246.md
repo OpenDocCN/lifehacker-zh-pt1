@@ -1,6 +1,6 @@
 # 使用“简单英语维基百科”获得更容易理解的结果
 
-> 原文:[https://life hacker . com/get-easy-to-understand-results-with-simple-English-wi-1846763246](https://lifehacker.com/get-easier-to-understand-results-with-simple-english-wi-1846763246)
+> 原文：<https://lifehacker.com/get-easier-to-understand-results-with-simple-english-wi-1846763246>
 
 维基百科是互联网上可以自由获取的公共信息的最后堡垒之一，由于我相对来说没有受到社交媒体上常见的两极分化的破坏，所以在没有被巨魔或广告轰炸的情况下，研究从 [飞机厕所](https://en.wikipedia.org/wiki/Aircraft_lavatory) 到 [亚历山大大帝](https://en.wikipedia.org/wiki/Alexander_the_Great) 的任何东西都会令人耳目一新。但是偶尔你可能会遇到让你头疼的页面。
 
@@ -12,9 +12,9 @@ Watch
 
 ### **如何找到更简单的搜索内容**
 
-如果你正在仔细阅读维基百科的主要条目，比如说，粒子加速器，并且很难找到你需要的，那就改变网址。只需在URL前添加单词“simple”就可以访问这个简单的英文页面，一旦你这样做了你就会注意到en.wikipedia.org/wiki/Particle_accelerator的**变成了simple.wikipedia.org/wiki/Particle_accelerator,的**，后面的链接提供了一个基础知识的节略。****
+如果你正在仔细阅读维基百科的主要条目，比如说，粒子加速器，并且很难找到你需要的，那就改变网址。只需在 URL 前添加单词“simple”就可以访问这个简单的英文页面，一旦你这样做了你就会注意到 en.wikipedia.org/wiki/Particle_accelerator 的**变成了 simple.wikipedia.org/wiki/Particle_accelerator,的**，后面的链接提供了一个基础知识的节略。****
 
-**这个概念目前适用于网站上总共186，000篇文章。你会注意到，这些差异并不一定预示着条目的淡化版本，而是强调简单明了的语言。这是简单英语维基百科背后的主要规则，正如主页上解释的 [。](https://simple.wikipedia.org/wiki/Main_Page)**
+**这个概念目前适用于网站上总共 186，000 篇文章。你会注意到，这些差异并不一定预示着条目的淡化版本，而是强调简单明了的语言。这是简单英语维基百科背后的主要规则，正如主页上解释的 [。](https://simple.wikipedia.org/wiki/Main_Page)**
 
 **果然，简单英语维基百科 上有一个常规的 [维基词条，简单英语维基百科](https://en.wikipedia.org/wiki/Simple_English_Wikipedia) 上写有一个简单英语词条。你会注意到在这个简单的英文页面上，句子更短了，语法更简单了。这是整个概念如何运作的一个容易理解(也相当元)的例子。**
 

@@ -1,8 +1,8 @@
 # 你可以不用重新粉刷就能“温暖”你无聊的白色房间
 
-> 原文:[https://life hacker . com/you-can-warm-your-boring-white-room-without-repaint ti-1848937908](https://lifehacker.com/you-can-warm-up-your-boring-white-room-without-repainti-1848937908)
+> 原文：<https://lifehacker.com/you-can-warm-up-your-boring-white-room-without-repainti-1848937908>
 
-许多人不喜欢家里全是白墙，因为害怕房间会让T2看起来太单调乏味。虽然白色房间*如果不装饰会让*看起来很单调，但有几个设计元素可以让这个空间变得温暖——特别是如果你不想麻烦粉刷或者你在租了一个不允许你改变油漆颜色的地方。
+许多人不喜欢家里全是白墙，因为害怕房间会让 T2 看起来太单调乏味。虽然白色房间*如果不装饰会让*看起来很单调，但有几个设计元素可以让这个空间变得温暖——特别是如果你不想麻烦粉刷或者你在租了一个不允许你改变油漆颜色的地方。
 
 Watch
 

@@ -1,8 +1,8 @@
 # 当然，你可以去南极洲(但以下是你不应该去的原因)
 
-> 原文:[https://life hacker . com/sure-you-can-to-antarctica-but-here-s-why-you-shou-1848589285](https://lifehacker.com/sure-you-can-go-to-antarctica-but-here-s-why-you-shou-1848589285)
+> 原文：<https://lifehacker.com/sure-you-can-go-to-antarctica-but-here-s-why-you-shou-1848589285>
 
-在过去的几年里，南极之旅已经从“罕见而危险的探险”变成了“主流度假”然而，正如众多消息来源所指出的那样——见《纽约时报》报道，或[2014年约翰·奥利弗部分](https://www.youtube.com/watch?v=dH573B1bkHI)——去南极旅游的增长对环境是一个严重的威胁。
+在过去的几年里，南极之旅已经从“罕见而危险的探险”变成了“主流度假”然而，正如众多消息来源所指出的那样——见《纽约时报》报道，或[2014 年约翰·奥利弗部分](https://www.youtube.com/watch?v=dH573B1bkHI)——去南极旅游的增长对环境是一个严重的威胁。
 
 Watch
 

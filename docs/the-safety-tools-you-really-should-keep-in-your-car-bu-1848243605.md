@@ -1,6 +1,6 @@
 # 你真的应该把安全工具放在你的车里，但可能没有
 
-> 原文:[https://life hacker . com/the-safety-tools-you-really-should-keep-in-your-car-bu-1848243605](https://lifehacker.com/the-safety-tools-you-really-should-keep-in-your-car-bu-1848243605)
+> 原文：<https://lifehacker.com/the-safety-tools-you-really-should-keep-in-your-car-bu-1848243605>
 
 拥有应对紧急情况所需的东西很重要，但首先防止紧急情况发生的工具也很重要。我们将两者兼而有之:这里有一些经常被遗忘的要点，当你在路上行驶时，尽可能保证你的车和乘客的安全。
 
@@ -20,7 +20,7 @@ Watch
 
 ## 总是有闪光、灯光或其他信号
 
-万一不幸发生事故，在你等待救援的时候，拥有闪光、灯光和其他信号对保证你的安全是必不可少的。你可以使用这些可以燃烧大约15分钟的 [一次性信号弹](https://www.homedepot.com/p/15-Minute-Emergency-Flares-3-Pack-3153-12A/303911219?source=shoppingads&locale=en-US&&mtc=Shopping-VF-F_D25T-G-D25T-025_001_HAND_TOOLS-GEARWRENCH-NA-Feed-SMART-2231655-WF-Apex_HandTools_Q4_D25T_Paid_Search&cm_mmc=Shopping-VF-F_D25T-G-D25T-025_001_HAND_TOOLS-GEARWRENCH-NA-Feed-SMART-2231655-WF-Apex_HandTools_Q4_D25T_Paid_Search-71700000088409679-58700007477940372-92700067211800262&gclid=Cj0KCQiAzfuNBhCGARIsAD1nu-_plC3ZW8yVC4KWaTgXP6puyPt_CFeuytvqhnWYx6hn12vgnrcsOsQaAhIrEALw_wcB&gclsrc=aw.ds) ，或者你可以投资一些可以多次使用的可充电、超亮的 [LED警示灯](https://www.amazon.com/Rechargeable-Emergency-Lights-Roadside-Flashing-Magnetic/dp/B08DDBNXXG/ref=sr_1_4?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/the-safety-tools-you-really-should-keep-in-your-car-bu-1848243605&asc_source=&crid=K89M6R8PDL72&keywords=rechargeable led road flares&qid=1639973075&s=automotive&sprefix=rechargeable led ,automotive,125&sr=1-4&tag=kinjalifehackerlink-20) 。希望你永远不会用到它们，但是有一个光源以防万一是个好主意。
+万一不幸发生事故，在你等待救援的时候，拥有闪光、灯光和其他信号对保证你的安全是必不可少的。你可以使用这些可以燃烧大约 15 分钟的 [一次性信号弹](https://www.homedepot.com/p/15-Minute-Emergency-Flares-3-Pack-3153-12A/303911219?source=shoppingads&locale=en-US&&mtc=Shopping-VF-F_D25T-G-D25T-025_001_HAND_TOOLS-GEARWRENCH-NA-Feed-SMART-2231655-WF-Apex_HandTools_Q4_D25T_Paid_Search&cm_mmc=Shopping-VF-F_D25T-G-D25T-025_001_HAND_TOOLS-GEARWRENCH-NA-Feed-SMART-2231655-WF-Apex_HandTools_Q4_D25T_Paid_Search-71700000088409679-58700007477940372-92700067211800262&gclid=Cj0KCQiAzfuNBhCGARIsAD1nu-_plC3ZW8yVC4KWaTgXP6puyPt_CFeuytvqhnWYx6hn12vgnrcsOsQaAhIrEALw_wcB&gclsrc=aw.ds) ，或者你可以投资一些可以多次使用的可充电、超亮的 [LED 警示灯](https://www.amazon.com/Rechargeable-Emergency-Lights-Roadside-Flashing-Magnetic/dp/B08DDBNXXG/ref=sr_1_4?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/the-safety-tools-you-really-should-keep-in-your-car-bu-1848243605&asc_source=&crid=K89M6R8PDL72&keywords=rechargeable led road flares&qid=1639973075&s=automotive&sprefix=rechargeable led ,automotive,125&sr=1-4&tag=kinjalifehackerlink-20) 。希望你永远不会用到它们，但是有一个光源以防万一是个好主意。
 
 另一个有用的工具是一面 [反光旗](https://www.amazon.com/Kasteco-Pieces-Travel-Warning-Safety/dp/B098JMNL97/ref=asc_df_B098JMNL97/?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/the-safety-tools-you-really-should-keep-in-your-car-bu-1848243605&asc_source=&hvadid=532888475668&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=9061081&hvnetw=g&hvpone=&hvpos=&hvptwo=&hvqmt=&hvrand=2475591739367939406&hvtargid=pla-1397047667038&linkCode=df0&psc=1&tag=kinjalifehackerlink-20) ，如果你携带的东西超过了你车辆的参数，你可以用它向其他司机发出信号。这也有助于防止事故，并使运输大型物体更加安全。
 

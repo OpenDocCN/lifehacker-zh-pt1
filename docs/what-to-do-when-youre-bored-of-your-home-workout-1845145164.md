@@ -1,8 +1,8 @@
 # 当你厌倦了在家锻炼时该做什么
 
-> 原文:[https://life hacker . com/what-to-do what-what-when-you-born-of-your-home-workout-1845145164](https://lifehacker.com/what-to-do-when-youre-bored-of-your-home-workout-1845145164)
+> 原文：<https://lifehacker.com/what-to-do-when-youre-bored-of-your-home-workout-1845145164>
 
-健身房第一次关门已经六个多月了，如果你再也没有回来，你可能已经厌倦了俯卧撑和爽朗的YouTube健身教练。也许你已经从马车上掉下来了，并且想知道如何激励自己爬回去。
+健身房第一次关门已经六个多月了，如果你再也没有回来，你可能已经厌倦了俯卧撑和爽朗的 YouTube 健身教练。也许你已经从马车上掉下来了，并且想知道如何激励自己爬回去。
 
 Watch
 

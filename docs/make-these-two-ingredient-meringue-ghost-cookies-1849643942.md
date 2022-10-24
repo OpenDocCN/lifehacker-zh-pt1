@@ -1,6 +1,6 @@
 # 制作这种双成分蛋白酥皮幽灵饼干
 
-> 原文:[https://life hacker . com/make-this-two-ingredient-meringue-ghost-cookies-1849643942](https://lifehacker.com/make-these-two-ingredient-meringue-ghost-cookies-1849643942)
+> 原文：<https://lifehacker.com/make-these-two-ingredient-meringue-ghost-cookies-1849643942>
 
 万圣节是糖的代名词，用巧克力、粘虫和糖眼珠子填满饼干是意料之中的事。但是在你吃了第五打涂有橘子奶油的饼干后，有理由想让黄油和糖屑休息一下。好了，请坐在你们的扫帚把上，因为我们已经有了一种只需要两种基本配料的饼干。他们是蛋白甜饼幽灵，他们装饰得很轻，但充满了幽灵季节的精神。
 
@@ -8,12 +8,12 @@ Watch
 
 蛋白酥皮是一种蓬松的甜食，由搅打蛋白和糖制成。没有脂肪参与，这意味着成品饼干轻如鸿毛，脆如木板(嗯，实际上更脆)。搅拌蛋清混合物，直到达到一个僵硬的峰值浓度，使其在烘焙时保持其幽灵般的形状。酥皮饼干不需要更高的烤箱温度来烹饪和激活化学膨松剂，而是使用低热量并在变干时烹饪。烘烤这些饼干是相对被动的，装饰它们可以是不干涉的，也可以是复杂的，只要你觉得合适。
 
-要做丝滑的蛋白酥皮，我通常会选择煮熟的蛋白酥皮，比如瑞士的或者意大利的版本。它们比 [生酥皮](https://www.tasteofhome.com/recipes/vanilla-meringue-cookies/) 更稳定，更小的气泡赋予它更细腻的质地。权衡的结果是，你必须在双层蒸锅上烹饪混合物，瑞士蛋白酥皮或意大利蛋白酥皮或[糖浆，这两者都让人觉得是一个恼人的额外步骤。对于喜欢生酥皮的面包师来说，你可以轻松地搅拌一个T21法式酥皮，因为它们最终会在烤箱中烹制。(如果你有兴趣，这里有更多关于蛋白饼干的](https://lifehacker.com/make-a-double-boiler-using-a-chopstick-and-a-bowl-1825718549) [信息](https://www.marthastewart.com/265977/meringue-basic) 。)
+要做丝滑的蛋白酥皮，我通常会选择煮熟的蛋白酥皮，比如瑞士的或者意大利的版本。它们比 [生酥皮](https://www.tasteofhome.com/recipes/vanilla-meringue-cookies/) 更稳定，更小的气泡赋予它更细腻的质地。权衡的结果是，你必须在双层蒸锅上烹饪混合物，瑞士蛋白酥皮或意大利蛋白酥皮或[糖浆，这两者都让人觉得是一个恼人的额外步骤。对于喜欢生酥皮的面包师来说，你可以轻松地搅拌一个 T21 法式酥皮，因为它们最终会在烤箱中烹制。(如果你有兴趣，这里有更多关于蛋白饼干的](https://lifehacker.com/make-a-double-boiler-using-a-chopstick-and-a-bowl-1825718549) [信息](https://www.marthastewart.com/265977/meringue-basic) 。)
 
 以上链接的食谱包括少量的各种各样的服饰，如盐、酒石膏或提取物。鞑靼奶油或其他酸可以帮助稳定蛋白酥皮并提高升力，如果你想，你可以选择加入，但*不需要*它。我经常做蛋白酥皮，我从不使用那些额外的配料。萃取物有微妙的味道，但同样，没有必要，因为你通常只是添加一点。唯一的必需品是蛋白和糖。其他一切都是额外收获。
 
 一旦你做好了你选择的蛋白酥皮，拿起搅拌器，检查一下它是否处于 [的僵硬状态，而不是干的状态，处于](https://www.thekitchn.com/a-visual-guide-soft-peaks-firm-115557) 的顶峰。如果它站直了，没有倒过来，你就准备好塑造鬼魂了。你可以用一个有普通尖头的裱花袋，或者根本没有尖头。如果你没有裱花袋，就用勺子的背面。准备一个铺有羊皮纸的纸盘。在裱花袋里装满蛋白酥皮，用管子把幽灵挤出来，这些幽灵看起来可能像泪珠或蝌蚪。你可以让“尾巴”卷曲到一边(因为鬼魂总是在移动)，或者给它们胖胖的小胳膊肿块。你可以用勺子做同样的事情。舀一勺到托盘上，用勺子的背面将蛋白酥皮摊开，然后把它做成鬼形状。
 
-将蛋白饼放入200华氏度的烤箱中50分钟。然后，关火，打开烤箱门，把饼干留在里再30分钟。这将有助于冷却饼干，而不会导致裂缝。(如果你经历了裂缝，没关系。毕竟是万圣节；吓人是时尚..)蛋白酥皮将是完全干燥的，不应呈现任何颜色。
+将蛋白饼放入 200 华氏度的烤箱中 50 分钟。然后，关火，打开烤箱门，把饼干留在里再 30 分钟。这将有助于冷却饼干，而不会导致裂缝。(如果你经历了裂缝，没关系。毕竟是万圣节；吓人是时尚..)蛋白酥皮将是完全干燥的，不应呈现任何颜色。
 
 不管你喜欢哪种蛋白酥皮版本(查看 [本帖](https://lifehacker.com/your-cocktail-needs-a-meringue-float-1849591308) 了解瑞士蛋白酥皮的简单比例和方法)，它们都将同样出色地变成幽灵般的令人信服的幽灵。一旦它们冷却，用一支 [可食用墨水笔](https://www.amazon.com/Wilton-609-1192-Writer-Edible-Markers/dp/B01E07UE36/ref=asc_df_B01E07UE36/?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/make-these-two-ingredient-meringue-ghost-cookies-1849643942&asc_source=&hvadid=198094017304&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=9004365&hvnetw=g&hvpone=&hvpos=&hvptwo=&hvqmt=&hvrand=12730894598843262948&hvtargid=pla-318473979053&linkCode=df0&psc=1&tag=kinjalifehackerlink-20) ，融化的巧克力，或者一个小画笔和食用色素在它们上面画出悲伤的小幽灵的脸。或者用削皮刀在蛋白酥皮上戳几个洞，做成眼窝，看起来有点恐怖。

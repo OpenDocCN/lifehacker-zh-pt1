@@ -1,6 +1,6 @@
 # 如何去除洗衣机和烘干机中的宠物毛发
 
-> 原文:[https://life hacker . com/how-to-remove-pet-hair-from your ' s washing-machine-and-dr-1849155006](https://lifehacker.com/how-to-remove-pet-hair-from-your-washing-machine-and-dr-1849155006)
+> 原文：<https://lifehacker.com/how-to-remove-pet-hair-from-your-washing-machine-and-dr-1849155006>
 
 尽管我们爱我们的宠物，有时我们毛茸茸的朋友给我们提供的不仅仅是爱和感情:它们还会在我们的家里和衣服上留下毛发。虽然有很多方法可以处理你所有的毛皮大衣，但不知何故，不管你做什么，总有一些最终会被送进洗衣房。
 
@@ -14,11 +14,11 @@ Watch
 
 ### 清洁机器
 
-在做任何事情之前，先试着 [清洗你的洗衣机。](https://www.k9ofmine.com/get-dog-hair-off-clothes-washer-dryer/) 你可以将1/2杯白醋放入空鼓中，并让它运行一个完整的周期。完成后，用干净、潮湿、不起毛的布擦拭。
+在做任何事情之前，先试着 [清洗你的洗衣机。](https://www.k9ofmine.com/get-dog-hair-off-clothes-washer-dryer/) 你可以将 1/2 杯白醋放入空鼓中，并让它运行一个完整的周期。完成后，用干净、潮湿、不起毛的布擦拭。
 
 ### 先把它们放进烘干机
 
-另一个选择是在洗衣前将衣物放入 [烘干机](https://www.tasteofhome.com/article/laundry-trick-remove-pet-hair/) 中。这里的想法是松开织物上的宠物毛发，使其最终留在绒毛陷阱中。它只需要在低热量或无热量设置下翻滚约10分钟。向衣物中加入一块微湿的干净布，以及干燥片或羊毛干燥球，可以帮助去除更多粘在其他东西上的皮毛。
+另一个选择是在洗衣前将衣物放入 [烘干机](https://www.tasteofhome.com/article/laundry-trick-remove-pet-hair/) 中。这里的想法是松开织物上的宠物毛发，使其最终留在绒毛陷阱中。它只需要在低热量或无热量设置下翻滚约 10 分钟。向衣物中加入一块微湿的干净布，以及干燥片或羊毛干燥球，可以帮助去除更多粘在其他东西上的皮毛。
 
 ### 用醋漂洗你的衣服
 

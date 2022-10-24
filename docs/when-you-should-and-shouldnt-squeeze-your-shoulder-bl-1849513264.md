@@ -1,6 +1,6 @@
 # 何时应该(和不应该)将肩胛骨挤压在一起
 
-> 原文:[https://life hacker . com/when-you-should and-should-squeeze-your should-bl-1849513264](https://lifehacker.com/when-you-should-and-shouldnt-squeeze-your-shoulder-bl-1849513264)
+> 原文：<https://lifehacker.com/when-you-should-and-shouldnt-squeeze-your-shoulder-bl-1849513264>
 
 我们的肩胛骨可以向多个方向移动。它们可以上下滑动，相向或相背，也可以顺时针和逆时针旋转。当你在做一项涉及上背部的运动时，教练有时会将所有这些复杂性归结为“挤压”或“收缩”你的肩胛骨。这不是你应该做的事情。
 
@@ -26,7 +26,7 @@ Watch
 
 *肩胛骨引体向上是引体向上的一个很好的辅助练习。你保持双臂伸直，但要活动上背部肌肉。但是为了从这个练习中得到最大的收获(或者正确地开始引体向上)，你需要适当地移动你的肩胛骨。*
 
-*再说一次，这不是把他们挤在一起。我所知道的scap引体向上的最佳提示是抓住杠，假装你正试图用伸直的手臂把它推到你面前。正如 [这段视频](https://www.youtube.com/watch?v=CG5B_aXsucY) 所展示的，肩胛骨开始的位置是它们的底部彼此远离，几乎朝向你的身体两侧，你想要的运动是在拉下它们的同时将它们旋转回彼此。这个动作大部分来自于你的背阔肌，这些肌肉从你的腋窝一直延伸到你的背部两侧。*
+*再说一次，这不是把他们挤在一起。我所知道的 scap 引体向上的最佳提示是抓住杠，假装你正试图用伸直的手臂把它推到你面前。正如 [这段视频](https://www.youtube.com/watch?v=CG5B_aXsucY) 所展示的，肩胛骨开始的位置是它们的底部彼此远离，几乎朝向你的身体两侧，你想要的运动是在拉下它们的同时将它们旋转回彼此。这个动作大部分来自于你的背阔肌，这些肌肉从你的腋窝一直延伸到你的背部两侧。*
 
 ## *当你在头顶举着一根棍子的时候*
 
@@ -34,7 +34,7 @@ Watch
 
 <figcaption class="sc-1ptbguh-0 hxeMec caption">Snatch & Jerk Overhead Position - Shoulder Blades & Bar</figcaption>* 
 
-*如果你在头顶压杠铃，或者如果你试图在这个位置稳定杠铃(例如，在头顶深蹲、抓举或挺举中)，使用Catalyst Athletics 描述的 [方法。这并不像耸肩或挤压那么简单，但是如果你试一试，你会很快明白。你要将肩胛骨的顶部挤压在一起，然后旋转它们，使外缘(身体一侧)向上。这可以让你在使用背部肌肉稳定肩部的同时，舒适地将手臂举过头顶。](https://www.youtube.com/watch?v=cGTMblARM-c)*
+*如果你在头顶压杠铃，或者如果你试图在这个位置稳定杠铃(例如，在头顶深蹲、抓举或挺举中)，使用 Catalyst Athletics 描述的 [方法。这并不像耸肩或挤压那么简单，但是如果你试一试，你会很快明白。你要将肩胛骨的顶部挤压在一起，然后旋转它们，使外缘(身体一侧)向上。这可以让你在使用背部肌肉稳定肩部的同时，舒适地将手臂举过头顶。](https://www.youtube.com/watch?v=cGTMblARM-c)*
 
 ## *当你蹲着的时候*
 

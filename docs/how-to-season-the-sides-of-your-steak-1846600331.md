@@ -1,6 +1,6 @@
 # 如何给你的牛排调味
 
-> 原文:[https://life hacker . com/how-to-调味牛排-1846600331](https://lifehacker.com/how-to-season-the-sides-of-your-steak-1846600331)
+> 原文：<https://lifehacker.com/how-to-season-the-sides-of-your-steak-1846600331>
 
 好牛排不需要加盐(湿的或干的)。它们不需要复杂的摩擦。他们(通常)不需要腌泡汁。好的排骨可能需要这些东西，但是其他的(T2)总是需要一些调料(T4)，至少是适量的盐。我喜欢确保盐沾到所有的边上，包括边缘，尤其是含有大量脂肪的边缘。(你吃牛排上的棕色脂肪块吗？我一直都是这样，但显然有些人觉得这很“怪异”或“恶心”)
 

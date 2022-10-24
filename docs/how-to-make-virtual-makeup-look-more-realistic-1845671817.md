@@ -1,6 +1,6 @@
 # 如何让虚拟化妆看起来更逼真
 
-> 原文:[https://life hacker . com/how-to-make-virtual-costing-look-more-realistic-1845671817](https://lifehacker.com/how-to-make-virtual-makeup-look-more-realistic-1845671817)
+> 原文：<https://lifehacker.com/how-to-make-virtual-makeup-look-more-realistic-1845671817>
 
 虚拟滤镜在社交媒体上早已流行，但在加速的数字世界中，化虚拟妆是为了 [而不是自拍](https://techcrunch.com/2020/11/12/loreal-rolls-out-a-line-of-virtual-makeup/) 。从数字聚会到专业会议，在视频应用程序中找到皮肤平滑功能或使用滤镜来改变你的外表变得越来越常见。如果你想改变自己的外表，像疫情时代之前那样经常出门，这里有一些让虚拟化妆看起来尽可能真实的建议。
 

@@ -1,6 +1,6 @@
-# 释放蛋黄酱力量的9种方法
+# 释放蛋黄酱力量的 9 种方法
 
-> 原文:[https://life hacker . com/9-ways-to-unlock-the-power-of-the-蛋黄酱-1847114226](https://lifehacker.com/9-ways-to-unlock-the-power-of-mayonnaise-1847114226)
+> 原文：<https://lifehacker.com/9-ways-to-unlock-the-power-of-mayonnaise-1847114226>
 
 我身上最白的一点——而且有很多选择——就是我有多爱蛋黄酱。我觉得很棒。它不仅是几乎所有三明治的重要组成部分，还可以混合或涂抹在各种各样的食物上，带来美味的效果。即使你认为自己是一个骄傲的讨厌蛋黄酱的人，我也鼓励你看一看下面的建议和食谱，其中一些你甚至不能品尝蛋黄酱。相信我，作为一个来自密西西比州北部的白人女士，我知道我在说什么。
 
@@ -12,11 +12,11 @@
 
 枯萎的、看起来可怜的香草仍然有一点味道困在它们的细胞壁里，你可以通过将它们混合到一些蛋黄酱 中来释放那种味道，即使它们已经变成糊状。目标是一杯蛋黄酱对一杯粗略切碎的香草和蒜的比例。如果你处理的是木本植物(如迷迭香或百里香)，把叶子从茎上去掉，但是嫩香草可以整个扔掉。
 
-对于这种特殊的做法，总会有一些下意识的、反蛋黄酱的反弹，但相信我，当我说几汤匙的 [这种优秀的乳化剂](https://lifehacker.com/3-unexpected-things-you-can-do-with-mayo-that-arent-put-1798356585) 会增加你的糊状物中的奶油成分，就像你不会相信的那样。(还有，你就尝不出来了。我后妈从小就 [在我们的土豆泥里加蛋黄酱](https://lifehacker.com/how-to-making-smashing-mashed-potatoes-1820225954) ，直到2016年我才知道。)
+对于这种特殊的做法，总会有一些下意识的、反蛋黄酱的反弹，但相信我，当我说几汤匙的 [这种优秀的乳化剂](https://lifehacker.com/3-unexpected-things-you-can-do-with-mayo-that-arent-put-1798356585) 会增加你的糊状物中的奶油成分，就像你不会相信的那样。(还有，你就尝不出来了。我后妈从小就 [在我们的土豆泥里加蛋黄酱](https://lifehacker.com/how-to-making-smashing-mashed-potatoes-1820225954) ，直到 2016 年我才知道。)
 
 无论你是在烹饪 [鱼](https://lifehacker.com/the-secret-to-perfectly-grilled-fish-mayonnaise-1709142603)[虾](https://lifehacker.com/brush-your-shrimp-with-a-little-mayo-before-grilling-1843907710) 还是 [牛排](https://lifehacker.com/you-can-use-mayonnaise-to-sear-a-steak-1834218246) ，在将它们放入热烤架或煎锅之前，在这些蛋白质的外面刷上一点蛋黄酱，可以促进褐变，同时防止粘连。蛋黄酱的凝胶状化妆品意味着你可以把它准确地放在你想要的地方，没有油溅的风险，并且防止更美味的食物如鲑鱼或对虾被热金属撕碎。对于像牛排这样较硬的蛋白质来说，它创造了一种最好的外壳。
 
-蛋黄酱是一种 [极好的面包基质](https://lifehacker.com/use-mayo-to-bread-chicken-nuggets-1835096685) 。不要蘸鸡蛋和/或牛奶，你可以把它完全均匀地涂在鸡块上，这意味着没有一英寸的nug没有裹上面包屑。你也可以直接给蛋黄酱调味，给你的肉馅和嫩肉馅多一层风味。
+蛋黄酱是一种 [极好的面包基质](https://lifehacker.com/use-mayo-to-bread-chicken-nuggets-1835096685) 。不要蘸鸡蛋和/或牛奶，你可以把它完全均匀地涂在鸡块上，这意味着没有一英寸的 nug 没有裹上面包屑。你也可以直接给蛋黄酱调味，给你的肉馅和嫩肉馅多一层风味。
 
 用一点蛋黄酱代替或补充你的色拉油，你可以做一种更奶油、更梦幻的调味汁。顺便说一句，粘在罐子 边缘的蛋黄酱 [的“最后一点”通常是完美的量，你可以](https://lifehacker.com/make-salad-dressing-with-an-almost-empty-mayo-jar-1835270116) [用几乎空了的罐子](https://lifehacker.com/a-mason-jar-is-the-only-tool-you-need-for-perfectly-emu-1796819745) 把所有的配料一起摇匀。
 

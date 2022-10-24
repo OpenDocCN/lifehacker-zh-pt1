@@ -1,12 +1,12 @@
 # 作为新婚夫妇如何谈债务
 
-> 原文:[https://life hacker . com/how-to-talk-about-debt-as-新婚夫妇-1845139396](https://lifehacker.com/how-to-talk-about-debt-as-newlyweds-1845139396)
+> 原文：<https://lifehacker.com/how-to-talk-about-debt-as-newlyweds-1845139396>
 
-百分之七十的美国人带着债务结婚，典型的是学生贷款和信用卡，T2，美国消费者新闻与商业频道 。最近的一份 [NerdWallet报告](https://www.nerdwallet.com/blog/loans/student-loans/student-loan-debt) 显示，2018年大学毕业生平均欠下29200美元的学生贷款余额，而 [Experian报告](https://www.experian.com/blogs/ask-experian/consumer-credit-review)2019年平均信用卡余额为6194美元。
+百分之七十的美国人带着债务结婚，典型的是学生贷款和信用卡，T2，美国消费者新闻与商业频道 。最近的一份 [NerdWallet 报告](https://www.nerdwallet.com/blog/loans/student-loans/student-loan-debt) 显示，2018 年大学毕业生平均欠下 29200 美元的学生贷款余额，而 [Experian 报告](https://www.experian.com/blogs/ask-experian/consumer-credit-review)2019 年平均信用卡余额为 6194 美元。
 
 Watch
 
-问题是，夫妻可能很难谈论这些债务。根据最近CreditCards.com的一项调查，12%的承认对他们的伴侣隐瞒债务，原因显而易见。“关于债务有很多羞耻和沉默，”凯莉·英格布里森说，她是一位理财教练，在 [Chillax Finance](https://www.chillaxfinance.com) 与LGBTQIA+的客户一起工作。有些人可能会避免债务，因为他们担心判断或开始战斗。
+问题是，夫妻可能很难谈论这些债务。根据最近 CreditCards.com 的一项调查，12%的承认对他们的伴侣隐瞒债务，原因显而易见。“关于债务有很多羞耻和沉默，”凯莉·英格布里森说，她是一位理财教练，在 [Chillax Finance](https://www.chillaxfinance.com) 与 LGBTQIA+的客户一起工作。有些人可能会避免债务，因为他们担心判断或开始战斗。
 
 但是作为新婚夫妇，讨论这些话题是至关重要的——即使这会让人不舒服——因为这可能会影响你们夫妻的财务状况。这里有一些方法来解决这个问题，一起制定一个回报计划。
 

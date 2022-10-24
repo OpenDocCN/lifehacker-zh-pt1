@@ -1,14 +1,14 @@
-# Lifehacker的读者认为，11种最好(也是最差)的食物礼物
+# Lifehacker 的读者认为，11 种最好(也是最差)的食物礼物
 
-> 原文:[https://life hacker . com/11-1848038766](https://lifehacker.com/11-of-the-best-and-worst-food-gifts-according-to-lif-1848038766)
+> 原文：<https://lifehacker.com/11-of-the-best-and-worst-food-gifts-according-to-lif-1848038766>
 
 上周， [我告诉过你我是基本上任何场合都送食物礼物的支持者](https://lifehacker.com/what-are-the-best-and-worst-food-gifts-to-give-during-1848005097) 。我只是从来没有遇到过巧克力饼、饼干或水果的到来，除了喜悦。食品或饮料的礼物，如果经过深思熟虑地为特定的接受者选择，总是会受到欢迎，因为不仅人们*需要*吃，人们通常也不需要(或想要)更多的*东西。*
 
-我让Lifehacker的读者们输入哪些可消耗的礼物是*好的*可消耗的礼物(哪些不是)，你们在评论中提出了想法、意见、建议和一些需要注意的警告:
+我让 Lifehacker 的读者们输入哪些可消耗的礼物是*好的*可消耗的礼物(哪些不是)，你们在评论中提出了想法、意见、建议和一些需要注意的警告:
 
 1.[**EdnasEdibles**](https://kinja.com/EdnasEdibles)指出，“如果你知道这个人喝酒，他们对自己的酒量没问题，而且他们会真的喝你给他们的酒。”否则，你可能会无意中破坏那些试图减少饮酒量的人。
 
-2.你必须考虑任何饮食问题，因为正如[**jjdebenedictis**](https://kinja.com/jjdebenedictis)所说，“我有一堆饮食问题，如果有人给我饼干，那对我来说是一大悲哀，因为我想吃，但不能吃。”(不要让jjdebenedictis难过！)
+2.你必须考虑任何饮食问题，因为正如[**jjdebenedictis**](https://kinja.com/jjdebenedictis)所说，“我有一堆饮食问题，如果有人给我饼干，那对我来说是一大悲哀，因为我想吃，但不能吃。”(不要让 jjdebenedictis 难过！)
 
 有了那个，让我们来讨论一下这个假期你能给的最好和最差的可消费礼物。
 
@@ -16,11 +16,11 @@
 
 “我买了自制的果酱和果冻。你会认为我在奉献某种神的甘露。人们总是要求更多，尤其是李子和草莓品种。”([**phoebecaulfid third**](https://kinja.com/chillywonker)T5)
 
-它*是*众神的甘露，PhoebeCaulfieldTheThird我们知道投入了多少时间和精力。足以威胁8x10的婚姻，事实上:
+它*是*众神的甘露，PhoebeCaulfieldTheThird 我们知道投入了多少时间和精力。足以威胁 8x10 的婚姻，事实上:
 
 “过去，我会做苹果黄油和黑莓果冻(我有无刺的黑莓灌木，生吃有点酸，但做馅饼和果冻很棒)在节假日分发。但是这要花很多时间，我妻子会因为我在厨房花了太多时间而生气。从生苹果中提取苹果黄油几乎是一个全天的项目。”( [**8x10**](https://kinja.com/8x10) )
 
-去年，Lifehacker的工作人员做了一个小小的 [秘密圣诞老人礼物交换](https://lifehacker.com/how-to-organize-a-holiday-gift-exchange-that-people-wil-1847965829) 我的圣诞老人，高级健康编辑Beth Skwarecki，给了我一个 [石墙厨房芥菜](https://www.stonewallkitchen.com/our-mustard-collection-120895.html) 的综艺包，因为她是一个好人，希望我快乐。 [**温迪·罗兹**](https://kinja.com/tiz4tggr) 附和道:
+去年，Lifehacker 的工作人员做了一个小小的 [秘密圣诞老人礼物交换](https://lifehacker.com/how-to-organize-a-holiday-gift-exchange-that-people-wil-1847965829) 我的圣诞老人，高级健康编辑 Beth Skwarecki，给了我一个 [石墙厨房芥菜](https://www.stonewallkitchen.com/our-mustard-collection-120895.html) 的综艺包，因为她是一个好人，希望我快乐。 [**温迪·罗兹**](https://kinja.com/tiz4tggr) 附和道:
 
 "我喜欢，喜欢，喜欢我的调料包，因为我会做饭."
 
@@ -30,7 +30,7 @@
 
 **“如果可能的话:一些本地的，或者更一般地说，一些你能接触到的特别的东西。选项包括你从一次旅行中带回来的东西，当地农场制作的东西，你家乡的特产，当地特别好的商店的东西，你自己制作的东西。不需要太多，比如我的杂货店里有一种特定品牌的果酱，不是特别花哨，但我妈妈非常喜欢，所以她每年都会买一堆。”([](https://kinja.com/gub)**)****
 
- ****在节日期间，品尝第一口自制软糖或薄荷树皮绝对是一种享受。但是到了年底，我们都已经受够了。因此，T2认为易腐食品应该尽早食用(不要经常食用)。
+ ****在节日期间，品尝第一口自制软糖或薄荷树皮绝对是一种享受。但是到了年底，我们都已经受够了。因此，T2 认为易腐食品应该尽早食用(不要经常食用)。
 
 “我妈妈是一名牧师，所以从小到大，我们都会收到一大堆可食用的礼物。最不受欢迎的是各种易腐糖果。不要误解我，我们喜欢当季的第一盘饼干，但到了第六盘或第七盘时，我们需要做出选择，要么为让它们变味而内疚，要么为吃得太糟糕而内疚。”( [**凯文贝克**](https://kinja.com/meloncov) )
 
@@ -46,15 +46,15 @@
 
  **作为曾经*住在乔氏附近*而现在*不住在乔氏附近*的人，这是一个来自[**AdmNaismith**](https://kinja.com/admnaismith)【的温馨体贴的建议:“对于远方的朋友，我用乔氏装满一个美国邮政统一费率箱。尽我所能地填充。”
 
-如果Lifehacker 资深美食作家 Claire Lower 曾经想送我一份礼物，她知道这是她应该送我的，作为对 [不断写作](https://lifehacker.com/the-12-items-from-trader-joes-i-buy-again-and-again-1846693956) [关于所有好吃的](https://lifehacker.com/make-a-filling-seasonal-soup-with-two-trader-joes-produ-1847964471) [乔氏产品](https://lifehacker.com/how-to-pack-a-completely-shelf-stable-picnic-from-trade-1847525516) [我没有机会接触到](https://lifehacker.com/you-should-use-trader-joes-spinach-artichoke-dip-for-1847797074) 。
+如果 Lifehacker 资深美食作家 Claire Lower 曾经想送我一份礼物，她知道这是她应该送我的，作为对 [不断写作](https://lifehacker.com/the-12-items-from-trader-joes-i-buy-again-and-again-1846693956) [关于所有好吃的](https://lifehacker.com/make-a-filling-seasonal-soup-with-two-trader-joes-produ-1847964471) [乔氏产品](https://lifehacker.com/how-to-pack-a-completely-shelf-stable-picnic-from-trade-1847525516) [我没有机会接触到](https://lifehacker.com/you-should-use-trader-joes-spinach-artichoke-dip-for-1847797074) 。
 
 如果你从来没有吃过蘸了焦糖和/或巧克力的大苹果，然后裹上其他可笑(奇妙)的配料，如坚果、棉花糖、太妃糖或糖果，你还活着吗？感谢 [**第三**](https://kinja.com/chillywonker) 提醒我这个选项:
 
-“对于购买的零食，[Prindables夫人焦糖苹果](https://www.mrsprindables.com/) 总是很受欢迎。他们的品种&价值现在不如过去几年，但对于一个奇特的假日挥霍来说仍然是合理的。其中一个足够3到4个人分享。”
+“对于购买的零食，[Prindables 夫人焦糖苹果](https://www.mrsprindables.com/) 总是很受欢迎。他们的品种&价值现在不如过去几年，但对于一个奇特的假日挥霍来说仍然是合理的。其中一个足够 3 到 4 个人分享。”
 
-我个人从来没有吃过Prindables夫人，但是我有过很多次相当于落基山巧克力工厂的*和*，并且我可以同意他们都是1。好吃又2。大到足够几个人分享。(苹果馅饼 [焦糖苹果](https://www.rmcf.com/Apple-Pie-Caramel-Apple-P220.aspx) 是我的最爱，如果你不确定从哪里开始。)
+我个人从来没有吃过 Prindables 夫人，但是我有过很多次相当于落基山巧克力工厂的*和*，并且我可以同意他们都是 1。好吃又 2。大到足够几个人分享。(苹果馅饼 [焦糖苹果](https://www.rmcf.com/Apple-Pie-Caramel-Apple-P220.aspx) 是我的最爱，如果你不确定从哪里开始。)
 
-嗯，也许——这取决于你问的是谁。[**phoebecaulfields第三个**](https://kinja.com/chillywonker) 赞美了那些经常赠送的(也是昂贵的)礼物篮，其中最著名的是它们的梨子:“有一次我收到了一个 [哈利和大卫的篮子](https://www.harryanddavid.com/) ，现在我还在为那些梨子发愁。巧克力裹干果也很不错。我很乐意随时再收到一封。”
+嗯，也许——这取决于你问的是谁。[**phoebecaulfields 第三个**](https://kinja.com/chillywonker) 赞美了那些经常赠送的(也是昂贵的)礼物篮，其中最著名的是它们的梨子:“有一次我收到了一个 [哈利和大卫的篮子](https://www.harryanddavid.com/) ，现在我还在为那些梨子发愁。巧克力裹干果也很不错。我很乐意随时再收到一封。”
 
 但其他人发现篮子定价过高，梨没有宣传的那么好，非梨“填充物”有点儿无聊。
 

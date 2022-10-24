@@ -1,6 +1,6 @@
 # 你应该把蘑菇的鳃去掉吗？
 
-> 原文:[https://life hacker . com/should-you-remove-the-gills-from-your-portobello-mushro-1848868829](https://lifehacker.com/should-you-remove-the-gills-from-your-portobello-mushro-1848868829)
+> 原文：<https://lifehacker.com/should-you-remove-the-gills-from-your-portobello-mushro-1848868829>
 
 我妹妹害怕蘑菇，尤其是蘑菇的鳃。这既有点烦人，又很有趣。作为一个喜欢养活家人(包括这个姐姐)的人，渲染蘑菇超过可识别的程度是乏味的；作为哥哥，这种恐惧症给哥哥提供了很多机会。(这也是让她离开厨房的一个有效方法——只要把一个蘑菇刺面朝外，朝她的大致方向推就行了。)
 

@@ -1,6 +1,6 @@
 # 当你开车时轮胎爆了该怎么办
 
-> 原文:[https://life hacker . com/what-do-what-what-do-what-what-your ' s tire-built-which your-driving-1849184011](https://lifehacker.com/what-to-do-when-your-tire-blows-out-while-youre-driving-1849184011)
+> 原文：<https://lifehacker.com/what-to-do-when-your-tire-blows-out-while-youre-driving-1849184011>
 
 人们学习驾驶的第一件事就是注意你正在做的事情是多么重要。这意味着你不仅要盯着道路(和你周围的车辆)并注意你的速度，还要意识到当你驾驶一辆特定的车辆时通常的感觉。(是顺风车吗？你能感觉到路上的每一次颠簸吗？你明白了。)
 

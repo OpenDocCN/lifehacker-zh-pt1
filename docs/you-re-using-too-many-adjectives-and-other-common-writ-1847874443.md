@@ -1,6 +1,6 @@
 # 你使用了太多的形容词(和其他常见的写作错误，以避免)
 
-> 原文:[https://life hacker . com/you-re-use-too-many-形容词-and-other-common-writ-1847874443](https://lifehacker.com/you-re-using-too-many-adjectives-and-other-common-writ-1847874443)
+> 原文：<https://lifehacker.com/you-re-using-too-many-adjectives-and-other-common-writ-1847874443>
 
 无论你是以写作为生，还是作为工作的一部分，还是尽可能少地写作，因为想到高中英语仍会让你冒冷汗，我们都可以定期提醒一些写作最佳实践，以及要避免的最常见错误。
 
@@ -52,7 +52,7 @@ Watch
 
 *[整本书都写了正确的逗号用法](https://www.amazon.com/dp/B07DYTFHR2/ref=dp-kindle-redirect?_encoding=UTF8&asc_campaign=InlineText&asc_refurl=https://lifehacker.com/you-re-using-too-many-adjectives-and-other-common-writ-1847874443&asc_source=&btkr=1&tag=kinjalifehackerlink-20) ，但这里我们将集中讨论一个常见的错误:逗号拼接。当两个独立的子句用逗号而不是连词或分号连接时，就会出现这种错误。*
 
-*例如:Becky喜欢酷玩乐队，她去了他们的演唱会。*
+*例如:Becky 喜欢酷玩乐队，她去了他们的演唱会。*
 
 *以上两个子句都可以独立存在，应该用连词或分号连接。(或者用句号隔开。)*
 

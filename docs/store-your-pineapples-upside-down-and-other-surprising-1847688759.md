@@ -1,8 +1,8 @@
 # 把你的菠萝倒着存放，还有其他防止水果变质的令人惊讶的方法
 
-> 原文:[https://life hacker . com/store-your-pineapples-opposed-and-other-surprise-1847688759](https://lifehacker.com/store-your-pineapples-upside-down-and-other-surprising-1847688759)
+> 原文：<https://lifehacker.com/store-your-pineapples-upside-down-and-other-surprising-1847688759>
 
-虽然这很好，但是没有一种放之四海而皆准的储藏方法可以最大限度地保持不同水果的新鲜度。有些需要被包裹在温暖的空气中；其他的保存在华氏40度以下时会茁壮成长。一些护理和储存是显而易见的(不要让浆果在室温下腐烂)，其他的就不那么明显了。如果你想知道，香蕉能放在冰箱里吗？或者*我到底应该把这个哈密瓜放在哪里？*我们会保护你。
+虽然这很好，但是没有一种放之四海而皆准的储藏方法可以最大限度地保持不同水果的新鲜度。有些需要被包裹在温暖的空气中；其他的保存在华氏 40 度以下时会茁壮成长。一些护理和储存是显而易见的(不要让浆果在室温下腐烂)，其他的就不那么明显了。如果你想知道，香蕉能放在冰箱里吗？或者*我到底应该把这个哈密瓜放在哪里？*我们会保护你。
 
 Watch
 

@@ -1,6 +1,6 @@
 # 你应该使用剃须膏，凝胶，还是泡沫？
 
-> 原文:[https://life hacker . com/should-you-use-shaping-cream-gel-or-foam-1849073471](https://lifehacker.com/should-you-use-shaving-cream-gel-or-foam-1849073471)
+> 原文：<https://lifehacker.com/should-you-use-shaving-cream-gel-or-foam-1849073471>
 
 W 当你从你的脸上或腿上去除毛发时，你真正需要的是一把剃刀和一些到减少你可爱的婴儿皮肤和刀片之间摩擦的东西。但是如果目标这么简单，为什么还有那么多产品嚷嚷着要帮你实现？(答案是资本主义。)但事实是，剃须产品中最受欢迎的品种中的每一种——凝胶、泡沫和面霜*—*的功效都略有不同。你 可能比更适合其中一个另一个，这取决于你的皮肤类型和剃须技巧。下一次当你在药房的走廊上面对一大堆选择时，你应该考虑以下几点。
 
@@ -18,6 +18,6 @@ Watch
 
 ## 吃奶油是最奢侈的
 
-剃须膏不同于剃须凝胶，因为它不仅软化头发，而且以剃须凝胶不会的方式调理皮肤。正如剃须顾问sT4】所说，“剃须膏不含酒精等刺激性化学物质，旨在帮助调理皮肤。” [亚当工作室的美容师同意](https://adamgroomingatelier.com/us/journal/shaving-cream-vs-shaving-foam#:~:text=One%20of%20the%20biggest%20issues,instead%20of%20sitting%20on%20top.) 的观点，并指出“由于剃须膏更稠，通常含有更好的成分，它能够渗透到毛囊中，而不是停留在上面。这会让你的皮肤感觉自然湿润，同时有助于防止碎屑堵塞你的毛囊。”你可以用一点水涂在上，或者 [随心所欲地使用剃须刷](https://hespokestyle.com/how-to-use-shaving-brush/) 。
+剃须膏不同于剃须凝胶，因为它不仅软化头发，而且以剃须凝胶不会的方式调理皮肤。正如剃须顾问 sT4】所说，“剃须膏不含酒精等刺激性化学物质，旨在帮助调理皮肤。” [亚当工作室的美容师同意](https://adamgroomingatelier.com/us/journal/shaving-cream-vs-shaving-foam#:~:text=One%20of%20the%20biggest%20issues,instead%20of%20sitting%20on%20top.) 的观点，并指出“由于剃须膏更稠，通常含有更好的成分，它能够渗透到毛囊中，而不是停留在上面。这会让你的皮肤感觉自然湿润，同时有助于防止碎屑堵塞你的毛囊。”你可以用一点水涂在上，或者 [随心所欲地使用剃须刷](https://hespokestyle.com/how-to-use-shaving-brush/) 。
 
-面霜通常装在小管里，如果你要旅行，这是理想的选择。面霜可能比g els 贵一点，但这是因为你每次刮胡子都不需要用那么多面霜。总的来说，剃须膏是有经验的剃须者的最佳选择。
+面霜通常装在小管里，如果你要旅行，这是理想的选择。面霜可能比 g els 贵一点，但这是因为你每次刮胡子都不需要用那么多面霜。总的来说，剃须膏是有经验的剃须者的最佳选择。

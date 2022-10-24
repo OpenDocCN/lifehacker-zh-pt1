@@ -1,6 +1,6 @@
 # 娱乐婴儿的最简单方法
 
-> 原文:[https://life hacker . com/the-easy-ways-to-entertain-a-baby-1849492637](https://lifehacker.com/the-easiest-ways-to-entertain-a-baby-1849492637)
+> 原文：<https://lifehacker.com/the-easiest-ways-to-entertain-a-baby-1849492637>
 
 不可否认，婴儿是可爱的。另一方面，他们也可能很无聊——你实际上负责他们所有的娱乐活动。幸运的是，这个世界对他们来说是全新的，所以“娱乐”的可能性就在你身边。然而，你已经筋疲力尽，想要用最小的努力创造最大的快乐。以下是如何让你的宝宝开心的方法。
 
@@ -14,7 +14,7 @@ Watch
 
 ## 放进去，拿出来
 
-“钳形抓握”是最重要的 [发展里程碑](https://lifehacker.com/track-your-babys-mental-milestones-with-this-app-1830417712) 之一——但是当你不想让你的宝宝把所有东西都放进他们的嘴里时，帮助他们发展这种精细的运动技能是具有挑战性的。不过，6到12个月大的孩子掌握这项技能所需要的专注程度，可能会让他们比一般的塑料玩具玩得更久。
+“钳形抓握”是最重要的 [发展里程碑](https://lifehacker.com/track-your-babys-mental-milestones-with-this-app-1830417712) 之一——但是当你不想让你的宝宝把所有东西都放进他们的嘴里时，帮助他们发展这种精细的运动技能是具有挑战性的。不过，6 到 12 个月大的孩子掌握这项技能所需要的专注程度，可能会让他们比一般的塑料玩具玩得更久。
 
 对于已经到了可以吃固体食物的年龄的婴儿，你可以鼓励他们尝试把小的、适合他们年龄的食物，比如软水果或麦片，放进碗、特百惠容器、松饼罐或空鸡蛋盒里(然后再拿出来)。如果你正在密切关注或者没有一个特别多嘴的孩子，你也可以用 [绒球](https://www.hobbylobby.com/Crafts-Hobbies/Basic-Crafts/Pom-Poms/Pom-Poms/p/SC50210) 来做这个——你甚至可以用一根卫生纸管和一些胶带来设置这个简单的 [绒球掉落活动](https://laughingkidslearn.com/pom-pom-drop-activity-for-toddlers/) 来保持它们铆接好几分钟。
 

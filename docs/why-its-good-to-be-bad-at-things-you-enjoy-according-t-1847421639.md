@@ -1,8 +1,8 @@
 # 库尔特·冯内古特认为，为什么不擅长你喜欢的事情是件好事
 
-> 原文:[https://life hacker . com/why-its-good-to-bad-at-things-you-enjoy-but-on-t-1847421639](https://lifehacker.com/why-its-good-to-be-bad-at-things-you-enjoy-according-t-1847421639)
+> 原文：<https://lifehacker.com/why-its-good-to-be-bad-at-things-you-enjoy-according-t-1847421639>
 
-有一个神秘的引语，其来源基本上不为人知，但它通常被认为是已故的文学偶像库尔特·冯内古特。因此，这个基本上未经证实的传说是这样的:当冯内古特还是个少年时，他意识到了一些重要的事情。他15岁时正在从事一项考古挖掘工作，一位考古学家询问他除了挖掘化石之外还喜欢做什么。
+有一个神秘的引语，其来源基本上不为人知，但它通常被认为是已故的文学偶像库尔特·冯内古特。因此，这个基本上未经证实的传说是这样的:当冯内古特还是个少年时，他意识到了一些重要的事情。他 15 岁时正在从事一项考古挖掘工作，一位考古学家询问他除了挖掘化石之外还喜欢做什么。
 
 Watch
 
@@ -16,11 +16,11 @@ Watch
 
 ## 为什么我们总是觉得有实现的必要？
 
-这是一个值得仔细研究的简单问题，但一个简单的答案是，成就，无论是个人的，职业相关的，运动的，还是其他的，都受到大众媒体的崇拜和赞美。LinkedIn挤满了试图用他们的职业里程碑 引起 [轰动的用户；运动员是lioni zed](https://lifehacker.com/dont-use-linkedin-to-build-your-brand-1846153586) [旁边是rock star CEO](https://lifehacker.com/admit-when-youre-not-self-made-1846261559)；杂志铺天盖地吹捧t [何照明——明日企业领袖的急功近利](https://lifehacker.com/why-you-should-ignore-30-under-30-lists-1845784345) 。
+这是一个值得仔细研究的简单问题，但一个简单的答案是，成就，无论是个人的，职业相关的，运动的，还是其他的，都受到大众媒体的崇拜和赞美。LinkedIn 挤满了试图用他们的职业里程碑 引起 [轰动的用户；运动员是 lioni zed](https://lifehacker.com/dont-use-linkedin-to-build-your-brand-1846153586) [旁边是 rock star CEO](https://lifehacker.com/admit-when-youre-not-self-made-1846261559)；杂志铺天盖地吹捧 t [何照明——明日企业领袖的急功近利](https://lifehacker.com/why-you-should-ignore-30-under-30-lists-1845784345) 。
 
 这种对高成就的崇拜可以渗透到人们日常的兴趣爱好中。在美国有一种流行的完美主义，这意味着休闲高尔夫球手不仅仅是前往球场进行一场悠闲的比赛——他们正在学习、训练并渴望完善他们的技术，尽可能成为最好的。
 
-作家蒂姆·吴(Tim Wu)在2018年触及了这个问题的核心，他指出，许多人害怕从事爱好，主要是因为他们认为学习的绊脚石是一种失败。他为 [《纽约时报》](https://www.nytimes.com/2018/09/29/opinion/sunday/in-praise-of-mediocrity.html) 写道:
+作家蒂姆·吴(Tim Wu)在 2018 年触及了这个问题的核心，他指出，许多人害怕从事爱好，主要是因为他们认为学习的绊脚石是一种失败。他为 [《纽约时报》](https://www.nytimes.com/2018/09/29/opinion/sunday/in-praise-of-mediocrity.html) 写道:
 
 > 但我开始认为，还有一个更深层次的原因，那就是很多人没有爱好:我们害怕在这些方面做得不好。或者更确切地说，我们被这种期望吓倒了——这本身就是我们这个高度公开的表演时代的一个标志——我们实际上必须熟练掌握我们在空闲时间所做的事情。
 

@@ -1,8 +1,8 @@
-# 14部韩国电影值得一看，以免被美国翻拍电影毁掉
+# 14 部韩国电影值得一看，以免被美国翻拍电影毁掉
 
-> 原文:[https://life hacker . com/14-Korean-movies-to-watch-before-an-American-remake-Rui-1848207126](https://lifehacker.com/14-korean-movies-to-watch-before-an-american-remake-rui-1848207126)
+> 原文：<https://lifehacker.com/14-korean-movies-to-watch-before-an-american-remake-rui-1848207126>
 
-引用*寄生虫*导演奉俊浩的话，”...一旦你克服了字幕1英寸高的障碍，你就会被介绍给更多令人惊叹的电影。”
+引用*寄生虫*导演奉俊浩的话，”...一旦你克服了字幕 1 英寸高的障碍，你就会被介绍给更多令人惊叹的电影。”
 
 幸运的是，在流媒体领域，许多令人惊叹的电影比以往任何时候都更容易获得——当然不缺乏奉俊昊自己的韩国的伟大电影，只需轻点按钮即可获得。抱怨流行电影文化缺乏原创性很容易( [非常容易](https://lifehacker.com/38-franchise-tv-shows-films-and-sequels-coming-in-202-1848201629))——但是有一整个世界的电影在等着被播放，它们的风格和视角都是引人注目和独特的。
 
@@ -16,13 +16,13 @@
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-list-dcR7fdkLhJ4%2FPLZbXA4lyCtqqXzOhtkW6WpO2f4nefMa1O&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-list-dcR7fdkLhJ4%2FPLZbXA4lyCtqqXzOhtkW6WpO2f4nefMa1O&start=0) 
 
-在《寄生虫》之前，妍相浩的电影可能是打入美国市场的最大的韩国电影，引发了一场重拍权的竞标战，最终新线公司赢得了这场竞标。即将上映的美国版，有点笼统地称为【T2到纽约的最后一班火车】，可能会非常好，但这个标题表明原作的一些潜台词将会丢失。例如，釜山在朝鲜战争期间是难民的避难所——很难想象一部美国电影会继承原著对资本主义的批判，并向工人阶级的团结致敬。我真的想象不出一部重拍电影会比这部深思熟虑、发自内心、血腥的僵尸杰作更好。
+在《寄生虫》之前，妍相浩的电影可能是打入美国市场的最大的韩国电影，引发了一场重拍权的竞标战，最终新线公司赢得了这场竞标。即将上映的美国版，有点笼统地称为【T2 到纽约的最后一班火车】，可能会非常好，但这个标题表明原作的一些潜台词将会丢失。例如，釜山在朝鲜战争期间是难民的避难所——很难想象一部美国电影会继承原著对资本主义的批判，并向工人阶级的团结致敬。我真的想象不出一部重拍电影会比这部深思熟虑、发自内心、血腥的僵尸杰作更好。
 
-**向何处传输:** Prime Video、战栗、富博电视台、Roku频道、Hoopla、Vudu、Tubi、Crackle、Pluto TV、Plex (so...不难找到)
+**向何处传输:** Prime Video、战栗、富博电视台、Roku 频道、Hoopla、Vudu、Tubi、Crackle、Pluto TV、Plex (so...不难找到)
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-cbUMHvzcoOo&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-cbUMHvzcoOo&start=0) 
 
-如果我们不是通过神秘的杀手淑喜(由金Ok-bin扮演)的眼睛来看，我们仍然会被一种动态的，有时是疯狂的，你在那里的即时性所吸引。今年7月，亚马逊影业宣布正在根据这部电影制作一部英语电视剧，但导演郑炳基为原著带来了一种独特、发自内心、血腥的风格，这种风格很难复制，也更难改进。
+如果我们不是通过神秘的杀手淑喜(由金 Ok-bin 扮演)的眼睛来看，我们仍然会被一种动态的，有时是疯狂的，你在那里的即时性所吸引。今年 7 月，亚马逊影业宣布正在根据这部电影制作一部英语电视剧，但导演郑炳基为原著带来了一种独特、发自内心、血腥的风格，这种风格很难复制，也更难改进。
 
 **在哪里播放:** Vudu、Hoopla、Hi-Yah TV、Plex
 
@@ -70,30 +70,30 @@
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-pURjo7MywCs&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-pURjo7MywCs&start=0) 
 
-我想说，这更像是韩国电影制作人在玩西方电影胶片的恐怖比喻...除了有一部 [美国翻拍](https://www.hollywoodreporter.com/news/general-news/south-korean-horror-film-gonjiam-remake-works-1296103/) 在拍，所以。*原版电影《Gonjiam* 》在韩国非常受欢迎，这是理所应当的:形式很熟悉，但它是次类型电影中特别有效和制作精良的例子。和房地产一样，这里的关键是位置、位置、位置:导演郑本石和其他电影制作人一丝不苟地重现了现实生活中光州的Gonjiam精神病院——这是韩国最闹鬼的地方之一。这部电影注定失败的网络系列摄制组的解散是一个令人难以置信的怪异场景。
+我想说，这更像是韩国电影制作人在玩西方电影胶片的恐怖比喻...除了有一部 [美国翻拍](https://www.hollywoodreporter.com/news/general-news/south-korean-horror-film-gonjiam-remake-works-1296103/) 在拍，所以。*原版电影《Gonjiam* 》在韩国非常受欢迎，这是理所应当的:形式很熟悉，但它是次类型电影中特别有效和制作精良的例子。和房地产一样，这里的关键是位置、位置、位置:导演郑本石和其他电影制作人一丝不苟地重现了现实生活中光州的 Gonjiam 精神病院——这是韩国最闹鬼的地方之一。这部电影注定失败的网络系列摄制组的解散是一个令人难以置信的怪异场景。
 
 **流向哪里:**数码租赁
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-jQ8CCg1tOqc&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-jQ8CCg1tOqc&start=0) 
 
-这部于2020年6月上映的电影已经见证了它在美国的翻拍(某种程度上):两部电影《活着》和泰勒·珀西/唐纳德·萨瑟兰主演的《T2》都是在大约同一时间由同一剧本制作的。这是一个关于一个迷人的游戏玩家(Yoo Ah-in)的故事，他试图通过把自己锁在公寓里(也叫隔离)来度过僵尸末日，最终与对面公寓里的一个女人建立了联系。如果你同时拥有网飞*和* Prime视频，你可以制作一个双功能视频。(如果你也有Hulu，你可以看一部令人困惑的不相关的2020年惊悚片*也叫*单独的*，但我不确定那能让你得到什么。)*
+这部于 2020 年 6 月上映的电影已经见证了它在美国的翻拍(某种程度上):两部电影《活着》和泰勒·珀西/唐纳德·萨瑟兰主演的《T2》都是在大约同一时间由同一剧本制作的。这是一个关于一个迷人的游戏玩家(Yoo Ah-in)的故事，他试图通过把自己锁在公寓里(也叫隔离)来度过僵尸末日，最终与对面公寓里的一个女人建立了联系。如果你同时拥有网飞*和* Prime 视频，你可以制作一个双功能视频。(如果你也有 Hulu，你可以看一部令人困惑的不相关的 2020 年惊悚片*也叫*单独的*，但我不确定那能让你得到什么。)*
 
 ***流向哪里:**网飞*
 
  *[https://lifehacker.com/embed/inset/iframe?id=youtube-video-yVzFtjSb0kE&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-yVzFtjSb0kE&start=0) 
 
-公平地说，美国制片人可能并不急于翻拍这部酷儿情节剧，但他们可能会从同性恋导演李成熙的大胆中学习一二。他的电影打破了其他人不愿意打破的界限，他的*夜间飞行*讲述了三个中学朋友之间的关系变化，其中一个男孩被发现是同性恋，这表明LGBTQ+内容在韩国有一个不错的市场。在描绘社会耻辱的代价时，这部电影戏剧化地表现了电影中同性恋的一些更黑暗的比喻，但仍然为亚洲电影制作人打开了大门。
+公平地说，美国制片人可能并不急于翻拍这部酷儿情节剧，但他们可能会从同性恋导演李成熙的大胆中学习一二。他的电影打破了其他人不愿意打破的界限，他的*夜间飞行*讲述了三个中学朋友之间的关系变化，其中一个男孩被发现是同性恋，这表明 LGBTQ+内容在韩国有一个不错的市场。在描绘社会耻辱的代价时，这部电影戏剧化地表现了电影中同性恋的一些更黑暗的比喻，但仍然为亚洲电影制作人打开了大门。
 
 **流向何处:**亚洲灯芯草
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-43uAputjI4k&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-43uAputjI4k&start=0) 
 
-虽然翻拍方面的事情已经平静了几年，但这种情况仍然可能发生:雷德利·斯科特的制作公司在2016年第一次上映时，立即将目光投向了《哀号的T1》。这部恐怖电影取得了商业和关键的成功，它追踪了一场引发愤怒的瘟疫的传播，这场瘟疫影响了一个偏远的村庄——一场起源于外星的瘟疫。这部电影的制片人当时表达的担忧仍然是合理的:这部电影的宗教色彩基于韩国的宗教多元化，这使得直接翻译很难，如果不是不可能的话。
+虽然翻拍方面的事情已经平静了几年，但这种情况仍然可能发生:雷德利·斯科特的制作公司在 2016 年第一次上映时，立即将目光投向了《哀号的 T1》。这部恐怖电影取得了商业和关键的成功，它追踪了一场引发愤怒的瘟疫的传播，这场瘟疫影响了一个偏远的村庄——一场起源于外星的瘟疫。这部电影的制片人当时表达的担忧仍然是合理的:这部电影的宗教色彩基于韩国的宗教多元化，这使得直接翻译很难，如果不是不可能的话。
 
-**向何处传输:** Prime Video、战栗、富博电视、Hoopla、Vudu、Tubi、Crackle、Pluto电视、Plex
+**向何处传输:** Prime Video、战栗、富博电视、Hoopla、Vudu、Tubi、Crackle、Pluto 电视、Plex
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-5xH0HfJHsaY&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-5xH0HfJHsaY&start=0) 
 
-你可能听说过这部默默无闻的电影，但前提是你看过一个名为“奥斯卡金像奖”的小型独立电影颁奖典礼。亚当·麦凯(*大短剧*)正在与*寄生虫*的导演奉俊昊合作，改编HBO电视连续剧。他承诺根据这部电影创作一个原创故事，但奉是一个如此独特的电影制作人，他深刻的社会讽刺是如此具体，以至于很难理解一个美国化的配角的吸引力。这听起来有点像根据奉的 *Snowpiercer* 改编的TNT系列——这是一部不错的电视剧，当然，但缺乏原著的重点和感染力。
+你可能听说过这部默默无闻的电影，但前提是你看过一个名为“奥斯卡金像奖”的小型独立电影颁奖典礼。亚当·麦凯(*大短剧*)正在与*寄生虫*的导演奉俊昊合作，改编 HBO 电视连续剧。他承诺根据这部电影创作一个原创故事，但奉是一个如此独特的电影制作人，他深刻的社会讽刺是如此具体，以至于很难理解一个美国化的配角的吸引力。这听起来有点像根据奉的 *Snowpiercer* 改编的 TNT 系列——这是一部不错的电视剧，当然，但缺乏原著的重点和感染力。
 
 **流向哪里:** Hulu*

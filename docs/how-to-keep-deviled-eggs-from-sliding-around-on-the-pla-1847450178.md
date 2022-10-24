@@ -1,6 +1,6 @@
 # 如何防止鸡蛋滑来滑去
 
-> 原文:[https://life hacker . com/how-to-keep-deviled-eggs-from-sliding-about-the-PLA-1847450178](https://lifehacker.com/how-to-keep-deviled-eggs-from-sliding-around-on-the-pla-1847450178)
+> 原文：<https://lifehacker.com/how-to-keep-deviled-eggs-from-sliding-around-on-the-pla-1847450178>
 
 我家很喜欢吃的辣味鸡蛋，以至于我们有好几盘经典的辣味鸡蛋。草皮使鸡蛋在运输过程中保持原位，防止它们在盘子周围滑动或掉到地板上。我爱我的，但我认识到，不是每个人都有专门的魔鬼蛋拼盘的空间。
 

@@ -1,8 +1,8 @@
 # 离婚的七宗罪
 
-> 原文:[https://life hacker . com/the-7-离婚的大罪-1849184941](https://lifehacker.com/the-7-deadly-sins-of-getting-a-divorce-1849184941)
+> 原文：<https://lifehacker.com/the-7-deadly-sins-of-getting-a-divorce-1849184941>
 
-离婚一直被认为是生活中压力最大的事件之一，仅次于爱人去世和重大疾病。离婚会导致或 [加剧健康问题](https://www.webmd.com/balance/news/20090728/divorce-has-lasting-toll-on-health) ，导致心理创伤，让你损失一大笔钱，让你至少一年都闷闷不乐，在烧烤会上表现怪异。那么，为什么40%到50%的已婚美国人愿意支付这么高的价格呢？就像老笑话说的，因为它值得。
+离婚一直被认为是生活中压力最大的事件之一，仅次于爱人去世和重大疾病。离婚会导致或 [加剧健康问题](https://www.webmd.com/balance/news/20090728/divorce-has-lasting-toll-on-health) ，导致心理创伤，让你损失一大笔钱，让你至少一年都闷闷不乐，在烧烤会上表现怪异。那么，为什么 40%到 50%的已婚美国人愿意支付这么高的价格呢？就像老笑话说的，因为它值得。
 
 虽然逃离一段糟糕的婚姻最终是好的，但这条路很少被描述为“有趣”或“棒极了”。但是，如果你避免了这个可悲的必要机构的最严重的错误，你就有希望带着更少的伤疤离开。然后也许，过一会儿，你可以准备好回到那里(进入一个全新的婚姻，可能以爱开始，以绝望结束)。
 
@@ -16,7 +16,7 @@
 
 <figcaption class="sc-1ptbguh-0 hxeMec caption">The Simpsons - Luann Van Houten Wants A Divorce</figcaption> 
 
-有些人认为离婚是95%的情感和5%的法律，但这并没有解释大多数人结束婚姻的复杂性，其中“结束你们的关系”部分和“公平合法地分割东西”部分是不可能交织在一起的。你的工作，尽管很难，是尽你所能解开这个结，把你的情绪放在一边，尽你所能从清晰的角度来看待这个问题。记住:结婚是暂时的，但离婚是永久的，所以不要听信情绪化的一面，那会让你做出糟糕的决定，只是为了“了结这件事”或伤害你的前配偶。
+有些人认为离婚是 95%的情感和 5%的法律，但这并没有解释大多数人结束婚姻的复杂性，其中“结束你们的关系”部分和“公平合法地分割东西”部分是不可能交织在一起的。你的工作，尽管很难，是尽你所能解开这个结，把你的情绪放在一边，尽你所能从清晰的角度来看待这个问题。记住:结婚是暂时的，但离婚是永久的，所以不要听信情绪化的一面，那会让你做出糟糕的决定，只是为了“了结这件事”或伤害你的前配偶。
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-ueyCT8fN64M&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-ueyCT8fN64M&start=0)
 
@@ -36,7 +36,7 @@
 
 雇佣离婚律师并无视他们的建议需要一种特殊的傲慢，但人们一直都在这么做。离婚独特的情感本质似乎让一些人相信，他们付钱请的法律代言人根本不理解为什么推平自己的房子是个好主意 [。](https://apnews.com/article/070aa425e76fcd18369ba3173a91c712)
 
-看看这个来自Reddit 的 [评论吧。到处都是离婚律师讲述他们最糟糕的客户的恐怖故事。如果你要离婚，不要成为某个律师最受欢迎的评论。](https://www.reddit.com/r/AskReddit/comments/u0zviw/divorce_lawyers_of_reddit_what_client_of_yours/)
+看看这个来自 Reddit 的 [评论吧。到处都是离婚律师讲述他们最糟糕的客户的恐怖故事。如果你要离婚，不要成为某个律师最受欢迎的评论。](https://www.reddit.com/r/AskReddit/comments/u0zviw/divorce_lawyers_of_reddit_what_client_of_yours/)
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-IkuVNUXp91A&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-IkuVNUXp91A&start=0)
 

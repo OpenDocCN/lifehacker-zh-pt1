@@ -1,8 +1,8 @@
 # 列出你已经做对的事情来激励自己
 
-> 原文:[https://life hacker . com/通过列出你已经做过的事情来激励自己1847907736](https://lifehacker.com/motivate-yourself-by-listing-the-stuff-youre-already-do-1847907736)
+> 原文：<https://lifehacker.com/motivate-yourself-by-listing-the-stuff-youre-already-do-1847907736>
 
-当我们专注于改善我们的健康时，我们经常会在脑海中列出我们没有做的事情:我应该T2 T3锻炼T4 T5，我应该多喝水T8 T9，我应该T10 T11找个时间吃点蔬菜T12 T13。但是你已经养成的健康习惯呢？大概不止零个。
+当我们专注于改善我们的健康时，我们经常会在脑海中列出我们没有做的事情:我应该 T2 T3 锻炼 T4 T5，我应该多喝水 T8 T9，我应该 T10 T11 找个时间吃点蔬菜 T12 T13。但是你已经养成的健康习惯呢？大概不止零个。
 
 Watch
 

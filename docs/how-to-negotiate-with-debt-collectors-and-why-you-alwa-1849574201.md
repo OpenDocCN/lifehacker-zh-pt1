@@ -1,6 +1,6 @@
 # 如何与讨债人谈判(以及为什么你总是应该这么做)
 
-> 原文:[https://life hacker . com/how-to-negotiate-with-debt-collectors-and-why-you-alwa-1849574201](https://lifehacker.com/how-to-negotiate-with-debt-collectors-and-why-you-alwa-1849574201)
+> 原文：<https://lifehacker.com/how-to-negotiate-with-debt-collectors-and-why-you-alwa-1849574201>
 
 外面不乏冒充讨债人的骗子，他们日复一日地通过电话和短信骚扰你。如果你屏蔽了这些号码，你会想确定它们真的是骗局，而且你没有忽视合法的讨债人(顺便说一下，他们可以在社交媒体上找到你 [】)。](https://lifehacker.com/debt-collectors-can-find-you-on-social-media-now-1845598644)
 
@@ -20,7 +20,7 @@ Watch
 
 ## 了解债务
 
-使用你上面列出的权利来收集所有关于你的债务的必要信息。你想知道你欠谁的钱，你欠他们多少钱。如果你选择争论债务，讨债人必须核实它。只要您在收到确认通知的30天内以书面形式提出争议，收债人就不得再与您联系，直到它向您发送书面的债务确认。
+使用你上面列出的权利来收集所有关于你的债务的必要信息。你想知道你欠谁的钱，你欠他们多少钱。如果你选择争论债务，讨债人必须核实它。只要您在收到确认通知的 30 天内以书面形式提出争议，收债人就不得再与您联系，直到它向您发送书面的债务确认。
 
 确保你要求所有你需要的信息，以便制定一个谈判计划。正如我们前面提到的，代理人可能会决定接受你的部分付款建议，而不是经历一个漫长而痛苦的收款过程。
 
@@ -28,7 +28,7 @@ Watch
 
 即使你很确定你确实欠了讨债公司的债，也不要马上确认。 [据美国新闻](https://money.usnews.com/money/personal-finance/debt/articles/how-to-negotiate-with-debt-collectors) ，口头确认可以使债务生效或延长催收诉讼时效。
 
-如果是旧债(比如说，超过3到6年)，在和律师谈过之前不要付款。你可能会超出你所在州的债务限制法令。
+如果是旧债(比如说，超过 3 到 6 年)，在和律师谈过之前不要付款。你可能会超出你所在州的债务限制法令。
 
 ## 想出你的谈判计划
 
@@ -50,4 +50,4 @@ Watch
 
 最后两个提醒:警惕声称为你解决债务并试图为此收费的第三方公司。这可能是又一个骗局添加到您的盘子。其次，这个事实可能会让你一开始就对讨债人的电话持怀疑态度。这并不意味着你应该直接支付原始债权人。 [《美国新闻》](https://money.usnews.com/money/personal-finance/debt/articles/how-to-negotiate-with-debt-collectors) 解释说，等讨债人找上你的时候，他们才是债务的责任人，直接和他们谈判对你最有利。
 
-如果有收藏者骚扰你，你可以向CFPB [、在线](https://www.consumerfinance.gov/complaint/) 或拨打855-411-2372投诉，也可以向美国联邦贸易委员会、在线 或拨打877-382-4357投诉。你也可以向 [你的州检察长](https://www.naag.org/find-my-ag/) 举报他们。
+如果有收藏者骚扰你，你可以向 CFPB [、在线](https://www.consumerfinance.gov/complaint/) 或拨打 855-411-2372 投诉，也可以向美国联邦贸易委员会、在线 或拨打 877-382-4357 投诉。你也可以向 [你的州检察长](https://www.naag.org/find-my-ag/) 举报他们。

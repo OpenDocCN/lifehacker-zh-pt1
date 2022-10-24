@@ -1,6 +1,6 @@
 # 油桃只是光秃秃的桃子
 
-> 原文:[https://life hacker . com/nectarine-is-just-bald-peaches-1847636552](https://lifehacker.com/nectarines-are-just-bald-peaches-1847636552)
+> 原文：<https://lifehacker.com/nectarines-are-just-bald-peaches-1847636552>
 
 在我看来，桃子总是比油桃甜。我并不特别喜欢嘴唇上毛状体的感觉，但我一直认为“更甜”的果肉是对我忍受更难吃的水果的不适的奖励。(我有吃合适桃子所需的耐力和精神毅力，不像我那些虚弱的、爱吃油桃的同伴。)我发现，这很愚蠢。
 

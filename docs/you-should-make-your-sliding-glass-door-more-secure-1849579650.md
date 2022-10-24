@@ -1,6 +1,6 @@
 # 你应该让你的滑动玻璃门更安全
 
-> 原文:[https://life hacker . com/you-should-make-your-sliding-glass-door-more-secure-1849579650](https://lifehacker.com/you-should-make-your-sliding-glass-door-more-secure-1849579650)
+> 原文：<https://lifehacker.com/you-should-make-your-sliding-glass-door-more-secure-1849579650>
 
 众所周知，滑动玻璃门是窃贼容易进入的地方——这些门上的门闩通常很小，也不是特别坚固，这使得它成为一个真正的安全问题。但是有一些简单有效的方法可以让滑动玻璃门更安全，更难被破门而入。
 

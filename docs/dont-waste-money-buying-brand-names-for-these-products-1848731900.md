@@ -1,6 +1,6 @@
 # 不要浪费钱为这些产品购买品牌
 
-> 原文:[https://life hacker . com/don-twist-waste-money-buying-brand-names-for-these-products-1848731900](https://lifehacker.com/dont-waste-money-buying-brand-names-for-these-products-1848731900)
+> 原文：<https://lifehacker.com/dont-waste-money-buying-brand-names-for-these-products-1848731900>
 
 购物可能很有趣，但资本主义对品牌扩散的容忍也让购物变得相当有压力。我们的商店和网上平台充斥着各种品牌——不管你想买什么，有上百个品牌可供选择。有些你听说过，有些似乎很粗略，有些是神秘的，但在大多数产品类别中，有你会认为是“优质”品牌。这些都是知名公司的产品，与其他产品相比，这些产品的质量应该是一流的。但高端品牌更倾向于通过营销而非实际表现来确立自己的地位。仿制药或“商店品牌”一开始是可悲的、更便宜的替代品，但实际上近年来大放异彩。这些商店品牌赚大钱，食品连锁店也在大力投资。
 
@@ -10,9 +10,9 @@ Watch
 
 ## HDMI 线缆
 
-如今，HDMI线缆对于现代生活来说就像咖啡和氧气一样必不可少。从你的流媒体娱乐到你的家用电脑，再到你的视频游戏系统，一切都可能需要一根HDMI线来把东西传送到你的眼球，有很多公司非常乐意对你撒谎说他们的“优质”HDMI线。镀金的？肯定更好——毕竟是*黄金，*。
+如今，HDMI 线缆对于现代生活来说就像咖啡和氧气一样必不可少。从你的流媒体娱乐到你的家用电脑，再到你的视频游戏系统，一切都可能需要一根 HDMI 线来把东西传送到你的眼球，有很多公司非常乐意对你撒谎说他们的“优质”HDMI 线。镀金的？肯定更好——毕竟是*黄金，*。
 
-事实是， [HDMI线都差不多](https://www.howtogeek.com/93952/save-a-bundle-by-skipping-the-expensive-hdmi-cables/) ，买一套花里胡哨的也不会改善你的数字体验。买亚马逊的基本产品，把额外的钱花在真正重要的东西上，比如一瓶[goldschlger](https://www.totalwine.com/spirits/liqueurscordialsschnapps/herbal-spice/cinnamon/goldschlager/p/4679750)。一定很好——毕竟里面有黄金。
+事实是， [HDMI 线都差不多](https://www.howtogeek.com/93952/save-a-bundle-by-skipping-the-expensive-hdmi-cables/) ，买一套花里胡哨的也不会改善你的数字体验。买亚马逊的基本产品，把额外的钱花在真正重要的东西上，比如一瓶[goldschlger](https://www.totalwine.com/spirits/liqueurscordialsschnapps/herbal-spice/cinnamon/goldschlager/p/4679750)。一定很好——毕竟里面有黄金。
 
 ## 汽油
 
@@ -34,7 +34,7 @@ Watch
 
 漂白剂已经成为与特定品牌紧密相关的产品之一，我们倾向于将它们互换，但漂白剂是化学化合物(通常涉及次氯酸钠或次氯酸钙)，因此，本质上是相同的。无论你是漂白你的衣服还是试图清洁你的浴室瓷砖，你花多少钱买你正在使用的漂白剂并不重要。
 
-在你购买漂白剂的决定中，包装可能会有所不同。像Chlorox这样的知名品牌在他们的瓶子上做了一些额外的努力，设计它们来减少飞溅或溢出，这可能证明了一些额外的钱是值得的。但是瓶子里的东西呢？没关系。如果有必要的话，买一瓶高级的，当你喝完的时候，用便宜的再装满。
+在你购买漂白剂的决定中，包装可能会有所不同。像 Chlorox 这样的知名品牌在他们的瓶子上做了一些额外的努力，设计它们来减少飞溅或溢出，这可能证明了一些额外的钱是值得的。但是瓶子里的东西呢？没关系。如果有必要的话，买一瓶高级的，当你喝完的时候，用便宜的再装满。
 
 ## 水
 

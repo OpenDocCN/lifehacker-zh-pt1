@@ -1,6 +1,6 @@
 # 如何正确折叠、展示和处理美国国旗
 
-> 原文:[https://life hacker . com/how-to-rightly-fold-display-and-dispose-of-the-ameri-1847000804](https://lifehacker.com/how-to-properly-fold-display-and-dispose-of-the-ameri-1847000804)
+> 原文：<https://lifehacker.com/how-to-properly-fold-display-and-dispose-of-the-ameri-1847000804>
 
 今天阵亡将士纪念日，很多美国国旗自豪地展示出来，这是一个很好的时间来看看如何正确地展示，储存和处理旧的荣耀。对于所有的规章制度，我们将求助于 [外战老兵(VFW)](https://www.vfw.org/community/flag-etiquette)。以下是需要了解的内容。
 
@@ -28,7 +28,7 @@ Watch
 
 ### 如何正确折叠美国国旗
 
-VFW网站 的 [有图片，如果你是一个视觉学习者，但是它们的说明如下:](https://www.vfw.org/community/flag-etiquette)
+VFW 网站 的 [有图片，如果你是一个视觉学习者，但是它们的说明如下:](https://www.vfw.org/community/flag-etiquette)
 
 > 1.  Fold the striped part under the flag on the blue area.
 > 2.  The folded edge is then folded in half to meet the open edge.
@@ -38,7 +38,7 @@ VFW网站 的 [有图片，如果你是一个视觉学习者，但是它们的�
 
 ### 如何处理美国国旗
 
-如果您不确定如何或何时处理旗帜，您可以随时 [联系您当地的VFW邮报](https://www.vfw.org/find-a-post) 了解更多信息。但以下是基本说明:
+如果您不确定如何或何时处理旗帜，您可以随时 [联系您当地的 VFW 邮报](https://www.vfw.org/find-a-post) 了解更多信息。但以下是基本说明:
 
 > 这面旗帜应该按照它习惯的方式折叠。*   The important thing is that the fire should be quite large and strong enough to ensure that the flag burns completely.*   Put the flag on the fire. Individuals can stand at attention, salute the national flag, recite the pledge of allegiance, and have a short silent reflection. After the national flag is completely burned, the fire should be safely extinguished and the ashes buried.T11】
 

@@ -1,12 +1,12 @@
 # 应该早点看自己的体检结果吗？
 
-> 原文:[https://life hacker . com/should-you-look-your-medical-test-results-early-1849643612](https://lifehacker.com/should-you-look-at-your-medical-test-results-early-1849643612)
+> 原文：<https://lifehacker.com/should-you-look-at-your-medical-test-results-early-1849643612>
 
 我们有些人只是好奇。如果你做了医学测试，结果就在你的图表里，你难道不想知道他们现在说了什么吗？但是，尤其是如果是坏消息，最好等到你能和你的医疗服务提供者谈一谈，以了解检查结果的真正含义。
 
 Watch
 
-由于《21世纪治愈法案》 中的一项规定，现在立竿见影的效果比几年前更加普遍。在大多数情况下，检测结果必须及时公布给患者。这意味着，在你的医生看到结果之前，你可能会收到电子邮件或应用程序通知。
+由于《21 世纪治愈法案》 中的一项规定，现在立竿见影的效果比几年前更加普遍。在大多数情况下，检测结果必须及时公布给患者。这意味着，在你的医生看到结果之前，你可能会收到电子邮件或应用程序通知。
 
 ## 为什么你可能不想看你的测试结果
 

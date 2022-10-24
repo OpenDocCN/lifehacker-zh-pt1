@@ -1,6 +1,6 @@
 # 如何在母亲节帮助一个悲伤的孩子
 
-> 原文:[https://life hacker . com/how-to-help-a-child-who-breaking-母亲节-1846751882](https://lifehacker.com/how-to-help-a-child-who-is-grieving-on-mothers-day-1846751882)
+> 原文：<https://lifehacker.com/how-to-help-a-child-who-is-grieving-on-mothers-day-1846751882>
 
 在许多家庭中，母亲节是一个非常简单的节日。妈妈睡懒觉，孩子们把早餐送到她床上，她会收到一些手工制作的卡片、小礼物或鲜花。但在许多其他家庭，这一天是对失去的赤裸裸的提醒——对失去母亲的成年人和失去孩子的母亲来说，这是痛苦的一天。每天帮助一个孩子度过失去母亲的悲痛是非常具有挑战性的，尤其是在今天。
 

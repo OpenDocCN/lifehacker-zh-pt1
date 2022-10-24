@@ -1,6 +1,6 @@
 # 情绪劳动和精神负荷的区别，以及如何与你的伴侣讨论这两者
 
-> 原文:[https://life hacker . com/the-difference-between-emotional-labour-and-mental-load-1847618950](https://lifehacker.com/the-difference-between-emotional-labor-and-mental-load-1847618950)
+> 原文：<https://lifehacker.com/the-difference-between-emotional-labor-and-mental-load-1847618950>
 
 快到劳动节了——美国劳工部称这个节日为“美国工人社会和经济成就的年度庆典”不管你是从表面上接受这种说法，还是把休假 [视为政府骗局](https://lifehacker.com/the-real-history-of-labor-day-1847614981) ，抓住机会考虑一下人们所做的所有没有薪水且基本上不被注意的工作都不失为一个好主意:无形劳动。
 
@@ -12,7 +12,7 @@ Watch
 
 ## 什么是情绪劳动？
 
-当社会学家Arlie Hochschild博士在1983年首次引入情绪劳动的概念时，它指的是“调节或管理与他人的情绪表达，作为一个人专业工作角色的一部分，”根据宾夕法尼亚州立大学焊接实验室T2 T3的说法。
+当社会学家 Arlie Hochschild 博士在 1983 年首次引入情绪劳动的概念时，它指的是“调节或管理与他人的情绪表达，作为一个人专业工作角色的一部分，”根据宾夕法尼亚州立大学焊接实验室 T2 T3 的说法。
 
 但是从那以后，这个定义已经从工作场所的 [扩展到了工作场所之外的](https://www.theatlantic.com/family/archive/2018/11/arlie-hochschild-housework-isnt-emotional-labor/576637/) ，包括了与朋友、家庭成员和浪漫伴侣的个人关系。例如，你的生活中有没有这样的人，他总是带着他们的问题来找你——或者只是来抱怨——但是从来没有时间或者兴趣为你做同样的事情？在这种情况下，你在进行情绪劳动。
 
@@ -28,7 +28,7 @@ Watch
 
 不管你发现自己承受着哪种无形劳动的压力(可能是所有的)，这都不是你应该独自面对的事情。但是，由于各种原因，这不是一个容易与伴侣交谈的话题。
 
-或者，也许你过去曾试图提起这件事，而你的伴侣用“我说过我很乐意帮忙，如果你告诉我该做什么”或“但是我每天都做X、Y和Z”来反驳 (如果不清楚，弄清楚需要做什么，然后给某人分配任务，这本身就是一种精神负担。)
+或者，也许你过去曾试图提起这件事，而你的伴侣用“我说过我很乐意帮忙，如果你告诉我该做什么”或“但是我每天都做 X、Y 和 Z”来反驳 (如果不清楚，弄清楚需要做什么，然后给某人分配任务，这本身就是一种精神负担。)
 
 不管怎样，这里有一些处理这个问题的技巧，梅丽莎·埃斯塔维洛 博士， [凤凰城专门从事夫妻咨询的注册心理学家，与健康热线](https://www.healthline.com/health/relationships/mental-load#how-to-explain-it) 分享:
 

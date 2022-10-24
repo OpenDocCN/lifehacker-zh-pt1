@@ -1,6 +1,6 @@
 # 父母如何鼓励孩子的快乐
 
-> 原文:[https://life hacker . com/how-parents-can-coince-their-childs-joy-1849465562](https://lifehacker.com/how-parents-can-encourage-their-childs-joy-1849465562)
+> 原文：<https://lifehacker.com/how-parents-can-encourage-their-childs-joy-1849465562>
 
 为人父母的一个意想不到的快乐是坐在前排看着孩子的快乐——无论是在动物园的兴奋，乘坐火车的经历，还是在夏天的一天喝一杯雪糕。儿童心理学专家、《儿童快乐练习册》一书的作者莫林·希利说:“大多数孩子都有巨大的快乐能力。“由于环境或生理原因，一些孩子生来就面临挑战，难以体验快乐，但大多数孩子都是快乐的。”作为父母，困难之一是找到一种方法来帮助你的孩子保持他们快乐的能力，即使生活中的困难阻碍了他们。
 

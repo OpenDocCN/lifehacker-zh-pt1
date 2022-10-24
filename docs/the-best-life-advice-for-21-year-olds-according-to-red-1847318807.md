@@ -1,18 +1,18 @@
-# 根据Reddit，对21岁年轻人的最佳生活建议
+# 根据 Reddit，对 21 岁年轻人的最佳生活建议
 
-> 原文:[https://life hacker . com/the-best-life-advice-for-21岁年轻人根据red-1847318807](https://lifehacker.com/the-best-life-advice-for-21-year-olds-according-to-red-1847318807)
+> 原文：<https://lifehacker.com/the-best-life-advice-for-21-year-olds-according-to-red-1847318807>
 
-如果你21岁，刚刚获得大学学位，雄心勃勃，想要开始新的生活，也许你应该向网上的陌生人寻求建议。我们有点像孩子——但是你*可以*向Reddit咨询你想要的所有建议，就像一个热切的 [大学毕业生最近在](https://www.reddit.com/r/lifehacks/comments/oj7415/any_life_hacks_that_a_21_year_old_should_do_now/) 的一个帖子中所做的那样，证明用牙线剔牙和开立罗斯个人退休帐户一样重要。
+如果你 21 岁，刚刚获得大学学位，雄心勃勃，想要开始新的生活，也许你应该向网上的陌生人寻求建议。我们有点像孩子——但是你*可以*向 Reddit 咨询你想要的所有建议，就像一个热切的 [大学毕业生最近在](https://www.reddit.com/r/lifehacks/comments/oj7415/any_life_hacks_that_a_21_year_old_should_do_now/) 的一个帖子中所做的那样，证明用牙线剔牙和开立罗斯个人退休帐户一样重要。
 
 Watch
 
-这个帖子由[u/briellee 99](https://www.reddit.com/user/brielleeee99/)发布，要求提供“生活窍门”，但她真正想要的是一些基本的财务规划建议，redditors很乐意提供。她说，她和她的男朋友正试图超越那种“崛起和磨砺”，这种喧嚣的文化废话，在她这个位置上的人可能会在研究如何获得成功的重要问题时发现。
+这个帖子由[u/briellee 99](https://www.reddit.com/user/brielleeee99/)发布，要求提供“生活窍门”，但她真正想要的是一些基本的财务规划建议，redditors 很乐意提供。她说，她和她的男朋友正试图超越那种“崛起和磨砺”，这种喧嚣的文化废话，在她这个位置上的人可能会在研究如何获得成功的重要问题时发现。
 
 她写道:
 
-> 如题所示，我21岁了，正在寻找可以立即应用到生活中的“窍门”，以便为将来的成功做准备。我在医疗保健行业全职工作，是一名入门级数据分析师(字面意思是4月份刚毕业)，到目前为止，我读到的一切都是疯狂地“研磨/工作”，但我想知道更多。股票、投资、其他形式的被动收入、某些类型的储蓄(RSP、TFSA等)。我和我的男朋友对我们将来可以做的房地产很感兴趣，因为我们听说这会非常成功。我们仍在学习，所以我非常感谢任何人的建议。谢谢！
+> 如题所示，我 21 岁了，正在寻找可以立即应用到生活中的“窍门”，以便为将来的成功做准备。我在医疗保健行业全职工作，是一名入门级数据分析师(字面意思是 4 月份刚毕业)，到目前为止，我读到的一切都是疯狂地“研磨/工作”，但我想知道更多。股票、投资、其他形式的被动收入、某些类型的储蓄(RSP、TFSA 等)。我和我的男朋友对我们将来可以做的房地产很感兴趣，因为我们听说这会非常成功。我们仍在学习，所以我非常感谢任何人的建议。谢谢！
 
-Redditors带来了一些优秀的智慧，如果你也处在她的位置，这些智慧值得你花费时间。
+Redditors 带来了一些优秀的智慧，如果你也处在她的位置，这些智慧值得你花费时间。
 
 ## 如何判断某样东西是否真的有必要购买
 
@@ -20,11 +20,11 @@ Redditor u/tvetus 提供了一个深思熟虑的练习，可以帮助你远离�
 
 他们写道:
 
-> 任何你想买的东西。想象一下，如果它贵5倍，你还会买吗？因为如果你不投资那笔钱，最终你会付出这样的代价。
+> 任何你想买的东西。想象一下，如果它贵 5 倍，你还会买吗？因为如果你不投资那笔钱，最终你会付出这样的代价。
 
 ## 关注今天，这样你才能享受明天
 
-不要过于追求建设未来，你可以通过关注现在的小事来实现。这基本上就是 [u/MamaSheeba试图传达的东西。](https://www.reddit.com/r/lifehacks/comments/oj7415/any_life_hacks_that_a_21_year_old_should_do_now/h500mia?utm_source=share&utm_medium=web2x&context=3)T3】
+不要过于追求建设未来，你可以通过关注现在的小事来实现。这基本上就是 [u/MamaSheeba 试图传达的东西。](https://www.reddit.com/r/lifehacks/comments/oj7415/any_life_hacks_that_a_21_year_old_should_do_now/h500mia?utm_source=share&utm_medium=web2x&context=3)T3】
 
 > 不要太关注未来，以至于不享受今天。我的意思不是像没有明天一样度过，而是享受你所拥有的而不是你所没有的！
 
@@ -46,7 +46,7 @@ redditor[u/alwayspickingcrap](https://www.reddit.com/r/lifehacks/comments/oj7415
 
 ## 利用你的假期时间
 
-这是一个简单的道理，但却很重要:不要因为试图给老板留下好印象或推进你的职业发展而浪费你所拥有的时间。正如u/alfith写的 :“享受你所有的假期，不要为此感到难过。”
+这是一个简单的道理，但却很重要:不要因为试图给老板留下好印象或推进你的职业发展而浪费你所拥有的时间。正如 u/alfith 写的 :“享受你所有的假期，不要为此感到难过。”
 
 这很重要！忽视你在法律上有义务离开工作的时间是没有用的，对此心怀愧疚对你自己是一种严重的伤害。你的职业是一场马拉松，而不是短跑，你需要长期的精神能量。
 
@@ -56,7 +56,7 @@ redditor[u/alwayspickingcrap](https://www.reddit.com/r/lifehacks/comments/oj7415
 
 这就是[u/尴尬-Cap-6825](https://www.reddit.com/r/lifehacks/comments/oj7415/any_life_hacks_that_a_21_year_old_should_do_now/h505bxy?utm_source=share&utm_medium=web2x&context=3) 在他们的词条中传达的意思:
 
-> 最大化你的罗斯个人退休帐户今年和每年....只需购买标准普尔500指数，在你60岁之前不要碰它。由于复利的魔力，它的价值应该超过你一生的收入。关键是你不能碰它，因为那是你在经济衰退时恐慌性抛售或取出它来支付你买不起的房子的首付等等而把它搞砸的时候。
+> 最大化你的罗斯个人退休帐户今年和每年....只需购买标准普尔 500 指数，在你 60 岁之前不要碰它。由于复利的魔力，它的价值应该超过你一生的收入。关键是你不能碰它，因为那是你在经济衰退时恐慌性抛售或取出它来支付你买不起的房子的首付等等而把它搞砸的时候。
 
 ## 每天刷牙并用牙线剔牙
 

@@ -1,14 +1,14 @@
 # 如何用棕色黄油让你的鸡翅酱味道更浓
 
-> 原文:[https://life hacker . com/how-to-give-your-wing-sauce-deep-flavor with-browned-1848495876](https://lifehacker.com/how-to-give-your-wing-sauce-deeper-flavor-with-browned-1848495876)
+> 原文：<https://lifehacker.com/how-to-give-your-wing-sauce-deeper-flavor-with-browned-1848495876>
 
 本周日，无论你是打算做水牛城 [鸡翅](https://lifehacker.com/instant-pot-buffalo-wings-are-fast-easy-and-very-good-1822565911)[tots](https://lifehacker.com/the-best-vegan-buffalo-wings-are-just-tater-tots-1846508364)[花椰菜](https://lifehacker.com/make-this-buffalo-cauliflower-dip-for-super-bowl-sunday-1832245628) 还是 [豆腐泡芙](https://lifehacker.com/i-am-obsessed-with-air-fried-buffalo-tofu-puffs-1848494566)你都很有可能会在上浇上弗兰克和融化黄油的混合物。
 
 Watch
 
-经典是有原因的，原因就是味道好。我很少建议任何人偏离弗兰克认可的1/3杯融化黄油和1/2杯酱汁的比例，但我有一个小的，微妙的，但非常有效的调整。
+经典是有原因的，原因就是味道好。我很少建议任何人偏离弗兰克认可的 1/3 杯融化黄油和 1/2 杯酱汁的比例，但我有一个小的，微妙的，但非常有效的调整。
 
-昨天早上，当我正在为我提到的的 [难以置信的水牛豆腐松饼](https://lifehacker.com/i-am-obsessed-with-air-fried-buffalo-tofu-puffs-1848494566) 融化黄油时，我发现自己心不在焉地滚动着Twitter ，直到泡沫黄油的温柔低语将我带回现实，回到我的厨房。“哦不！”我惊呼道。"我不能让黄油变黄。"
+昨天早上，当我正在为我提到的的 [难以置信的水牛豆腐松饼](https://lifehacker.com/i-am-obsessed-with-air-fried-buffalo-tofu-puffs-1848494566) 融化黄油时，我发现自己心不在焉地滚动着 Twitter ，直到泡沫黄油的温柔低语将我带回现实，回到我的厨房。“哦不！”我惊呼道。"我不能让黄油变黄。"
 
 为什么不呢？为什么我不能让黄油变成棕色？棕色黄油不错！我想得越多，就越确信我*应该*把黄油染成棕色。我做到了。
 

@@ -1,6 +1,6 @@
 # 如何娱乐一个无聊的婴儿
 
-> 原文:[https://life hacker . com/how-to-entertain-a-bored-ass-baby-1846476881](https://lifehacker.com/how-to-entertain-a-bored-ass-baby-1846476881)
+> 原文：<https://lifehacker.com/how-to-entertain-a-bored-ass-baby-1846476881>
 
 尽管他们拥有成堆的玩具，成堆的书籍可以阅读，外面天气也很好，但他们还有几年的时间来开始抱怨他们有多无聊的永恒的童年传统。但是即使是婴儿也会以他们自己的方式感到无聊。那是因为他们是好奇的小探险家，依赖你帮助他们四处活动进行探索。
 
@@ -20,11 +20,11 @@ Watch
 
 下面是我们的 [后代脸书社区](https://www.facebook.com/groups/2018785615043946) 中的父母们为下次贝比感到无聊时提出的一些其他想法:
 
-*   创建一个“蒙特梭利书架”“把4到6件东西放在宝宝自己能拿到的地方...一旦她会爬，她就有一篮子塑料质地的球，四五个木块，一个闷或带毯子的婴儿娃娃，一辆木制汽车。”(迈克尔)
+*   创建一个“蒙特梭利书架”“把 4 到 6 件东西放在宝宝自己能拿到的地方...一旦她会爬，她就有一篮子塑料质地的球，四五个木块，一个闷或带毯子的婴儿娃娃，一辆木制汽车。”(迈克尔)
 *   **管道清洁器绝招**。"旧香料容器与孔和管道清洁器."(Erica)另一个流行的变体是管道清洁器从漏勺的孔中伸出来。
 *   **销毁一些杂志**。“我儿子在会走路之前就喜欢撕毁杂志；明亮的颜色和触觉体验让他很开心。”(克里斯汀)
 *   **再利用的水瓶**。“我过去常常给女孩们空水瓶喝。便宜的噪音制造者，如果你能忍受的话。”(丹尼尔)
-*   **有手指/肢体动作的歌曲**。小组成员Carrie推荐 [这是由两个儿童图书馆员](https://www.youtube.com/user/Jbrary/featured) 创建的YouTube频道，他们分享歌曲和韵律:“ [这首歌是我的首选](https://www.youtube.com/watch?v=mfrn5_v_eCM) ，我四岁的孩子现在甚至还喜欢它。不过，对婴儿来说，这要容易得多。”
+*   **有手指/肢体动作的歌曲**。小组成员 Carrie 推荐 [这是由两个儿童图书馆员](https://www.youtube.com/user/Jbrary/featured) 创建的 YouTube 频道，他们分享歌曲和韵律:“ [这首歌是我的首选](https://www.youtube.com/watch?v=mfrn5_v_eCM) ，我四岁的孩子现在甚至还喜欢它。不过，对婴儿来说，这要容易得多。”
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-mfrn5_v_eCM&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-mfrn5_v_eCM&start=0) 
 

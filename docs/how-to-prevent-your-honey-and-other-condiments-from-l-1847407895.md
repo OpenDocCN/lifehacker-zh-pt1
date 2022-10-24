@@ -1,8 +1,8 @@
 # 如何防止你的蜂蜜(和其他调味品)留下黏糊糊的东西
 
-> 原文:[https://life hacker . com/how-to-prevent-your-honey-and-other-conditions-from-l-1847407895](https://lifehacker.com/how-to-prevent-your-honey-and-other-condiments-from-l-1847407895)
+> 原文：<https://lifehacker.com/how-to-prevent-your-honey-and-other-condiments-from-l-1847407895>
 
-据我所知，粘稠的液体从来都不受欢迎，尤其是在我的食品储藏室里，它们更不受欢迎，这里以T2和跨度闻名(这不是真的)。但是某些粘稠的物质和调味品最好倒着存放，这样会增加溢出的可能性，所以最好有一些缓解混乱的系统。
+据我所知，粘稠的液体从来都不受欢迎，尤其是在我的食品储藏室里，它们更不受欢迎，这里以 T2 和跨度闻名(这不是真的)。但是某些粘稠的物质和调味品最好倒着存放，这样会增加溢出的可能性，所以最好有一些缓解混乱的系统。
 
 Watch
 

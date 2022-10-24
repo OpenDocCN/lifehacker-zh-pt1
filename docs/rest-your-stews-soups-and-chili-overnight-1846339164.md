@@ -1,6 +1,6 @@
 # 让你的炖菜、汤和辣椒休息一夜
 
-> 原文:[https://life hacker . com/rest-your-stews-soups-and-Chili-隔夜-1846339164](https://lifehacker.com/rest-your-stews-soups-and-chili-overnight-1846339164)
+> 原文：<https://lifehacker.com/rest-your-stews-soups-and-chili-overnight-1846339164>
 
 我不会在辣椒煮熟的当天吃它。这对食谱不公平，对我也不公平。同样的道理也适用于炖菜、大部分炖菜，以及(理想情况下)任何基于肉类的意大利面酱。我不会让这些事情“休息”仅仅半个小时；我让他们好好睡了一觉。
 

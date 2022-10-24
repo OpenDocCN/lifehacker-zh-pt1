@@ -1,6 +1,6 @@
 # 在一段感情中，多大程度的争吵才算过分？
 
-> 原文:[https://life hacker . com/how-much-fighting-is-over-much-fighting-in-a-relationshi 1849364671](https://lifehacker.com/how-much-fighting-is-too-much-fighting-in-a-relationshi-1849364671)
+> 原文：<https://lifehacker.com/how-much-fighting-is-too-much-fighting-in-a-relationshi-1849364671>
 
 如果你每天都在和你的伴侣吵架，这影响了你的沟通能力或者在你们的关系之外有一个稳定的生活，你可能吵得太多了。但在你因为上周的四次争吵而感到你们的关系注定要失败之前，要知道一直争吵不一定是问题的征兆。
 

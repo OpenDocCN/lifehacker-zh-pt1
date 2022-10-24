@@ -1,18 +1,18 @@
 # 你应该定期问自己这些问题
 
-> 原文:[https://life hacker . com/you-should-be-questions-on-a-regu-1848564970](https://lifehacker.com/you-should-be-asking-yourself-these-questions-on-a-regu-1848564970)
+> 原文：<https://lifehacker.com/you-should-be-asking-yourself-these-questions-on-a-regu-1848564970>
 
 即使是最健康、最强壮、最快乐和最乐观的人也会不时感到身体和/或精神衰弱。对于我们其余的人来说，更多的是每天发生的事情。不管怎样，当你感觉有点不对劲的时候，你越早找到根本原因，你就能越早尝试解决它们。
 
 Watch
 
-虽然看着朋友或家庭成员经历艰难时刻并思考他们是如何走到这一步的很容易，但对我们自己来说，做同样的事情要困难得多。这时候自助入住就派上用场了。这里有10个经常问自己的问题，帮助你识别生活中需要注意的方面(从健康的角度来看)。
+虽然看着朋友或家庭成员经历艰难时刻并思考他们是如何走到这一步的很容易，但对我们自己来说，做同样的事情要困难得多。这时候自助入住就派上用场了。这里有 10 个经常问自己的问题，帮助你识别生活中需要注意的方面(从健康的角度来看)。
 
 ## 自我检查有什么帮助
 
 想想你最后一次体检。除了常规的检查——验血、量血压、膝锤反射试验——医疗服务提供者可能会问你很多非常私人的问题。他们并不是爱管闲事:他们的想法是收集关于你的习惯、行为和家族史等信息，这些信息可能会为你的整体健康提供线索。
 
-但是还有更多。“仅仅是解决某些话题的行为，如饮食和锻炼习惯或饮酒或吸烟的频率，往往会引发更深入的对话，更集中地讨论改善整体健康的方法，”迈克尔·巴伯，医学博士，博士，董事会认证的内科医生和心脏病专家 [最近告诉Real Simple](https://www.realsimple.com/health/preventative-health/health-questions-to-ask-yourself) 。
+但是还有更多。“仅仅是解决某些话题的行为，如饮食和锻炼习惯或饮酒或吸烟的频率，往往会引发更深入的对话，更集中地讨论改善整体健康的方法，”迈克尔·巴伯，医学博士，博士，董事会认证的内科医生和心脏病专家 [最近告诉 Real Simple](https://www.realsimple.com/health/preventative-health/health-questions-to-ask-yourself) 。
 
 虽然自我检查不应该被认为是身体检查或就医的替代品，但定期问自己几个问题可以帮助你保持健康。
 
@@ -20,7 +20,7 @@ Watch
 
 不要等到下一次体检，养成习惯，定期问自己问题——无论何时你都不知道是什么让你感觉如此糟糕。
 
-有多种自我评估，有各种各样的问题清单——包括来自 [的一个真正简单的](https://www.realsimple.com/health/preventative-health/health-questions-to-ask-yourself) ，以及来自 [美国卫生与公众服务部的其他人](https://www.ahrq.gov/ncepcr/tools/assessments/health-ap4.html)[普林斯顿大学](https://umatter.princeton.edu/sites/umatter/files/media/princeton-umatter-wellness-self-assessment.pdf) 和[【IDONTMIND](https://idontmind.com/journal/just-checking-in-ten-minutes-ten-questions)——有些比其他人更详细。为了帮助你开始，这里有10个最常出现的问题:
+有多种自我评估，有各种各样的问题清单——包括来自 [的一个真正简单的](https://www.realsimple.com/health/preventative-health/health-questions-to-ask-yourself) ，以及来自 [美国卫生与公众服务部的其他人](https://www.ahrq.gov/ncepcr/tools/assessments/health-ap4.html)[普林斯顿大学](https://umatter.princeton.edu/sites/umatter/files/media/princeton-umatter-wellness-self-assessment.pdf) 和[【IDONTMIND](https://idontmind.com/journal/just-checking-in-ten-minutes-ten-questions)——有些比其他人更详细。为了帮助你开始，这里有 10 个最常出现的问题:
 
 1.  你今天身体感觉如何？(即任何疼痛、呼吸困难、消化问题等。)
 2.  你今天感觉怎么样，精神上？(即当前情绪、整体精神状态、是否有任何间接变化等。)

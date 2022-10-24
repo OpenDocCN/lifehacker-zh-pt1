@@ -1,8 +1,8 @@
 # 在你的奶酪薯片中加入一些泡菜
 
-> 原文:[https://life hacker . com/add-some-pickles-to-your ' s cheese-crips-1849575176](https://lifehacker.com/add-some-pickles-to-your-cheese-crisps-1849575176)
+> 原文：<https://lifehacker.com/add-some-pickles-to-your-cheese-crisps-1849575176>
 
-奶酪和泡菜的结合是我非常喜欢的。我会在没有饼干或面包的帮助下吃这两种食物，但我也非常喜欢搭配[烤](https://lifehacker.com/putting-relish-in-a-grilled-cheese-is-a-very-good-idea-1828701383) 三明治。然而，泡菜奶酪薯片则介于两者之间。它只是奶酪和泡菜，但奶酪被油炸成饼干般的酥脆，使味道和感觉像是完全实现的一口。这个概念来自我最喜欢的TikToker(还有 [芝士酥创新者](https://lifehacker.com/you-should-fry-stuff-in-your-cheese-crisps-1847712396) )，凯文·阿什顿。
+奶酪和泡菜的结合是我非常喜欢的。我会在没有饼干或面包的帮助下吃这两种食物，但我也非常喜欢搭配[烤](https://lifehacker.com/putting-relish-in-a-grilled-cheese-is-a-very-good-idea-1828701383) 三明治。然而，泡菜奶酪薯片则介于两者之间。它只是奶酪和泡菜，但奶酪被油炸成饼干般的酥脆，使味道和感觉像是完全实现的一口。这个概念来自我最喜欢的 TikToker(还有 [芝士酥创新者](https://lifehacker.com/you-should-fry-stuff-in-your-cheese-crisps-1847712396) )，凯文·阿什顿。
 
 Watch [https://lifehacker.com/embed/inset/iframe?id=tiktok-7116264441909497130&autosize=1](https://lifehacker.com/embed/inset/iframe?id=tiktok-7116264441909497130&autosize=1) 
 

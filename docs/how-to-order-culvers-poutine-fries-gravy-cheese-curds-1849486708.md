@@ -1,18 +1,18 @@
-# 卡尔弗有一切你需要的东西让骗子Poutine
+# 卡尔弗有一切你需要的东西让骗子 Poutine
 
-> 原文:[https://the take out . com/how-to-order-culvers-poutine-fries-gravy-cheese-curds-1849486708](https://thetakeout.com/how-to-order-culvers-poutine-fries-gravy-cheese-curds-1849486708)
+> 原文：<https://thetakeout.com/how-to-order-culvers-poutine-fries-gravy-cheese-curds-1849486708>
 
-我们喜欢外卖店的布丁。这是一道不起眼的菜；从最基本也是最受欢迎的形式来看，这种加拿大主食就是浇上棕色肉汁的 [炸薯条，上面浇上新鲜奶酪](https://thetakeout.com/what-canadians-really-think-about-poutine-1849470653) 。尽管这道菜非常简单，但它在美国的受欢迎程度似乎永远不会有在加拿大的一半。即使麦当劳在那里也供应布丁，但是在这里，布丁很难找到。幸运的是，在一家美国快餐连锁店，你可以组装一个DIY版本，几乎和正品一样好。
+我们喜欢外卖店的布丁。这是一道不起眼的菜；从最基本也是最受欢迎的形式来看，这种加拿大主食就是浇上棕色肉汁的 [炸薯条，上面浇上新鲜奶酪](https://thetakeout.com/what-canadians-really-think-about-poutine-1849470653) 。尽管这道菜非常简单，但它在美国的受欢迎程度似乎永远不会有在加拿大的一半。即使麦当劳在那里也供应布丁，但是在这里，布丁很难找到。幸运的是，在一家美国快餐连锁店，你可以组装一个 DIY 版本，几乎和正品一样好。
 
 Watch
 
 ## 为什么卡尔弗是中西部快餐的宠儿
 
-你知道 [我是卡尔弗的粉丝](https://thetakeout.com/culvers-is-better-than-in-n-out-burger-midwest-vs-cal-1846692495) ，还有 [我不是一个人](https://thetakeout.com/culvers-is-the-best-midwest-chain-restaurant-1847111318) 。全美有 [近900个卡尔弗的位置](https://www.culvers.com/locator/view-all-locations) ，几乎横跨全国，除了一些沿海州 [和介于](https://twitter.com/Eric_Erins/status/1565179676485640193) 之间的少数倒霉蛋。前《辛普森一家》作家兼快餐爱好者比尔·奥克利最近第一次参观了这家位于威斯康星州的快餐店，并爱上了它(他的60秒回顾 就是证明)。他甚至称之为“我一生中最好的快餐”
+你知道 [我是卡尔弗的粉丝](https://thetakeout.com/culvers-is-better-than-in-n-out-burger-midwest-vs-cal-1846692495) ，还有 [我不是一个人](https://thetakeout.com/culvers-is-the-best-midwest-chain-restaurant-1847111318) 。全美有 [近 900 个卡尔弗的位置](https://www.culvers.com/locator/view-all-locations) ，几乎横跨全国，除了一些沿海州 [和介于](https://twitter.com/Eric_Erins/status/1565179676485640193) 之间的少数倒霉蛋。前《辛普森一家》作家兼快餐爱好者比尔·奥克利最近第一次参观了这家位于威斯康星州的快餐店，并爱上了它(他的 60 秒回顾 就是证明)。他甚至称之为“我一生中最好的快餐”
 
  [https://thetakeout.com/embed/inset/iframe?id=twitter-1561848420792356864&autosize=1](https://thetakeout.com/embed/inset/iframe?id=twitter-1561848420792356864&autosize=1) 
 
-虽然在全国各地都能找到卡尔弗，但它是一家彻头彻尾的中西部连锁店。[In-N-Out汉堡](https://thetakeout.com/in-n-out-has-terrible-french-fries-heres-why-1846514613) 粉丝们，我看到你们，也听到你们，但这是*我们*的特别之处。因为这家餐厅始于威斯康星州，所以菜单很大程度上依赖于地方经典，比如黄油汉堡(是的，这是一种涂有大量黄油的汉堡)，以及poutine的一种关键配料:奶酪凝乳。
+虽然在全国各地都能找到卡尔弗，但它是一家彻头彻尾的中西部连锁店。[In-N-Out 汉堡](https://thetakeout.com/in-n-out-has-terrible-french-fries-heres-why-1846514613) 粉丝们，我看到你们，也听到你们，但这是*我们*的特别之处。因为这家餐厅始于威斯康星州，所以菜单很大程度上依赖于地方经典，比如黄油汉堡(是的，这是一种涂有大量黄油的汉堡)，以及 poutine 的一种关键配料:奶酪凝乳。
 
 卡尔弗的菜单上还有其他家常菜，比如起皱的薯条，对于那些想在汉堡中加入稍微不同的边的人，你可以选择洋葱圈、椒盐卷饼，最重要的是，土豆泥和肉汁。方便的是，你可以点肉汁作为配菜。我想你能明白我的意思。
 
@@ -26,10 +26,10 @@ Watch
 
 因为他看起来对这道菜很熟悉，所以我问厄尔，以前是否有人来过他的餐馆一起吃猪肉。他证实我绝不是第一个尝试它的顾客。
 
-“这很有趣，他们脸上有这种表情，”厄尔说。“他们说，‘你知道poutine是什么吗？’我看美食网，我很喜欢那种东西。我知道这是加拿大的特色，也有人点过。"
+“这很有趣，他们脸上有这种表情，”厄尔说。“他们说，‘你知道 poutine 是什么吗？’我看美食网，我很喜欢那种东西。我知道这是加拿大的特色，也有人点过。"
 
-Ehle让顾客知道他很乐意做这道菜，即使这是顾客的要求。每一个卡尔弗的位置都会这么好吗？我所在的位置好像特别友好，很棒。不管你去哪家餐馆，除非你问，否则你不会知道。你应该这么做。当然是礼貌地。如果他们不能，你仍然可以点每样东西，自己动手做这道菜，价格远低于10美元。
+Ehle 让顾客知道他很乐意做这道菜，即使这是顾客的要求。每一个卡尔弗的位置都会这么好吗？我所在的位置好像特别友好，很棒。不管你去哪家餐馆，除非你问，否则你不会知道。你应该这么做。当然是礼貌地。如果他们不能，你仍然可以点每样东西，自己动手做这道菜，价格远低于 10 美元。
 
-当我问Ehle人们多久点一次黑布丁时，他说大概一年一次。“也许有人从镇外(订购)，有人从北方，但这不是很常见，”他说。
+当我问 Ehle 人们多久点一次黑布丁时，他说大概一年一次。“也许有人从镇外(订购)，有人从北方，但这不是很常见，”他说。
 
 也许我是以订购者的身份完成了年度配额。但是下次我想吃布丁的时候，我找不到了(为什么，美国？*为什么？我将前往卡尔弗餐厅，那里的员工会清楚地知道我想要什么。*

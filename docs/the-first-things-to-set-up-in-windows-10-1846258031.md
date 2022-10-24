@@ -1,10 +1,10 @@
-# 在Windows 10中首先要设置的东西
+# 在 Windows 10 中首先要设置的东西
 
-> 原文:[https://life hacker . com/the-first-things-to-setup-in-windows-10-1846258031](https://lifehacker.com/the-first-things-to-set-up-in-windows-10-1846258031)
+> 原文：<https://lifehacker.com/the-first-things-to-set-up-in-windows-10-1846258031>
 
-无论您是刚刚拆箱一台全新的PC 还是最近更新了您的软件，当您第一次使用Windows 10启动您的计算机时，您都需要启用一些设置和预设，以确保最佳的用户体验。
+无论您是刚刚拆箱一台全新的 PC 还是最近更新了您的软件，当您第一次使用 Windows 10 启动您的计算机时，您都需要启用一些设置和预设，以确保最佳的用户体验。
 
-首先，登录你的Microsoft帐户以同步你以前的设置，并保存你在Windows 10中进行的任何新设置。然后检查更新——如果您刚刚使用旧版本的Windows 10进行了更新，您会希望这样做以确保您拥有最新版本的所有内容。要了解最新信息，请注册Windows Insider计划以获得最新功能。
+首先，登录你的 Microsoft 帐户以同步你以前的设置，并保存你在 Windows 10 中进行的任何新设置。然后检查更新——如果您刚刚使用旧版本的 Windows 10 进行了更新，您会希望这样做以确保您拥有最新版本的所有内容。要了解最新信息，请注册 Windows Insider 计划以获得最新功能。
 
 以下是您想要切换的下一轮设置:
 

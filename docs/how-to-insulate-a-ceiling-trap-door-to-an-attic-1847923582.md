@@ -1,12 +1,12 @@
 # 如何隔离通往阁楼的天花板活板门
 
-> 原文:[https://life hacker . com/how-to-insulate-a-ceiling-trap-door-to-an-阁楼-1847923582](https://lifehacker.com/how-to-insulate-a-ceiling-trap-door-to-an-attic-1847923582)
+> 原文：<https://lifehacker.com/how-to-insulate-a-ceiling-trap-door-to-an-attic-1847923582>
 
 阁楼已经有了那种神秘的特质，在那里，对我们(或房子的前主人)来说在某个时候很重要的物品会被我们遗忘，然后最终被重新发现。事实上，许多阁楼是通过嵌入天花板的活板门进入的，这只会增加阴谋。(也可能你只是在上面放了旧的节日装饰品，或者让它空着，一点神秘感都没有。)
 
 Watch
 
-不管梯子上和舱口后面是什么，如果门没有隔热，它可能会影响房子其他部分的温度。在为这个古老的House.com撰写的一篇 [文章中，查尔斯·比克福德带我们经历了给阁楼的活板门隔热的过程。以下是需要了解的内容。](https://www.thisoldhouse.com/attics/22272541/attic-door-insulation)
+不管梯子上和舱口后面是什么，如果门没有隔热，它可能会影响房子其他部分的温度。在为这个古老的 House.com 撰写的一篇 [文章中，查尔斯·比克福德带我们经历了给阁楼的活板门隔热的过程。以下是需要了解的内容。](https://www.thisoldhouse.com/attics/22272541/attic-door-insulation)
 
 ## 如何隔绝阁楼活板门
 
@@ -20,7 +20,7 @@ Watch
 
 比克福德说，用刚性绝缘材料制作一个适合门框架开口的盒子，是比玻璃纤维更有效、更长期的解决方案，但也有点复杂。
 
-除了一块4x8英尺的刚性绝缘材料外，你还需要:
+除了一块 4x8 英尺的刚性绝缘材料外，你还需要:
 
 *   卷尺
 *   用刀或锯来切割绝缘层

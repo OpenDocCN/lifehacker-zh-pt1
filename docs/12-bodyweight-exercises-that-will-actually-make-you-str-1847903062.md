@@ -1,10 +1,10 @@
-# 12种实际上会让你变得更强壮的体重练习
+# 12 种实际上会让你变得更强壮的体重练习
 
-> 原文:[https://life hacker . com/12-body weight-exercises-that-will-make-you-str-1847903062](https://lifehacker.com/12-bodyweight-exercises-that-will-actually-make-you-str-1847903062)
+> 原文：<https://lifehacker.com/12-bodyweight-exercises-that-will-actually-make-you-str-1847903062>
 
 大量的家庭锻炼发誓会让你变得更强壮，但是很多都是空洞的承诺。如果你的心怦怦直跳，你已经记不清自己做了多少次了，那么你正在做的很可能*而不是*一项很好的力量训练。
 
-一旦你过了初级水平，这些锻炼中的大多数就不够难了。如果你足够强壮，可以在健身房蹲下100(或200或300)磅，无论你做多少次，你的肌肉都不会受到空中深蹲的挑战。
+一旦你过了初级水平，这些锻炼中的大多数就不够难了。如果你足够强壮，可以在健身房蹲下 100(或 200 或 300)磅，无论你做多少次，你的肌肉都不会受到空中深蹲的挑战。
 
 就像 [在健身房](https://lifehacker.com/what-does-it-mean-to-lift-heavy-1846309501) 举重一样，适当挑战体重的动作是那些你只能坚持少量重复的动作，并要求你在下一组动作前休息。因此，让我们来看看一些实际上符合要求的动作。
 
@@ -34,11 +34,11 @@
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-A2xRx7dGWaE&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-A2xRx7dGWaE&start=0) 
 
-如果你的腿筋缺少硬拉，试试 [这种身体重心移动](https://www.youtube.com/watch?v=A2xRx7dGWaE) ，也对一些相同的肌肉起作用。你唯一需要的是一个固定你的脚的地方——一个伙伴可以按住、或者你可以把你的脚楔在沙发下面或者用皮带把它们固定在长凳上。harop卷曲的主要特征是你在身体前倾的同时臀部弯曲。更难的版本，请看下一张幻灯片。
+如果你的腿筋缺少硬拉，试试 [这种身体重心移动](https://www.youtube.com/watch?v=A2xRx7dGWaE) ，也对一些相同的肌肉起作用。你唯一需要的是一个固定你的脚的地方——一个伙伴可以按住、或者你可以把你的脚楔在沙发下面或者用皮带把它们固定在长凳上。harop 卷曲的主要特征是你在身体前倾的同时臀部弯曲。更难的版本，请看下一张幻灯片。
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-v_Egn_3CCsM&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-v_Egn_3CCsM&start=0) 
 
-臭名昭著的 [北欧卷发](https://www.youtube.com/watch?v=v_Egn_3CCsM) 是一种艰苦却有效的锻炼。就像引体向上一样，你可以使用底片或带子朝它们努力——or做Harop卷发，直到你准备好尝试这种更强硬的变体。
+臭名昭著的 [北欧卷发](https://www.youtube.com/watch?v=v_Egn_3CCsM) 是一种艰苦却有效的锻炼。就像引体向上一样，你可以使用底片或带子朝它们努力——or 做 Harop 卷发，直到你准备好尝试这种更强硬的变体。
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-ayAqntt21eA&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-ayAqntt21eA&start=0) 
 
@@ -54,4 +54,4 @@
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-CR3CS7qhG_s&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-CR3CS7qhG_s&start=0) 
 
-ab轮是一个奇妙的东西，但你实际上并不需要一个轮子来做它。你可以把你的手放在体操环或TRX风格的悬浮训练器上，或者就像上面的和 [中的视频那样，把滑块放在你的手下面](https://www.youtube.com/watch?v=CR3CS7qhG_s) 。你可以买滑梯，或者在你的健身台面上用任何容易移动的东西即兴制作。( [纸盘子在很多楼层都出奇的好用](https://lifehacker.com/how-to-get-a-full-body-workout-with-a-pair-of-paper-pla-1843923503) )。)
+ab 轮是一个奇妙的东西，但你实际上并不需要一个轮子来做它。你可以把你的手放在体操环或 TRX 风格的悬浮训练器上，或者就像上面的和 [中的视频那样，把滑块放在你的手下面](https://www.youtube.com/watch?v=CR3CS7qhG_s) 。你可以买滑梯，或者在你的健身台面上用任何容易移动的东西即兴制作。( [纸盘子在很多楼层都出奇的好用](https://lifehacker.com/how-to-get-a-full-body-workout-with-a-pair-of-paper-pla-1843923503) )。)

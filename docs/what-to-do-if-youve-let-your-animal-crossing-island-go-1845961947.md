@@ -1,8 +1,8 @@
 # 如果你让你的动物穿越岛见鬼去了，该怎么办
 
-> 原文:[https://life hacker . com/what-do-if-you-ve-let-your-animal-crossing-island-go-1845961947](https://lifehacker.com/what-to-do-if-youve-let-your-animal-crossing-island-go-1845961947)
+> 原文：<https://lifehacker.com/what-to-do-if-youve-let-your-animal-crossing-island-go-1845961947>
 
-*动物穿越:新视野*是[2020年](https://lifehacker.com/the-games-that-got-us-through-2020-1845939977) 拯救我们理智的游戏之一，但并不是每个人都天天玩。也许你在开关上找到了其他可以玩的东西，或者只是厌倦了日常琐事——没关系！但是当你回来的时候，你可能会注意到你的岛看起来有点不同。
+*动物穿越:新视野*是[2020 年](https://lifehacker.com/the-games-that-got-us-through-2020-1845939977) 拯救我们理智的游戏之一，但并不是每个人都天天玩。也许你在开关上找到了其他可以玩的东西，或者只是厌倦了日常琐事——没关系！但是当你回来的时候，你可能会注意到你的岛看起来有点不同。
 
 Watch
 
@@ -24,10 +24,10 @@ Watch
 
 就像在现实生活中一样，你每天都会在*动物过境点*收到邮件。即使你不玩的时候，这些邮件也会被投递，所以花几分钟补上你的信件和包裹——只是要记住你可能不会收到所有的邮件*。*
 
-你的村民的邮箱一次只能容纳300条消息。如果你离开了几个月，收件箱爆满，你甚至可能会丢失一些无法投递的邮件——包括朋友送的礼物或整年只出现一次的独一无二的特殊物品。不幸的是，这些错过的项目无法找回(除非你诉诸时间旅行)。
+你的村民的邮箱一次只能容纳 300 条消息。如果你离开了几个月，收件箱爆满，你甚至可能会丢失一些无法投递的邮件——包括朋友送的礼物或整年只出现一次的独一无二的特殊物品。不幸的是，这些错过的项目无法找回(除非你诉诸时间旅行)。
 
 ### 寻找特殊事件
 
 动物穿越游戏有自己的季节日历，有特殊的节日，一年只有一次。这些有时间限制的特别活动包括独特的项目和对你的城市的更新，如玩具日的下雪天气。这些事件一旦消失就无法访问，但如果你幸运的话，当你再次加载游戏时，你可能会碰巧遇到一个。把你镇上的每一寸土地都检查一遍，看看有没有什么变化。
 
-现在，由于FOMO，我不建议每天玩一个游戏——有许多其他的游戏、爱好和重要的生活事件比*动物穿越更重要—* 然而，有许多在线资源可以用来了解*新视野*即将到来的重要季节事件，或者帮助你预测你的岛屿周围的随机事件，如 [流星雨和天气](https://lifehacker.com/how-to-predict-animal-crossing-meteor-showers-to-the-se-1844279683) 或 [跟踪市场波动](https://www.polygon.com/animal-crossing-new-horizons-switch-acnh-guide/2020/3/20/21181835/selling-turnips-stalk-market) ，所以你不会错过
+现在，由于 FOMO，我不建议每天玩一个游戏——有许多其他的游戏、爱好和重要的生活事件比*动物穿越更重要—* 然而，有许多在线资源可以用来了解*新视野*即将到来的重要季节事件，或者帮助你预测你的岛屿周围的随机事件，如 [流星雨和天气](https://lifehacker.com/how-to-predict-animal-crossing-meteor-showers-to-the-se-1844279683) 或 [跟踪市场波动](https://www.polygon.com/animal-crossing-new-horizons-switch-acnh-guide/2020/3/20/21181835/selling-turnips-stalk-market) ，所以你不会错过

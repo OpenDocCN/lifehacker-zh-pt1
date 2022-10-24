@@ -1,6 +1,6 @@
 # 如何像一个负责任的成年人一样存放圣诞装饰品
 
-> 原文:[https://life hacker . com/how-to-store-your-Christmas-decorations-like-a-respon I-1848256836](https://lifehacker.com/how-to-store-your-christmas-decorations-like-a-responsi-1848256836)
+> 原文：<https://lifehacker.com/how-to-store-your-christmas-decorations-like-a-responsi-1848256836>
 
 你知道最糟糕的是什么吗？试图解开一串缠在箱底一团的灯。收拾你的圣诞装饰很费时间，你可能想把所有东西都扔进一个盒子里，但是如果你用正确的方式打包，你可以为你的未来省去很多麻烦。这里有一些让打包(和以后拆包)尽可能不痛苦的小技巧。
 
@@ -8,7 +8,7 @@ Watch
 
 ## 如何防止光股纠缠在一起
 
-有几种方法可以在混乱发生之前防止混乱，并使拆包变得轻而易举。节日灯有 [卷轴](https://www.harrietcarter.com/household/organizers/holiday-light-storage-bag/173439.html?afsrc=1&gclid=Cj0KCQiAk4aOBhCTARIsAFWFP9FSxIZJLbxVXGXRD778MbwZaqYseQIcBfqqpDia6bRwtXN-lKTQrEIaAj_cEALw_wcB&gclsrc=aw.ds) 可以装三个卷轴，还有一个袋子可以打包。这些都很棒，因为它们可以防止灯缠绕或损坏。不过，对于DIY解决方案来说，你可以先将一些瓦楞纸板切割成10-英寸乘以12--英寸的部分，然后沿着每个12-英寸的边每英寸切割两个- 英寸的槽，这样你就可以自己做储物空间了。然后将你的灯缠绕在纸板上，将电线穿过插槽。
+有几种方法可以在混乱发生之前防止混乱，并使拆包变得轻而易举。节日灯有 [卷轴](https://www.harrietcarter.com/household/organizers/holiday-light-storage-bag/173439.html?afsrc=1&gclid=Cj0KCQiAk4aOBhCTARIsAFWFP9FSxIZJLbxVXGXRD778MbwZaqYseQIcBfqqpDia6bRwtXN-lKTQrEIaAj_cEALw_wcB&gclsrc=aw.ds) 可以装三个卷轴，还有一个袋子可以打包。这些都很棒，因为它们可以防止灯缠绕或损坏。不过，对于 DIY 解决方案来说，你可以先将一些瓦楞纸板切割成 10-英寸乘以 12--英寸的部分，然后沿着每个 12-英寸的边每英寸切割两个- 英寸的槽，这样你就可以自己做储物空间了。然后将你的灯缠绕在纸板上，将电线穿过插槽。
 
 这个简单的设置将为你省去很多麻烦，而且最棒的是，如果你有一些纸板，它是免费的。你也可以用一条胶带在每一束上贴上标签，比如灯的长度和数量——这将使明年更容易找到特定的束。
 
@@ -18,7 +18,7 @@ Watch
 
 ## 如何储存你的圣诞礼物
 
-对于易碎物品，分隔盒是最好的解决方案。你可以使用预制的 [分隔盒](https://www.target.com/p/12gal-flip-lid-60ct-ornament-storage-tub-wondershop-8482/-/A-82421053?ref=tgt_adv_XS000000&AFID=google_pla_df&fndsrc=tgtao&DFA=71700000012807842&CPNG=PLA_Storage%2BOrganization%2BShopping_Local%7CStorage%2BOrganization_Ecomm_Home&adgroup=SC_Storage%2BOrganization&LID=700000001170770pgs&LNM=PRODUCT_GROUP&network=g&device=c&location=9061081&targetid=aud-1453399007936:pla-1413466064118&ds_rl=1246978&ds_rl=1247068&gclid=Cj0KCQiAk4aOBhCTARIsAFWFP9FC1zNEypQLeqHvM6bYKogdriJivvIMsEuJSJ5VbVE_2GH6MyFmgX4aAsV7EALw_wcB&gclsrc=aw.ds) ，或者，如果你愿意，可以自己动手制作分隔盒，在现有的盒子中使用。第一步是c 按照你的盒子的长度将纸板切成三英寸的长条，然后是相应数量的与你的盒子宽度相当的长条。然后，在每条带子的一边每隔三英寸切一个1.5英寸的槽。然后将长条放入短条的槽中，你就为你的饰品制作了一个简单的DIY 隔断。
+对于易碎物品，分隔盒是最好的解决方案。你可以使用预制的 [分隔盒](https://www.target.com/p/12gal-flip-lid-60ct-ornament-storage-tub-wondershop-8482/-/A-82421053?ref=tgt_adv_XS000000&AFID=google_pla_df&fndsrc=tgtao&DFA=71700000012807842&CPNG=PLA_Storage%2BOrganization%2BShopping_Local%7CStorage%2BOrganization_Ecomm_Home&adgroup=SC_Storage%2BOrganization&LID=700000001170770pgs&LNM=PRODUCT_GROUP&network=g&device=c&location=9061081&targetid=aud-1453399007936:pla-1413466064118&ds_rl=1246978&ds_rl=1247068&gclid=Cj0KCQiAk4aOBhCTARIsAFWFP9FC1zNEypQLeqHvM6bYKogdriJivvIMsEuJSJ5VbVE_2GH6MyFmgX4aAsV7EALw_wcB&gclsrc=aw.ds) ，或者，如果你愿意，可以自己动手制作分隔盒，在现有的盒子中使用。第一步是 c 按照你的盒子的长度将纸板切成三英寸的长条，然后是相应数量的与你的盒子宽度相当的长条。然后，在每条带子的一边每隔三英寸切一个 1.5 英寸的槽。然后将长条放入短条的槽中，你就为你的饰品制作了一个简单的 DIY 隔断。
 
 ## 如何存放你的购物中心、各式各样的圣诞物品
 

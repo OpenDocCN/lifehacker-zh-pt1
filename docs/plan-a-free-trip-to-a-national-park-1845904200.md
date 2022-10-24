@@ -1,23 +1,23 @@
 # 计划一次去国家公园的免费旅行
 
-> 原文:[https://life hacker . com/plan-a-free-trip-to-a-national-park-1845904200](https://lifehacker.com/plan-a-free-trip-to-a-national-park-1845904200)
+> 原文：<https://lifehacker.com/plan-a-free-trip-to-a-national-park-1845904200>
 
-国家公园管理局宣布了他们的 [2021年免费公园日期](https://www.nps.gov/planyourvisit/fee-free-parks.htm) ，是时候开始制定你的旅行计划了。由于疫情的活动让我们在2020年的大部分时间里都呆在室内，所以去户外旅行可能是你新的、限制较少的一年的完美计划。(从三月份开始，我就一直在同样的二十个街区散步，所以换换环境会很好。)
+国家公园管理局宣布了他们的 [2021 年免费公园日期](https://www.nps.gov/planyourvisit/fee-free-parks.htm) ，是时候开始制定你的旅行计划了。由于疫情的活动让我们在 2020 年的大部分时间里都呆在室内，所以去户外旅行可能是你新的、限制较少的一年的完美计划。(从三月份开始，我就一直在同样的二十个街区散步，所以换换环境会很好。)
 
 Watch
 
-观看黄石公园的间歇泉或欣赏大峡谷的惊人景色绝对是值得努力的事情，因为在美国和美国领土上有超过400个国家公园可供选择，所以很容易计划附近的一日游或周末度假。
+观看黄石公园的间歇泉或欣赏大峡谷的惊人景色绝对是值得努力的事情，因为在美国和美国领土上有超过 400 个国家公园可供选择，所以很容易计划附近的一日游或周末度假。
 
 ### 免费入场日的计划
 
-国家公园的门票价格从每人5美元到每辆车35美元不等，但是围绕免费入场日期进行规划可以帮助省钱。以下是2021年的免费公园日期:
+国家公园的门票价格从每人 5 美元到每辆车 35 美元不等，但是围绕免费入场日期进行规划可以帮助省钱。以下是 2021 年的免费公园日期:
 
-*   1月18日:马丁·路德·金的生日。
-*   4月17日: [国家公园周第一天](https://www.nps.gov/pore/planyourvisit/events_nationalparkweek_2021.htm#:~:text=National%20Park%20Week%20is%20an,17%20through%20Sunday%2C%20April%2025.)
-*   8月4日:伟大的美国户外法案一周年纪念日
-*   8月25日:国家公园管理局105岁生日
-*   9月25日:国家公共土地日
-*   11月11日:退伍军人节
+*   1 月 18 日:马丁·路德·金的生日。
+*   4 月 17 日: [国家公园周第一天](https://www.nps.gov/pore/planyourvisit/events_nationalparkweek_2021.htm#:~:text=National%20Park%20Week%20is%20an,17%20through%20Sunday%2C%20April%2025.)
+*   8 月 4 日:伟大的美国户外法案一周年纪念日
+*   8 月 25 日:国家公园管理局 105 岁生日
+*   9 月 25 日:国家公共土地日
+*   11 月 11 日:退伍军人节
 
 ### 使用“探索公园”搜索功能
 
@@ -25,4 +25,4 @@ Watch
 
 ### 享受折扣，享受更长时间的住宿
 
-一些国家公园广阔无垠——大沼泽地延伸超过150万英亩，弗兰格尔-圣伊莱亚斯国家公园&保护区 ，美国最大的国家公园占地1320万英亩——所以不用说，一些公园不可能在一天之内探索完。如果你想游览所有的景点并省钱， [美国美丽通行证](https://www.nps.gov/planyourvisit/passes.htm) 为公园游客提供折扣和一揽子交易。通行证从80美元的年票到免费的 [四年级通行证](https://www.everykidoutdoors.gov/index.htm) ，可以通过指定的 [联邦娱乐场所](https://store.usgs.gov/s3fs-public/PassIssuanceList.pdf) 购买。
+一些国家公园广阔无垠——大沼泽地延伸超过 150 万英亩，弗兰格尔-圣伊莱亚斯国家公园&保护区 ，美国最大的国家公园占地 1320 万英亩——所以不用说，一些公园不可能在一天之内探索完。如果你想游览所有的景点并省钱， [美国美丽通行证](https://www.nps.gov/planyourvisit/passes.htm) 为公园游客提供折扣和一揽子交易。通行证从 80 美元的年票到免费的 [四年级通行证](https://www.everykidoutdoors.gov/index.htm) ，可以通过指定的 [联邦娱乐场所](https://store.usgs.gov/s3fs-public/PassIssuanceList.pdf) 购买。

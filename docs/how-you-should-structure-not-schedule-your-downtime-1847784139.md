@@ -1,6 +1,6 @@
 # 你应该如何安排(而不是安排)你的停机时间
 
-> 原文:[https://life hacker . com/how-you-should-structure-not-schedule-your-down-1847784139](https://lifehacker.com/how-you-should-structure-not-schedule-your-downtime-1847784139)
+> 原文：<https://lifehacker.com/how-you-should-structure-not-schedule-your-downtime-1847784139>
 
 尽管一些人可能会发现休闲时间的想法在理论上很有吸引力，但当涉及到离开工作和其他个人及家庭义务时——即使只有几个小时——没有“生产力”的想法可能是压力的来源。
 

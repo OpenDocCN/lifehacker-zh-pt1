@@ -1,10 +1,10 @@
 # 如何观看各大流媒体服务的片尾字幕
 
-> 原文:[https://life hacker . com/how-to-watch-the-end-credits-on-every-major-streaming-s-1849423717](https://lifehacker.com/how-to-watch-the-end-credits-on-every-major-streaming-s-1849423717)
+> 原文：<https://lifehacker.com/how-to-watch-the-end-credits-on-every-major-streaming-s-1849423717>
 
 无论你是想感谢为你最喜爱的流媒体电影和电视节目工作的许多“线下”娱乐行业专业人士的贡献，还是想在下一集开始前有时间吃点零食，打开流媒体服务上的“观看积分”选项是个好主意。
 
-网飞、葫芦等。艾尔。不一定要让这个超级容易做到——它应该是选择加入，而不是选择退出——但这里有一个如何在网飞，Prime Video，HBO Max，Hulu和Disney+上观看演职员表的指南。
+网飞、葫芦等。艾尔。不一定要让这个超级容易做到——它应该是选择加入，而不是选择退出——但这里有一个如何在网飞，Prime Video，HBO Max，Hulu 和 Disney+上观看演职员表的指南。
 
 Watch
 
@@ -25,9 +25,9 @@ Watch
 *   选择要更改的配置文件。
 *   取消选择“自动播放下一集”和“自动播放预览”(如果您愿意。
 
-## **如何在亚马逊Prime视频上观看片尾字幕**
+## **如何在亚马逊 Prime 视频上观看片尾字幕**
 
-如果有一种方法可以从Prime Video应用程序中更改自动播放设置，我找不到它，所以你必须登录到网站上进行操作。
+如果有一种方法可以从 Prime Video 应用程序中更改自动播放设置，我找不到它，所以你必须登录到网站上进行操作。
 
 *   导航到 [黄金视频首页](https://www.amazon.com/Prime-Video/b?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-watch-the-end-credits-on-every-major-streaming-s-1849423717&asc_source=&node=2676882011&tag=kinjalifehackerlink-20) 。
 *   单击页面右上角的齿轮图标。
@@ -35,35 +35,35 @@ Watch
 *   点击“播放器”
 *   关闭自动播放。(如果你想的话，还可以“自动播放预告片”。)
 
-## **如何在HBO Max上观看片尾字幕**
+## **如何在 HBO Max 上观看片尾字幕**
 
-HBO Max为您提供了观看片尾字幕的“即时”选项以及永久设置。默认观看到单集结束:
+HBO Max 为您提供了观看片尾字幕的“即时”选项以及永久设置。默认观看到单集结束:
 
-*   **Apple TV:** 按下Apple TV遥控器上的菜单按钮。
+*   **Apple TV:** 按下 Apple TV 遥控器上的菜单按钮。
 *   **其他电视设备:**按遥控器上的后退按钮。
-*   **手机、平板电脑和电脑:**选择下一集按钮旁边的X。
+*   **手机、平板电脑和电脑:**选择下一集按钮旁边的 X。
 
-若要永久关闭HBO Max的“跳到下一集”倒计时:
+若要永久关闭 HBO Max 的“跳到下一集”倒计时:
 
-*   登录HBO Max主页
+*   登录 HBO Max 主页
 *   在屏幕的右上角选择您的个人资料。
 *   点击“设置”
 *   向下滚动到“播放”并关闭“在此设备上自动播放下一集”
 
-## **如何在Hulu上观看片尾字幕**
+## **如何在 Hulu 上观看片尾字幕**
 
-Hulu使得从网络或流媒体应用控制自动播放功能变得相对容易。
+Hulu 使得从网络或流媒体应用控制自动播放功能变得相对容易。
 
 从您的流媒体或移动设备:
 
-*   启动Hulu
+*   启动 Hulu
 *   选择帐户图标
 *   选择设置
 *   打开/关闭自动播放
 
 从网站上
 
-*   登录Hulu.tv
+*   登录 Hulu.tv
 *   播放期间，点按齿轮图标以打开设置菜单
 *   打开/关闭自动播放
 

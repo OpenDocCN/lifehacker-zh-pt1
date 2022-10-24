@@ -1,6 +1,6 @@
 # 事实上，你不需要在冰水中“休克”煮熟的鸡蛋
 
-> 原文:[https://life hacker . com/actually-you-done-shock-in-IC-1846577178](https://lifehacker.com/actually-you-dont-need-to-shock-hard-boiled-eggs-in-ic-1846577178)
+> 原文：<https://lifehacker.com/actually-you-dont-need-to-shock-hard-boiled-eggs-in-ic-1846577178>
 
 Watch
 

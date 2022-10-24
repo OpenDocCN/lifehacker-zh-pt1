@@ -1,6 +1,6 @@
 # 什么时候你应该说“谢谢”而不是“对不起”
 
-> 原文:[https://life hacker . com/when-you-should-say-thank-you-inst-of-sorry-1846392106](https://lifehacker.com/when-you-should-say-thank-you-instead-of-sorry-1846392106)
+> 原文：<https://lifehacker.com/when-you-should-say-thank-you-instead-of-sorry-1846392106>
 
 正确而有效的道歉是一门不精确的艺术。任何真正令人满意的道歉都会传达出*为什么*你感到抱歉，以及你明白你潜在的过错可能会对其他人产生怎样的影响。
 
@@ -20,9 +20,9 @@ Watch
 
 ### 这有助于增强对方对你的信心
 
-如果你真的对某事感到抱歉，至少你希望对方相信你有能力解决问题。在这方面，用礼貌代替道歉会对你有所帮助。在2019年 [发表在*市场营销杂志*](https://journals.sagepub.com/doi/abs/10.1177/0022242919889894?casa_token=AVI4cGWTzTAAAAAA%3AefKtBnGPN5uV4mxpm1g7h2btYYrHSLa2zw63fz3AzzPBC0IpHSa5wOEPXwukF0xxQNbPhrzUHSfO&journalCode=jmxa) 上的一项研究中，研究人员发现，这种动态在零售环境中运作得非常完美。在这项研究中，当零售员工感谢他们指出错误，而不是道歉时，消费者对自己感觉更好。
+如果你真的对某事感到抱歉，至少你希望对方相信你有能力解决问题。在这方面，用礼貌代替道歉会对你有所帮助。在 2019 年 [发表在*市场营销杂志*](https://journals.sagepub.com/doi/abs/10.1177/0022242919889894?casa_token=AVI4cGWTzTAAAAAA%3AefKtBnGPN5uV4mxpm1g7h2btYYrHSLa2zw63fz3AzzPBC0IpHSa5wOEPXwukF0xxQNbPhrzUHSfO&journalCode=jmxa) 上的一项研究中，研究人员发现，这种动态在零售环境中运作得非常完美。在这项研究中，当零售员工感谢他们指出错误，而不是道歉时，消费者对自己感觉更好。
 
-通过感谢别人来承认错误会让你感到更有力量，而不是温顺。它暗示，“H是的，我看到了，我会继续努力，因为这完全在我的掌握之中。”
+通过感谢别人来承认错误会让你感到更有力量，而不是温顺。它暗示，“H 是的，我看到了，我会继续努力，因为这完全在我的掌握之中。”
 
 ### 它将焦点从你身上引开
 

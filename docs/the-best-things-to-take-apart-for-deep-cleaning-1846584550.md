@@ -1,6 +1,6 @@
 # 深层清洁的最佳拆卸工具
 
-> 原文:[https://life hacker . com/the-best-things-to-take-dis-for-deep cleaning-1846584550](https://lifehacker.com/the-best-things-to-take-apart-for-deep-cleaning-1846584550)
+> 原文：<https://lifehacker.com/the-best-things-to-take-apart-for-deep-cleaning-1846584550>
 
 让我告诉你们一个家庭清洁的小故事:我们的前主编爱丽丝·布拉德利给我发了一个社交媒体视频，视频中有人展示了如何拧开你的马桶座圈来清理支架下的粘性物质。现在，我是一个去镇上我的浴室与一些泡沫漂白清洁剂，但从来没有见过这种方法。
 

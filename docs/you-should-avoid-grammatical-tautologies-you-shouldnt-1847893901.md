@@ -1,8 +1,8 @@
 # 避免语法同义反复，这样你就不会重复说同样的话
 
-> 原文:[https://life hacker . com/you-should-avoid-grammar-taultiologies-you-should nt-1847893901](https://lifehacker.com/you-should-avoid-grammatical-tautologies-you-shouldnt-1847893901)
+> 原文：<https://lifehacker.com/you-should-avoid-grammatical-tautologies-you-shouldnt-1847893901>
 
-关于 [他们是，他们的，还有](https://www.merriam-webster.com/words-at-play/how-to-use-theyre-there-their#:~:text=Their%20is%20the%20possessive%20pronoun,they're%20getting%20married.%22) 的区别，什么时候用[who vs . who](https://lifehacker.com/how-to-remember-the-difference-between-who-and-whom-1837581203)，以及 [affect和effect](https://lifehacker.com/how-to-use-affect-versus-effect-1836526644) 的区别，已经写了很多。但是重言式？听到这个词，你会想，*好吧，那些是什么鬼东西*？
+关于 [他们是，他们的，还有](https://www.merriam-webster.com/words-at-play/how-to-use-theyre-there-their#:~:text=Their%20is%20the%20possessive%20pronoun,they're%20getting%20married.%22) 的区别，什么时候用[who vs . who](https://lifehacker.com/how-to-remember-the-difference-between-who-and-whom-1837581203)，以及 [affect 和 effect](https://lifehacker.com/how-to-use-affect-versus-effect-1836526644) 的区别，已经写了很多。但是重言式？听到这个词，你会想，*好吧，那些是什么鬼东西*？
 
 Watch
 
@@ -34,7 +34,7 @@ Watch
 
 ****他亲手做的**:如果是*他*做的，他还会用谁的手呢？**
 
-****(请)RSVP** :说请总是好的。但严格来说，please并不是必须的，因为RSVP代表 *répondre，s ' il vous plat***T5】(用法语回复please)。****
+****(请)RSVP** :说请总是好的。但严格来说，please 并不是必须的，因为 RSVP 代表 *répondre，s ' il vous plat***T5】(用法语回复 please)。****
 
 ****(新)创新**:所有的创新都是新的。**
 
@@ -42,8 +42,8 @@ Watch
 
 ****通勤(来回)**:通勤是运送自己上下班的行为。这种来回是隐含的。**
 
-****Evolve(随时间)**:Evolve就是随着时间逐渐发展。**
+****Evolve(随时间)**:Evolve 就是随着时间逐渐发展。**
 
-****PIN码，ATM机**:这些已经成为通用说法，但是PIN中的“N”是“号码”的意思，ATM中的“M”是“机器”的意思。**
+****PIN 码，ATM 机**:这些已经成为通用说法，但是 PIN 中的“N”是“号码”的意思，ATM 中的“M”是“机器”的意思。**
 
 ****事情就是这样**:谢谢你澄清了这一点。**

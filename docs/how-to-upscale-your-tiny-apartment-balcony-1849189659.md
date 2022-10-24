@@ -1,6 +1,6 @@
 # 如何提升你狭小公寓阳台的档次
 
-> 原文:[https://life hacker . com/how-to-upgrade-your-tiny-apartment-阳台-1849189659](https://lifehacker.com/how-to-upscale-your-tiny-apartment-balcony-1849189659)
+> 原文：<https://lifehacker.com/how-to-upscale-your-tiny-apartment-balcony-1849189659>
 
 空间永远是珍贵的；正如马克·吐温曾经说过的，“买土地吧，他们不再生产土地了。”然而，当你住在一个小的城市公寓里，你唯一的私人“户外空间”是一个阳台，理论上可以容纳两个人，如果他们都屏住呼吸的话。尽管让 [的户外空间变得更宽敞更舒适](https://lifehacker.com/how-to-make-a-hospitable-outdoor-space-in-less-than-a-d-1849102966)甚至 [更适合聚会](https://lifehacker.com/how-to-decorate-your-deck-to-start-having-people-over-a-1846840252) 并不难，但出租的小阳台也有其自身的挑战，既有空间上的挑战，也因为你做的任何升级都需要可拆卸。
 
@@ -38,4 +38,4 @@ Watch
 
 ## 吊床
 
-如果你看到一张吊床，你会想象自己睡在上面——这是T2的人性。如果你的阳台有三个栏杆，你可以在几分钟内轻松安装一个 [华丽的吊床](https://tinyurl.com/48wayufp) ，并且在不到十分钟的时间里在那里小睡片刻。增加一个放饮料的架子和一个存放手机的地方，你就有了一个小睡和阅读的地方，如果你搬到一个新的地方，它可以在几分钟内消失。
+如果你看到一张吊床，你会想象自己睡在上面——这是 T2 的人性。如果你的阳台有三个栏杆，你可以在几分钟内轻松安装一个 [华丽的吊床](https://tinyurl.com/48wayufp) ，并且在不到十分钟的时间里在那里小睡片刻。增加一个放饮料的架子和一个存放手机的地方，你就有了一个小睡和阅读的地方，如果你搬到一个新的地方，它可以在几分钟内消失。

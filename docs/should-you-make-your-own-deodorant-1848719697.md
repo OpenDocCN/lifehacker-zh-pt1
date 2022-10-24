@@ -1,16 +1,16 @@
 # 你应该自己制作除臭剂吗？
 
-> 原文:[https://life hacker . com/should-you-make-you-own-deadsome-1848719697](https://lifehacker.com/should-you-make-your-own-deodorant-1848719697)
+> 原文：<https://lifehacker.com/should-you-make-your-own-deodorant-1848719697>
 
-尽管互联网上关于使用止汗剂的危险的智慧被夸大了(你 [实际上不需要担心你的止汗剂是否含有铝](https://lifehacker.com/you-don-t-need-to-worry-about-aluminum-in-your-deodoran-1825016935) )，但你可能已经考虑过在处理你的体味时是否应该走更自然的路线。除臭剂在不抑制身体排汗的情况下掩盖气味( [，这就是止汗剂的作用](https://lifehacker.com/the-difference-between-antiperspirant-and-deodorant-an-1847397101) )，有一大堆品牌承诺这样做更“自然”，从缅因州的汤姆(Tom ' s)(4.89美元)，到Native(12.99美元)，到Schmidt(9.19美元)，到Lume(16.99美元)。问题是，除了汤姆的(会让腋下整天都湿湿的)，它们通常都很贵。(*三十美元*这个 [例行程序](https://www.amazon.com/dp/B0744N2H1X?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/should-you-make-your-own-deodorant-1848719697&asc_source=&imprToken=0cbfeaf9-dfef-b710-e65&ots=1&slotNum=14&tag=kinjalifehackerlink-20) 除臭剂的用量看起来相当于你在橡皮泥容器中找到的量。)
+尽管互联网上关于使用止汗剂的危险的智慧被夸大了(你 [实际上不需要担心你的止汗剂是否含有铝](https://lifehacker.com/you-don-t-need-to-worry-about-aluminum-in-your-deodoran-1825016935) )，但你可能已经考虑过在处理你的体味时是否应该走更自然的路线。除臭剂在不抑制身体排汗的情况下掩盖气味( [，这就是止汗剂的作用](https://lifehacker.com/the-difference-between-antiperspirant-and-deodorant-an-1847397101) )，有一大堆品牌承诺这样做更“自然”，从缅因州的汤姆(Tom ' s)(4.89 美元)，到 Native(12.99 美元)，到 Schmidt(9.19 美元)，到 Lume(16.99 美元)。问题是，除了汤姆的(会让腋下整天都湿湿的)，它们通常都很贵。(*三十美元*这个 [例行程序](https://www.amazon.com/dp/B0744N2H1X?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/should-you-make-your-own-deodorant-1848719697&asc_source=&imprToken=0cbfeaf9-dfef-b710-e65&ots=1&slotNum=14&tag=kinjalifehackerlink-20) 除臭剂的用量看起来相当于你在橡皮泥容器中找到的量。)
 
 Watch
 
-但是有另一种方法可以“自然地”减少臭味——制造你自己的除臭剂。虽然一开始听起来可能无效或耗时，DIY自制除臭剂是避免使用你不想涂在皮肤上的成分的好方法，并且在你的口袋里留一些额外的钞票。
+但是有另一种方法可以“自然地”减少臭味——制造你自己的除臭剂。虽然一开始听起来可能无效或耗时，DIY 自制除臭剂是避免使用你不想涂在皮肤上的成分的好方法，并且在你的口袋里留一些额外的钞票。
 
 ## 你为什么要自己做除臭剂？
 
-虽然围绕除臭剂中的铝的毒性的担忧已经被怀疑 (没有确凿的证据表明铝与阿尔茨海默氏症或乳腺癌有关)，但出于其他原因，你可能希望避免使用止汗剂。他们的香味会引起瘙痒、过敏性皮疹，或者 [加重哮喘](https://www.asthma.com/understanding-asthma/asthma-triggers/strong-odors-and-asthma/#:~:text=For%20some%20people%2C%20strong%20odors,removers%20can%20trigger%20asthma%20symptoms.)；根据 [大卫·铃木基金会](https://davidsuzuki.org/queen-of-green/dirty-dozen-bha-bht/) 的说法，抗氧化剂BHT(列为我目前正在使用的多芬0%铝棒中的一种成分)也会导致皮肤过敏反应。
+虽然围绕除臭剂中的铝的毒性的担忧已经被怀疑 (没有确凿的证据表明铝与阿尔茨海默氏症或乳腺癌有关)，但出于其他原因，你可能希望避免使用止汗剂。他们的香味会引起瘙痒、过敏性皮疹，或者 [加重哮喘](https://www.asthma.com/understanding-asthma/asthma-triggers/strong-odors-and-asthma/#:~:text=For%20some%20people%2C%20strong%20odors,removers%20can%20trigger%20asthma%20symptoms.)；根据 [大卫·铃木基金会](https://davidsuzuki.org/queen-of-green/dirty-dozen-bha-bht/) 的说法，抗氧化剂 BHT(列为我目前正在使用的多芬 0%铝棒中的一种成分)也会导致皮肤过敏反应。
 
 除臭剂也可能含有邻苯二甲酸盐和三氯生，根据国家环境健康科学研究所的说法，这些物质是内分泌干扰物，“与发育、生殖、大脑、免疫和其他问题有关”美国国家卫生研究院承认，“关于人类潜在健康问题的科学信息有限”，因为人们通常同时暴露于多种内分泌干扰物，评估单一干扰物的影响很困难。但是根据 [内分泌学会](https://www.endocrine.org/patient-engagement/endocrine-library/edcs) 的说法，内分泌干扰化学物质“已经与许多不利于人类健康的结果联系在一起，包括...精子质量和生育能力、性器官异常、子宫内膜异位、青春期提前、神经系统功能改变、免疫功能、某些癌症……”这样的例子不胜枚举。
 
@@ -26,9 +26,9 @@ Watch
 
 ## 除臭剂的基本配方
 
-*   6汤匙椰子油
-*   4汤匙小苏打
-*   4汤匙玉米淀粉
-*   5-10滴精油(可选)
+*   6 汤匙椰子油
+*   4 汤匙小苏打
+*   4 汤匙玉米淀粉
+*   5-10 滴精油(可选)
 
 混合粉末，用叉子在椰子油中捣碎。混合至所需浓度，必要时加入更多粉末。如果需要，加入精油。虽然可以用手指涂抹，但是为了方便涂抹，可以把它放在一个空的除臭棒里。注意:你需要将自制除臭剂放在阴凉的地方，因为成分可能会在温暖的温度下融化。

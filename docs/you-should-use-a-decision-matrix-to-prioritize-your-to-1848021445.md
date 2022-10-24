@@ -1,8 +1,8 @@
 # 你应该使用一个“决策矩阵”来区分你的待办事项列表的优先次序
 
-> 原文:[https://life hacker . com/you-should-use-a-decision-matrix-to-1848021445](https://lifehacker.com/you-should-use-a-decision-matrix-to-prioritize-your-to-1848021445)
+> 原文：<https://lifehacker.com/you-should-use-a-decision-matrix-to-prioritize-your-to-1848021445>
 
-尽管我们想完成永无止境的待办事项清单上的每一件事，我们也意识到一天中只有这么多的时间和精力。当你不确定如何将你面前的所有任务按重要性排序时(或者将什么委托给别人)，是时候创建一个“决策矩阵”了正如Amy Drader，[Growth Partners Consulting的一位顾问建议的那样](https://www.growthpartnersconsulting.com/post/prioritize-better-with-these-4-strategies) ，决策矩阵可以帮助你根据紧急程度和努力程度来优先ti zet工作。
+尽管我们想完成永无止境的待办事项清单上的每一件事，我们也意识到一天中只有这么多的时间和精力。当你不确定如何将你面前的所有任务按重要性排序时(或者将什么委托给别人)，是时候创建一个“决策矩阵”了正如 Amy Drader，[Growth Partners Consulting 的一位顾问建议的那样](https://www.growthpartnersconsulting.com/post/prioritize-better-with-these-4-strategies) ，决策矩阵可以帮助你根据紧急程度和努力程度来优先 ti zet 工作。
 
 Watch
 
@@ -10,7 +10,7 @@ Watch
 
 一个决策矩阵可以帮助你将几个选择缩小到一个——特别是、、[德拉德说](https://www.growthpartnersconsulting.com/post/prioritize-better-with-these-4-strategies)、，当面前的大量工作任务让你感到“不知所措”时
 
-为了构建你的矩阵，绘制一个基本图，用“努力”标记水平 x轴，用“紧急”标记垂直y轴在两条线相交的点写“低”，在y轴的顶端和x轴的右端写“高”。( [此处为视觉](https://www.growthpartnersconsulting.com/post/prioritize-better-with-these-4-strategies) )。)这将帮助你将你的图划分成象限:
+为了构建你的矩阵，绘制一个基本图，用“努力”标记水平 x 轴，用“紧急”标记垂直 y 轴在两条线相交的点写“低”，在 y 轴的顶端和 x 轴的右端写“高”。( [此处为视觉](https://www.growthpartnersconsulting.com/post/prioritize-better-with-these-4-strategies) )。)这将帮助你将你的图划分成象限:
 
 *   H 高紧急，低努力
 *   H igh 紧迫性，高努力

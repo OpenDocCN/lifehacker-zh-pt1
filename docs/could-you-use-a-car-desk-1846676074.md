@@ -1,6 +1,6 @@
 # 你能使用汽车服务台吗？
 
-> 原文:[https://lifehacker.com/could-you-use-a-car-desk-1846676074](https://lifehacker.com/could-you-use-a-car-desk-1846676074)
+> 原文：<https://lifehacker.com/could-you-use-a-car-desk-1846676074>
 
 一年多来，在家工作的生活方式已经成为许多美国人的常态，这要求我们改造我们的空间以服务于双重目的。一些极具 [创意的临时办公桌和家庭办公空间](https://www.huffpost.com/entry/clever-work-from-home-spaces-quarantine_l_5e90de76c5b6ad719f27b923) 已经在疫情期间出现，很少有比 [车载办公桌](https://cardesk.com/) 更耐人寻味的了。这听起来像是一场即将发生的事故，但是如果使用正确(并且安全)，它们可以提供一种实用的方法，将你的前座或后座变成办公桌。鉴于我们中的许多人仍然不放心把笔记本电脑放在咖啡店里八个小时，这可能正是你需要找到一个真正专用的工作空间。
 

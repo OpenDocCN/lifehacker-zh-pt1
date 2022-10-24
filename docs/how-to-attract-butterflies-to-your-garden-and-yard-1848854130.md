@@ -1,6 +1,6 @@
 # 如何吸引蝴蝶到你的花园和院子里
 
-> 原文:[https://life hacker . com/how-to-attract-butterfly-to-your ' s garden and yard-1848854130](https://lifehacker.com/how-to-attract-butterflies-to-your-garden-and-yard-1848854130)
+> 原文：<https://lifehacker.com/how-to-attract-butterflies-to-your-garden-and-yard-1848854130>
 
 我不在乎你有多愤世嫉俗，你会很高兴在你的花园或后院看到蝴蝶。这些五颜六色的昆虫不仅美丽，它们为植物授粉，吸引鸟类， [激发玛利亚关怀](https://mariahcarey.fandom.com/wiki/Butterfly_(album)) y，并为我们提供了一个被过度使用的 [比喻转化](https://greattransitionstories.org/patterns-of-change/the-metaphor-of-metamorphosis) 。
 
@@ -10,7 +10,7 @@ Watch
 
 ## 对于吸引蝴蝶的花朵，考虑“留在本地”
 
-蝴蝶和花朵就像《警界双雄》一样。它们从大量不同种类的花中吸取花蜜，但并不是每朵花都是一样的。为了增加你花园里蝴蝶数量的机会，本地花卉是你最好的选择。毕竟，当地的蝴蝶和当地的花是一起进化的。查看Lady Bird Johnson wild flower Center网站，获取各州的花卉指南，为您提供种植花卉的建议。
+蝴蝶和花朵就像《警界双雄》一样。它们从大量不同种类的花中吸取花蜜，但并不是每朵花都是一样的。为了增加你花园里蝴蝶数量的机会，本地花卉是你最好的选择。毕竟，当地的蝴蝶和当地的花是一起进化的。查看 Lady Bird Johnson wild flower Center 网站，获取各州的花卉指南，为您提供种植花卉的建议。
 
 根据美国国家野生动物联盟 的说法，成年蝴蝶最容易被“红色、黄色、橙色、粉色和紫色的平顶或簇状短花管花朵”的甜美花蜜所吸引更多具体信息，查看这个 [优秀蝴蝶蜜源植物名录](https://www.joyfulbutterfly.com/what-do-butterflies-eat/) 。
 
@@ -18,9 +18,9 @@ Watch
 
 ## 研究它们想在哪里产卵
 
-蝴蝶可以从大量不同的花中吸取花蜜，但是它们对产卵的地方更加挑剔。例如，帝王蝶只在马利筋上产卵，而黑燕雀只在芸香属植物上产卵。美国大约有750种蝴蝶，所以你最好对当地的“苍蝇”做一点研究。找出它们想产卵的地方，然后把卵种在那里。许多州都有官方的蝴蝶。 [这个列表](https://www.netstate.com/states/tables/state_butterflies.htm) 是一个很好的开始。
+蝴蝶可以从大量不同的花中吸取花蜜，但是它们对产卵的地方更加挑剔。例如，帝王蝶只在马利筋上产卵，而黑燕雀只在芸香属植物上产卵。美国大约有 750 种蝴蝶，所以你最好对当地的“苍蝇”做一点研究。找出它们想产卵的地方，然后把卵种在那里。许多州都有官方的蝴蝶。 [这个列表](https://www.netstate.com/states/tables/state_butterflies.htm) 是一个很好的开始。
 
-还有，记住:没有毛毛虫就没有蝴蝶。一个种满了当地毛虫吃的植物的花园是最好的选择，但是每种毛虫只吃很少种类的植物。大约有180，000种毛毛虫，所以你必须研究你周围生活着哪些种类的毛毛虫。
+还有，记住:没有毛毛虫就没有蝴蝶。一个种满了当地毛虫吃的植物的花园是最好的选择，但是每种毛虫只吃很少种类的植物。大约有 180，000 种毛毛虫，所以你必须研究你周围生活着哪些种类的毛毛虫。
 
 ## **考虑他们的安全，以及他们将如何度过停机时间**
 

@@ -1,6 +1,6 @@
 # 当有人念错你的名字时该怎么办
 
-> 原文:[https://life hacker . com/what-to-do what-what-what-what-someone-念错你的名字-1846172033](https://lifehacker.com/what-to-do-when-someone-mispronounces-your-name-1846172033)
+> 原文：<https://lifehacker.com/what-to-do-when-someone-mispronounces-your-name-1846172033>
 
 在我生命的大部分时间里，似乎每个不熟悉其文化相关性的人都会念错或拼错我的名字。通常他们会用更普通的词(Alicia)或拼写相似的词(Asia)来代替它，却没有意识到自己的错误。但是不断的发音错误(或昵称的分配，因为你的名字“很难说”或“记住】)是基于名字的微攻击的例子，这可能 [导致介绍自己时的焦虑](https://www.psychologytoday.com/us/blog/underdog-psychology/201909/understanding-name-based-microaggressions) ，甚至可能证明对你的感受漠不关心，这相当于一种形式的欺凌。它会让你感到彻底的沮丧，忽视这种行为只会让虐待持续下去。
 
@@ -10,11 +10,11 @@ Watch
 
 ### 直截了当
 
-如果有人说错了你的名字，不要听之任之。随意打断他们，纠正他们的发音，或者让他们知道如何正确发音。让人们注意到取对名字的重要性。[*放射性青年媒体*的联合主持人，播客Keya Roy](https://www.kuow.org/stories/a-rose-by-any-other-name-would-not-be-me) 说，“打断某人说‘是Keya，不是Keeya’，不是我让人生气，而是我反对种族主义的载体，然后反过来，创造一个拥有你的名字是正常的，而不是例外的环境。”纠正的行为向那个人表明你名字的发音很重要，他们有责任去学习它。如果你是这种纠正的接受者，请注意。如果你不知道如何说某人的名字，就去问。不要猜测，当然也不要简单地给这个人取一个你更容易记住的昵称。
+如果有人说错了你的名字，不要听之任之。随意打断他们，纠正他们的发音，或者让他们知道如何正确发音。让人们注意到取对名字的重要性。[*放射性青年媒体*的联合主持人，播客 Keya Roy](https://www.kuow.org/stories/a-rose-by-any-other-name-would-not-be-me) 说，“打断某人说‘是 Keya，不是 Keeya’，不是我让人生气，而是我反对种族主义的载体，然后反过来，创造一个拥有你的名字是正常的，而不是例外的环境。”纠正的行为向那个人表明你名字的发音很重要，他们有责任去学习它。如果你是这种纠正的接受者，请注意。如果你不知道如何说某人的名字，就去问。不要猜测，当然也不要简单地给这个人取一个你更容易记住的昵称。
 
 ### 预测常见的发音错误
 
-不得不在工作或正式的社交场合反复纠正某人是令人沮丧的，因此，保持你的职业精神会变得困难。在这些情况下，你可以表现得自信但不粗鲁。(在专业环境之外，反应由你决定)。 [《快公司》](https://www.fastcompany.com/40553849/what-to-say-when-coworkers-wont-stop-mispronouncing-your-name) 建议先发制人地解决个人对你名字的任何疑问。例如，用正确的语音发音介绍自己。我的一个朋友总是自称“带e的拉克蕾塔”。这促使人们说“La-Cree-ta”而不是“La-Kret-a”。[斯塔夫·齐夫](https://www.themuse.com/author/stav-ziv) ，她为缪斯写了关于工作场所歧视的文章，指出这种重复有助于人们记录正确的发音，并有效地记住它。
+不得不在工作或正式的社交场合反复纠正某人是令人沮丧的，因此，保持你的职业精神会变得困难。在这些情况下，你可以表现得自信但不粗鲁。(在专业环境之外，反应由你决定)。 [《快公司》](https://www.fastcompany.com/40553849/what-to-say-when-coworkers-wont-stop-mispronouncing-your-name) 建议先发制人地解决个人对你名字的任何疑问。例如，用正确的语音发音介绍自己。我的一个朋友总是自称“带 e 的拉克蕾塔”。这促使人们说“La-Cree-ta”而不是“La-Kret-a”。[斯塔夫·齐夫](https://www.themuse.com/author/stav-ziv) ，她为缪斯写了关于工作场所歧视的文章，指出这种重复有助于人们记录正确的发音，并有效地记住它。
 
 ### 就你的名字进行一次难忘的对话
 

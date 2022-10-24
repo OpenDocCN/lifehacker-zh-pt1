@@ -1,6 +1,6 @@
 # 如何清洁可重复使用的吸管(因为你的可能很恶心)
 
-> 原文:[https://life hacker . com/how-to-clean-reuse-straws-as-yours-possible-1847263628](https://lifehacker.com/how-to-clean-reusable-straws-because-yours-are-probabl-1847263628)
+> 原文：<https://lifehacker.com/how-to-clean-reusable-straws-because-yours-are-probabl-1847263628>
 
 当人们转而使用可重复使用的吸管时，通常是出于好意——特别是减少他们每天产生的垃圾填埋量。当你第一次使用它们的时候，它们很棒，但是不久之后，所有的吸管都沉在了水槽的底部，你就没有干净的吸管了。
 
@@ -8,7 +8,7 @@ Watch
 
 当然，他们是带着那把小刷子来的，但那需要努力。“我只要冲洗它们，”你想。或者，因为你只用它们来装水，你认为它们会自动清洁。不幸的是，事实并非如此。而且，像其他经常暴露在潮湿环境中的地方一样，可重复使用的吸管最终往往会充满细菌。
 
-让我们假定你是无辜的，如果你知道怎么做，你肯定会清理你的可重复使用的吸管。嗯，你很幸运，因为Elsie Yang在 [的一篇关于井+好](https://www.wellandgood.com/reusable-straw-cleaning-tips/) 的文章中向我们介绍了流程。以下是需要了解的内容。
+让我们假定你是无辜的，如果你知道怎么做，你肯定会清理你的可重复使用的吸管。嗯，你很幸运，因为 Elsie Yang 在 [的一篇关于井+好](https://www.wellandgood.com/reusable-straw-cleaning-tips/) 的文章中向我们介绍了流程。以下是需要了解的内容。
 
 ## 如何清洁可重复使用的吸管
 

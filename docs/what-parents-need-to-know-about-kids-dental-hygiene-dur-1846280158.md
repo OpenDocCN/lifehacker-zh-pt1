@@ -1,12 +1,12 @@
 # 疫情期间父母需要了解的儿童口腔卫生知识
 
-> 原文:[https://life hacker . com/what-parents-need-to-know-on-kids-dental-hygiene-dur-1846280158](https://lifehacker.com/what-parents-need-to-know-about-kids-dental-hygiene-dur-1846280158)
+> 原文：<https://lifehacker.com/what-parents-need-to-know-about-kids-dental-hygiene-dur-1846280158>
 
 在过去的一年里，我们不得不仔细审查我们做的每一个约会，我们跑的每一个差事，以及我们接受或拒绝的每一个邀请。这是风险管理中的一个持续练习。有可能接触到新冠肺炎值得吗？值得拿着一份稳定的薪水，让我的孩子继续上学，买一些化妆品，理发，见一个朋友？
 
 Watch
 
-一个不幸的副作用是，一些父母选择跳过常规的预防性牙科保健预约，而喜欢让孩子呆在家里，远离细菌——或者他们发现现在预约很难，因为积压的访问和社交距离练习。正如 [CNN报道](https://www.cnn.com/2021/02/15/health/kids-missing-dental-care-pandemic-wellness/index.html) 援引 [C.S .莫特儿童医院公布的一项关于儿童健康的全国民意调查](https://mottpoll.org/about) :
+一个不幸的副作用是，一些父母选择跳过常规的预防性牙科保健预约，而喜欢让孩子呆在家里，远离细菌——或者他们发现现在预约很难，因为积压的访问和社交距离练习。正如 [CNN 报道](https://www.cnn.com/2021/02/15/health/kids-missing-dental-care-pandemic-wellness/index.html) 援引 [C.S .莫特儿童医院公布的一项关于儿童健康的全国民意调查](https://mottpoll.org/about) :
 
 > 自疫情开始以来，40%的父母根本不寻求护理，理由是担心感染、办公室关闭和费用。
 > 
@@ -30,7 +30,7 @@ Watch
 
 一天中的时间也很重要:早餐后和就寝前是帮助孩子刷牙的理想时间，因为这可以让他们在一天的大部分时间里保持清洁。记住孩子睡觉前最不应该接触牙齿的东西是他们的牙刷是很有帮助的(例如，刷牙后的瓶子会抵消你刚刚做的好事)。
 
-饮食也是家庭口腔卫生的一个重要组成部分，正如CNN报道的:
+饮食也是家庭口腔卫生的一个重要组成部分，正如 CNN 报道的:
 
 > 这要从限制糖的饮食开始，糖会滋生导致蛀牙的有害细菌。申金说:“孩子们白天应该喝的唯一饮料是水，也许还有牛奶。”。
 > 

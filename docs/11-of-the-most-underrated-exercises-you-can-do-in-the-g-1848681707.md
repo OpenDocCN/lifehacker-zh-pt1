@@ -1,6 +1,6 @@
-# 你可以在健身房做的11项最被低估的运动
+# 你可以在健身房做的 11 项最被低估的运动
 
-> 原文:[https://life hacker . com/11-of-the-most-低估-你能做的练习-1848681707](https://lifehacker.com/11-of-the-most-underrated-exercises-you-can-do-in-the-g-1848681707)
+> 原文：<https://lifehacker.com/11-of-the-most-underrated-exercises-you-can-do-in-the-g-1848681707>
 
 我们已经讨论了 [最被高估的运动](https://lifehacker.com/10-of-the-most-overrated-exercises-and-what-to-do-inst-1848635603)——这份清单包括一些非常受欢迎的运动，比如二头肌弯曲和带状深蹲。今天是时候反其道而行之了:看，一系列最被低估的练习，也许你应该再试一次(或者第一次)。
 
@@ -26,7 +26,7 @@
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-j38LNpTLwzY&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-j38LNpTLwzY&start=0) 
 
-低强度、稳定状态的有氧运动(通常缩写为LISS)肯定会被忽视。人们说它“无聊”，或者他们试图将其时间效率与HIIT或高强度间歇训练相提并论。但是 [LISS有一堆真正的好处](https://lifehacker.com/how-to-choose-between-hiit-and-steady-cardio-workouts-1848105482) : I t改善你的有氧健身，它的恢复成本非常低(所以第二天你仍然会有充足的精力去健身房)，而且它甚至在中等强度下仍然有效，在这种强度下你可以正常呼吸——甚至可以听一段不错的播客。而不，它 [不杀你的收益](https://lifehacker.com/does-the-cardio-interference-effect-really-slow-your-ga-1846984740) 。
+低强度、稳定状态的有氧运动(通常缩写为 LISS)肯定会被忽视。人们说它“无聊”，或者他们试图将其时间效率与 HIIT 或高强度间歇训练相提并论。但是 [LISS 有一堆真正的好处](https://lifehacker.com/how-to-choose-between-hiit-and-steady-cardio-workouts-1848105482) : I t 改善你的有氧健身，它的恢复成本非常低(所以第二天你仍然会有充足的精力去健身房)，而且它甚至在中等强度下仍然有效，在这种强度下你可以正常呼吸——甚至可以听一段不错的播客。而不，它 [不杀你的收益](https://lifehacker.com/does-the-cardio-interference-effect-really-slow-your-ga-1846984740) 。
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-vLgNjXucUs0&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-vLgNjXucUs0&start=0) 
 
@@ -48,18 +48,18 @@
 
 严格的头顶按压是一个伟大的动作(无论是用哑铃、杠铃还是壶铃)，但它不是移动重量的唯一方式。推压使用膝盖的故意弯曲将重量发射到天空，手臂完成这项工作。
 
-这使得它更像是一个全身运动，因此当你想在短时间内完成大量工作时，这是一个很好的选择(在下一次间歇训练中尝试用它代替burpees)。这也是移动大量重量的有效方法；只看大力士比赛。更重要的是，它需要与核心和肩膀有良好的连接，才能让你将力量从腿转移到杆上。我推荐训练严格的按*和*推压；他们很好地互补。
+这使得它更像是一个全身运动，因此当你想在短时间内完成大量工作时，这是一个很好的选择(在下一次间歇训练中尝试用它代替 burpees)。这也是移动大量重量的有效方法；只看大力士比赛。更重要的是，它需要与核心和肩膀有良好的连接，才能让你将力量从腿转移到杆上。我推荐训练严格的按*和*推压；他们很好地互补。
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-4nlCEL1w9xc&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-4nlCEL1w9xc&start=0) 
 
-当我第一次在健身房看到壶铃时，它们和其他重量一样被使用:作为练习，你要摆动10次，然后放下，或者你在每侧各摆动5次。但是有一种叫做的完整运动，人们训练尽可能长时间地举起壶铃，并以分钟而不是次数来衡量他们的集合。这种类型的训练可以增强心血管和肌肉的耐力，很难否认在一次训练中获得几十甚至几百次的效果。负重训练也是一个不错的改变，让你不断地问自己:我怎样才能让这*变得更容易*？你在每次练习中付出的努力越少，你能坚持的时间就越长。
+当我第一次在健身房看到壶铃时，它们和其他重量一样被使用:作为练习，你要摆动 10 次，然后放下，或者你在每侧各摆动 5 次。但是有一种叫做的完整运动，人们训练尽可能长时间地举起壶铃，并以分钟而不是次数来衡量他们的集合。这种类型的训练可以增强心血管和肌肉的耐力，很难否认在一次训练中获得几十甚至几百次的效果。负重训练也是一个不错的改变，让你不断地问自己:我怎样才能让这*变得更容易*？你在每次练习中付出的努力越少，你能坚持的时间就越长。
 
  [https://lifehacker.com/embed/inset/iframe?id=instagram-CIOjjWGhod4&autosize=1](https://lifehacker.com/embed/inset/iframe?id=instagram-CIOjjWGhod4&autosize=1) 
 
-上拉棒极了。也许你正在努力得到你的第一个，或者你已经有10个了。但是然后呢？与其做更多的引体向上，或者更难的引体向上，为什么不增加重量呢？
+上拉棒极了。也许你正在努力得到你的第一个，或者你已经有 10 个了。但是然后呢？与其做更多的引体向上，或者更难的引体向上，为什么不增加重量呢？
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-OJIWMlLa38Q&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-OJIWMlLa38Q&start=0) 
 
-ab轮绝对是一项被低估的核心运动。它在大多数健身房的角落里无人问津，直到有人决定试一试，摔了个四脚朝天，然后它又会继续尘封一周。
+ab 轮绝对是一项被低估的核心运动。它在大多数健身房的角落里无人问津，直到有人决定试一试，摔了个四脚朝天，然后它又会继续尘封一周。
 
 但这是一个很好的锻炼，尤其是如果你已经厌倦了普通的木板和鸟狗。要开始，面对一面墙，只需 [滚动滚轮，直到碰到墙](https://lifehacker.com/how-to-make-the-ab-wheel-suck-less-1841068450) 。如果你能一路来回，脊柱保持中立，动作缓慢且有控制，再后退几英寸。一旦你可以从膝盖开始做一个完整的翻滚，就可以开始站立了。

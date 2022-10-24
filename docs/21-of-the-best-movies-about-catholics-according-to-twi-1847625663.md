@@ -1,6 +1,6 @@
-# 根据推特，21部最好的天主教电影
+# 根据推特，21 部最好的天主教电影
 
-> 原文:[https://life hacker . com/21-of-the-best-movies-on-catholist-据twi-1847625663](https://lifehacker.com/21-of-the-best-movies-about-catholics-according-to-twi-1847625663)
+> 原文：<https://lifehacker.com/21-of-the-best-movies-about-catholics-according-to-twi-1847625663>
 
 推特用户 [伊恩·圣](https://twitter.com/IanStFrance/status/1432734733558034434?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1432734733558034434%7Ctwgr%5E%7Ctwcon%5Es1_&ref_url=https%3A%2F%2Fkinja.com%2Fembed%2Finset%2Fiframe%3Fautosize%3D1id%3Dtwitter-1432734733558034434) 最近要求列出最喜欢的天主教电影，对这个问题的解释没有定论，人们很乐意提供他们的首选:
 
@@ -8,9 +8,9 @@
 
 这些不仅仅是亲天主教的电影(尽管大多数都是)。有些人问令人不舒服的问题；他们很有挑战性，也很不舒服。几个用户提到了*教条*，我没有把它包括在这个列表中，因为奇怪的是，它目前还没有在任何地方流传。
 
-同样有趣的是:尽管许多用户提到了梅尔·吉普森的《耶稣受难记》，但没有人提到马丁·斯科塞斯的《T2》和《基督最后的诱惑》，这表明早在1988年点燃的文化战争从未完全平息。一些用户将这个问题解释为要求广泛的基督教主题的电影，导致一些...有趣的建议，包括至少一部旧约史诗和几部更明显的新教电影。
+同样有趣的是:尽管许多用户提到了梅尔·吉普森的《耶稣受难记》，但没有人提到马丁·斯科塞斯的《T2》和《基督最后的诱惑》，这表明早在 1988 年点燃的文化战争从未完全平息。一些用户将这个问题解释为要求广泛的基督教主题的电影，导致一些...有趣的建议，包括至少一部旧约史诗和几部更明显的新教电影。
 
-无论如何，这是Twitter想出来的。
+无论如何，这是 Twitter 想出来的。
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-C4_KDf4xhU8&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-C4_KDf4xhU8&start=0) 
 
@@ -50,13 +50,13 @@
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-o5VZKWcgw6c&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-o5VZKWcgw6c&start=0) 
 
-这部电影是艾米利奥·艾斯特维兹的激情之作，由他的父亲马丁·辛主演，讲述了一小群旅行者沿着西班牙西北部的Camino de Santiago朝圣之路前行的故事，希恩扮演的角色计划在沿途撒下他儿子的骨灰。明智的是，这部严肃的电影以这样一种方式讲述它的故事，吸引了更广泛的观众。这里推荐。
+这部电影是艾米利奥·艾斯特维兹的激情之作，由他的父亲马丁·辛主演，讲述了一小群旅行者沿着西班牙西北部的 Camino de Santiago 朝圣之路前行的故事，希恩扮演的角色计划在沿途撒下他儿子的骨灰。明智的是，这部严肃的电影以这样一种方式讲述它的故事，吸引了更广泛的观众。这里推荐。
 
 **流向哪里:**数码租赁
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-1Acvwko6Wd0&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-1Acvwko6Wd0&start=0) 
 
-《一个适合所有季节的人》讲述了圣托马斯·莫尔的故事，他在16世纪担任英格兰大法官时，拒绝支持国王亨利八世与罗马决裂——先是拒绝签署支持他与亨利和阿拉贡的凯瑟琳的婚姻无效的协议，然后，在亨利看来更为恶劣的是，出于良心，他拒绝向作为英格兰教会最高领袖的国王宣誓。当时，这更多的是天主教内部的竞争，因为亨利无意背离天主教会的传统——只是削弱教皇的权力。当然，历史的发展更加引人注目。这里推荐。
+《一个适合所有季节的人》讲述了圣托马斯·莫尔的故事，他在 16 世纪担任英格兰大法官时，拒绝支持国王亨利八世与罗马决裂——先是拒绝签署支持他与亨利和阿拉贡的凯瑟琳的婚姻无效的协议，然后，在亨利看来更为恶劣的是，出于良心，他拒绝向作为英格兰教会最高领袖的国王宣誓。当时，这更多的是天主教内部的竞争，因为亨利无意背离天主教会的传统——只是削弱教皇的权力。当然，历史的发展更加引人注目。这里推荐。
 
 **流向哪里:**数码租赁
 
@@ -86,13 +86,13 @@
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-tdyLL5koREM&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-tdyLL5koREM&start=0) 
 
-伟大的珍妮弗·琼斯扮演贝尔纳黛特·索比罗斯，死后被称为卢尔德的圣伯纳黛特，她在1858年对玛丽的想象激发了马萨诸塞州的避难所和宗教崇拜。这部电影在历史上反复无常，但它仍然有效，并赢得了四项奥斯卡奖，包括琼斯的最佳女演员奖。这里推荐。
+伟大的珍妮弗·琼斯扮演贝尔纳黛特·索比罗斯，死后被称为卢尔德的圣伯纳黛特，她在 1858 年对玛丽的想象激发了马萨诸塞州的避难所和宗教崇拜。这部电影在历史上反复无常，但它仍然有效，并赢得了四项奥斯卡奖，包括琼斯的最佳女演员奖。这里推荐。
 
 **流向哪里:**数码租赁
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-mxJtFvNByKw&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-mxJtFvNByKw&start=0) 
 
-《友谊》在这里代替了整个三部曲，所以你必须看完整部差不多十几个小时的LOTR电影才能梳理出所有的潜台词。实际上，我不确定J.R.R .托尔金会不会喜欢这个位置。虽然毫无疑问，他的作品受到了他强烈信仰的影响，但他也强烈要求避免直接的寓言，甚至斥责他的朋友C.S. Lewis在他的作品中涉及宗教问题时过于直截了当。这里推荐。
+《友谊》在这里代替了整个三部曲，所以你必须看完整部差不多十几个小时的 LOTR 电影才能梳理出所有的潜台词。实际上，我不确定 J.R.R .托尔金会不会喜欢这个位置。虽然毫无疑问，他的作品受到了他强烈信仰的影响，但他也强烈要求避免直接的寓言，甚至斥责他的朋友 C.S. Lewis 在他的作品中涉及宗教问题时过于直截了当。这里推荐。
 
 **流媒体播放地点:** HBO Max
 
@@ -110,13 +110,13 @@
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-Id6oS3L-D9A&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-Id6oS3L-D9A&start=0) 
 
-几个用户列举了旧约史诗*十诫*...也许*没有完全*理解这项任务。这里推荐T5T7】。
+几个用户列举了旧约史诗*十诫*...也许*没有完全*理解这项任务。这里推荐 T5T7】。
 
 **流向哪里:**数码租赁
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-ph-oCWpQWlE&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-ph-oCWpQWlE&start=0) 
 
-作为约翰·赫斯顿的后期作品之一，这部电影一度销声匿迹，但在被重新发现后，它感觉像是70年代导演电影制作的一部几乎必不可少的作品，甚至来自一位本应过了全盛时期的好莱坞巨头。也就是说它既迷人又疯狂。它忠实地改编了弗兰纳里·奥康纳的小说，讲述了布拉德·道里夫的黑兹尔·莫茨，他在一个满是疯狂怪人的镇上建立了一个反上帝的宗教派别，却发现他无法完全逃避天主教信仰中最好的一面。这里推荐。
+作为约翰·赫斯顿的后期作品之一，这部电影一度销声匿迹，但在被重新发现后，它感觉像是 70 年代导演电影制作的一部几乎必不可少的作品，甚至来自一位本应过了全盛时期的好莱坞巨头。也就是说它既迷人又疯狂。它忠实地改编了弗兰纳里·奥康纳的小说，讲述了布拉德·道里夫的黑兹尔·莫茨，他在一个满是疯狂怪人的镇上建立了一个反上帝的宗教派别，却发现他无法完全逃避天主教信仰中最好的一面。这里推荐。
 
 **流向哪里:** HBO Max，标准频道
 
@@ -128,7 +128,7 @@
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-H5w9skKcdnA&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-H5w9skKcdnA&start=0) 
 
-几个用户提到了*巴贝特的盛宴*，这是*有趣的*，因为这部电影发生在一个特别的路德教集会中。我认为，有可能这部电影中一些更加华丽的意象唤起了一种崇高的教会精神，或者可能只是某个特定宗教的观众会倾向于在一部心爱的电影中看到他们信仰的回声。这里推荐T5T7】。
+几个用户提到了*巴贝特的盛宴*，这是*有趣的*，因为这部电影发生在一个特别的路德教集会中。我认为，有可能这部电影中一些更加华丽的意象唤起了一种崇高的教会精神，或者可能只是某个特定宗教的观众会倾向于在一部心爱的电影中看到他们信仰的回声。这里推荐 T5T7】。
 
 **流媒体播放地点:** HBO Max
 

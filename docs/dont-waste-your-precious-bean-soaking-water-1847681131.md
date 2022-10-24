@@ -1,6 +1,6 @@
 # 不要浪费你宝贵的泡豆水
 
-> 原文:[https://life hacker . com/don-waste-your-precious-bean-bumping-water-1847681131](https://lifehacker.com/dont-waste-your-precious-bean-soaking-water-1847681131)
+> 原文：<https://lifehacker.com/dont-waste-your-precious-bean-soaking-water-1847681131>
 
 我最喜欢的豆子是利马豆，也就是说我对 [隔夜豆泡](https://lifehacker.com/soak-your-beans-in-the-fridge-for-faster-meal-prep-1832374408) 并不陌生。你也许可以跳过浸泡步骤 而不使用 [较少的豆子，但是利马豆要求这样做。(如果有一样东西是我最讨厌的，那就是未煮熟的粉状利马豆。)](https://lifehacker.com/you-dont-have-to-soak-dried-beans-overnight-1818565255) 
 

@@ -1,6 +1,6 @@
 # 感恩节前两周你应该做什么
 
-> 原文:[https://life hacker . com/what-you-should-do-before-thanksgiving-1848016466](https://lifehacker.com/what-you-should-do-two-weeks-before-thanksgiving-1848016466)
+> 原文：<https://lifehacker.com/what-you-should-do-two-weeks-before-thanksgiving-1848016466>
 
 十一月的第二周是个奇怪的一周。感恩节将至，但现在购买易腐食品还为时过早。这一周你可能什么都不用准备，完全没问题，但是这是一个让自己获得巨大成功的好时机。
 

@@ -1,6 +1,6 @@
 # 将这些餐具用作宠物安全驱虫剂
 
-> 原文:[https://life hacker . com/use-these-pantry-items-as-pet-safe-ant-reputants-1848742891](https://lifehacker.com/use-these-pantry-items-as-pet-safe-ant-repellants-1848742891)
+> 原文：<https://lifehacker.com/use-these-pantry-items-as-pet-safe-ant-repellants-1848742891>
 
 尽管蚂蚁在一年中的任何时候都会出现在你的家中，但你可能会注意到它们在春天变得特别活跃。这是因为在 [度过冬天](https://katu.com/news/local/ant-season-is-starting-heres-how-to-beat-them) 之后，它们会躲在木桩或院子的碎片下——甚至躲在你的墙内——天气变暖，雨水比平时多，这是它们开始繁殖自己的种群的信号。为此，它们需要食物。
 
@@ -14,13 +14,13 @@ Watch
 
 ## 肉桂色
 
-这可能是所有天然DIY驱虫剂中最著名的。虽然关于这是否真的有效(或者你是否需要大量的肉桂来改变现状)还有相互矛盾的信息，但它已经存在很长时间了，并被许多家庭专家推荐，包括那些在[tree hugger](https://www.treehugger.com/how-keep-ants-out-your-house-naturally-4858535)和 [家庭杂工](https://www.familyhandyman.com/article/home-remedies-to-get-rid-of-ants/) 的专家。
+这可能是所有天然 DIY 驱虫剂中最著名的。虽然关于这是否真的有效(或者你是否需要大量的肉桂来改变现状)还有相互矛盾的信息，但它已经存在很长时间了，并被许多家庭专家推荐，包括那些在[tree hugger](https://www.treehugger.com/how-keep-ants-out-your-house-naturally-4858535)和 [家庭杂工](https://www.familyhandyman.com/article/home-remedies-to-get-rid-of-ants/) 的专家。
 
 亲自尝试一下，在你看到蚂蚁的任何地方撒上肉桂(或涂抹肉桂油),包括沿着踢脚板、厨房台面、窗台等等。
 
 ## 糖海绵
 
-为了对付轻微的蚂蚁侵扰， [将一块大海绵浸泡在糖溶于水的溶液中](https://www.familyhandyman.com/article/how-to-get-rid-of-ants-when-you-have-a-dog-or-cat-in-the-house/) ，然后把它放在蚂蚁通常去你厨房的路径附近的地板上。大约24小时后，检查海绵。很有可能，里面全是死蚂蚁。把这些洗掉，把海绵再次浸泡在糖水中，把它放回它们的路径上或附近，继续这样做，直到蚂蚁消失。
+为了对付轻微的蚂蚁侵扰， [将一块大海绵浸泡在糖溶于水的溶液中](https://www.familyhandyman.com/article/how-to-get-rid-of-ants-when-you-have-a-dog-or-cat-in-the-house/) ，然后把它放在蚂蚁通常去你厨房的路径附近的地板上。大约 24 小时后，检查海绵。很有可能，里面全是死蚂蚁。把这些洗掉，把海绵再次浸泡在糖水中，把它放回它们的路径上或附近，继续这样做，直到蚂蚁消失。
 
 ## **硅藻土**
 

@@ -1,8 +1,8 @@
 # 让它看起来像是韦斯·安德森用这些缩放背景设计了你的家庭办公室
 
-> 原文:[https://life hacker . com/make-it-look-like-wes-Anderson-designed-your-home-offic-1845761286](https://lifehacker.com/make-it-look-like-wes-anderson-designed-your-home-offic-1845761286)
+> 原文：<https://lifehacker.com/make-it-look-like-wes-anderson-designed-your-home-offic-1845761286>
 
-你厌倦了你通常的缩放背景吗？你是否厌倦了在快速会议前30秒惊慌失措地清理办公桌后面的区域，这样你的同事就不会看到你称之为家的垃圾堆？请允许我们向您介绍您的最新选择:以著名电影导演 的风格设计的家庭办公室 [为特色的缩放背景。是的，这些就像它们被发现时一样有趣。以下是如何下载这些背景，并提高你的缩放游戏。](https://www.budgetdirect.com.au/blog/unlikely-interior-designers.html) 
+你厌倦了你通常的缩放背景吗？你是否厌倦了在快速会议前 30 秒惊慌失措地清理办公桌后面的区域，这样你的同事就不会看到你称之为家的垃圾堆？请允许我们向您介绍您的最新选择:以著名电影导演 的风格设计的家庭办公室 [为特色的缩放背景。是的，这些就像它们被发现时一样有趣。以下是如何下载这些背景，并提高你的缩放游戏。](https://www.budgetdirect.com.au/blog/unlikely-interior-designers.html) 
 
 Watch
 

@@ -1,6 +1,6 @@
 # 枕头为什么会变黄，如何清洁
 
-> 原文:[https://life hacker . com/why-pillows-turn-yellow-and-how-to-clean-them-1848824914](https://lifehacker.com/why-pillows-turn-yellow-and-how-to-clean-them-1848824914)
+> 原文：<https://lifehacker.com/why-pillows-turn-yellow-and-how-to-clean-them-1848824914>
 
 虽然我们知道人类的身体——包括我们自己的——有时会很恶心，但我们不希望被提醒这一点。所以当你换床单的时候，看到曾经完美的白色枕头现在被一层黄色和棕色的污渍覆盖，这可能会令人不安。
 
@@ -20,6 +20,6 @@ Watch
 
 从技术上讲，你应该每年至少洗两次枕头，不管有没有污渍。当你这样做的时候，你可能已经看过他们的标签，并遵循了护理说明——即如何在洗衣机里洗枕头(如果可能的话，还有)。
 
-基本上，你会想做同样的事情来去除污渍，但除了你常用的洗涤剂， [添加 1/2杯漂白剂和 1/2杯硼砂](https://homeguides.sfgate.com/pillows-yellow-stains-82220.html) ，然后根据枕头的说明完成洗涤和干燥。
+基本上，你会想做同样的事情来去除污渍，但除了你常用的洗涤剂， [添加 1/2 杯漂白剂和 1/2 杯硼砂](https://homeguides.sfgate.com/pillows-yellow-stains-82220.html) ，然后根据枕头的说明完成洗涤和干燥。
 
 你也可以开始用商店里买的去斑喷雾或面霜，或者用小苏打和水的混合物制成的糊状物来处理污渍 (尽管天然的选择往往不太有效)。

@@ -1,8 +1,8 @@
 # 如何辨别一件衣服是否是专门为工厂直销而制作的
 
-> 原文:[https://life hacker . com/how-to-tell-if-a-item-of-clothing-is-made-specific all-1845761919](https://lifehacker.com/how-to-tell-if-an-item-of-clothing-was-made-specificall-1845761919)
+> 原文：<https://lifehacker.com/how-to-tell-if-an-item-of-clothing-was-made-specificall-1845761919>
 
-不是每个人都买得起名牌服装和配饰，所以当我们看到我们最喜欢的商店的折扣店时，很容易就想进去买一件。和一个 t乍一看，似乎你有:你拿起一顶说它的零售价为200美元，但出口价格是29美元。如果这看起来好得不像真的，那可能是因为在大多数情况下，它就是真的。
+不是每个人都买得起名牌服装和配饰，所以当我们看到我们最喜欢的商店的折扣店时，很容易就想进去买一件。和一个 t 乍一看，似乎你有:你拿起一顶说它的零售价为 200 美元，但出口价格是 29 美元。如果这看起来好得不像真的，那可能是因为在大多数情况下，它就是真的。
 
 Watch
 
@@ -15,11 +15,11 @@ Watch
 根据疯狂优惠券女士博客 上的 [帖子，有时，这就像检查标签、标志或序列号一样简单。这里有几个例子:](https://thekrazycouponlady.com/tips/money/avoid-outlet-store-rip-off)
 
 *   **香蕉共和国:**商店里的商品在标签上的品牌名称下面有三颗小钻石。
-*   **Kate Spade** :该店的服装在标签名称上方有一个刺绣的Spade，标签缝线是绿色而不是金色。在专卖店的包包和钱包中，spade标志是一个中间有一个挖空的spade或一个压印的spade。
+*   **Kate Spade** :该店的服装在标签名称上方有一个刺绣的 Spade，标签缝线是绿色而不是金色。在专卖店的包包和钱包中，spade 标志是一个中间有一个挖空的 spade 或一个压印的 spade。
 *   **Gap** :插座标签在品牌名称下方有三个小方块。
 *   拉尔夫·劳伦:“Chaps”、“Lauren by Ralph Lauren”和“Polo Ralph Lauren”品牌是低端品牌，在美国柯尔百货公司等地的商店可以找到。
 *   布鲁克斯兄弟公司(Brooks Brothers):如果标签上写着“346”，那就是从商店买的。
 *   **J. Crew** :该店的商品在标签上的品牌名称下方有两颗小钻石。
-*   **蔻驰**:出口商品的序列号th 以“f”开头
+*   **蔻驰**:出口商品的序列号 th 以“f”开头
 
 知道在服装标签、标记或序列号上发现的其他线索吗？在评论中分享吧！

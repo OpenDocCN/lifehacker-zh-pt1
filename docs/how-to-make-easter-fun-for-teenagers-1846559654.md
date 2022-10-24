@@ -1,6 +1,6 @@
 # 如何让青少年觉得复活节很有趣
 
-> 原文:[https://life hacker . com/how-to-make-Easter-fun-for-tenders-1846559654](https://lifehacker.com/how-to-make-easter-fun-for-teenagers-1846559654)
+> 原文：<https://lifehacker.com/how-to-make-easter-fun-for-teenagers-1846559654>
 
 当孩子进入青春期前和青少年时期时，他们在寻找复活节彩蛋(并吃掉藏在里面的所有软糖)、将彩蛋染成鲜艳的颜色以及在装满巧克力兔子的篮子中挖掘的乐趣可能会开始减弱。你那有花和兔子的彩色塑料桌布突然变得一点也不酷了，你热情地建议它们从沙发上爬起来，去寻找你为它们藏起来的塑料蛋，它们却翻着白眼。
 
@@ -10,7 +10,7 @@ Watch
 
 ### 让寻找彩蛋变得值得
 
-他们会认为自己太老了，不应该在这个年龄去找鸡蛋——那是给小孩子的。当然，如果你还在用小巧克力蛋填充小孩子，这是给他们的，但今年你将尝试一些不同的东西:冰冷的现金。我总是偶尔在鸡蛋里放上两枚25美分的硬币或一张一美元的钞票，作为一个惊喜，但是 [凯蒂·宾汉姆-史密斯为《恐怖妈咪》](https://www.scarymommy.com/recapture-easter-excitement-teens/) 写道，当孩子们进入青少年时期，依靠这种策略会让他们兴奋起来:
+他们会认为自己太老了，不应该在这个年龄去找鸡蛋——那是给小孩子的。当然，如果你还在用小巧克力蛋填充小孩子，这是给他们的，但今年你将尝试一些不同的东西:冰冷的现金。我总是偶尔在鸡蛋里放上两枚 25 美分的硬币或一张一美元的钞票，作为一个惊喜，但是 [凯蒂·宾汉姆-史密斯为《恐怖妈咪》](https://www.scarymommy.com/recapture-easter-excitement-teens/) 写道，当孩子们进入青少年时期，依靠这种策略会让他们兴奋起来:
 
 > 但问题是:不要告诉他们鸡蛋里有钱。我知道这只在第一年有效，但这是值得的。去年我第一次这么做，我的孩子们发现鸡蛋时都很兴奋。
 > 
@@ -18,11 +18,11 @@ Watch
 
 > 我也不放钱在每一个。我也摇摇晃晃地吃着他们最喜欢的糖果——这样更有趣。
 
-我的额外建议是，根据你愿意花多少钱，在容易找到的鸡蛋里装满25美分硬币或1美元钞票，随着它们变得越来越难找到，增加货币金额。也许你可以用一个藏得特别好的更高面额的蛋来结束，比如一张20美元的钞票。
+我的额外建议是，根据你愿意花多少钱，在容易找到的鸡蛋里装满 25 美分硬币或 1 美元钞票，随着它们变得越来越难找到，增加货币金额。也许你可以用一个藏得特别好的更高面额的蛋来结束，比如一张 20 美元的钞票。
 
 ### 帮助他们玩鸡蛋死亡游戏
 
-如果你掏出2美元 [的PAAS灭蛋套装](https://www.amazon.com/PAAS-Classic-Easter-Egg-Coloring/dp/B07PGL1RDF/ref=asc_df_B07PGL1RDF/?adgrpid=93457066269&asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-make-easter-fun-for-teenagers-1846559654&asc_source=&hvadid=416863079195&hvadid=416863079195&hvdev=c&hvdev=c&hvdvcmdl=&hvdvcmdl=&hvlocint=&hvlocint=&hvlocphy=9006934&hvlocphy=9006934&hvnetw=g&hvnetw=g&hvpone=&hvpone=&hvpos=&hvpos=&hvptwo=&hvptwo=&hvqmt=&hvqmt=&hvrand=3498080749860806170&hvrand=3498080749860806170&hvtargid=pla-902664938359&hvtargid=pla-902664938359&linkCode=df0&psc=1&ref=&tag=kinjalifehackerlink-20)*当然还有*他们会对你不满——你还能指望什么？他们太老了，做不了那个。但是他们还没有老到不能完全装饰鸡蛋，因为一个人还没有老到不能装饰鸡蛋。事实上，有了智能手机、自己的创造力和一些更先进的精细运动技能，他们可以创造出一些真正的坏蛋蛋，比如:
+如果你掏出 2 美元 [的 PAAS 灭蛋套装](https://www.amazon.com/PAAS-Classic-Easter-Egg-Coloring/dp/B07PGL1RDF/ref=asc_df_B07PGL1RDF/?adgrpid=93457066269&asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-make-easter-fun-for-teenagers-1846559654&asc_source=&hvadid=416863079195&hvadid=416863079195&hvdev=c&hvdev=c&hvdvcmdl=&hvdvcmdl=&hvlocint=&hvlocint=&hvlocphy=9006934&hvlocphy=9006934&hvnetw=g&hvnetw=g&hvpone=&hvpone=&hvpos=&hvpos=&hvptwo=&hvptwo=&hvqmt=&hvqmt=&hvrand=3498080749860806170&hvrand=3498080749860806170&hvtargid=pla-902664938359&hvtargid=pla-902664938359&linkCode=df0&psc=1&ref=&tag=kinjalifehackerlink-20)*当然还有*他们会对你不满——你还能指望什么？他们太老了，做不了那个。但是他们还没有老到不能完全装饰鸡蛋，因为一个人还没有老到不能装饰鸡蛋。事实上，有了智能手机、自己的创造力和一些更先进的精细运动技能，他们可以创造出一些真正的坏蛋蛋，比如:
 
 *   [这些时髦的波普艺术风格的彩蛋](https://www.craftpaperscissors.com/easter-egg-ideas-pop-art-inspired-eggs-part-3/)
 *   [绘*星球大战*人物彩蛋](https://frugalfun4boys.com/how-to-make-star-wars-painted-easter-eggs/)T5】

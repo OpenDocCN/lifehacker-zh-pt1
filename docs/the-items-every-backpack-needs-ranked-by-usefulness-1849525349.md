@@ -1,6 +1,6 @@
 # 每个背包需要的物品，按用途排序
 
-> 原文:[https://life hacker . com/the-items-every-backpack-needs-ranking-by-useful-1849525349](https://lifehacker.com/the-items-every-backpack-needs-ranked-by-usefulness-1849525349)
+> 原文：<https://lifehacker.com/the-items-every-backpack-needs-ranked-by-usefulness-1849525349>
 
 返校季意味着背包在脑中。不过，我相信拥有一个装满东西的背包也是成年人应该做的事情。除了我的电话、钱包和钥匙，我很少不带任何东西(T2)出门。当我外出时，我宁愿准备比最低限度更多的东西。
 
@@ -40,7 +40,7 @@ Watch
 *   帽子(御寒或防晒)
 *   去污棒
 *   一小卷胶带
-*   附加ID
+*   附加 ID
 
 ## 第三层:“你永远不知道”
 
@@ -56,4 +56,4 @@ Watch
 *   垃圾袋
 *   外置硬盘
 
-最具争议的打包物品:你的护照。您可能需要备份ID，但同时，您将增加丢失它的风险。这取决于你，取决于你把背包带去哪里，以及你乱放东西的倾向。
+最具争议的打包物品:你的护照。您可能需要备份 ID，但同时，您将增加丢失它的风险。这取决于你，取决于你把背包带去哪里，以及你乱放东西的倾向。

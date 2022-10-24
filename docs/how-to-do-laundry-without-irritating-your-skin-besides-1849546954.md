@@ -1,6 +1,6 @@
 # 如何在不刺激皮肤的情况下洗衣服(除了更换洗涤剂)
 
-> 原文:[https://life hacker . com/how-to-do-doing-not-stinging your skin-again-1849546954](https://lifehacker.com/how-to-do-laundry-without-irritating-your-skin-besides-1849546954)
+> 原文：<https://lifehacker.com/how-to-do-laundry-without-irritating-your-skin-besides-1849546954>
 
 对于皮肤敏感的人来说，洗衣服可能是一个挑战。你所要做的就是把你的衣服弄干净，但是一些看似简单的事情可能比看起来要难很多。
 

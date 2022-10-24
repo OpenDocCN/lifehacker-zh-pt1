@@ -1,6 +1,6 @@
 # 如何阻止余烬从你的壁炉中“冒出来”
 
-> 原文:[https://life hacker . com/how-to-stop-embers-popping-out-of-your ' s fire-1849681498](https://lifehacker.com/how-to-stop-embers-from-popping-out-of-your-fireplace-1849681498)
+> 原文：<https://lifehacker.com/how-to-stop-embers-from-popping-out-of-your-fireplace-1849681498>
 
 围坐在噼啪作响的炉火旁是最美好、最宁静的冬季活动之一。你有你的热巧克力或你的葡萄酒，你的书，你的家人——真正幸福的事情正在这里发生。但你知道什么不幸福吗？当大火爆发时，小块的热碎片飞向你。它可能是可怕的，痛苦的，甚至是危险的。有些柴火比其他的更容易爆裂，所以下次你储存时要记住以下几点。
 

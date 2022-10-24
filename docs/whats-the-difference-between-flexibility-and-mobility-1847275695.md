@@ -1,6 +1,6 @@
 # 灵活性和移动性之间有什么区别(为什么要关注)？
 
-> 原文:[https://life hacker . com/what-the-difference-of-flexibility-and-mobility-1847275695](https://lifehacker.com/whats-the-difference-between-flexibility-and-mobility-1847275695)
+> 原文：<https://lifehacker.com/whats-the-difference-between-flexibility-and-mobility-1847275695>
 
 柔韧性曾经是一个很容易理解的概念:如果你能做劈叉或者把手放在肩胛骨后面，你就是柔韧的。如果你不灵活，你必须做一些伸展运动。但是最近几年，术语*移动*变得更加流行，它的意思并不完全相同。
 
@@ -33,6 +33,6 @@ Watch
 
 泡沫滚轴在流动性方面很受欢迎，因为它们在微观层面拉伸你的肌肉，而不需要你进行特定的静态拉伸运动。在揉搓需要更柔韧的肌肉后，你可能会发现你可以更容易地移动它们。出于这个原因，这通常是热身的一部分。
 
-动态拉伸也有助于灵活性，作为热身的一部分，它们也很有效。你不是坐下来强迫肌肉伸展，而是用你的身体在一系列运动中主动移动。 [受控关节旋转，或CARs](https://www.physioinq.com.au/blog/controlled-articular-rotations) ，是一种动态拉伸，让你在运动范围内慢慢移动像肩膀这样的关节。当你在越来越大的范围内移动手臂时，你正在热身相关的肌肉，同时锻炼力量和柔韧性。
+动态拉伸也有助于灵活性，作为热身的一部分，它们也很有效。你不是坐下来强迫肌肉伸展，而是用你的身体在一系列运动中主动移动。 [受控关节旋转，或 CARs](https://www.physioinq.com.au/blog/controlled-articular-rotations) ，是一种动态拉伸，让你在运动范围内慢慢移动像肩膀这样的关节。当你在越来越大的范围内移动手臂时，你正在热身相关的肌肉，同时锻炼力量和柔韧性。
 
 静态拉伸在日常运动中也有一席之地。尽管灵活性只是移动性的一部分，但却是非常重要的一部分！为了你的运动目标，你可能需要也可能不需要静态拉伸，但是融入静态拉伸可以有效地增强你肌肉的伸展能力。

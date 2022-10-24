@@ -1,6 +1,6 @@
 # 如何在不损坏墙壁的情况下拆除踢脚板
 
-> 原文:[https://life hacker . com/how-to-remove-baseboaks-without-damage-your-walls-1847335146](https://lifehacker.com/how-to-remove-baseboards-without-damaging-your-walls-1847335146)
+> 原文：<https://lifehacker.com/how-to-remove-baseboards-without-damaging-your-walls-1847335146>
 
 踢脚板有一个非常基本的用途，而且它们很好地满足了这个用途:隐藏房间里干墙和地板相接的地方。但有时，它们必须被淘汰，无论是因为你需要移除它们来完成另一个项目，还是它们已经过时，你想彻底取代它们。无论哪种方式，你都希望在移除过程中不损坏墙壁。
 
@@ -10,7 +10,7 @@ Watch
 
 如果你是一个相对手巧的人，你可能已经准备好了所有你需要的工具来移除你的踢脚板，并且避免你的墙壁受到任何损坏 :
 
-*   油漆工的 s工具(一把 [五把-一把](https://www.grainger.com/product/39CF38?ef_id=CjwKCAjwi9-HBhACEiwAPzUhHLVy-u5WZETgV0O5mHG6E400Egoqs-9ypD0bMe5uMrc_XqA1FzWpihoCM7YQAvD_BwE:G:s&s_kwcid=AL!2966!3!496359971677!!!g!439063557338!&gucid=N:N:PS:Paid:GGL:CSM-2295:4P7A1P:20501231&gclid=CjwKCAjwi9-HBhACEiwAPzUhHLVy-u5WZETgV0O5mHG6E400Egoqs-9ypD0bMe5uMrc_XqA1FzWpihoCM7YQAvD_BwE&gclsrc=aw.ds) 或一把 [油灰刀](https://www.acehardware.com/departments/paint-and-supplies/patch-and-repair/putty-knives/1795996?store=17429&gclid=CjwKCAjwi9-HBhACEiwAPzUhHCFtQ1qa3tvvvWQdtaajqNDjal5kUdEjshm8xvbZf5pdgFcRoPe7VRoCd4YQAvD_BwE&gclsrc=aw.ds) )
+*   油漆工的 s 工具(一把 [五把-一把](https://www.grainger.com/product/39CF38?ef_id=CjwKCAjwi9-HBhACEiwAPzUhHLVy-u5WZETgV0O5mHG6E400Egoqs-9ypD0bMe5uMrc_XqA1FzWpihoCM7YQAvD_BwE:G:s&s_kwcid=AL!2966!3!496359971677!!!g!439063557338!&gucid=N:N:PS:Paid:GGL:CSM-2295:4P7A1P:20501231&gclid=CjwKCAjwi9-HBhACEiwAPzUhHLVy-u5WZETgV0O5mHG6E400Egoqs-9ypD0bMe5uMrc_XqA1FzWpihoCM7YQAvD_BwE&gclsrc=aw.ds) 或一把 [油灰刀](https://www.acehardware.com/departments/paint-and-supplies/patch-and-repair/putty-knives/1795996?store=17429&gclid=CjwKCAjwi9-HBhACEiwAPzUhHCFtQ1qa3tvvvWQdtaajqNDjal5kUdEjshm8xvbZf5pdgFcRoPe7VRoCd4YQAvD_BwE&gclsrc=aw.ds) )
 *   锤子
 *   撬棍
 *   保护墙壁的小木块

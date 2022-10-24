@@ -1,6 +1,6 @@
 # 如何选择合适的木材染色剂
 
-> 原文:[https://life hacker . com/how-to-choose-the-right-wood-stain-1847338493](https://lifehacker.com/how-to-choose-the-right-wood-stain-1847338493)
+> 原文：<https://lifehacker.com/how-to-choose-the-right-wood-stain-1847338493>
 
 当你计划进行家居装修时，你可能会想到关掉灯具 或 [升级你的入口](https://lifehacker.com/how-to-spruce-up-your-homes-entryway-for-less-than-100-1834843347)，但是更新你的甲板、栏杆和地板的另一种方法是添加新的木材着色剂。然而，选择合适的房间至关重要，因为太暗会让房间看起来更小，太亮可能与你的装饰不相配。以下是选择合适的木材染色剂时需要考虑的事项。
 

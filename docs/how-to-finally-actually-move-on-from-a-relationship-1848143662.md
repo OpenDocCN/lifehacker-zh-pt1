@@ -1,6 +1,6 @@
 # 如何(最终)真正从一段感情中走出来
 
-> 原文:[https://life hacker . com/how-to-finally-actually-move-from-a-relationship-1848143662](https://lifehacker.com/how-to-finally-actually-move-on-from-a-relationship-1848143662)
+> 原文：<https://lifehacker.com/how-to-finally-actually-move-on-from-a-relationship-1848143662>
 
 每一段感情都不一样，每一次分手也不一样。我的意思是，在某个时候，我们不是都在我们的搜索栏中输入了*多久才能走出分手时间线*吗？可悲的是，没有数学等式来计算从心碎中恢复的有限时间框架(至少不是根据 [《奥普拉日报》](https://www.oprahdaily.com/life/relationships-love/a29612414/how-long-to-get-over-someone/) )。
 
@@ -20,13 +20,13 @@ Watch
 
 ## **与自己共度时光**
 
-你需要独处时间的理由有很多，一段感情后的哀悼期是你反思自己的关键时候。正如治疗师 [杰夫·冈瑟在《抖音》](https://www.tiktok.com/@therapyden/video/7032295088696921350?is_copy_url=1&is_from_webapp=v1) 中详述了 [一篇关于结束](https://www.instagram.com/p/CWBdCBRqcuw/) 的病毒式Instagram帖子，这可能是你确立个人身份的黄金时间。不要用没完没了的“如果”来折磨自己，而是专注于你从这段关系中学到的一切。
+你需要独处时间的理由有很多，一段感情后的哀悼期是你反思自己的关键时候。正如治疗师 [杰夫·冈瑟在《抖音》](https://www.tiktok.com/@therapyden/video/7032295088696921350?is_copy_url=1&is_from_webapp=v1) 中详述了 [一篇关于结束](https://www.instagram.com/p/CWBdCBRqcuw/) 的病毒式 Instagram 帖子，这可能是你确立个人身份的黄金时间。不要用没完没了的“如果”来折磨自己，而是专注于你从这段关系中学到的一切。
 
-如果你在寻找独处的时间，而不仅仅是安静的思考，考虑尝试做10件你的伴侣不会和你一起做的事情 。享受做让你自我感觉良好的事情的乐趣。
+如果你在寻找独处的时间，而不仅仅是安静的思考，考虑尝试做 10 件你的伴侣不会和你一起做的事情 。享受做让你自我感觉良好的事情的乐趣。
 
 ## 从旧友谊中寻找安慰
 
-虽然你不想在一段感情结束后花太多时间独处。[凯蒂·博根在Vox](https://www.vox.com/first-person/2017/1/3/13938008/breakup-strategies-research) 上写道，在经历了一场纷乱的分手后，你能做的最重要的事情之一就是和老朋友在一起。对博根来说，这些特殊的关系有力量提醒她，“分手让(她的)过去没有负担，甚至可能加强了。”即使这些人不是你的主要支持系统，与老朋友重新联系可能是你需要的恢复性分心。真正的封闭来自内心，但有些安慰只来自朋友。
+虽然你不想在一段感情结束后花太多时间独处。[凯蒂·博根在 Vox](https://www.vox.com/first-person/2017/1/3/13938008/breakup-strategies-research) 上写道，在经历了一场纷乱的分手后，你能做的最重要的事情之一就是和老朋友在一起。对博根来说，这些特殊的关系有力量提醒她，“分手让(她的)过去没有负担，甚至可能加强了。”即使这些人不是你的主要支持系统，与老朋友重新联系可能是你需要的恢复性分心。真正的封闭来自内心，但有些安慰只来自朋友。
 
 ## **安排期待的事情**
 

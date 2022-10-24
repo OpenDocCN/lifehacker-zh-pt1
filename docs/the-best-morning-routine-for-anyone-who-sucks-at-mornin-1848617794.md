@@ -1,6 +1,6 @@
 # 对于不擅长晨练的人来说，这是最好的晨练
 
-> 原文:[https://life hacker . com/the-best-morning-routine-for-anywhere-sucking-1848617794](https://lifehacker.com/the-best-morning-routine-for-anyone-who-sucks-at-mornin-1848617794)
+> 原文：<https://lifehacker.com/the-best-morning-routine-for-anyone-who-sucks-at-mornin-1848617794>
 
 早上做准备糟透了。你昏昏沉沉，光线刺痛你的眼睛，你跌跌撞撞地走来走去，你突然想到在接下来的几个小时里你必须做的所有事情，直到你可以爬回床上。在这种情况下，你看起来应该是怎样的？
 
@@ -10,7 +10,7 @@ Watch
 
 ## **提前摆放好你的衣服**
 
-我们每天早上都面临的最大障碍之一是找到一套漂亮、协调、干净、适合我们去的任何地方，并且理想情况下时尚的服装。通过提前摆放衣服，消除浪费10分钟穿脱衣服的需要(然后你需要赶紧放回原处)。
+我们每天早上都面临的最大障碍之一是找到一套漂亮、协调、干净、适合我们去的任何地方，并且理想情况下时尚的服装。通过提前摆放衣服，消除浪费 10 分钟穿脱衣服的需要(然后你需要赶紧放回原处)。
 
 你可以在每个周日晚上这样做，把它当成是准备饭菜，但是每天晚上检查一下你准备的第二天的服装，确保它符合天气或者第二天早上任何新安排的活动。
 
@@ -38,4 +38,4 @@ Watch
 
 给你的窗帘装一个 [定时器](https://blinds.lowes.com/f/Custom-Motorized-or-Automated?limited=0&page=1&pageSize=18&sortCode=-Most%20Popular) ，这样你就能在自然光下醒来。或者用一个 [渐进式](https://www.hatch.co/restore?utm_source=google_shopping&utm_medium=organic&gclid=Cj0KCQiA95aRBhCsARIsAC2xvfwsb6FWezrjKmsabtBfP-ZzADB4yEWZrpjX9eymHbbStVhEp2NtHdIaAiE-EALw_wcB) 闹钟，这样你就不会因惊吓而醒来。
 
-你在晚上为早上美好的一天做的准备越多，你的整个24小时周期就会越好。
+你在晚上为早上美好的一天做的准备越多，你的整个 24 小时周期就会越好。

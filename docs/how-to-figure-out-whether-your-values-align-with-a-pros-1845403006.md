@@ -1,6 +1,6 @@
 # 如何判断你的价值观是否与未来雇主的一致
 
-> 原文:[https://life hacker . com/how-to-figure-when-your-values-align-with-a-pros-1845403006](https://lifehacker.com/how-to-figure-out-whether-your-values-align-with-a-pros-1845403006)
+> 原文：<https://lifehacker.com/how-to-figure-out-whether-your-values-align-with-a-pros-1845403006>
 
 所以，当你被未来的雇主邀请去面试时，你就找到了找工作的关键。考虑到有多少申请要么被忽略，要么在真正的人面前被筛选掉，获得面试本身就是一个胜利。
 
@@ -16,7 +16,7 @@ Watch
 
 > 文化决定了工作如何完成，但*价值观*显示了公司如何区分优先次序、做出决策以及调和冲突。一种文化可能庆祝创新，但价值观决定了在追求创新的过程中牺牲什么。
 
-根据Hedges的说法，了解一个组织的价值观是一个分三步走的过程，包括以下内容:
+根据 Hedges 的说法，了解一个组织的价值观是一个分三步走的过程，包括以下内容:
 
 ### 1.确定你自己的价值观
 
@@ -38,7 +38,7 @@ Watch
 
 ### 3.给面试打分
 
-当你结束面试并有时间的时候，花些时间对公司对你核心价值观的每个问题的回答进行排序。 [对冲要约](https://hbr.org/2020/10/how-to-tell-if-a-prospective-employer-shares-your-values) 本1-5 量表评估面试:
+当你结束面试并有时间的时候，花些时间对公司对你核心价值观的每个问题的回答进行排序。 [对冲要约](https://hbr.org/2020/10/how-to-tell-if-a-prospective-employer-shares-your-values) 本 1-5 量表评估面试:
 
 1.  价值从未被提及
 2.  提到了价值，但没有证明

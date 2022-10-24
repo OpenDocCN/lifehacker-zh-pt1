@@ -1,6 +1,6 @@
 # 用网球和洗碗机平板电脑拿回您的全额保证金
 
-> 原文:[https://life hacker . com/get-back-your-full-security-deposit with the netbeans-a-1831154421](https://lifehacker.com/get-back-your-full-security-deposit-with-tennis-balls-a-1831154421)
+> 原文：<https://lifehacker.com/get-back-your-full-security-deposit-with-tennis-balls-a-1831154421>
 
 到底什么是“扫帚扫，”?
 
@@ -16,4 +16,4 @@
 
 有了这些建议，你将像专业人士一样处理搬家日的清洁工作——不需要特殊的设备或工业强度的产品。
 
-*这个故事最初发表于2018年12月。它于2021年3月15日更新，以反映Lifehacker当前的风格指南。*
+*这个故事最初发表于 2018 年 12 月。它于 2021 年 3 月 15 日更新，以反映 Lifehacker 当前的风格指南。*

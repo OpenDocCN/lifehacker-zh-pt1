@@ -1,8 +1,8 @@
 # 如何提高您预约新冠肺炎疫苗的机会
 
-> 原文:[https://life hacker . com/how-to-improve-your-chance-a-新冠肺炎-va-1846292340](https://lifehacker.com/how-to-improve-your-chances-of-scheduling-a-covid-19-va-1846292340)
+> 原文：<https://lifehacker.com/how-to-improve-your-chances-of-scheduling-a-covid-19-va-1846292340>
 
-当2020年12月，不是一种，而是两种安全高效的疫苗 获得食品药品监督管理局的紧急使用授权时——距离美国首例新冠肺炎确诊病例不到一年——这似乎好得令人难以置信。(这并不意味着在研究或试验中偷工减料； [一切都以前所未有的配合和速度](https://lifehacker.com/how-they-made-a-vaccine-so-fast-1845880519) 发生，但过程并不*仓促*。)
+当 2020 年 12 月，不是一种，而是两种安全高效的疫苗 获得食品药品监督管理局的紧急使用授权时——距离美国首例新冠肺炎确诊病例不到一年——这似乎好得令人难以置信。(这并不意味着在研究或试验中偷工减料； [一切都以前所未有的配合和速度](https://lifehacker.com/how-they-made-a-vaccine-so-fast-1845880519) 发生，但过程并不*仓促*。)
 
 Watch
 
@@ -20,7 +20,7 @@ Watch
 
 [策略躲避](#dickdontbe)
 
-### 在线预约COVID疫苗的挑战
+### 在线预约 COVID 疫苗的挑战
 
 从技术上讲，在大多数情况下，通过电话预约是“可能的”,但更多的时候，这意味着等待几个小时，却发现没有预约。剩下的选择就是尝试在线预订。人们很容易认为老年人不具备浏览这些网站所需的技术技能，但实际上，在所有故障、崩溃和网站中断之间，这对任何人来说都是一个挑战。
 
@@ -28,17 +28,17 @@ Watch
 
 不是每个人都有特权一次花几个小时搜索药店网站和刷新卫生部门的日程安排系统——包括基本工作人员，如杂货店、药房或食品服务员工。
 
-拉斯穆森告诉Lifehacker，“像新冠肺炎病毒高危人群这样的群体可能没有时间上网预约疫苗接种。”“这意味着一些需要预防新冠肺炎的人无法接种疫苗。”
+拉斯穆森告诉 Lifehacker，“像新冠肺炎病毒高危人群这样的群体可能没有时间上网预约疫苗接种。”“这意味着一些需要预防新冠肺炎的人无法接种疫苗。”
 
 考虑到预约新冠肺炎疫苗所需的时间和精力，这里有一些策略可能会有所帮助，不管你是为自己还是为别人预约。
 
 ### 在你试图预约之前
 
-看起来，要预约COVID疫苗，您只需在网络表单上快速填写几个字段，点击几下就可以提交，然后，很快:预约！但愿如此。在大多数情况下，在你开始之前，它包括一些准备工作。
+看起来，要预约 COVID 疫苗，您只需在网络表单上快速填写几个字段，点击几下就可以提交，然后，很快:预约！但愿如此。在大多数情况下，在你开始之前，它包括一些准备工作。
 
 #### 弄清楚你是否/何时有资格
 
-如果你在为一个年长的亲戚预约，他们很有可能符合条件——但是要在他们所在州的网站上确认一下。如果你比较年轻，并且为自己预约，那就要集中注意力。如果你年龄在65岁以下，你接种疫苗的机会可能要么在预约对普通公众中的成年人开放时到来，要么如果你有某些预先存在的条件。
+如果你在为一个年长的亲戚预约，他们很有可能符合条件——但是要在他们所在州的网站上确认一下。如果你比较年轻，并且为自己预约，那就要集中注意力。如果你年龄在 65 岁以下，你接种疫苗的机会可能要么在预约对普通公众中的成年人开放时到来，要么如果你有某些预先存在的条件。
 
 如果你认为你可能有一个预先存在的条件，检查你的州的资格列表(他们有所不同)，看看你的疾病是否合格。如果看起来是这样，下一步是看你在预约时需要出示什么作为健康状况的证明——通常是你的医生的一封信或实验室结果，表明你的合并症。你不需要这些文件来做你的预约，但是当你预约的时候，确保你能得到它是很好的。
 
@@ -60,7 +60,7 @@ Watch
 
 #### 不要忘记药店和杂货店
 
-如果你的疫苗接种策略包括尝试在CVS、Walgreens、Rite Aid、Walmart或Publix等 [药店或](https://www.cnn.com/2021/02/04/us/covid-19-vaccine-drug-stores/index.html) 连锁杂货店购买疫苗，这些网站可能会要求你注册并开立账户，以便预约。如果你最终没有在那里接种疫苗，或者在接种了两剂疫苗之后，你可以随时删除它。所有这些的关键是给自己尽可能多的选择。
+如果你的疫苗接种策略包括尝试在 CVS、Walgreens、Rite Aid、Walmart 或 Publix 等 [药店或](https://www.cnn.com/2021/02/04/us/covid-19-vaccine-drug-stores/index.html) 连锁杂货店购买疫苗，这些网站可能会要求你注册并开立账户，以便预约。如果你最终没有在那里接种疫苗，或者在接种了两剂疫苗之后，你可以随时删除它。所有这些的关键是给自己尽可能多的选择。
 
 #### 列出你所有重要的信息
 
@@ -74,7 +74,7 @@ Watch
 *   电子邮件
 *   出生日期
 *   居住县
-*   健康保险计划，以及成员和组ID
+*   健康保险计划，以及成员和组 ID
 *   该人的主治医师的姓名、地址和电话号码(这可能不是必需的，但如果需要，请准备好)
 
 考虑到一旦有空位，时间会过得很快，你可以做的任何事情，哪怕是节省几秒钟的预订时间，比如将信息复制并粘贴到表单中，而不是手动输入，都是有帮助的。
@@ -87,7 +87,7 @@ Watch
 
 ### 实际的预订过程
 
-无论你是想确保你或你所爱的人在新一轮约会开始时第一个出现在虚拟队伍中，还是你正在第328次尝试预订你能得到的任何东西，这里有一些东西可以提高你获得梦寐以求的职位的机会。
+无论你是想确保你或你所爱的人在新一轮约会开始时第一个出现在虚拟队伍中，还是你正在第 328 次尝试预订你能得到的任何东西，这里有一些东西可以提高你获得梦寐以求的职位的机会。
 
 #### 确保您的计算机已准备就绪
 
@@ -109,7 +109,7 @@ Watch
 
 一些地方只提前几天公布他们的疫苗预约时间。其他的提前几个月上涨。当然，你希望手臂上的那一针能尽快打好，但是不要试图明天就打，而是期待一周或两周之后——你可能有更好的机会找到预约。
 
-另一个可行的选择是直接点击预约日历上的特定日期(如果网站有类似的选项)，而不是一次滚动一天，直到找到一个空位置。因此，举例来说，如果你今天试图预约，不要一开始就寻找明天的空缺，然后一天一天地点击，直到你看到什么。直接跳到3月4日(或者任何可以预约的随机日期)，然后从那里开始。
+另一个可行的选择是直接点击预约日历上的特定日期(如果网站有类似的选项)，而不是一次滚动一天，直到找到一个空位置。因此，举例来说，如果你今天试图预约，不要一开始就寻找明天的空缺，然后一天一天地点击，直到你看到什么。直接跳到 3 月 4 日(或者任何可以预约的随机日期)，然后从那里开始。
 
 #### 仅填写预订表单上的必填字段
 
@@ -123,13 +123,13 @@ Watch
 
 #### 记住:疫苗是免费的
 
-虽然您可能会被要求提供您的健康保险信息，但COVID疫苗本身是免费的——即使您没有保险或保险不足。因此，如果任何预订网站要求您提供信用卡或任何其他支付信息，请删除您已经在页面上输入的任何内容并关闭标签。如果你碰巧收到了一张疫苗账单， [以下是你可以做的](https://www.cnet.com/personal-finance/the-covid-19-vaccine-is-free-so-how-could-you-still-get-charged/) 来应对。
+虽然您可能会被要求提供您的健康保险信息，但 COVID 疫苗本身是免费的——即使您没有保险或保险不足。因此，如果任何预订网站要求您提供信用卡或任何其他支付信息，请删除您已经在页面上输入的任何内容并关闭标签。如果你碰巧收到了一张疫苗账单， [以下是你可以做的](https://www.cnet.com/personal-finance/the-covid-19-vaccine-is-free-so-how-could-you-still-get-charged/) 来应对。
 
 #### 使用众包疫苗预约发现者
 
-一些城市和州有志愿者领导的众包网站，提供特定地区哪里有预约的实时信息。以下是由The Verge 编辑的这些网站 [的有用列表:](https://www.theverge.com/22279023/covid-19-vaccine-appointment-how-to)
+一些城市和州有志愿者领导的众包网站，提供特定地区哪里有预约的实时信息。以下是由 The Verge 编辑的这些网站 [的有用列表:](https://www.theverge.com/22279023/covid-19-vaccine-appointment-how-to)
 
-> 一个名为 [的纽约网站TurboVax](https://www.turbovax.info/) 获取“纽约地区43个城市和州经营的疫苗站点的最新预约”，并把它们放在Twitter上。将Twitter通知设置为 [@turbovax](https://twitter.com/turbovax) 的关注者可以快速了解新开放的预约时段。*   Another NYC vaccine list named [](https://nycvaccinelist.com/)uses a combination of script and examination, and volunteers [search for vacancies](https://www.theverge.com/2021/1/31/22256167/covid-vaccine-website-nyc-appointment) on various websites.*   In California, USA, [Vaccination Department](https://www.vaccinateca.com/) checks the appointment information of pharmacies and hospitals.*   [Vaccination NJ](https://vaccinatenj.com/) Volunteers are also used to try to help residents in various states find vaccine opportunities.*   [Covid19vaccine TX](https://www.covid19vaccinetx.com/) is a crowdsourced resource used to register in local counties and find out where vaccines may be available.*   [Horse Covid vaccine reservation website](https://www.macovidvaccines.com/) provides a list and links of websites that can be reserved.*   A volunteer group in Washington State launched [WA Covid vaccine finder](https://www.covidwa.com/) as an aggregated resource for vaccination appointments.T51】
+> 一个名为 [的纽约网站 TurboVax](https://www.turbovax.info/) 获取“纽约地区 43 个城市和州经营的疫苗站点的最新预约”，并把它们放在 Twitter 上。将 Twitter 通知设置为 [@turbovax](https://twitter.com/turbovax) 的关注者可以快速了解新开放的预约时段。*   Another NYC vaccine list named [](https://nycvaccinelist.com/)uses a combination of script and examination, and volunteers [search for vacancies](https://www.theverge.com/2021/1/31/22256167/covid-vaccine-website-nyc-appointment) on various websites.*   In California, USA, [Vaccination Department](https://www.vaccinateca.com/) checks the appointment information of pharmacies and hospitals.*   [Vaccination NJ](https://vaccinatenj.com/) Volunteers are also used to try to help residents in various states find vaccine opportunities.*   [Covid19vaccine TX](https://www.covid19vaccinetx.com/) is a crowdsourced resource used to register in local counties and find out where vaccines may be available.*   [Horse Covid vaccine reservation website](https://www.macovidvaccines.com/) provides a list and links of websites that can be reserved.*   A volunteer group in Washington State launched [WA Covid vaccine finder](https://www.covidwa.com/) as an aggregated resource for vaccination appointments.T51】
 
 #### 使用工具检测网站中的变化
 
@@ -137,9 +137,9 @@ Watch
 
 #### 查看推特
 
-在像上周日早上这样的情况下，成千上万的纽约人都在同时争夺非常有限的几个约会，Twitter可以成为一个非常有用的工具。人们经常会发布他们在不同预订网站上遇到的问题的截图——这不一定会直接帮助你，但至少证实了你不是唯一一个有这个问题的人。
+在像上周日早上这样的情况下，成千上万的纽约人都在同时争夺非常有限的几个约会，Twitter 可以成为一个非常有用的工具。人们经常会发布他们在不同预订网站上遇到的问题的截图——这不一定会直接帮助你，但至少证实了你不是唯一一个有这个问题的人。
 
-但最有用的是人们在各种网站上发布的实时提示，比如输入什么来绕过特定故障，或者一个未发布的链接，它以某种方式绕过虚拟等候室中的拥堵，直接带你去预订。如果有人足够幸运地得到了一个约会，并做了一些稍微不同的事情，能够度过这一次，他们可能会足够慷慨地让其他人知道这件事。这就是你的Twitter feed的搜索功能和“最新”部分派上用场的地方。
+但最有用的是人们在各种网站上发布的实时提示，比如输入什么来绕过特定故障，或者一个未发布的链接，它以某种方式绕过虚拟等候室中的拥堵，直接带你去预订。如果有人足够幸运地得到了一个约会，并做了一些稍微不同的事情，能够度过这一次，他们可能会足够慷慨地让其他人知道这件事。这就是你的 Twitter feed 的搜索功能和“最新”部分派上用场的地方。
 
 #### 寻找可用性的模式
 
@@ -163,7 +163,7 @@ Watch
 
 如果您收到来自卫生部门或医院系统的电子邮件通知，告知您现在有资格预订并有空位，它可能会附带一个链接。该链接不是公开的，也不打算共享。如果没有收到链接的人直接用它来预约，他们就取代了有资格并收到链接的人。
 
-另一方面，要小心别人发给你的任何链接。例如，早在一月份，长岛上多达20，000人使用一个广为流传的链接预订了景点，而这个链接本不应该已经上线，他们所有的 [预约都被取消了](https://www.newsday.com/news/health/coronavirus/stony-brook-university-covid-19-vaccination-canceled-1.50120250) 。
+另一方面，要小心别人发给你的任何链接。例如，早在一月份，长岛上多达 20，000 人使用一个广为流传的链接预订了景点，而这个链接本不应该已经上线，他们所有的 [预约都被取消了](https://www.newsday.com/news/health/coronavirus/stony-brook-university-covid-19-vaccination-canceled-1.50120250) 。
 
 #### 不要谎报你的资格
 

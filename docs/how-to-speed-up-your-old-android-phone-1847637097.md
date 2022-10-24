@@ -1,8 +1,8 @@
 # 如何加速你的旧安卓手机
 
-> 原文:[https://life hacker . com/how-to-speed-your-old-Android-phone-1847637097](https://lifehacker.com/how-to-speed-up-your-old-android-phone-1847637097)
+> 原文：<https://lifehacker.com/how-to-speed-up-your-old-android-phone-1847637097>
 
-如果你的安卓手机在一天内多次慢如蜗牛，你可能会想是时候升级了。但是b 在你跑出去买一个新的之前——假设你已经尝试了基本重启——还有一些其他的步骤你可以采取来减少或者消除那些烦人的减速。
+如果你的安卓手机在一天内多次慢如蜗牛，你可能会想是时候升级了。但是 b 在你跑出去买一个新的之前——假设你已经尝试了基本重启——还有一些其他的步骤你可以采取来减少或者消除那些烦人的减速。
 
 Watch
 
@@ -12,11 +12,11 @@ Watch
 
 ## **更新落后的应用程序以修复随机变慢**
 
-Y 你可能会发现你最常用的应用程序速度变慢。例如，脸书或Instagram可能很慢，但你手机的其他部分正在以可接受的速度运行。在这种情况下，打开Play Store，先更新违规应用。(在Play Store中点击右上角的您的个人资料图片，选择 **管理应用&设备、**并转到管理选项卡。更新可能会修复导致各种Android应用程序变慢的问题。
+Y 你可能会发现你最常用的应用程序速度变慢。例如，脸书或 Instagram 可能很慢，但你手机的其他部分正在以可接受的速度运行。在这种情况下，打开 Play Store，先更新违规应用。(在 Play Store 中点击右上角的您的个人资料图片，选择 **管理应用&设备、**并转到管理选项卡。更新可能会修复导致各种 Android 应用程序变慢的问题。
 
 ## **禁用动画**
 
-一部特别旧的手机可能无法流畅地处理Android的动画。如果是你，考虑 [禁用你安卓手机上的动画](https://lifehacker.com/disable-animations-on-android-to-improve-performance-1583554900) 。为此，你需要首先启用开发者模式:转到**设置>关于手机**并滚动到底部。T ap **Build number** 七次——t这将在你的Android手机上启用开发者模式。
+一部特别旧的手机可能无法流畅地处理 Android 的动画。如果是你，考虑 [禁用你安卓手机上的动画](https://lifehacker.com/disable-animations-on-android-to-improve-performance-1583554900) 。为此，你需要首先启用开发者模式:转到**设置>关于手机**并滚动到底部。T ap **Build number** 七次——t 这将在你的 Android 手机上启用开发者模式。
 
 进入到**设置>系统>开发者选项**并向下滚动到**绘图**部分。点击**窗口动画比例**，选择**动画关闭**。然后在**过渡动画比例**和**动画持续时间比例**下选择相同的选项。
 
@@ -36,7 +36,7 @@ Y 你可能会发现你最常用的应用程序速度变慢。例如，脸书或
 
 如果您无法找到未使用的应用程序，请转到**设置>存储>管理存储**。这会将你重定向到谷歌的 [文件](https://play.google.com/store/apps/details?id=com.google.android.apps.nbu.files&hl=en_US) 应用，在那里你会看到一个标签为**删除未使用应用**的卡片。点击**选择应用**，选择想要删除的应用，然后点击**卸载**。
 
-你还可以注意到，网飞 [等应用程序允许](https://help.netflix.com/en/node/116069) 将下载的文件存储在microSD卡上(如果你的手机有micro SD卡的话)。释放内部存储有助于加速你的设备。
+你还可以注意到，网飞 [等应用程序允许](https://help.netflix.com/en/node/116069) 将下载的文件存储在 microSD 卡上(如果你的手机有 micro SD 卡的话)。释放内部存储有助于加速你的设备。
 
 当你这么做的时候，花点时间 [清空应用缓存](https://lifehacker.com/android-smartphone-running-slow-try-deleting-the-app-c-1833469532) ，也是。
 
@@ -44,4 +44,4 @@ Y 你可能会发现你最常用的应用程序速度变慢。例如，脸书或
 
 如果所有其他方法都失败了，您可以尝试恢复出厂设置，清除所有数据并将其恢复到出厂设置。不过，这将删除你智能手机上的所有内容，所以这是最后的-度假选择。C 检查你的 [安卓备份是否正常运行](https://lifehacker.com/check-your-android-right-now-to-see-if-your-automatic-g-1839892376)，备份你的设备以免丢失数据。
 
-然后g o到**设置>系统>高级选项>擦除所有数据(恢复出厂设置)**并按照屏幕提示操作。
+然后 g o 到**设置>系统>高级选项>擦除所有数据(恢复出厂设置)**并按照屏幕提示操作。

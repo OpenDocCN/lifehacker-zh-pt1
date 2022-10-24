@@ -1,8 +1,8 @@
 # 你可以用烤箱清洁剂来清理木制家具
 
-> 原文:[https://life hacker . com/you-can-use-oven-cleaner-to-strip-wood-furniture-1849599349](https://lifehacker.com/you-can-use-oven-cleaner-to-strip-wood-furniture-1849599349)
+> 原文：<https://lifehacker.com/you-can-use-oven-cleaner-to-strip-wood-furniture-1849599349>
 
-抖音和Instagram上充斥着展示DIY和家具翻转教学视频的账户，这些视频让修补旧货店发现的昂贵物品变得又快又容易。(当然，当你把四个小时的脱漆和打磨时间缩短到两秒钟时，你可以让任何项目看起来快速而简单。)
+抖音和 Instagram 上充斥着展示 DIY 和家具翻转教学视频的账户，这些视频让修补旧货店发现的昂贵物品变得又快又容易。(当然，当你把四个小时的脱漆和打磨时间缩短到两秒钟时，你可以让任何项目看起来快速而简单。)
 
 Watch
 
@@ -26,7 +26,7 @@ Watch
 
 *   从彻底清洁家具开始，去除任何灰尘、污垢、粘性污渍或其他碎片。
 *   然后，在通风良好的地方，用一层烤箱清洁剂覆盖这块蛋糕。
-*   等待30分钟。
+*   等待 30 分钟。
 *   用刷子和洗碗精擦洗它。
 *   用软管冲洗干净。
 

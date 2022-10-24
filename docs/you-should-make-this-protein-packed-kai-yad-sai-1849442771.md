@@ -1,14 +1,14 @@
-# 你应该做这个富含蛋白质的Kai Yad Sai
+# 你应该做这个富含蛋白质的 Kai Yad Sai
 
-> 原文:[https://life hacker . com/you-should-make-this-protein-packed-kai-YAD-sai-1849442771](https://lifehacker.com/you-should-make-this-protein-packed-kai-yad-sai-1849442771)
+> 原文：<https://lifehacker.com/you-should-make-this-protein-packed-kai-yad-sai-1849442771>
 
 有一些童年的晚餐会在你的记忆中留下深刻的印象，被永久地定义为“最美味的食物，可以把一个热得一塌糊涂的日子变成一个美好的一天。”我想这就是安慰食物，是吧？对我来说，这是茉莉花茶。这道泰国菜具备令人格外满意的美食的所有特征，而且它的适应性足以让餐桌上的每个人都开心。
 
 Watch
 
-Kai Yad Sai翻译成英语的意思是“塞满的鸡蛋”如果你对它还不熟悉，你可以想象一个类似煎蛋袋的东西，里面装满了美味的碎肉。鸡蛋的功能是作为一个薄的，可食用的包装，当你打开它得到馅料时，你会在每一口中得到一点鸡蛋。煎蛋卷通常在肉馅周围形成正方形或长方形，但我妈妈过去常常简单地将它卷成一个填满的圆柱体，所以你可以看到馅料从两端伸出来，这就是我如何做的。Kai Yad Sai通常由碎猪肉填充，但可以用任何碎肉替换，甚至碎豆腐或清汤。午餐或晚餐都可以吃，可以加也可以不加茉莉香米。我忍不住选择了米饭和适当的鲜味潘趣酒 [【金山酱](https://umamicart.com/products/golden-mountain-seasoning-soy-sauce?variant=39556637982886&currency=USD&utm_medium=product_sync&utm_source=google&utm_content=sag_organic&utm_campaign=sag_organic&region_id=123456&wickedsource=google&wickedid=Cj0KCQjw0oyYBhDGARIsAMZEuMsM1FBOnpgQqP2sUIOBuTMvdtx8EOzKGMOzzCMMp_yaqSTRMKvtTZAaAqvwEALw_wcB&wickedid=567549603347&wcid=15496447103&wv=4&gclid=Cj0KCQjw0oyYBhDGARIsAMZEuMsM1FBOnpgQqP2sUIOBuTMvdtx8EOzKGMOzzCMMp_yaqSTRMKvtTZAaAqvwEALw_wcB) (或者，如果你找不到那个， [Maggi](https://grocerybundles.com/product/174765/maggi-seasoning-liquid/?utm_source=shopping.google.com&utm_medium=organic&utm_campaign=Cooking+Essentials+-+Tier+0&gclid=Cj0KCQjw0oyYBhDGARIsAMZEuMvQvE7VeR1W4en4shNpiKqTZwJpl7gXu4863xUqHjQznFLJjbwgjeAaAoTfEALw_wcB) 就是下一个)。
+Kai Yad Sai 翻译成英语的意思是“塞满的鸡蛋”如果你对它还不熟悉，你可以想象一个类似煎蛋袋的东西，里面装满了美味的碎肉。鸡蛋的功能是作为一个薄的，可食用的包装，当你打开它得到馅料时，你会在每一口中得到一点鸡蛋。煎蛋卷通常在肉馅周围形成正方形或长方形，但我妈妈过去常常简单地将它卷成一个填满的圆柱体，所以你可以看到馅料从两端伸出来，这就是我如何做的。Kai Yad Sai 通常由碎猪肉填充，但可以用任何碎肉替换，甚至碎豆腐或清汤。午餐或晚餐都可以吃，可以加也可以不加茉莉香米。我忍不住选择了米饭和适当的鲜味潘趣酒 [【金山酱](https://umamicart.com/products/golden-mountain-seasoning-soy-sauce?variant=39556637982886&currency=USD&utm_medium=product_sync&utm_source=google&utm_content=sag_organic&utm_campaign=sag_organic&region_id=123456&wickedsource=google&wickedid=Cj0KCQjw0oyYBhDGARIsAMZEuMsM1FBOnpgQqP2sUIOBuTMvdtx8EOzKGMOzzCMMp_yaqSTRMKvtTZAaAqvwEALw_wcB&wickedid=567549603347&wcid=15496447103&wv=4&gclid=Cj0KCQjw0oyYBhDGARIsAMZEuMsM1FBOnpgQqP2sUIOBuTMvdtx8EOzKGMOzzCMMp_yaqSTRMKvtTZAaAqvwEALw_wcB) (或者，如果你找不到那个， [Maggi](https://grocerybundles.com/product/174765/maggi-seasoning-liquid/?utm_source=shopping.google.com&utm_medium=organic&utm_campaign=Cooking+Essentials+-+Tier+0&gclid=Cj0KCQjw0oyYBhDGARIsAMZEuMvQvE7VeR1W4en4shNpiKqTZwJpl7gXu4863xUqHjQznFLJjbwgjeAaAoTfEALw_wcB) 就是下一个)。
 
-Kai Yad Sai和所有美食一样，都是从芳香开始的。如果你有一个或大或小的研钵和杵，你可以在里面捣碎大蒜、芫荽根和胡椒。如果你没有，那么你可以用刀把它剁成糊状或尽可能细的肉末。这些味道和香味应该分布在整个馅料中，但这些馅料实际上“消失了”，所以你希望切得小一些。将面糊放入热锅中，加入大约一茶匙中性油，轻轻煎，直到香味四溢。加入切成丁的西红柿和洋葱，撒上盐，帮助配料释放水分，煮熟。准备碎猪肉(或火鸡、鸡肉、牛肉或豆腐渣)，加入酱油和一⅛茶匙的小苏打，以帮助褐变 并防止肉变干。一旦锅里的混合物变软煮熟，加入绞肉。用木勺把肉打碎，加入切碎的长豆角。如果你更容易得到的话，你可以用剁碎的四季豆来代替(我们家有时会用豌豆)。一旦肉变成褐色，撒上糖、蚝油和鱼露调味。把肉馅从火上拿开，尝一尝。如果你想用酸来平衡味道，可以加入酸橙汁。准备鸡蛋的时候把这个放在一边。
+Kai Yad Sai 和所有美食一样，都是从芳香开始的。如果你有一个或大或小的研钵和杵，你可以在里面捣碎大蒜、芫荽根和胡椒。如果你没有，那么你可以用刀把它剁成糊状或尽可能细的肉末。这些味道和香味应该分布在整个馅料中，但这些馅料实际上“消失了”，所以你希望切得小一些。将面糊放入热锅中，加入大约一茶匙中性油，轻轻煎，直到香味四溢。加入切成丁的西红柿和洋葱，撒上盐，帮助配料释放水分，煮熟。准备碎猪肉(或火鸡、鸡肉、牛肉或豆腐渣)，加入酱油和一⅛茶匙的小苏打，以帮助褐变 并防止肉变干。一旦锅里的混合物变软煮熟，加入绞肉。用木勺把肉打碎，加入切碎的长豆角。如果你更容易得到的话，你可以用剁碎的四季豆来代替(我们家有时会用豌豆)。一旦肉变成褐色，撒上糖、蚝油和鱼露调味。把肉馅从火上拿开，尝一尝。如果你想用酸来平衡味道，可以加入酸橙汁。准备鸡蛋的时候把这个放在一边。
 
 要做“kai”部分，你需要的鸡蛋比早餐煎蛋少，因为你要把它做得很薄。两份的话，我总共会用三个鸡蛋。在量杯里搅拌鸡蛋，用大约一茶匙的水稀释混合物。这个水量足以帮助松散鸡蛋，使它们能够在平底锅中薄薄地散开，但也要足够小，使它在烹饪过程中蒸发，而不会使煎蛋卷变稀。
 
@@ -20,22 +20,22 @@ Kai Yad Sai和所有美食一样，都是从芳香开始的。如果你有一个
 
 **配料:**
 
-*   3瓣大蒜
-*   1根芫荽根(或一根完整的芫荽茎)
+*   3 瓣大蒜
+*   1 根芫荽根(或一根完整的芫荽茎)
 *   茶匙白胡椒(如果研磨，使用整个胡椒粒)
-*   6盎司碎猪肉(或任何碎肉)
-*   1汤匙酱油
+*   6 盎司碎猪肉(或任何碎肉)
+*   1 汤匙酱油
 *   ⅛茶匙小苏打
-*   2茶匙植物油(分开)
+*   2 茶匙植物油(分开)
 *   白洋葱(切碎)
 *   ⅓杯西红柿(去籽切碎)
 *   茶匙盐
-*   3汤匙切碎的长豆(替代青豆或豌豆)
+*   3 汤匙切碎的长豆(替代青豆或豌豆)
 *   茶匙糖
-*   1汤匙蚝油
-*   1茶匙鱼露。
+*   1 汤匙蚝油
+*   1 茶匙鱼露。
 *   一点酸橙汁
-*   3个鸡蛋
+*   3 个鸡蛋
 
 用研钵和杵将芫荽根、大蒜和胡椒粒捣成糊状。(或者，把它们剁碎成糊状，用预先磨碎的胡椒粒。)在一个小碗里，将碎猪肉和酱油混合，在上面撒上小苏打。搅拌，直到所有的东西都均匀地混合在一起。
 
@@ -43,4 +43,4 @@ Kai Yad Sai和所有美食一样，都是从芳香开始的。如果你有一个
 
 在量杯中，用一茶匙水搅拌鸡蛋。向煎锅中加入半茶匙油，用中低火快速加热。将一半的炒鸡蛋倒入锅中。鸡蛋烹饪时倾斜并旋转平底锅，以增加圆形的大小并保持其薄。大约一分钟后，鸡蛋应该完全熟了。
 
-关火，把一半的肉馅堆进鸡蛋里。将鸡蛋折叠在肉上，形成一个方形口袋，或者卷成一个筒状。可以单独食用，也可以与新鲜的茉莉花米饭和切碎的红辣椒一起食用。用另一半鸡蛋和馅料混合物重复上述步骤。马上吃，或者打包成第二天的办公室午餐。冷着吃，室温下吃，或者在一个宽松的容器中用微波炉加热大约45秒，只是为了消除寒意。
+关火，把一半的肉馅堆进鸡蛋里。将鸡蛋折叠在肉上，形成一个方形口袋，或者卷成一个筒状。可以单独食用，也可以与新鲜的茉莉花米饭和切碎的红辣椒一起食用。用另一半鸡蛋和馅料混合物重复上述步骤。马上吃，或者打包成第二天的办公室午餐。冷着吃，室温下吃，或者在一个宽松的容器中用微波炉加热大约 45 秒，只是为了消除寒意。

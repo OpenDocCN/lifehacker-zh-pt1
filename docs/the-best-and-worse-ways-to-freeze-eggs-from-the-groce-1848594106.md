@@ -1,8 +1,8 @@
 # 冷冻杂货店鸡蛋的最好(也是最差)方法
 
-> 原文:[https://life hacker . com/the-best-and-worth-ways-from-the-groce-1848594106](https://lifehacker.com/the-best-and-worse-ways-to-freeze-eggs-from-the-groce-1848594106)
+> 原文：<https://lifehacker.com/the-best-and-worse-ways-to-freeze-eggs-from-the-groce-1848594106>
 
-虽然冷冻是保存许多食物的好方法，在它们变坏之前，有些食物根本就不能冷冻好。然而，当谈到冷冻卵子时，即使是在Lifehacker，建议也明显是混杂的。以前我们曾经劝过 [冷冻卵子是巨痛不值得努力](https://lifehacker.com/can-i-freeze-that-a-guide-to-freezer-dos-and-donts-240887)； [我们后来说用冰块托盘冷冻鸡蛋是有效的](https://lifehacker.com/freeze-eggs-in-ice-cube-trays-to-preserve-them-longer-1537125434) 。但是取决于你如何冷冻卵子，这两种说法都可能是正确的。
+虽然冷冻是保存许多食物的好方法，在它们变坏之前，有些食物根本就不能冷冻好。然而，当谈到冷冻卵子时，即使是在 Lifehacker，建议也明显是混杂的。以前我们曾经劝过 [冷冻卵子是巨痛不值得努力](https://lifehacker.com/can-i-freeze-that-a-guide-to-freezer-dos-and-donts-240887)； [我们后来说用冰块托盘冷冻鸡蛋是有效的](https://lifehacker.com/freeze-eggs-in-ice-cube-trays-to-preserve-them-longer-1537125434) 。但是取决于你如何冷冻卵子，这两种说法都可能是正确的。
 
 Watch
 

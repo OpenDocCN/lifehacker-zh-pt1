@@ -1,8 +1,8 @@
 # 这会让你的盒装蛋糕每次都更好吃
 
-> 原文:[https://life hacker . com/this-will-make-your-boxed-cake-time-better-1849487421](https://lifehacker.com/this-will-make-your-boxed-cake-taste-better-every-time-1849487421)
+> 原文：<https://lifehacker.com/this-will-make-your-boxed-cake-taste-better-every-time-1849487421>
 
-像许多厨房起源的故事一样，这个技巧来自需要。我和一个朋友正在为一个生日聚会准备一个Funfetti蛋糕，发现我们只有两个鸡蛋，而不是必需的三个。我们想，没有时间去商店，也没有勇气喝一杯酒，最坏的情况会是什么呢？我们省去了鸡蛋，加上我朋友笨拙的油量器，我们烤了一个bundt蛋糕。那天，世界上最嫩、碎得最细的Funfetti蛋糕出炉了。
+像许多厨房起源的故事一样，这个技巧来自需要。我和一个朋友正在为一个生日聚会准备一个 Funfetti 蛋糕，发现我们只有两个鸡蛋，而不是必需的三个。我们想，没有时间去商店，也没有勇气喝一杯酒，最坏的情况会是什么呢？我们省去了鸡蛋，加上我朋友笨拙的油量器，我们烤了一个 bundt 蛋糕。那天，世界上最嫩、碎得最细的 Funfetti 蛋糕出炉了。
 
 Watch
 

@@ -1,6 +1,6 @@
 # 使用“聚光灯技术”来停止担忧和焦虑的循环
 
-> 原文:[https://life hacker . com/use-the-spot-the-light-technique-to-stop-a-cycle-of-worry-an-1849662342](https://lifehacker.com/use-the-spotlight-technique-to-stop-a-cycle-of-worry-an-1849662342)
+> 原文：<https://lifehacker.com/use-the-spotlight-technique-to-stop-a-cycle-of-worry-an-1849662342>
 
 作为人类，当我们不知道事情会如何发展时，我们担心是正常的。有时候，这种担心表现为一种普遍的担忧，你会定期思考这种担忧，同时仍然能够专注于其他事情。
 
@@ -14,7 +14,7 @@ Watch
 
 担忧是害怕不确定和未知的结果。根据陶森大学心理学副教授 [桑德拉·勒拉博士](https://www.towson.edu/news/2020/tu-psychology-covid-worrying.html#:~:text=%E2%80%9CWhile%20many%20of%20us%20are,emotionally%20prepared%20for%20negative%20outcomes.) 的说法，即使大多数人都知道担心某些事情会让他们焦虑不安，我们仍然无法阻止自己走上那条心理道路。
 
-一般来说，这有两个原因， [Llera说](https://www.towson.edu/news/2020/tu-psychology-covid-worrying.html#:~:text=%E2%80%9CWhile%20many%20of%20us%20are,emotionally%20prepared%20for%20negative%20outcomes.) 。第一是为潜在的负面结果做好心理准备。第二，我们常常把担忧视为解决问题的一种方式，一种控制局面的方式，而不是让局面变得更糟。
+一般来说，这有两个原因， [Llera 说](https://www.towson.edu/news/2020/tu-psychology-covid-worrying.html#:~:text=%E2%80%9CWhile%20many%20of%20us%20are,emotionally%20prepared%20for%20negative%20outcomes.) 。第一是为潜在的负面结果做好心理准备。第二，我们常常把担忧视为解决问题的一种方式，一种控制局面的方式，而不是让局面变得更糟。
 
 ## 如何使用“聚光灯技术”
 
@@ -26,7 +26,7 @@ Watch
 
 舞台上挤满了不同的问题、担忧和想法——所有你担心的事情。但是无论你在那个时刻正在做什么也在上面:完成一个工作项目，在回家的路上听播客，洗碗等等。
 
-根据Stein的说法，当你注意到聚光灯对准了他所说的你的“担心的问题”时，把聚光灯转移到你当时正在做的任何事情上，而不要试图回答任何这些问题。
+根据 Stein 的说法，当你注意到聚光灯对准了他所说的你的“担心的问题”时，把聚光灯转移到你当时正在做的任何事情上，而不要试图回答任何这些问题。
 
 这个想法并不是要分散你对这些问题存在这一事实的注意力(它们不会神奇地消失)，而是要忽略它们。
 

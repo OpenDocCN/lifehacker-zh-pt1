@@ -1,6 +1,6 @@
 # 如何不再烦恼，重新学会爱细菌
 
-> 原文:[https://life hacker . com/how-to-stop-warning-and-learn-to-love-germs-1847079882](https://lifehacker.com/how-to-stop-worrying-and-learn-to-love-germs-again-1847079882)
+> 原文：<https://lifehacker.com/how-to-stop-worrying-and-learn-to-love-germs-again-1847079882>
 
 对细菌的担忧塑造了我们过去一年半的生活，这要归功于一种特殊的细菌:导致新冠肺炎的病毒。但是我们周围的数十亿其他细菌、病毒和微生物并没有完全停止存在。我们真正需要害怕的是什么？我们如何保护自己而不走极端？
 
@@ -40,6 +40,6 @@ Watch
 
 关于使人生病的细菌，我们倾向于从其他生病的人那里得到它们。如果你的孩子拉肚子，请谨慎清洁浴室。(这是使用合适的消毒剂的好时机， [就像漂白剂](https://lifehacker.com/bleach-kills-the-coronavirus-too-1842316113) )。
 
-我们从COVID学到的一些东西在这里也会派上用场。如果你生病了，在公共场合戴口罩可以帮助你远离病菌；它还可能有助于防止你生病，甚至是感冒和流感等T2疾病。
+我们从 COVID 学到的一些东西在这里也会派上用场。如果你生病了，在公共场合戴口罩可以帮助你远离病菌；它还可能有助于防止你生病，甚至是感冒和流感等 T2 疾病。
 
-事实证明，清洁表面和使用洗手液 [对防止COVID](https://lifehacker.com/you-can-stop-disinfecting-your-home-now-cdc-says-1846627992) 的传播并不特别重要，但其他疾病——其中有感冒、流感和腹泻疾病——*通过表面接触传播，所以手部卫生和定期清洁(不是消毒)高接触表面是需要保持的良好习惯。*
+事实证明，清洁表面和使用洗手液 [对防止 COVID](https://lifehacker.com/you-can-stop-disinfecting-your-home-now-cdc-says-1846627992) 的传播并不特别重要，但其他疾病——其中有感冒、流感和腹泻疾病——*通过表面接触传播，所以手部卫生和定期清洁(不是消毒)高接触表面是需要保持的良好习惯。*

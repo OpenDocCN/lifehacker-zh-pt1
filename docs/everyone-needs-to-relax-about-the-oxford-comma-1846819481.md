@@ -1,16 +1,16 @@
 # 每个人都需要放松牛津逗号
 
-> 原文:[https://life hacker . com/every one-need-relax-about-the-Oxford-comma-1846819481](https://lifehacker.com/everyone-needs-to-relax-about-the-oxford-comma-1846819481)
+> 原文：<https://lifehacker.com/everyone-needs-to-relax-about-the-oxford-comma-1846819481>
 
 如果你在寻找一种肯定会引发不必要的愤怒辩论的语法惯例，那么看看牛津逗号*【编者注:我不知道我会不会称之为不必要】*就够了。
 
-你看，牛津逗号不是普通的旧逗号——它是保持词汇顺序和保持可读性的逗号，或者说它的支持者是这样认为的。看在上帝的份上，它保证大写的O，。有两个论点形成了辩论中对立的核心——但是在你选择一方之前，你必须知道它是什么，它是如何使用的，以及为什么它会激怒语法分歧双方的人。(尽管 i 如果你仔细阅读，你可以分辨出Lifehacker 属于哪个阵营)。
+你看，牛津逗号不是普通的旧逗号——它是保持词汇顺序和保持可读性的逗号，或者说它的支持者是这样认为的。看在上帝的份上，它保证大写的 O，。有两个论点形成了辩论中对立的核心——但是在你选择一方之前，你必须知道它是什么，它是如何使用的，以及为什么它会激怒语法分歧双方的人。(尽管 i 如果你仔细阅读，你可以分辨出 Lifehacker 属于哪个阵营)。
 
 Watch
 
-### O xford逗号是什么？
+### O xford 逗号是什么？
 
-它听起来如此奇特，就像是在常春藤文法学校的工厂里手工制作的一样。牛津逗号，也称为序列逗号或系列逗号，是三个或更多项目列表中位于最终连接词(通常为and/or) 之前的逗号。
+它听起来如此奇特，就像是在常春藤文法学校的工厂里手工制作的一样。牛津逗号，也称为序列逗号或系列逗号，是三个或更多项目列表中位于最终连接词(通常为 and/or) 之前的逗号。
 
 或者，作为牛津大学(还有谁？) [恰如其分地精心制作](https://www.oxford-royale.com/articles/oxford-comma/)
 
@@ -50,6 +50,6 @@ Watch
 
 反对牛津逗号的一个主要论点是，某些句子会更好, re 的措词会消除歧义。
 
-为了说明，这里有一个来自 [的例子](https://www.grammarly.com/blog/what-is-the-oxford-comma-and-why-do-people-care-so-much-about-it/):T他的句子“我爱我的父母，Lady Gaga和矮胖子”，当然比“我爱我的父母，Lady Gaga和矮胖子”更可取但是它可以重组为“我爱Lady Gaga，矮胖子Dumpty和我的父母。”后一个例子远没有那么令人困惑，粉碎了Lady Gaga和Humpty Dumpty一起抚养一个孩子的任何可能性，而不是用标点符号在菜肴上撒盐。
+为了说明，这里有一个来自 [的例子](https://www.grammarly.com/blog/what-is-the-oxford-comma-and-why-do-people-care-so-much-about-it/):T 他的句子“我爱我的父母，Lady Gaga 和矮胖子”，当然比“我爱我的父母，Lady Gaga 和矮胖子”更可取但是它可以重组为“我爱 Lady Gaga，矮胖子 Dumpty 和我的父母。”后一个例子远没有那么令人困惑，粉碎了 Lady Gaga 和 Humpty Dumpty 一起抚养一个孩子的任何可能性，而不是用标点符号在菜肴上撒盐。
 
 不管你怎么看，牛津逗号肯定有它的用处，尽管有时有点多余。毕竟，它只是一个逗号，所以没有必要写一篇论文来支持它在所有上下文中的使用。T3】

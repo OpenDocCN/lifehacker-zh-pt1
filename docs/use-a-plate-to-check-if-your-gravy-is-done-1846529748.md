@@ -1,6 +1,6 @@
 # 用盘子检查你的肉汁是否“熟了”
 
-> 原文:[https://life hacker . com/use-a-plate-to-check-if-your-gravy-done-1846529748](https://lifehacker.com/use-a-plate-to-check-if-your-gravy-is-done-1846529748)
+> 原文：<https://lifehacker.com/use-a-plate-to-check-if-your-gravy-is-done-1846529748>
 
 如果你曾经做过肉汁，或任何添加了增稠剂的酱料或类似食物，你就会知道，一旦你把它从热腾腾的煨锅里拿出来，放到盘子里，它的作用就完全不同了。肉汁、果酱和许多酱料在冷却时都会变稠，当它们冒泡时，很难判断它们何时“完成”。不要依赖于他们如何涂抹勺子，而是在一个冷的或室温的盘子上蘸一点，看看它的表现。(如果你对勺子戏法感到满意，那很好，但是我总是纠结于勺子是否有足够的涂层，结果我盯着勺子看的时间太长了。)
 

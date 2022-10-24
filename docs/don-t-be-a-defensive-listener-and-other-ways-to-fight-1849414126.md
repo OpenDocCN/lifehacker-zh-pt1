@@ -1,6 +1,6 @@
 # 不要做一个防御性的倾听者，用其他方法和你的伴侣“更好地”战斗
 
-> 原文:[https://life hacker . com/don-t-be-a-defense-listener-and-other-way-to-fight-1849414126](https://lifehacker.com/don-t-be-a-defensive-listener-and-other-ways-to-fight-1849414126)
+> 原文：<https://lifehacker.com/don-t-be-a-defensive-listener-and-other-ways-to-fight-1849414126>
 
 当我们感到被误解时，很自然地 [会变得防御性](https://lifehacker.com/what-to-say-when-someone-is-getting-defensive-1847822729) ，尤其是在恋爱关系中。 [开诚布公的交流](https://lifehacker.com/top-10-ways-to-improve-your-communication-skills-1590488550) 是任何关系的关键，但是防御性的反应——很可能被解读为对你的伴侣怀有敌意——会很快扼杀任何克服误读和误解的希望。幸运的是，同样简单的沟通技巧可以在工作中帮助你，也可以应用到你的浪漫关系中。这里有一些克服沟通障碍，拥有更健康、更幸福的关系的建议。
 
@@ -24,7 +24,7 @@ Watch
 
 ## **邀请**中的其他人
 
-用一种能让别人理解你的方式来表达自己。最简单的方法是陈词滥调，但却是必要的:使用“我”的陈述。例如，不要说这样的话，“*你总是做__，你从来不听*，”你可以这样表达，“*我觉得没人听，这很伤人，让我想关掉*”为了使合作交流有效，双方都必须接受你关心对方观点的观点。
+用一种能让别人理解你的方式来表达自己。最简单的方法是陈词滥调，但却是必要的:使用“我”的陈述。例如，不要说这样的话，“*你总是做 __，你从来不听*，”你可以这样表达，“*我觉得没人听，这很伤人，让我想关掉*”为了使合作交流有效，双方都必须接受你关心对方观点的观点。
 
 ## 外卖
 

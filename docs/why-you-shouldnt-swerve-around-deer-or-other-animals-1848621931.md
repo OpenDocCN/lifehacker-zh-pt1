@@ -1,6 +1,6 @@
 # 为什么你不应该在路上绕过鹿(或其他动物)
 
-> 原文:[https://life hacker . com/why-you-should-turn-around-deer-or-other-animals-1848621931](https://lifehacker.com/why-you-shouldnt-swerve-around-deer-or-other-animals-1848621931)
+> 原文：<https://lifehacker.com/why-you-shouldnt-swerve-around-deer-or-other-animals-1848621931>
 
 当你开车时，如果路上出现一只鹿，你可能会做出很多糟糕的决定。你会大吃一惊，它会冻结，你的大脑会拉响警报，提醒你应该*现在就做点什么*——但是请不要急于绕开它。
 

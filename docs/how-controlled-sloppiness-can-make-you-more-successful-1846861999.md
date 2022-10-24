@@ -1,8 +1,8 @@
 # “控制马虎”如何让你更成功
 
-> 原文:[https://life hacker . com/how-controlled-slope-can-make-you-more-success-1846861999](https://lifehacker.com/how-controlled-sloppiness-can-make-you-more-successful-1846861999)
+> 原文：<https://lifehacker.com/how-controlled-sloppiness-can-make-you-more-successful-1846861999>
 
-如果你有幸遇到过[SMART目标设定](https://lifehacker.com/achieve-goals-using-the-s-m-a-r-t-method-5345211) ，你就会知道这个缩写代表着具体的、可衡量的、 [可分配的](https://community.mis.temple.edu/mis0855002fall2015/files/2015/10/S.M.A.R.T-Way-Management-Review.pdf) (变成了“可实现的”)、现实的、与时间相关的。特别是 [特异性](https://lifehacker.com/if-smart-goals-dont-work-for-you-try-fast-goals-instea-1839135232) 让目标更容易计划和追踪。例如，“e 少点外卖”不如“e 一周最多点两次外卖”但是，尽管b 变得具体可能是有用的，但在一些更复杂的情况下，它也可能适得其反。
+如果你有幸遇到过[SMART 目标设定](https://lifehacker.com/achieve-goals-using-the-s-m-a-r-t-method-5345211) ，你就会知道这个缩写代表着具体的、可衡量的、 [可分配的](https://community.mis.temple.edu/mis0855002fall2015/files/2015/10/S.M.A.R.T-Way-Management-Review.pdf) (变成了“可实现的”)、现实的、与时间相关的。特别是 [特异性](https://lifehacker.com/if-smart-goals-dont-work-for-you-try-fast-goals-instea-1839135232) 让目标更容易计划和追踪。例如，“e 少点外卖”不如“e 一周最多点两次外卖”但是，尽管 b 变得具体可能是有用的，但在一些更复杂的情况下，它也可能适得其反。
 
 Watch
 
@@ -10,13 +10,13 @@ Watch
 
 当你开始做一些比少吃外卖食品更不简单的事情时，你可能还不知道所有该知道的事情。在这个阶段，具体化意味着忽略一些你甚至还不知道的很棒的选项。
 
-例如，“我想让 [在抖音](https://twocents.lifehacker.com/how-much-money-can-you-make-on-tiktok-1845773683) 上每月赚300美元，”比更一般的“我想每月赚300美元”少了许多其他潜在的更有利可图的选择在这种情况下，关键是指出你感兴趣的领域，但不一定要承诺一个特定的结果只是。
+例如，“我想让 [在抖音](https://twocents.lifehacker.com/how-much-money-can-you-make-on-tiktok-1845773683) 上每月赚 300 美元，”比更一般的“我想每月赚 300 美元”少了许多其他潜在的更有利可图的选择在这种情况下，关键是指出你感兴趣的领域，但不一定要承诺一个特定的结果只是。
 
 詹姆斯·h·奥斯汀在《追逐、机遇和创造力》一书中写道:“机遇是无意的，它是反复无常的，但我们不必得出结论说机遇不受人类干预。 [你可以影响你有多幸运](https://lifehacker.com/how-to-create-your-own-luck-1693949106) 。
 
-运气好，想出 [更有创意的想法](https://herbertlui.net/how-to-be-more-creative) 意味着在不知道结果会如何的情况下调查探索。这就是3M的15%时间 [和谷歌的20%时间](https://en.wikipedia.org/wiki/20%25_Project) 背后的原理，它们给员工时间去做他们自己的、未指定的工作项目。这种类型的工作需要一个不太具体的，更一般的计划。
+运气好，想出 [更有创意的想法](https://herbertlui.net/how-to-be-more-creative) 意味着在不知道结果会如何的情况下调查探索。这就是 3M 的 15%时间 [和谷歌的 20%时间](https://en.wikipedia.org/wiki/20%25_Project) 背后的原理，它们给员工时间去做他们自己的、未指定的工作项目。这种类型的工作需要一个不太具体的，更一般的计划。
 
-生活黑客p 家长编辑 [Meghan Moravcik Walbert已经写了关于在你的孩子 s 创意项目](https://offspring.lifehacker.com/invest-in-your-kid-s-creative-summer-project-1843983230) 上投资时间的重要性，并且这种心态也可以适用于你自己的个人或专业项目。以下是如何给你的具体计划增加一些概括性，这样你就可以保持计划的开放性，以防灵感或者好运降临。
+生活黑客 p 家长编辑 [Meghan Moravcik Walbert 已经写了关于在你的孩子 s 创意项目](https://offspring.lifehacker.com/invest-in-your-kid-s-creative-summer-project-1843983230) 上投资时间的重要性，并且这种心态也可以适用于你自己的个人或专业项目。以下是如何给你的具体计划增加一些概括性，这样你就可以保持计划的开放性，以防灵感或者好运降临。
 
 ## 允许受控的松散
 
@@ -32,7 +32,7 @@ Watch
 
 *作家兼喜剧演员莎拉·库珀尝试抖音 是这种现象最近在非常明显的例子。当她的唐纳德·特朗普假唱视频迅速走红时，她在社交平台上的赌注得到了回报。这不是异常现象。库珀 [长期尝试平台](https://www.fastcompany.com/90608957/experimentation-is-key-to-opportunity-here-are-3-ways-to-build-it-into-your-daily-routine) ，从媒体，到 [脸书广告](https://medium.com/more-or-less/facebook-zombies-f8a690084c0d) ，甚至开始她自己对[*Cosmopolitan*](https://web.archive.org/web/20131227051924/http://oolalove.com/)的恶搞。*
 
-*这种类型的行动是最好的，当它涉及到你的个性。有了 [这种类型的运气](https://lifehacker.com/how-to-create-your-own-luck-1693949106) ，几年前我为Lifehacker写道，“跟随你的直觉和激情。你的个人观点、丰富的生活经历和独特的生活方式可以结合起来创造这种机会。这是最罕见、最不可预测的机会。”当你把个人经历联系起来或者更好地理解它们时，创造力就会产生。*
+*这种类型的行动是最好的，当它涉及到你的个性。有了 [这种类型的运气](https://lifehacker.com/how-to-create-your-own-luck-1693949106) ，几年前我为 Lifehacker 写道，“跟随你的直觉和激情。你的个人观点、丰富的生活经历和独特的生活方式可以结合起来创造这种机会。这是最罕见、最不可预测的机会。”当你把个人经历联系起来或者更好地理解它们时，创造力就会产生。*
 
 ## *打开你的心扉*
 
@@ -42,7 +42,7 @@ Watch
 
 *在某种程度上，保持大门敞开也需要你保持思想开放。开放的心灵会注意到封闭的心灵不会注意到的机会。正如理查德·怀斯曼在《运气因素》一书中所写的，“幸运的人能够注意到机遇是他们以一种放松的方式看待世界的结果。这并不是说他们期望找到某些机会，而是当他们遇到这些机会时会注意到它们。”*
 
-## *在h 和声
-中保持g 一般和s 特殊*
+## *在 h 和声
+中保持 g 一般和 s 特殊*
 
 *在一般和特殊之间有一种张力——有点矛盾的——但是没有必要把任何一端都极端化。你可以从在你的时间表 中腾出更多的 [空闲时间开始，利用这些时间让自己注意并探索细节和意想不到的事情。在你可能有其他你不知道的选择的情况下，如果除了聪明，你的目标还包括一点行动力——普遍性和开放性，你会更好。](https://lifehacker.com/make-your-job-feel-less-like-work-with-20-time-5932586)*

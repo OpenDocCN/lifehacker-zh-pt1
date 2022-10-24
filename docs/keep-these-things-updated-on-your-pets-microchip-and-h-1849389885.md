@@ -1,6 +1,6 @@
 # 在你的宠物的微芯片上保持这些事情的更新(以及如何做)
 
-> 原文:[https://life hacker . com/keep-things-updated-on-your-pets-microchip-and-h-1849389885](https://lifehacker.com/keep-these-things-updated-on-your-pets-microchip-and-h-1849389885)
+> 原文：<https://lifehacker.com/keep-these-things-updated-on-your-pets-microchip-and-h-1849389885>
 
 如果你的宠物走丢了，微芯片可以帮你把它带回家。但是一些宠物主人没有意识到——或者曾经知道，但忘记了——芯片本身并不做任何事情。它只是允许兽医或收容所在数据库中查找号码。所以你要确保你在数据库中的联系信息是正确的，并且从到一直到日期。
 
@@ -8,7 +8,7 @@ Watch
 
 ## 宠物的微芯片实际上是做什么的？
 
-虽然拥有“微芯片”的想法听起来很超前，但这项技术非常简单。没有GPS追踪器之类的东西。美国兽医协会 [这样描述](https://www.avma.org/resources-tools/pet-owners/petcare/microchips-reunite-pets-families/microchipping-faq) 这项技术:
+虽然拥有“微芯片”的想法听起来很超前，但这项技术非常简单。没有 GPS 追踪器之类的东西。美国兽医协会 [这样描述](https://www.avma.org/resources-tools/pet-owners/petcare/microchips-reunite-pets-families/microchipping-faq) 这项技术:
 
 > 微芯片本身没有电池——它由经过该区域的扫描仪激活，扫描仪发出的无线电波激活芯片。芯片将识别号码传送给扫描仪，扫描仪将号码显示在屏幕上。
 
@@ -18,10 +18,10 @@ Watch
 
 当你给一只宠物植入微芯片，或者当你收养一只已经植入微芯片的宠物时，你会得到一些表格来填写你的姓名、地址和其他信息。这些信息被保存到数据库中。然后，当兽医或收容所工作人员扫描芯片时，他们将能够在数据库中查找相关的联系信息。
 
-如果从那以后你搬家了，你需要确保更新你的信息。一年一次提醒这样做是有好处的，无论是在你的宠物年度体检时，还是在它们生日时，或者是在对你有意义的时候。(8月 15日是[NnationalCcheck the Chip Day](https://www.avma.org/events/national-check-chip-day)，如果你想用那个日期。)你也可以让你的兽医在体检时扫描芯片，以确保它仍然可读。
+如果从那以后你搬家了，你需要确保更新你的信息。一年一次提醒这样做是有好处的，无论是在你的宠物年度体检时，还是在它们生日时，或者是在对你有意义的时候。(8 月 15 日是[NnationalCcheck the Chip Day](https://www.avma.org/events/national-check-chip-day)，如果你想用那个日期。)你也可以让你的兽医在体检时扫描芯片，以确保它仍然可读。
 
 ## 我的信息在哪个数据库有关系吗？
 
-有许多微芯片数据库，不幸的是，没有一个单一的、通用的数据库包含每个人的信息。AVMA说，获取你的信息的最重要的数据库是由你的芯片制造商维护的数据库。他们还有一个 [微芯片查找工具](https://www.aaha.org/petmicrochiplookup) ，可以从芯片的序列号中找到合适的数据库。
+有许多微芯片数据库，不幸的是，没有一个单一的、通用的数据库包含每个人的信息。AVMA 说，获取你的信息的最重要的数据库是由你的芯片制造商维护的数据库。他们还有一个 [微芯片查找工具](https://www.aaha.org/petmicrochiplookup) ，可以从芯片的序列号中找到合适的数据库。
 
-在某个地方保存一份宠物号码的记录是个好主意，因为从芯片上读取号码的唯一方法是用扫描仪。芯片可能在一些文件上带有号码，或者你可以让你的兽医扫描你的宠物并告诉你号码。如果你不确定在哪里更新你的信息，把这个号码插入AVMA的工具来找到合适的数据库。
+在某个地方保存一份宠物号码的记录是个好主意，因为从芯片上读取号码的唯一方法是用扫描仪。芯片可能在一些文件上带有号码，或者你可以让你的兽医扫描你的宠物并告诉你号码。如果你不确定在哪里更新你的信息，把这个号码插入 AVMA 的工具来找到合适的数据库。

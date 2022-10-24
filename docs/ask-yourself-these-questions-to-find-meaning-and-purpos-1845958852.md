@@ -1,6 +1,6 @@
 # 问自己这些问题来寻找意义和目标
 
-> 原文:[https://life hacker . com/ask-yourself-these-questions-to-find-meaning and-purposs-1845958852](https://lifehacker.com/ask-yourself-these-questions-to-find-meaning-and-purpos-1845958852)
+> 原文：<https://lifehacker.com/ask-yourself-these-questions-to-find-meaning-and-purpos-1845958852>
 
 新冠肺炎疫情的许多意想不到的方面之一是被迫(或有机会——取决于你如何看待它)思考你想在余生做什么。也许你失去了工作，并想利用这个机会弄清楚你可能更喜欢什么类型的工作。或者也许在过去的几个月里，你比以往任何时候都工作得多，这让你考虑这是否真的是你想要继续谋生的方式。
 
@@ -10,7 +10,7 @@ Watch
 
 ### 如何找到意义和目的
 
-问题由 [克利奥·韦德](https://ideas.ted.com/author/cleo-wade/) 提供，他是一名社区建设者， [TED演讲者](https://www.ted.com/talks/cleo_wade_want_to_change_the_world_start_by_being_brave_enough_to_care?language=en) 以及《心灵对话杂志:52周的自爱、自理和自我发现 》等书籍的作者，这些问题可以在 的帖子中找到 [这是TED](https://ideas.ted.com/dont-have-a-single-purpose-or-passion-thats-ok/)[“如何成为一个更好的人”的一部分](https://ideas.ted.com/tag/how-to-be-a-better-human/)
+问题由 [克利奥·韦德](https://ideas.ted.com/author/cleo-wade/) 提供，他是一名社区建设者， [TED 演讲者](https://www.ted.com/talks/cleo_wade_want_to_change_the_world_start_by_being_brave_enough_to_care?language=en) 以及《心灵对话杂志:52 周的自爱、自理和自我发现 》等书籍的作者，这些问题可以在 的帖子中找到 [这是 TED](https://ideas.ted.com/dont-have-a-single-purpose-or-passion-thats-ok/)[“如何成为一个更好的人”的一部分](https://ideas.ted.com/tag/how-to-be-a-better-human/)
 
 首先，韦德指出，尽管压力重重，但我们不应该觉得必须找到自己唯一的“激情”才能赋予生活意义。这是因为， [正如她所说:](https://ideas.ted.com/dont-have-a-single-purpose-or-passion-thats-ok/) “我们都是这样多层次的存在，拥有丰富的天赋、才能、兴趣和想法。”那么为什么要限制自己呢？
 

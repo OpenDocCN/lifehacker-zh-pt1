@@ -1,6 +1,6 @@
 # 如果你的目标是省钱，就不要选择“自己采摘”的苹果园
 
-> 原文:[https://life hacker . com/avoid-pick-your-own-your-goal-is-savi-1849628991](https://lifehacker.com/avoid-pick-your-own-apple-orchards-if-your-goal-is-savi-1849628991)
+> 原文：<https://lifehacker.com/avoid-pick-your-own-apple-orchards-if-your-goal-is-savi-1849628991>
 
 每个季节都有其不可描述的时刻，但一年中最令人垂涎的一些照片只能在秋天拍摄——在这一天，树叶正处于色彩缤纷的高峰期，气温下降到足以被视为“毛衣天气”在所有秋天的活动中，摘苹果提供了在社交媒体上记录的理想体验:清扫果园风景、动作镜头、闪亮苹果的特写等等。
 

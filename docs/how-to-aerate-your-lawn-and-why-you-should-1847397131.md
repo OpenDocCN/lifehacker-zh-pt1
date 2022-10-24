@@ -1,6 +1,6 @@
 # 如何给你的草坪通气(以及为什么你应该这样做)
 
-> 原文:[https://life hacker . com/how-to-air-your lawn and why-you-should-1847397131](https://lifehacker.com/how-to-aerate-your-lawn-and-why-you-should-1847397131)
+> 原文：<https://lifehacker.com/how-to-aerate-your-lawn-and-why-you-should-1847397131>
 
 取决于你住在哪里，以及你对庭院外观的态度，草坪可能是一项艰苦的工作。如果你不想走 [人工路线](https://lifehacker.com/why-you-should-switch-to-synthetic-grass-1847344335) (它有自己的环境和身体挑战)，还有其他方法可以让草坪护理工作变得更轻松。有许多小步骤可以让你的草坪保持茂盛和绿色，还有一种帮助促进草坪生长的方法就是给草坪通气。
 

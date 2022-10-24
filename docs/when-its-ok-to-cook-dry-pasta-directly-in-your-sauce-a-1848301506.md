@@ -1,6 +1,6 @@
 # 什么时候可以直接用你的调味汁做意大利面，什么时候不行
 
-> 原文:[https://life hacker . com/when-it-ok-to-cook-dry-pasta-direct-in-your-sauce-a-1848301506](https://lifehacker.com/when-its-ok-to-cook-dry-pasta-directly-in-your-sauce-a-1848301506)
+> 原文：<https://lifehacker.com/when-its-ok-to-cook-dry-pasta-directly-in-your-sauce-a-1848301506>
 
 美食写作的一个主要方面是确定食谱和方法，让你尽可能快地用最少的脏盘子把食物端上桌子，放进嘴里。如果你谈论的是工作日晚上必须吃的食物，这一点尤其重要，那种需要效率的夜晚。把煮意大利面的概念直接输入其附赠的酱料中。能做到吗？应该这样做吗？
 
@@ -10,7 +10,7 @@ Watch
 
 ## 你不应该在装有果酱的锅里煮干意大利面
 
-干意大利面会吸收水分并释放淀粉，而一罐酱没有足够的水分来保持水分。将干意大利面加入到准备好的marina中会使已经很稠的酱汁变稠，导致大量烹饪不均匀的粘性意大利面和番茄酱。不要这样做。
+干意大利面会吸收水分并释放淀粉，而一罐酱没有足够的水分来保持水分。将干意大利面加入到准备好的 marina 中会使已经很稠的酱汁变稠，导致大量烹饪不均匀的粘性意大利面和番茄酱。不要这样做。
 
 ## 你应该避免直接在浓酱里煮长的意大利面
 
@@ -20,7 +20,7 @@ Watch
 
 ## 你应该使用为一锅烹饪设计的食谱或方法
 
-以上都是这么说的(或者说是打出来的)，你可以直接在酱里煮意大利面，只要加点水分。美国的试验厨房有一个简单的一锅意大利面的配方 ，它使用了3杯水、一罐28盎司的碎番茄和3又3/4杯意大利面；我的 [免煮烘焙意大利面](https://lifehacker.com/how-to-bake-pasta-without-boiling-it-first-1830839610) 用两杯牛奶换8盎司意大利面和一罐28盎司西红柿；著名的 [单锅玛莎·斯图尔特意面](https://food52.com/recipes/30147-martha-stewart-s-one-pan-pasta)
+以上都是这么说的(或者说是打出来的)，你可以直接在酱里煮意大利面，只要加点水分。美国的试验厨房有一个简单的一锅意大利面的配方 ，它使用了 3 杯水、一罐 28 盎司的碎番茄和 3 又 3/4 杯意大利面；我的 [免煮烘焙意大利面](https://lifehacker.com/how-to-bake-pasta-without-boiling-it-first-1830839610) 用两杯牛奶换 8 盎司意大利面和一罐 28 盎司西红柿；著名的 [单锅玛莎·斯图尔特意面](https://food52.com/recipes/30147-martha-stewart-s-one-pan-pasta)
 
 ## 你应该尝试一下
 

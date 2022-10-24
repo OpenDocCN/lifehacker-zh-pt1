@@ -1,6 +1,6 @@
 # 如何洗涤节日丝袜和其他织物装饰品
 
-> 原文:[https://life hacker . com/how-to-wash-holiday-stockies-and-other-fabric-decorati-1848124966](https://lifehacker.com/how-to-wash-holiday-stockings-and-other-fabric-decorati-1848124966)
+> 原文：<https://lifehacker.com/how-to-wash-holiday-stockings-and-other-fabric-decorati-1848124966>
 
 也许你是这样一种人，在每个假期结束时，你会把所有的袜子和其他节日织物装饰品洗干净，然后放进一个精心密封的容器里，这样第二年一切都准备好了。
 

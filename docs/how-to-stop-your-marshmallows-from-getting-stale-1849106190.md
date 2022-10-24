@@ -1,8 +1,8 @@
 # 如何让你的棉花糖不变味
 
-> 原文:[https://life hacker . com/how-to-stop-your-marshmallow-from-getting-stale-1849106190](https://lifehacker.com/how-to-stop-your-marshmallows-from-getting-stale-1849106190)
+> 原文：<https://lifehacker.com/how-to-stop-your-marshmallows-from-getting-stale-1849106190>
 
-棉花糖有两个季节:在假期前后的米饼招待季节，和现在的s'mores季节。除非你是一个真正的“软糖脑袋”，否则你可能不会每年都吃掉那么多袋松软的白色糖果。事实上，你现在可能有一袋吃了一半的棉花糖挂在你的储藏室里，变得又臭又粘。
+棉花糖有两个季节:在假期前后的米饼招待季节，和现在的 s'mores 季节。除非你是一个真正的“软糖脑袋”，否则你可能不会每年都吃掉那么多袋松软的白色糖果。事实上，你现在可能有一袋吃了一半的棉花糖挂在你的储藏室里，变得又臭又粘。
 
 Watch
 

@@ -1,6 +1,6 @@
 # 如何让臭鼬远离你的院子
 
-> 原文:[https://life hacker . com/how-to-keep-skunks-out-of-your yard-1849546759](https://lifehacker.com/how-to-keep-skunks-out-of-your-yard-1849546759)
+> 原文：<https://lifehacker.com/how-to-keep-skunks-out-of-your-yard-1849546759>
 
 当受到威胁时，一些人会开不恰当的玩笑或表现得非常自信，以此作为防御机制。另一方面，臭鼬会释放出难闻的喷雾。
 

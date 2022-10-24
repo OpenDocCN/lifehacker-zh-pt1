@@ -1,6 +1,6 @@
 # 像对待毒藤一样避开这些植物
 
-> 原文:[https://life hacker . com/avoid-these-plants-the-same-way-you-could-poison-ivy-1848742889](https://lifehacker.com/avoid-these-plants-the-same-way-you-would-poison-ivy-1848742889)
+> 原文：<https://lifehacker.com/avoid-these-plants-the-same-way-you-would-poison-ivy-1848742889>
 
 春天最棒的部分之一是终于回到户外享受大自然。或者，至少在你遇到某种障碍之前是这样，比如特别泥泞的小路，季节性过敏，或者在接触毒藤或类似的刺激性植物后出现红色发痒的皮疹。
 
@@ -53,4 +53,4 @@ Watch
 
 如果你不确定你在野外遇到的植物或你自己在花园种植的植物是否会引起皮疹，最好小心行事，遮盖任何暴露的皮肤(特别是手臂和腿部)，并戴上园艺手套。
 
-如果你认为你接触了这些植物中的一种，立即用水彻底清洗你的手和身体部位(尽管AADA说是为了避免肥皂和苛刻的擦洗)。
+如果你认为你接触了这些植物中的一种，立即用水彻底清洗你的手和身体部位(尽管 AADA 说是为了避免肥皂和苛刻的擦洗)。

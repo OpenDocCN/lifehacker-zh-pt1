@@ -1,6 +1,6 @@
 # 什么是委托书代理(以及如何选择代理)？
 
-> 原文:[https://life hacker . com/what-a-power-of-proxy-agent-and-how-do-you-choos-1848875598](https://lifehacker.com/what-is-a-power-of-attorney-agent-and-how-do-you-choos-1848875598)
+> 原文：<https://lifehacker.com/what-is-a-power-of-attorney-agent-and-how-do-you-choos-1848875598>
 
 Watch
 
@@ -18,7 +18,7 @@ Watch
 
 考虑到这个人在你的财务方面的权力和责任，你应该任命一个你信任的人来关心你的最佳利益。除了信任之外，选择一个对你的财务状况和相关职责有充分了解的人也无妨。尽管如此，美国律师协会 表示，潜在代理人最重要的品质不是他们的商业头脑，而是他们的诚信。
 
-但是如果你的生活中没有一个符合要求的人呢？虽然人们通常指定家庭成员，但你可以选择任何18岁以上的人作为代理人。
+但是如果你的生活中没有一个符合要求的人呢？虽然人们通常指定家庭成员，但你可以选择任何 18 岁以上的人作为代理人。
 
 在你的社区中，看看有没有其他人愿意并且有资格担当这个角色。这可能是一个朋友，会计师，或者一个神职人员。您甚至可以选择多个人来担任这个角色，这样他们就可以划分职责(只要确保委托书文档允许每个代理人独立行动)。
 
@@ -28,7 +28,7 @@ Watch
 
 家庭成员承担这一角色的主要好处之一是，他们可能不需要经济补偿。如果你要求一个专业律师有一个持久的代理权，他们的法律费用可能会增加很快——你不知道你可能会失去能力多久。
 
-在同意任何固定或小时费率之前，做一些研究。家庭律师或遗嘱律师的时薪平均约为每小时300美元(根据 [ContractsCounsel的市场数据](https://www.contractscounsel.com/b/power-of-attorney-cost) )。根据他们作为代理人的计费时间，这笔费用可能会严重耗尽你的资源。获取外部法律建议，也许可以要求你的潜在律师每小时花多少时间管理他们无行为能力的客户的事务。
+在同意任何固定或小时费率之前，做一些研究。家庭律师或遗嘱律师的时薪平均约为每小时 300 美元(根据 [ContractsCounsel 的市场数据](https://www.contractscounsel.com/b/power-of-attorney-cost) )。根据他们作为代理人的计费时间，这笔费用可能会严重耗尽你的资源。获取外部法律建议，也许可以要求你的潜在律师每小时花多少时间管理他们无行为能力的客户的事务。
 
 正如[policy genius](https://www.policygenius.com/estate-planning/how-much-does-power-of-attorney-cost/)指出的，如果你选择自己创建一份委托书，你通常只需支付公证费用。然而， [AgingCare](https://www.agingcare.com/articles/buying-a-poa-form-online-171903.htm) 建议投资一名律师在你创建委托书文件时在场，因为在线版本没有专业顾问，没有法律证人，没有定制，也没有质量保险。
 

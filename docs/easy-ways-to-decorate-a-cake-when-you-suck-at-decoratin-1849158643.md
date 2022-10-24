@@ -1,6 +1,6 @@
 # 当你不擅长装饰时，装饰蛋糕的简单方法
 
-> 原文:[https://life hacker . com/easy-ways-to-decoration-when-you-suck-at-decoration in-1849158643](https://lifehacker.com/easy-ways-to-decorate-a-cake-when-you-suck-at-decoratin-1849158643)
+> 原文：<https://lifehacker.com/easy-ways-to-decorate-a-cake-when-you-suck-at-decoratin-1849158643>
 
 我喜欢蛋糕装饰，但毫无疑问，这是一项需要学校老师沉思般耐心的技能。根据你想做的事情，可能需要几个小时或几天的时间来制作一个和你脑海中的图像一样完美的蛋糕。不是所有人都有那样的时间。作为一名熟练的蛋糕装饰师，意味着我知道很多方法来掩盖可怕的错误，并在匆忙中即兴装饰。除了产生漂亮的结果，下面的黑客是快速的，不需要工具或良好的运动技能。尝试过这些之后，你可能会更经常地放弃裱花袋和皇家糖衣。
 
@@ -12,7 +12,7 @@ Watch
 
 ## 坚果
 
-坚果松脆，不规则，增加美味。这种装饰更类似于sprinkles，因为它没有糖果条带来的高度，但坚果可以为你的蛋糕添加一些低调的活力。在潮湿的环境中，它们也比糖果更有效，因为糖会变粘，如果放在阳光下，巧克力会融化。如果你正在寻找大量的覆盖面——假设你还在探索你的结霜技巧——研磨或切碎坚果，并沿着侧面 按压它们 [。对于复杂的装饰，将核桃分成两半，在顶部](https://figandoliveplatter.com/healthy-ish-carrot-cake/) 周围做一个简单的 [环。](https://food52.com/recipes/13942-butter-toasted-walnut-layer-cake)
+坚果松脆，不规则，增加美味。这种装饰更类似于 sprinkles，因为它没有糖果条带来的高度，但坚果可以为你的蛋糕添加一些低调的活力。在潮湿的环境中，它们也比糖果更有效，因为糖会变粘，如果放在阳光下，巧克力会融化。如果你正在寻找大量的覆盖面——假设你还在探索你的结霜技巧——研磨或切碎坚果，并沿着侧面 按压它们 [。对于复杂的装饰，将核桃分成两半，在顶部](https://figandoliveplatter.com/healthy-ish-carrot-cake/) 周围做一个简单的 [环。](https://food52.com/recipes/13942-butter-toasted-walnut-layer-cake)
 
 ## 可食用的花和草药
 

@@ -1,6 +1,6 @@
 # 常见房地产术语背后的含义
 
-> 原文:[https://life hacker . com/the-meanings-behind-common-real-estate-terms-1849461675](https://lifehacker.com/the-meanings-behind-common-real-estate-terms-1849461675)
+> 原文：<https://lifehacker.com/the-meanings-behind-common-real-estate-terms-1849461675>
 
 之前，我们解释了 [半浴室](https://lifehacker.com/the-actual-difference-between-a-half-3-4-and-full-bat-1848773483) 和全浴室[的区别，以及其他](https://lifehacker.com/two-half-baths-dont-equal-full-and-other-real-estate-b-1848791689)与厕所相关的数学，以及为什么你可能会开始看到提到 [【主卧室】](https://lifehacker.com/why-you-should-stop-using-the-phrase-master-bedroom-1848204457) (而不是“主卧室”)的房源。但是当涉及到房地产列表中的条款时，这些仅仅是个开始。
 

@@ -1,6 +1,6 @@
 # 用酸奶油把锅里的酱汁变稠
 
-> 原文:[https://life hacker . com/thicken-your-pan-sauce-with-acid-cream-1846448090](https://lifehacker.com/thicken-your-pan-sauce-with-sour-cream-1846448090)
+> 原文：<https://lifehacker.com/thicken-your-pan-sauce-with-sour-cream-1846448090>
 
 我很少用平底锅做调味酱，尤其是在工作日的晚上。我把肉从锅里拿出来，把多余的脂肪倒入一个小模子里，然后用酒精给美味的褐色部分脱釉。(最近那个东西已经是半氧化的干苦艾酒了。)T 当我把脂肪搅拌进去，如果需要的话，给酱汁调味，然后把它倒在我的烤排骨、牛排或肉片上。
 

@@ -1,6 +1,6 @@
 # 为什么你的狗闻起来比他们的朋友还臭
 
-> 原文:[https://life hacker . com/why-your ' s dog-smooth-than-thes-friends-1848847864](https://lifehacker.com/why-your-dog-smells-worse-than-their-friends-1848847864)
+> 原文：<https://lifehacker.com/why-your-dog-smells-worse-than-their-friends-1848847864>
 
 没有人指望狗闻起来很香(除非你是玉米片 香味的超级粉丝)。但有时，他们真的很臭。不，我们不是在谈论奶酪后的一点点胀气，或他们在沟水浸泡后产生的气味:我们是指让你知道有什么不对劲的难闻气味。
 
@@ -14,9 +14,9 @@ Watch
 
 ### 你的狗气味难闻的常见原因
 
-据得克萨斯州怀特豪斯的怀特豪斯兽医医院的兽医莎拉·奥乔亚和SeniorTailWaggers.com的T2以及T4的一些最常见的原因包括:
+据得克萨斯州怀特豪斯的怀特豪斯兽医医院的兽医莎拉·奥乔亚和 SeniorTailWaggers.com 的 T2 以及 T4 的一些最常见的原因包括:
 
-*   奥乔亚告诉Lifehacker:“很多时候，用基于酶的耳朵清洁剂清洁你的狗耳朵可以帮助打破你的狗耳朵里的蜡状碎片。
+*   奥乔亚告诉 Lifehacker:“很多时候，用基于酶的耳朵清洁剂清洁你的狗耳朵可以帮助打破你的狗耳朵里的蜡状碎片。
 *   她解释说:“如果你的狗有轻微的牙病，给它们吃些零食或在家刷牙，可以帮助减少牙垢的堆积。”。
 *   皮肤上的酵母菌或细菌感染
     “对于轻度皮肤感染，通常燕麦片浴会有助于清除这些问题，”奥乔亚说。

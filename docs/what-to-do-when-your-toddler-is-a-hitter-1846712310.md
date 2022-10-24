@@ -1,6 +1,6 @@
 # 当你的孩子是个击球手时该怎么办
 
-> 原文:[https://life hacker . com/what-to-do what-what-what-what-your ' s-tuckly-a-hitter-1846712310](https://lifehacker.com/what-to-do-when-your-toddler-is-a-hitter-1846712310)
+> 原文：<https://lifehacker.com/what-to-do-when-your-toddler-is-a-hitter-1846712310>
 
 我们最近谈到了 [如果他们蹒跚学步的孩子咬了人](https://offspring.lifehacker.com/what-to-do-when-your-toddler-is-a-biter-1846672640) ，父母可以做些什么，无论是出于好奇、沮丧还是需要关注。虽然一些初学走路的孩子因为这些原因而咬人，但其他人可能会转向打人。一个蹒跚学步的孩子打耳光可能不会像在胳膊上咬一口那么痛，但这仍然是非常令人难堪的，这是一种你想尽快遏制的行为。
 
@@ -14,9 +14,9 @@ Watch
 
 一些孩子还具有感官敏感性或对高于平均水平的感官输入的需求，这可能使他们更有可能推、踢或打别人。如果他们对被其他孩子拥挤很敏感，让他们远离过度刺激的环境是有帮助的。如果他们似乎需要额外的感官输入，他们可能会受益于定期按摩或紧紧拥抱。
 
-而且，正如Parents.com指出的 中的 [所言，这也可能仅仅是因为孩子天生喜怒无常:](https://www.parents.com/toddlers-preschoolers/development/behavioral/tough-toddlers-4-common-triggers-for-hitting-and-biting/)
+而且，正如 Parents.com 指出的 中的 [所言，这也可能仅仅是因为孩子天生喜怒无常:](https://www.parents.com/toddlers-preschoolers/development/behavioral/tough-toddlers-4-common-triggers-for-hitting-and-biting/)
 
-> 一些孩子——那些天性不太随和的孩子——倾向于用拳头或牙齿来领导。《难相处的孩子》一书的作者、儿童精神病学家斯坦利·图莱茨基博士解释说:“很多事情都归结于气质。当有人从他们手中抢走Elmo时，一些孩子只是耸耸肩，继续前进，而另一些孩子则进入街头战士模式。
+> 一些孩子——那些天性不太随和的孩子——倾向于用拳头或牙齿来领导。《难相处的孩子》一书的作者、儿童精神病学家斯坦利·图莱茨基博士解释说:“很多事情都归结于气质。当有人从他们手中抢走 Elmo 时，一些孩子只是耸耸肩，继续前进，而另一些孩子则进入街头战士模式。
 
 好吧，现在他们要动手了，我们该怎么办？
 

@@ -1,6 +1,6 @@
-# 8种快速圣诞早餐，不会偷走你的假日早晨
+# 8 种快速圣诞早餐，不会偷走你的假日早晨
 
-> 原文:[https://life hacker . com/8-quick-Christmas-morning-breads-you-can-make-while-1845935512](https://lifehacker.com/8-quick-christmas-morning-breakfasts-you-can-make-while-1845935512)
+> 原文：<https://lifehacker.com/8-quick-christmas-morning-breakfasts-you-can-make-while-1845935512>
 
 圣诞节的早晨可能是一年中最不轻松的早晨。你不仅要早起，还要为早起而高兴。甚至兴奋。人们通常还会期待一顿美味的早餐。一顿特别的早餐。一顿配得上基督诞生的早餐。
 

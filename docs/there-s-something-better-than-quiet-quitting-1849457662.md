@@ -1,6 +1,6 @@
 # 有比“安静地退出”更好的事情
 
-> 原文:[https://life hacker . com/there-s-something-better-quiet-1849457662](https://lifehacker.com/there-s-something-better-than-quiet-quitting-1849457662)
+> 原文：<https://lifehacker.com/there-s-something-better-than-quiet-quitting-1849457662>
 
 听着:如果上班打卡和下班打卡也算“退出”，那么我们都应该是退出者。你可能听说过“【g”，以及对这一病毒性术语日益增长的抵触情绪。这个想法最早是在抖音的[@ zckchillin](https://www.tiktok.com/@zaidleppelin/video/7124414185282391342?is_copy_url=1&is_from_webapp=v1)(现在的@zaidleppelin)中流行起来的，将“安静辞职”描述为员工“放弃在工作中超越自我的想法”他解释说，虽然你仍在履行你的职责，但“辞职”的部分是“你不再在精神上认同工作必须是我们的生活的喧嚣文化。”自从这个术语成为主流以来，批评家们指出讽刺的是，这个“辞职”的概念，从字面上来说，就是做你拿工资要做的工作。
 

@@ -1,6 +1,6 @@
-# 迄今为止，我们2021年的11个最佳健身秘诀
+# 迄今为止，我们 2021 年的 11 个最佳健身秘诀
 
-> 原文:[https://life hacker . com/11-of-our-best-fitness-hacks-of-2021-迄今为止-1847254893](https://lifehacker.com/11-of-our-best-fitness-hacks-of-2021-so-far-1847254893)
+> 原文：<https://lifehacker.com/11-of-our-best-fitness-hacks-of-2021-so-far-1847254893>
 
 今年才过了一半，但在健身界还有很多要谈的。无论你是重返健身房，还是第一次认真锻炼，或者只是坚持一贯的锻炼计划，我们都为你提供了大量的健身建议。这是今年迄今为止最精彩的一段精彩片段。
 
@@ -14,7 +14,7 @@
 
 高强度间歇训练是一个术语，最初应用于一种非常特殊的锻炼类型。 [后来，这个词被用来指任何一个偶然的人想要它指的](https://lifehacker.com/most-hiit-workouts-arent-really-hiit-1846409560) 。
 
-> 当它开始的时候，HIIT是关于在更少的时间里获得更多的结果，所以它建立了一个更有效率的名声，甚至可能比慢跑更好。因为你不需要骑自行车来跳HIIT，教练们带着这个想法开始将这个术语应用到他们能想到的任何东西上。体重深蹲？二头肌卷曲？当然，为什么不呢？因此，如今HIIT更像是“角落里有计时器倒计时的锻炼”
+> 当它开始的时候，HIIT 是关于在更少的时间里获得更多的结果，所以它建立了一个更有效率的名声，甚至可能比慢跑更好。因为你不需要骑自行车来跳 HIIT，教练们带着这个想法开始将这个术语应用到他们能想到的任何东西上。体重深蹲？二头肌卷曲？当然，为什么不呢？因此，如今 HIIT 更像是“角落里有计时器倒计时的锻炼”
 
 力量训练对所有人来说几乎都是一样的，不管性别如何，但是 [如果你从女性的角度来看这个问题，你需要避开很多废话](https://lifehacker.com/how-to-avoid-the-pitfalls-of-strength-training-advice-f-1846538995) 。
 
@@ -24,7 +24,7 @@
 
 倾听身体的声音很重要，但这不仅仅适用于你需要休息的时候。 [你也应该给你的身体一个机会，告诉你它*能*做](https://lifehacker.com/what-listen-to-your-body-really-means-1846458085) 什么，而不仅仅是它不能做什么。
 
-> 只要我能安全地做每一组，没有任何明显的疼痛，我就继续。我不会问自己是否想让T1停下来，我会问自己这是不是T2必须让T3停下来的时候。通常情况下，我的身体会不停地说“是的，这很好。”
+> 只要我能安全地做每一组，没有任何明显的疼痛，我就继续。我不会问自己是否想让 T1 停下来，我会问自己这是不是 T2 必须让 T3 停下来的时候。通常情况下，我的身体会不停地说“是的，这很好。”
 
 我们不应该混淆我们的培训日和我们的测试日，但是许多初学者恰恰落入了这个陷阱。如果你只关注跑步的速度或杠铃的重量，你可能会为了暂时的满足而牺牲长期的收益 。相反，训练聪明。
 
@@ -36,15 +36,15 @@
 
 举重是在健身房取得进步的最大途径之一，但这不是你应该关注的唯一事情。 [相对于你的体型，你变强壮了吗？能够在更短的时间内完成更多的工作？成为更全面的运动员？](https://lifehacker.com/how-to-set-goals-in-the-weight-room-beyond-heavier-weig-1846957577) 那些东西也很重要。
 
-> 你学习的每一项新运动都给你一个机会来设定新的PRs(体重、重复次数或你选择的任何其他指标),它也让你接触到新的训练刺激。从长远来看，所有这些变化都将有助于建立一个广泛的力量基础，甚至可能让你在回到平时的锻炼时变得更加强壮。
+> 你学习的每一项新运动都给你一个机会来设定新的 PRs(体重、重复次数或你选择的任何其他指标),它也让你接触到新的训练刺激。从长远来看，所有这些变化都将有助于建立一个广泛的力量基础，甚至可能让你在回到平时的锻炼时变得更加强壮。
 
-是的，有可能——而且 [值得](https://lifehacker.com/try-things-you-dont-think-you-like-1846927489)——去学着喜欢你认为不适合你的东西。我们的执行编辑Meghan Walbert花了一个月的时间试着喜欢跑步，而 [取得了巨大的进步](https://lifehacker.com/what-i-learned-from-a-month-spent-trying-to-like-runnin-1846982304) :
+是的，有可能——而且 [值得](https://lifehacker.com/try-things-you-dont-think-you-like-1846927489)——去学着喜欢你认为不适合你的东西。我们的执行编辑 Meghan Walbert 花了一个月的时间试着喜欢跑步，而 [取得了巨大的进步](https://lifehacker.com/what-i-learned-from-a-month-spent-trying-to-like-runnin-1846982304) :
 
 > 实际上，在这个过程的开始，我就告诉自己，如果到了月底，我仍然讨厌跑步，只要我活着，我就再也不用“去跑步”了，我可以回到我之前安排好的、我真正喜欢的锻炼中。但是我现在明白了，在过去，我从未坚持跑步足够长的时间来克服大多数跑步新手在起跑时经历的困难。而这一次，我可以说我就在那里——我是如此的接近。
 
 抖音可能是新的，但你会发现那里的锻炼技巧包括陈旧的错误信息，只是不知何故不会死亡。从来没有一种特别的燃烧脂肪的运动或特别的燃烧脂肪的饮料，而且 [把谎言设定成朗朗上口的音乐也不会让它们变得更真实](https://lifehacker.com/dont-fall-for-these-12-fitness-myths-from-tiktok-influe-1846966596) 。
 
-> 你可以做你想做的所有核心运动，它们可能会增强你腹部的ab肌肉，但无论抖音用户 [Janny14906](https://www.tiktok.com/@janny14906/video/6961415140440870149?referer_url=https%3A%2F%2Fkinja.com%2Fembed%2Finset%2Fiframe&referer_video_id=6961384621070208261&refer=embed&is_copy_url=1&is_from_webapp=v1) 在她的舞蹈视频中说什么， [它们都不会做任何事情来减少这些肌肉](https://vitals.lifehacker.com/everybody-is-lying-about-how-to-flatten-your-belly-1819778439) 顶部的脂肪。只有热量不足才会减少脂肪，而且脂肪的减少会发生在你的全身，而不是特定的部位。
+> 你可以做你想做的所有核心运动，它们可能会增强你腹部的 ab 肌肉，但无论抖音用户 [Janny14906](https://www.tiktok.com/@janny14906/video/6961415140440870149?referer_url=https%3A%2F%2Fkinja.com%2Fembed%2Finset%2Fiframe&referer_video_id=6961384621070208261&refer=embed&is_copy_url=1&is_from_webapp=v1) 在她的舞蹈视频中说什么， [它们都不会做任何事情来减少这些肌肉](https://vitals.lifehacker.com/everybody-is-lying-about-how-to-flatten-your-belly-1819778439) 顶部的脂肪。只有热量不足才会减少脂肪，而且脂肪的减少会发生在你的全身，而不是特定的部位。
 
 如果有一条健身建议我想留给你，那就是:如果你正在做很少或没有重量的运动，如果你只是 [在杠](https://lifehacker.com/put-some-fucking-weight-on-the-bar-1847176087) 上放一些他妈的重量，你会得到无限多的锻炼。是的，一开始可能会有点吓人。但是绝对值得。
 

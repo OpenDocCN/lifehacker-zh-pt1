@@ -1,8 +1,8 @@
 # 你可能用了太多的纸巾
 
-> 原文:[https://life hacker . com/you-probably-use-too-many-paper-women-1846764848](https://lifehacker.com/youre-probably-using-too-many-paper-towels-1846764848)
+> 原文：<https://lifehacker.com/youre-probably-using-too-many-paper-towels-1846764848>
 
-纸巾只是另一种形式的[不可回收纸垃圾](https://www.businessinsider.com/dont-recycle-napkins-paper-towels-2016-2) ，你可能比你需要的更多地使用它们。根据美国人口普查数据和NHCS西蒙斯全国消费者调查，平均来说，大约有4530万美国人每月使用8卷或更多的纸巾。作为一次性产品，纸巾本质上是浪费的(尤其是吸水性更强的多层品牌),并且会导致森林砍伐。它们也很贵——根据At共享的数据，美国占了消费市场的近一半，[—除非你把它们制成堆肥，当你不需要的时候使用它们，只会给我们的大规模垃圾填埋场](https://www.theatlantic.com/family/archive/2018/12/paper-towels-us-use-consume/577672/) 增加一件垃圾。
+纸巾只是另一种形式的[不可回收纸垃圾](https://www.businessinsider.com/dont-recycle-napkins-paper-towels-2016-2) ，你可能比你需要的更多地使用它们。根据美国人口普查数据和 NHCS 西蒙斯全国消费者调查，平均来说，大约有 4530 万美国人每月使用 8 卷或更多的纸巾。作为一次性产品，纸巾本质上是浪费的(尤其是吸水性更强的多层品牌),并且会导致森林砍伐。它们也很贵——根据 At 共享的数据，美国占了消费市场的近一半，[—除非你把它们制成堆肥，当你不需要的时候使用它们，只会给我们的大规模垃圾填埋场](https://www.theatlantic.com/family/archive/2018/12/paper-towels-us-use-consume/577672/) 增加一件垃圾。
 
 Watch
 
@@ -10,7 +10,7 @@ Watch
 
 ### 毛巾或海绵在粗糙的表面上更有效
 
-在粗糙或有纹理的T2表面上使用纸巾是浪费时间。纸巾会撕裂或留下颗粒，增加你试图清理的混乱。对于这些任务，使用海绵或刷子；它将承受清洁粗糙表面所需的压力，你可以一次又一次地使用它。
+在粗糙或有纹理的 T2 表面上使用纸巾是浪费时间。纸巾会撕裂或留下颗粒，增加你试图清理的混乱。对于这些任务，使用海绵或刷子；它将承受清洁粗糙表面所需的压力，你可以一次又一次地使用它。
 
 ### 用毛巾吸干地毯上的溢出物
 

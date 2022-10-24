@@ -1,6 +1,6 @@
 # 为什么你应该在堆肥箱里铺上纸巾
 
-> 原文:[https://life hacker . com/why-you-should-line-your-compost-bin-with paper-women-1847094617](https://lifehacker.com/why-you-should-line-your-compost-bin-with-paper-towels-1847094617)
+> 原文：<https://lifehacker.com/why-you-should-line-your-compost-bin-with-paper-towels-1847094617>
 
 没人喜欢 [清空堆肥仓](https://lifehacker.com/how-to-get-started-composting-1830416203) 。如果你运气不好，有东西粘在底部，迫使你在一堆发臭、腐烂的有机物上盘旋，同时你试图哄出里面的东西。但是你不需要昂贵的堆肥袋来解决这个问题——普通的旧纸巾也可以。
 

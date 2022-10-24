@@ -1,6 +1,6 @@
-# 当Glassdoor帮不上忙时，如何计算出一份工作的报酬
+# 当 Glassdoor 帮不上忙时，如何计算出一份工作的报酬
 
-> 原文:[https://life hacker . com/how-to-figure-what-a-job-pay-when-glass door-can-t-1846868680](https://lifehacker.com/how-to-figure-out-what-a-job-pays-when-glassdoor-can-t-1846868680)
+> 原文：<https://lifehacker.com/how-to-figure-out-what-a-job-pays-when-glassdoor-can-t-1846868680>
 
 当你找工作时，薪水是你首先想到的，但从技术上讲，你是最后一个被允许谈论的。这是对招聘礼仪的一个辛辣讽刺:你尽最大努力推销自己，这样你就能获得一份工作，但在时机成熟之前，你不敢谈论金钱。
 
@@ -8,17 +8,17 @@ Watch
 
 标准的职业资源工具——glass door、LinkedIn、Payscale——可以提供你对一个潜在职位的期望薪资的近似值，但说实话， [它们通常不可靠](https://lifehacker.com/why-you-shouldn-t-rely-on-glassdoor-s-salary-estimates-1846584230) 。然而，对于一个给定的工作机会，还有其他方法可以获得更准确的薪资估算——只不过需要你付出更多的努力。
 
-### 给不在HR工作的人打电话
+### 给不在 HR 工作的人打电话
 
-你可能会惊讶于一些潜在的未来同事的帮助，特别是如果他们不在人力资源部门工作的话。仔细阅读LinkedIn或其他公司目录(或类似的),找到在相邻职位工作的人。给这些人发电子邮件，告诉他们你的情况，告诉他们你对公司的薪酬很好奇，这没什么不对。高管教练兼组织顾问希拉里·珀尔(Hilary Pearl)告诉Lifehacker:“你可以努力找到朋友或目前在内部工作的人，并要求一些时间来聊天。”“询问他们对薪酬的看法，甚至询问他们相关工作的薪酬范围。”
+你可能会惊讶于一些潜在的未来同事的帮助，特别是如果他们不在人力资源部门工作的话。仔细阅读 LinkedIn 或其他公司目录(或类似的),找到在相邻职位工作的人。给这些人发电子邮件，告诉他们你的情况，告诉他们你对公司的薪酬很好奇，这没什么不对。高管教练兼组织顾问希拉里·珀尔(Hilary Pearl)告诉 Lifehacker:“你可以努力找到朋友或目前在内部工作的人，并要求一些时间来聊天。”“询问他们对薪酬的看法，甚至询问他们相关工作的薪酬范围。”
 
-薪酬共享肯定被认为远没有过去那么笨拙，尤其是当某些行业低薪酬的透明度被用来倡导更公平的薪酬标准时。一些领域的员工努力分享行业情报，并通过Twitter标签 和 [电子表格](https://docs.google.com/spreadsheets/d/1SP3Sqqdv6R8chFamjtgdNlOrUar-hJXvkMSeha2mHQ8/edit#gid=0) 公开 [这样做，匿名员工在这些标签上列出了他们的工资。](https://twitter.com/search?q=%23GameDevPaidMe)
+薪酬共享肯定被认为远没有过去那么笨拙，尤其是当某些行业低薪酬的透明度被用来倡导更公平的薪酬标准时。一些领域的员工努力分享行业情报，并通过 Twitter 标签 和 [电子表格](https://docs.google.com/spreadsheets/d/1SP3Sqqdv6R8chFamjtgdNlOrUar-hJXvkMSeha2mHQ8/edit#gid=0) 公开 [这样做，匿名员工在这些标签上列出了他们的工资。](https://twitter.com/search?q=%23GameDevPaidMe)
 
 但是，由于大多数人并不在这种面向公众的领域工作，直接询问你想要的职位上的人的工资范围，甚至获得他们关于如何谈判最优薪酬的建议，可能更可行。
 
 ### 事实上，政府网站很好
 
-点击这些信息可能不可靠，而且很麻烦，但是政府数据库可以提供比许多顶级职业网站更准确的范围。像Glassdoor这样的网站经常根据一系列数据点列出工资范围，通常是由自我报告的工资和人工智能算法拼凑而成的。结果不一定像你在劳工部网站上找到的那样准确，其中 [包含美国800多个领域](https://www.bls.gov/oes/current/oes_nat.htm) 的平均工资估计值。各州网站也可能提供类似的数字，可以为你的求职提供信息。例如，加利福尼亚州的就业发展部 [提供了全州范围内与职业相关的工资信息。](https://www.labormarketinfo.edd.ca.gov/data/wages.html) (不是每个人都住在加州，但它是世界第五大经济体，值得一提)。
+点击这些信息可能不可靠，而且很麻烦，但是政府数据库可以提供比许多顶级职业网站更准确的范围。像 Glassdoor 这样的网站经常根据一系列数据点列出工资范围，通常是由自我报告的工资和人工智能算法拼凑而成的。结果不一定像你在劳工部网站上找到的那样准确，其中 [包含美国 800 多个领域](https://www.bls.gov/oes/current/oes_nat.htm) 的平均工资估计值。各州网站也可能提供类似的数字，可以为你的求职提供信息。例如，加利福尼亚州的就业发展部 [提供了全州范围内与职业相关的工资信息。](https://www.labormarketinfo.edd.ca.gov/data/wages.html) (不是每个人都住在加州，但它是世界第五大经济体，值得一提)。
 
 而且可以肯定的是，很多特定行业都有自己的在线数据库可以查询。洛杉矶的人力资源顾问罗宾·萨默斯坦(Robin Sommerstein)举了一个例子，说明这种情况在法律行业是如何发生的:“作为一名律师事务所的人力资源专业人员，加入法律行政人员协会很有帮助。她说:“网上有关于薪水的免费信息，以及如何在线协商薪水。
 
@@ -26,7 +26,7 @@ Watch
 
 还有一种想法是直接向人力资源或招聘经理询问钱的问题——但如果你走这条路，你必须礼貌地这样做。时间安排很重要，但是你不应该觉得自己是在强加于人，尤其是如果面试是一个漫长的过程。
 
-正如职业顾问Adam Karpiak在2019年 告诉 [Business Insider的那样，“询问公司/联系薪资范围通常是99%的专业。避免简短、生硬的回答。”](https://www.businessinsider.com/how-to-find-a-jobs-salary-before-you-apply-2019-7)
+正如职业顾问 Adam Karpiak 在 2019 年 告诉 [Business Insider 的那样，“询问公司/联系薪资范围通常是 99%的专业。避免简短、生硬的回答。”](https://www.businessinsider.com/how-to-find-a-jobs-salary-before-you-apply-2019-7)
 
 他扩大，告诉出版物:
 

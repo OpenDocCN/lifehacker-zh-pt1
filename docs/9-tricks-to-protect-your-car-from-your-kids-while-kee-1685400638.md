@@ -1,6 +1,6 @@
-# 保护汽车内饰免受孩子伤害的9种方法
+# 保护汽车内饰免受孩子伤害的 9 种方法
 
-> 原文:[https://life hacker . com/9-tricks-to-protect-your-car from-your kids-while-kee-1685400638](https://lifehacker.com/9-tricks-to-protect-your-car-from-your-kids-while-kee-1685400638)
+> 原文：<https://lifehacker.com/9-tricks-to-protect-your-car-from-your-kids-while-kee-1685400638>
 
 在你有孩子之前，你的车可能状况良好。有了孩子后，你车里的每一个表面都有可能变成一团粘糊糊、闪闪发光、沾满面包屑的垃圾。但是，通过一点小聪明和一些努力，你可以让你的孩子在车里有事可做，而不会弄得一团糟。
 
@@ -14,22 +14,22 @@
 
 有几个汽车活动可以帮助保持“我们到了吗”在海湾，但你也不希望你的后座变成一个玩具箱。幸运的是，永远有用的鞋组织者在车里工作。当挂在前排座位上时，孩子(或父母)可以迅速抓住玩具和其他旅行必需品。如果你有一个大家庭，有很多旅行用品要携带，你甚至可以用一元店的球童来整理你的行李箱。
 
-有一些动态遥控球童，如宜家Flort[在这里被重新用作汽车球童](http://www.ikeahackers.net/2012/03/flort-turned-into-car-organizer-for-kids.html) ，用于存放美术用品、笔记本和孩子在开车时可能想要的任何东西。这对那些可能够不到前面座椅靠背的小孩来说尤其有用。
+有一些动态遥控球童，如宜家 Flort[在这里被重新用作汽车球童](http://www.ikeahackers.net/2012/03/flort-turned-into-car-organizer-for-kids.html) ，用于存放美术用品、笔记本和孩子在开车时可能想要的任何东西。这对那些可能够不到前面座椅靠背的小孩来说尤其有用。
 
-你想让你的孩子有事可做，同时不让玩具和零食落在座位和地板上。解决方案可以是一个由泡沫托盘改造而成的活动区。扔进一些velcro条或双面胶带，你的孩子至少可以自娱自乐一会儿。
+你想让你的孩子有事可做，同时不让玩具和零食落在座位和地板上。解决方案可以是一个由泡沫托盘改造而成的活动区。扔进一些 velcro 条或双面胶带，你的孩子至少可以自娱自乐一会儿。
 
 更有自制力的大一点的孩子可以用一个便宜的艺术盒(希望)在旅途中盛放食物。对于初学走路的孩子，你可能想买一个 [防溢零食容器](https://www.amazon.com/dp/B00GJAJ2CM?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/9-tricks-to-protect-your-car-from-your-kids-while-kee-1685400638&asc_source=&linkCode=ogi&psc=1&smid=A1OWC34LC8KLL7&tag=kinjalifehackerlink-20&th=1) 或两个。这些顶部有挡板，防止麦片和金鱼逃脱。
 
-同样，如果你不能完全禁止车里的食物，那就制定一个规则*唯一允许的食物是可以用真空吸尘器吸走的那种*:不要有粘性的糖果、酸奶、苹果酱、番茄酱包或类似的糊状东西。(不过以防万一，书签这个 [DIY地毯清洁剂配方](http://myfrugaladventures.com/2012/10/diy-spot-carpet-cleaner-perfect-for-cars/) 。)
+同样，如果你不能完全禁止车里的食物，那就制定一个规则*唯一允许的食物是可以用真空吸尘器吸走的那种*:不要有粘性的糖果、酸奶、苹果酱、番茄酱包或类似的糊状东西。(不过以防万一，书签这个 [DIY 地毯清洁剂配方](http://myfrugaladventures.com/2012/10/diy-spot-carpet-cleaner-perfect-for-cars/) 。)
 
-对于饮料，像 [【李思】](https://thesilico.com/products/sili-squeeze)[Sip ' n](http://www.choomee.com/sipn/)和 [Vapur防溅瓶](http://vapur.us/shop/) 等产品都是为防溅设计的，这样你的孩子就可以解渴而不用担心溅出来。
+对于饮料，像 [【李思】](https://thesilico.com/products/sili-squeeze)[Sip ' n](http://www.choomee.com/sipn/)和 [Vapur 防溅瓶](http://vapur.us/shop/) 等产品都是为防溅设计的，这样你的孩子就可以解渴而不用担心溅出来。
 
-当孩子们长到一定的尺寸时，他们似乎会情不自禁地把脏鞋子放在他们面前的座椅靠背上。当你训练他们不要这样做时，你可以得到一个的商用汽车座椅“踢垫”来保护你的汽车座椅靠背，或者免费将大t恤变成布 [的汽车座椅套](http://www.instructables.com/id/Auto-Seat-Covers-out-of-3-Mens-T-shirts/) 。
+当孩子们长到一定的尺寸时，他们似乎会情不自禁地把脏鞋子放在他们面前的座椅靠背上。当你训练他们不要这样做时，你可以得到一个的商用汽车座椅“踢垫”来保护你的汽车座椅靠背，或者免费将大 t 恤变成布 [的汽车座椅套](http://www.instructables.com/id/Auto-Seat-Covers-out-of-3-Mens-T-shirts/) 。
 
-用一套便宜的地毯垫盖住你的汽车原有的地毯垫，或者像CNN建议的那样，如果地毯垫有橡胶衬垫，就把它们翻过来。另一种选择是用便宜的塑料地毯衬垫覆盖地毯。有一两张你不再使用的旧瑜伽垫吗？这些都可以工作得很好，你可以把它们调整到你的车需要的任何尺寸或形状。
+用一套便宜的地毯垫盖住你的汽车原有的地毯垫，或者像 CNN 建议的那样，如果地毯垫有橡胶衬垫，就把它们翻过来。另一种选择是用便宜的塑料地毯衬垫覆盖地毯。有一两张你不再使用的旧瑜伽垫吗？这些都可以工作得很好，你可以把它们调整到你的车需要的任何尺寸或形状。
 
 你必须不停地巡逻垃圾。给孩子卸货时，养成一个习惯，他们总是把不属于车里的东西放进指定的袋子或箱子里，这样你就可以检查一下，把所有的垃圾带回家。可重复使用的购物袋非常适合放在头枕上。
 
 另一个好习惯:每次你给汽车加满油时，让孩子们倒垃圾。这对成年人来说也是一个好习惯。杂乱和混乱将继续成为父母的自然组成部分，但希望我们的汽车能够生存下来。
 
-这个故事最初发表于2015年2月，并于2021年4月30日以幻灯片形式更新，以符合Lifehacker风格指南。
+这个故事最初发表于 2015 年 2 月，并于 2021 年 4 月 30 日以幻灯片形式更新，以符合 Lifehacker 风格指南。

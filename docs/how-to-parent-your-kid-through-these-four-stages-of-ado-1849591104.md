@@ -1,6 +1,6 @@
 # 如何在青春期的这四个阶段养育你的孩子
 
-> 原文:[https://life hacker . com/how-to-parent-your-kid-through这四个阶段的ado-1849591104](https://lifehacker.com/how-to-parent-your-kid-through-these-four-stages-of-ado-1849591104)
+> 原文：<https://lifehacker.com/how-to-parent-your-kid-through-these-four-stages-of-ado-1849591104>
 
 也许是漫长的不眠之夜，或者是没完没了的发脾气，但是许多新父母认为养育孩子最艰难的日子是在孩子的幼年时期。对于父母来说，改变他们在最新的(也是最大声的)家庭成员周围的行为可能是一个漫长的调整期。但是根据心理学家和育儿专家卡尔·皮克哈特博士的说法，如果你认为儿童早期是艰难的，你最好系好安全带进入青春期。
 

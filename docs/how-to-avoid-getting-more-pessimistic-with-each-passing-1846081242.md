@@ -1,12 +1,12 @@
 # 如何避免一年比一年悲观
 
-> 原文:[https://life hacker . com/how-to-avoid-getting-more-passing-1846081242](https://lifehacker.com/how-to-avoid-getting-more-pessimistic-with-each-passing-1846081242)
+> 原文：<https://lifehacker.com/how-to-avoid-getting-more-pessimistic-with-each-passing-1846081242>
 
 悲观主义受到了不好的指责，但事实上，倾向于消极的观点可以起到一些重要的作用。这些包括从 [帮助我们处理愤怒](https://lifehacker.com/pessimism-is-the-cure-for-anger-1790601479) ，到进入与 [的新关系，现实的期望](https://lifehacker.com/the-case-for-pessimism-in-a-new-relationship-1784549048) ，到设置我们 [完成我们的目标](https://lifehacker.com/why-even-optimists-should-embrace-their-pessimistic-sid-1829779304) 。而且，根据表演专家 [史蒂文·科特勒](https://www.stevenkotler.com/)——《不可能的艺术[](https://www.amazon.com/Art-Impossible-Peak-Performance-Primer/dp/0062977539?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-avoid-getting-more-pessimistic-with-each-passing-1846081242&asc_source=&tag=kinjalifehackerlink-20)**的作者和 [心流研究集体](https://www.flowresearchcollective.com/) 的创始人兼执行董事——随着年龄的增长，我们往往会变得更加悲观。** 
 
 **Watch**
 
-**在最近一次关于 [Mindbodygreen播客](https://podcasts.apple.com/us/podcast/everything-youd-ever-want-to-know-about-productivity/id1246494475?i=1000503878725) 的讨论中，科特勒解释了为什么这并不总是一件坏事，他指出，随着年龄的增长，我们越来越悲观，更多的是从“目标心态”逐渐转变为“恐惧心态”**
+**在最近一次关于 [Mindbodygreen 播客](https://podcasts.apple.com/us/podcast/everything-youd-ever-want-to-know-about-productivity/id1246494475?i=1000503878725) 的讨论中，科特勒解释了为什么这并不总是一件坏事，他指出，随着年龄的增长，我们越来越悲观，更多的是从“目标心态”逐渐转变为“恐惧心态”**
 
 **“我们看到和遇到的一切实际上都是由两件事形成的:我们的恐惧或我们的目标，”他在播客上说。 下面是为什么会这样，以及我们如何控制与年龄相关的悲观情绪。**
 

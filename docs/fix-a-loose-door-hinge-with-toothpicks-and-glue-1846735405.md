@@ -1,8 +1,8 @@
 # 用牙签和胶水固定松动的门铰链
 
-> 原文:[https://life hacker . com/fix-a-loose-door-hinge-with-牙签和胶水-1846735405](https://lifehacker.com/fix-a-loose-door-hinge-with-toothpicks-and-glue-1846735405)
+> 原文：<https://lifehacker.com/fix-a-loose-door-hinge-with-toothpicks-and-glue-1846735405>
 
-松动的门铰链已经够烦人的了，但更糟糕的是，当你试图在意识到孔已经被剥开并且螺钉无法卡住之前将它拧回去。但是有一个聪明的方法，用一堆牙签来固定一个松动的门铰链，由TikToker [水星星尘](https://www.tiktok.com/@mercurystardust/video/6948387603582405894?amp%3Bsender_web_id=6923208287039440389&amp%3Bis_from_webapp=v1&amp%3Bis_copy_url=0&is_copy_url=0&is_from_webapp=v1&sender_device=pc&sender_web_id=6894290565573576198) 带给我们。它是这样工作的。
+松动的门铰链已经够烦人的了，但更糟糕的是，当你试图在意识到孔已经被剥开并且螺钉无法卡住之前将它拧回去。但是有一个聪明的方法，用一堆牙签来固定一个松动的门铰链，由 TikToker [水星星尘](https://www.tiktok.com/@mercurystardust/video/6948387603582405894?amp%3Bsender_web_id=6923208287039440389&amp%3Bis_from_webapp=v1&amp%3Bis_copy_url=0&is_copy_url=0&is_from_webapp=v1&sender_device=pc&sender_web_id=6894290565573576198) 带给我们。它是这样工作的。
 
 Watch
 
@@ -16,4 +16,4 @@ Watch
 
 ### 用你的牙签制作新的螺丝孔
 
-将牙签塞入每个螺丝孔，使它们变得又好又紧，然后us用一把结实的剪刀或钢丝钳将它们剪下一点，只留下大约一英寸的牙签伸出。然后锤打牙签，使它们与木头齐平，将铰链放在新的牙签填充的孔上，并将所有东西拧回位置。
+将牙签塞入每个螺丝孔，使它们变得又好又紧，然后 us 用一把结实的剪刀或钢丝钳将它们剪下一点，只留下大约一英寸的牙签伸出。然后锤打牙签，使它们与木头齐平，将铰链放在新的牙签填充的孔上，并将所有东西拧回位置。

@@ -1,6 +1,6 @@
 # 不要回收你的节日彩带和蝴蝶结
 
-> 原文:[https://life hacker . com/don-recycle-your-holiday-ribbons-and-bows-1845953448](https://lifehacker.com/dont-recycle-your-holiday-ribbons-and-bows-1845953448)
+> 原文：<https://lifehacker.com/dont-recycle-your-holiday-ribbons-and-bows-1845953448>
 
 一些假日垃圾可以回收，但另一些实际上对回收过程有害。在大多数情况下，包装纸是可回收的；不幸的是，带有闪光、箔或塑料的纸不可回收，需要和垃圾一起扔掉。
 
@@ -14,7 +14,7 @@ Watch
 
 ### 用作运输包装材料
 
-[假期和派对指南](https://holidays.thefuntimesguide.com/leftover_wrapping_paper/) 有几个创造性的方法来重复利用你的旧弓，但用它们来运输是我最喜欢的。包装材料是假期运输的基础，但泡沫聚苯乙烯极其危险，会产生有害的温室气体。尽管旧丝带对于环境来说不是100%安全的，但是重复使用它们产生的废物更少，并且有助于防止泡沫聚苯乙烯被填埋。
+[假期和派对指南](https://holidays.thefuntimesguide.com/leftover_wrapping_paper/) 有几个创造性的方法来重复利用你的旧弓，但用它们来运输是我最喜欢的。包装材料是假期运输的基础，但泡沫聚苯乙烯极其危险，会产生有害的温室气体。尽管旧丝带对于环境来说不是 100%安全的，但是重复使用它们产生的废物更少，并且有助于防止泡沫聚苯乙烯被填埋。
 
 ### 把蝴蝶结做成花环
 
@@ -22,4 +22,4 @@ Watch
 
 ### 回收你的圣诞灯
 
-节日灯送到专门处理它们的公司后是可以回收的。一些公司，如Lowe's或Home Depot，会拿走你的旧灯并提供折扣，而另一些公司会将灯粉碎或熔炼成原材料，以重新用作PVC管道、屋顶材料以及汽车电池等其他电子产品。你可能在劳氏或家得宝附近，但如果不是，Treehuggers记者Russell McLendon提供了更多关于回收中心或项目的信息，在那里你可以回收你的旧节日灯。
+节日灯送到专门处理它们的公司后是可以回收的。一些公司，如 Lowe's 或 Home Depot，会拿走你的旧灯并提供折扣，而另一些公司会将灯粉碎或熔炼成原材料，以重新用作 PVC 管道、屋顶材料以及汽车电池等其他电子产品。你可能在劳氏或家得宝附近，但如果不是，Treehuggers 记者 Russell McLendon 提供了更多关于回收中心或项目的信息，在那里你可以回收你的旧节日灯。

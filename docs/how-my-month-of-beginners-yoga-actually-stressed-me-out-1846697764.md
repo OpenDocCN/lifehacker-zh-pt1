@@ -1,8 +1,8 @@
 # 一个月的初学瑜伽是如何让我紧张的
 
-> 原文:[https://life hacker . com/how-my-month-of-yoga-actually-stressed-me-out-1846697764](https://lifehacker.com/how-my-month-of-beginners-yoga-actually-stressed-me-out-1846697764)
+> 原文：<https://lifehacker.com/how-my-month-of-beginners-yoga-actually-stressed-me-out-1846697764>
 
-在为 [Lifehacker健身挑战赛](https://lifehacker.com/c/lifehacker-fitness-challenge) 每天坚持练习瑜伽三周多一点后，我不能说我已经成为一个虔诚的瑜伽皈依者。但我要说的是，它没有我最初预期的那么痛苦。正如我在之前的 [帖子](https://vitals.lifehacker.com/how-i-finally-settled-into-my-new-yoga-routine-1846652759) 中提到的，我已经学会欣赏这种练习如何迫使我每天至少保持一次当下，我发现在垫子上悠闲地伸展是如此令人愉快，以至于在观看任何瑜伽视频的中途，我都发现自己期待着尸体姿势的放松。
+在为 [Lifehacker 健身挑战赛](https://lifehacker.com/c/lifehacker-fitness-challenge) 每天坚持练习瑜伽三周多一点后，我不能说我已经成为一个虔诚的瑜伽皈依者。但我要说的是，它没有我最初预期的那么痛苦。正如我在之前的 [帖子](https://vitals.lifehacker.com/how-i-finally-settled-into-my-new-yoga-routine-1846652759) 中提到的，我已经学会欣赏这种练习如何迫使我每天至少保持一次当下，我发现在垫子上悠闲地伸展是如此令人愉快，以至于在观看任何瑜伽视频的中途，我都发现自己期待着尸体姿势的放松。
 
 Watch
 
@@ -10,6 +10,6 @@ Watch
 
 但是有一个领域我发现自己在挣扎，那就是呼吸。 [呼吸练习在瑜伽](https://www.mindbodygreen.com/0-6751/Mastering-the-Full-Yogic-Breath.html) 中非常重要，据说有助于从在体内建立更深层次的联系到防止受伤的一切事情。但对我来说，专注于呼吸让我觉得自己在慢慢地过度呼吸。(阅读:一点也不放松。)而且感觉就像听教官不停的说“深呼吸进去……”当我们向天空挥动手臂，或者把肩膀从膝盖上扭开，然后等待她说“深呼吸……”的时候，感觉像是在等待永恒开始让我紧张。我感觉不同步，好像我做得不对。
 
-我甚至尝试了前两个视频，阿德里安·米什勒的《30天瑜伽之旅 》系列(来自超受欢迎的YouTube频道 [与阿德里安](https://www.youtube.com/channel/UCFKE7WVJfvaHW5q283SxchA) 的瑜伽)，有一次我感觉自己可能会因为深呼吸和头部冲刺诱导根的组合而晕过去。
+我甚至尝试了前两个视频，阿德里安·米什勒的《30 天瑜伽之旅 》系列(来自超受欢迎的 YouTube 频道 [与阿德里安](https://www.youtube.com/channel/UCFKE7WVJfvaHW5q283SxchA) 的瑜伽)，有一次我感觉自己可能会因为深呼吸和头部冲刺诱导根的组合而晕过去。
 
-所有这一切让我意识到瑜伽确实是一种特殊的练习。人们必须获得认证才能成为教练是有原因的。你不能简单地从YouTube视频中挑选。在一个理想的世界里，当我感觉呼吸不正常时，我可以参加初学者课程，并向老师寻求指导。我还可以观察其他同学，跟踪他们的形态和呼吸模式。但在疫情，它要么是YouTube视频，要么是缩放课程，我只需要相信自己，不要推进任何导致疼痛或潜在昏厥的事情。
+所有这一切让我意识到瑜伽确实是一种特殊的练习。人们必须获得认证才能成为教练是有原因的。你不能简单地从 YouTube 视频中挑选。在一个理想的世界里，当我感觉呼吸不正常时，我可以参加初学者课程，并向老师寻求指导。我还可以观察其他同学，跟踪他们的形态和呼吸模式。但在疫情，它要么是 YouTube 视频，要么是缩放课程，我只需要相信自己，不要推进任何导致疼痛或潜在昏厥的事情。

@@ -1,8 +1,8 @@
 # 如何避免被运输安全管理局标记，根据他妈的运输安全管理局
 
-> 原文:[https://life hacker . com/how-to-avoid-get-flag-by-the-TSA-to-t-1848171516](https://lifehacker.com/how-to-avoid-getting-flagged-by-the-tsa-according-to-t-1848171516)
+> 原文：<https://lifehacker.com/how-to-avoid-getting-flagged-by-the-tsa-according-to-t-1848171516>
 
-坐飞机可能会很烦人，尤其是在假期，如果你是被美国运输安全管理局标记的T4，那就更糟糕了。即使你遵循了他们所有的规则，你还是会被打上标记，往好里说是不舒服，往坏里说是毁了一天。
+坐飞机可能会很烦人，尤其是在假期，如果你是被美国运输安全管理局标记的 T4，那就更糟糕了。即使你遵循了他们所有的规则，你还是会被打上标记，往好里说是不舒服，往坏里说是毁了一天。
 
 Watch
 
@@ -32,7 +32,7 @@ Watch
 
 ## **抱怨太多**
 
-对我们许多人来说，抱怨美国运输安全管理局的安检程序是一种非常正常的本能。然而，根据几年前由T4截获的一份 [美国运输安全管理局机密文件，对安检过程的过度抱怨恰好是可能让你被标记的行为之一。](https://theintercept.com/2015/03/27/revealed-tsas-closely-held-behavior-checklist-spot-terrorists/)
+对我们许多人来说，抱怨美国运输安全管理局的安检程序是一种非常正常的本能。然而，根据几年前由 T4 截获的一份 [美国运输安全管理局机密文件，对安检过程的过度抱怨恰好是可能让你被标记的行为之一。](https://theintercept.com/2015/03/27/revealed-tsas-closely-held-behavior-checklist-spot-terrorists/)
 
 把那些(难以置信的)对流程的抱怨留给自己，至少在你通过安检之前。然后，发泄吧，只要你不在任何运输安全管理局人员的听力范围内。
 

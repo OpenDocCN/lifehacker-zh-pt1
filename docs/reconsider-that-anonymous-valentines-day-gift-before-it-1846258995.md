@@ -1,6 +1,6 @@
 # 重新考虑那个匿名的情人节礼物
 
-> 原文:[https://life hacker . com/re considere-that-anonymous-valentines-day-gift-before-it 1846258995](https://lifehacker.com/reconsider-that-anonymous-valentines-day-gift-before-it-1846258995)
+> 原文：<https://lifehacker.com/reconsider-that-anonymous-valentines-day-gift-before-it-1846258995>
 
 去年情人节，你写给暗恋对象的善意匿名情书不会让任何人神魂颠倒，今年也不会。也许你认为发送一封深情、隐晦的信会让收件人头脑转动，激发希望，有人(你)注定会让他们神魂颠倒，但不幸的是，你可能想忘记这一切。在我们这个时代，爱情并不遵循故事书的脚本，如果它曾经有过的话，这也是为什么一封匿名的情书、花束或一盒巧克力会砰的一声落入某人的垃圾桶的原因。
 

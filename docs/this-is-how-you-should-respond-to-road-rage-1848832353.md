@@ -1,6 +1,6 @@
 # 这就是你应对路怒症的方式
 
-> 原文:[https://life hacker . com/this-is-how-you-should-response-to-road-rage-1848832353](https://lifehacker.com/this-is-how-you-should-respond-to-road-rage-1848832353)
+> 原文：<https://lifehacker.com/this-is-how-you-should-respond-to-road-rage-1848832353>
 
 当有人有路怒症时，所有人都是输家——包括他们的司机同伴。看到(也可能听到)某人变得如此愤怒，不知道他们会愤怒到什么程度，这可能会令人沮丧。
 

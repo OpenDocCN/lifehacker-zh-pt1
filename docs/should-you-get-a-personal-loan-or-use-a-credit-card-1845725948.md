@@ -1,6 +1,6 @@
 # 你应该申请个人贷款还是使用信用卡？
 
-> 原文:[https://life hacker . com/should-you-get-a-personal-loan-or-use-a-credit-1845725948](https://lifehacker.com/should-you-get-a-personal-loan-or-use-a-credit-card-1845725948)
+> 原文：<https://lifehacker.com/should-you-get-a-personal-loan-or-use-a-credit-card-1845725948>
 
 由于个人贷款的利率往往比信用卡低，你可能想知道为什么人们会为信用卡烦恼？然而，个人贷款有其自身的局限性，这使得它们更适合于有针对性的支出——通常是为意外支出、房屋装修等提供资金，或者合并债务。
 
@@ -10,12 +10,12 @@ Watch
 
 个人贷款是 [分期贷款](https://www.investopedia.com/articles/personal-finance/072316/how-installment-loans-work.asp) ，这意味着你可以马上得到一笔钱，但你必须支付固定的月供和利率。这与循环信贷(即信用卡)不同，循环信贷允许你在任何时候借更多的钱，没有固定的时间表来偿还余额(尽管有少量的最低还款额和滞纳金)。
 
-个人贷款总额从1，000美元到50，000美元不等，将在12 - 60个月内偿还。你的信用评分决定了利率，平均利率为9.5%，相比之下，信用卡的利率约为16%，根据Bankrate 的说法 [。](https://www.bankrate.com/loans/personal-loans/how-to-get-personal-loan/) 
+个人贷款总额从 1，000 美元到 50，000 美元不等，将在 12 - 60 个月内偿还。你的信用评分决定了利率，平均利率为 9.5%，相比之下，信用卡的利率约为 16%，根据 Bankrate 的说法 [。](https://www.bankrate.com/loans/personal-loans/how-to-get-personal-loan/) 
 
 ### **个人贷款的负面影响**
 
 *   由于个人贷款有固定的分期付款，你将不得不每月支付相同的款项，没有任何减少支付的灵活性。灵活性越低，你承担的债务风险就越大——如果你已经在用贷款支付汽车维修等意外支出，谁能保证汽车不会再次抛锚呢？
-*   个人贷款的利率可能比信用卡低，但它们也有大量的“启动费”计入每月付款，这可能会抵消潜在的储蓄。这些费用通常从贷款金额的百分之一到百分之八， [每笔贷款](https://www.nerdwallet.com/article/loans/personal-loans/what-is-an-origination-fee#:~:text=Personal%20loan%20origination%20fees%20are,8%25%20of%20the%20loan%20amount.) 不等。毫无疑问，这是直接从你的钱包里掏出来的钱:一笔20，000美元的贷款的百分之五的启动费将花费你1，00美元。(并非所有贷款机构都对个人贷款收取启动费，但他们可能会限制你的支出金额)。
+*   个人贷款的利率可能比信用卡低，但它们也有大量的“启动费”计入每月付款，这可能会抵消潜在的储蓄。这些费用通常从贷款金额的百分之一到百分之八， [每笔贷款](https://www.nerdwallet.com/article/loans/personal-loans/what-is-an-origination-fee#:~:text=Personal%20loan%20origination%20fees%20are,8%25%20of%20the%20loan%20amount.) 不等。毫无疑问，这是直接从你的钱包里掏出来的钱:一笔 20，000 美元的贷款的百分之五的启动费将花费你 1，00 美元。(并非所有贷款机构都对个人贷款收取启动费，但他们可能会限制你的支出金额)。
 
 *   如果你的信用评分中等偏下，你可能不会得到比信用卡更好的利率。没有低利率的优势，个人贷款只是一种不太方便的信贷形式。
 

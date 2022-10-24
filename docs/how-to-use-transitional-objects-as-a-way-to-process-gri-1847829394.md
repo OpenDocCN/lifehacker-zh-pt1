@@ -1,6 +1,6 @@
 # 如何使用过渡对象作为处理悲伤的方式
 
-> 原文:[https://life hacker . com/how-to-use-transitional-objects-as-a-way-to-process-gri-1847829394](https://lifehacker.com/how-to-use-transitional-objects-as-a-way-to-process-gri-1847829394)
+> 原文：<https://lifehacker.com/how-to-use-transitional-objects-as-a-way-to-process-gri-1847829394>
 
 悲伤没有对错之分。每个人都以自己的方式，用自己的时间处理损失。悲伤也是非常偷偷摸摸的:你可能认为你已经解决了它，却发现某首歌、某个气味或某段记忆让你再次体验到失去的痛苦。
 
@@ -10,7 +10,7 @@ Watch
 
 ## 什么是过渡对象？
 
-过渡物体最常出现在孩子的环境中——尤其是那些可能面临分离焦虑的孩子。以下是2018年Lifehacker文章 中对这个概念的描述:
+过渡物体最常出现在孩子的环境中——尤其是那些可能面临分离焦虑的孩子。以下是 2018 年 Lifehacker 文章 中对这个概念的描述:
 
 > 如果一个孩子很难离开你，一个 [过渡物体](https://www.psychologytoday.com/blog/the-guest-room/201407/more-just-teddy-bears) 比如一个填充动物或者最喜欢的玩具会很有帮助。对于更小的孩子来说，它让他们保持一种舒适感和一致性。
 

@@ -1,8 +1,8 @@
 # 将微小的意大利干酪球烤成各种形状
 
-> 原文:[https://life hacker . com/bake-tiny-mozzarella-balls-into-everything-1845183923](https://lifehacker.com/bake-tiny-mozzarella-balls-into-everything-1845183923)
+> 原文：<https://lifehacker.com/bake-tiny-mozzarella-balls-into-everything-1845183923>
 
-对我来说，很少有什么东西比一个好的奶酪拉更吸引人了。最大化奶酪的吸引力是一个崇高的目标——这是把美味的砂锅菜和烤意大利面与一般的区分开来的原因。碎奶酪也不错，但是bocconcini(也叫新鲜马苏里拉奶酪球)是更长、更强、更有弹性的奶酪的关键。
+对我来说，很少有什么东西比一个好的奶酪拉更吸引人了。最大化奶酪的吸引力是一个崇高的目标——这是把美味的砂锅菜和烤意大利面与一般的区分开来的原因。碎奶酪也不错，但是 bocconcini(也叫新鲜马苏里拉奶酪球)是更长、更强、更有弹性的奶酪的关键。
 
 Watch
 

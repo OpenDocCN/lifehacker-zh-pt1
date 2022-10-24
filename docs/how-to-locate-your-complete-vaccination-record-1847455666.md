@@ -1,8 +1,8 @@
 # 如何找到您完整的疫苗接种记录
 
-> 原文:[https://life hacker . com/how-to-locate-your-complete-vaccine-record-1847455666](https://lifehacker.com/how-to-locate-your-complete-vaccination-record-1847455666)
+> 原文：<https://lifehacker.com/how-to-locate-your-complete-vaccination-record-1847455666>
 
-随着越来越多的城市和企业考虑要求提供COVID疫苗接种证明，然后才允许你做疫情之前的有趣事情，如看电影或在室内餐厅吃饭，你可能已经想到如果你 [丢失了你的疫苗接种卡](https://lifehacker.com/what-to-do-if-you-lose-your-vaccine-card-1846820101) 你会怎么办。然而，所有*其他*疫苗的记录呢，包括那些你甚至不记得接种过的疫苗？在我们接种新冠肺炎疫苗之前，我们接种了麻疹、腮腺炎、脊髓灰质炎、肝炎等疾病的疫苗以及所有其他计划中的儿童疫苗。
+随着越来越多的城市和企业考虑要求提供 COVID 疫苗接种证明，然后才允许你做疫情之前的有趣事情，如看电影或在室内餐厅吃饭，你可能已经想到如果你 [丢失了你的疫苗接种卡](https://lifehacker.com/what-to-do-if-you-lose-your-vaccine-card-1846820101) 你会怎么办。然而，所有*其他*疫苗的记录呢，包括那些你甚至不记得接种过的疫苗？在我们接种新冠肺炎疫苗之前，我们接种了麻疹、腮腺炎、脊髓灰质炎、肝炎等疾病的疫苗以及所有其他计划中的儿童疫苗。
 
 Watch
 
@@ -12,7 +12,7 @@ Watch
 
 ## 哪里可以找到你童年的疫苗接种记录
 
-根据CDC的说法，这里有一些 [潜在的方法来定位你的接种记录](https://www.cdc.gov/vaccines/adults/vaccination-records.html) :
+根据 CDC 的说法，这里有一些 [潜在的方法来定位你的接种记录](https://www.cdc.gov/vaccines/adults/vaccination-records.html) :
 
 > 询问父母或其他护理人员是否有您童年免疫接种的记录。*   Try looking through baby books or other preserved childhood documents.*   Check with your high school and/or university health service for the date of any immunization. Remember, in general, after students leave the system, the records will only be kept for 1-2 years. Check with former employers (including the military) who may require immunization. Consult your doctor or public health clinic. Remember, vaccination records are kept in the doctor's office for a limited number of years.*   Contact [Guizhou Health Department](https://www.cdc.gov/publichealthgateway/healthdirectories/healthdepartments.html) . Some states have registries (immunization information systems) that include adult vaccines.
 
@@ -26,7 +26,7 @@ Watch
 
 *另一种选择是，对于 [某些疫苗](https://www.passporthealthusa.com/vaccinations/titer-testing/) ，比如水痘、麻疹、腮腺炎、风疹，以及甲肝、乙肝、丙肝，可以打一个抗体效价，以此来证明自己的免疫力。这个过程可以证明免疫力，即使你感染了疾病，而不是接种疫苗。*
 
-*例如，水痘疫苗于1995年问世，这意味着仍有许多人因感染该疾病而获得免疫力，而不是接种疫苗。运行抗体滴度将显示您是否有针对水痘病毒 的 [抗体，尽管该测试不会区分您是否接种过水痘疫苗或在小时候感染过水痘。无论哪种方式，你都有抗体证明你的免疫系统可以抵御病毒，这也是问你要记录的人实际上想知道的。](https://www.cdc.gov/chickenpox/lab-testing/lab-tests.html)*
+*例如，水痘疫苗于 1995 年问世，这意味着仍有许多人因感染该疾病而获得免疫力，而不是接种疫苗。运行抗体滴度将显示您是否有针对水痘病毒 的 [抗体，尽管该测试不会区分您是否接种过水痘疫苗或在小时候感染过水痘。无论哪种方式，你都有抗体证明你的免疫系统可以抵御病毒，这也是问你要记录的人实际上想知道的。](https://www.cdc.gov/chickenpox/lab-testing/lab-tests.html)*
 
 ## ***如何保存您的疫苗接种记录并避免再次重复接种***
 

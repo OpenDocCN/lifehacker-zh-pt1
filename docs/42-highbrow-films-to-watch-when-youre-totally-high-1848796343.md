@@ -1,14 +1,14 @@
-# 42部高雅电影，让你在极度兴奋时观看
+# 42 部高雅电影，让你在极度兴奋时观看
 
-> 原文:[https://life hacker . com/42-high turn-movies-to-watch-when-you-total-high-1848796343](https://lifehacker.com/42-highbrow-films-to-watch-when-youre-totally-high-1848796343)
+> 原文：<https://lifehacker.com/42-highbrow-films-to-watch-when-youre-totally-high-1848796343>
 
 看电影和抽大麻是密不可分的，以至于有一整部电影被称为“瘾君子喜剧”——通常是关于瘾君子在影响下或寻找下一次高潮，以及一路上陷入超现实冒险的电影。
 
-这完全没问题——看着*半烤的*完全烤熟也没什么不对——但有时你想给你那被大麻陶醉的大脑喂些更有挑战性的东西。本着20世纪60年代嬉皮士的精神，他们将斯坦利·库布里克的 *2001:太空漫游*变成了令人眼花缭乱的经典之作，这里有42部——因为我无法忍受420部——当你喝醉时可以看的艺术电影(还有 [没有心情玩电子游戏](https://lifehacker.com/14-video-games-to-play-when-youre-good-and-high-1848800192?rev=1650054628860) )。
+这完全没问题——看着*半烤的*完全烤熟也没什么不对——但有时你想给你那被大麻陶醉的大脑喂些更有挑战性的东西。本着 20 世纪 60 年代嬉皮士的精神，他们将斯坦利·库布里克的 *2001:太空漫游*变成了令人眼花缭乱的经典之作，这里有 42 部——因为我无法忍受 420 部——当你喝醉时可以看的艺术电影(还有 [没有心情玩电子游戏](https://lifehacker.com/14-video-games-to-play-when-youre-good-and-high-1848800192?rev=1650054628860) )。
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-zrYB8hgyq4s&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-zrYB8hgyq4s&start=0) 
 
-雅克·塔蒂的第三部也是最著名的电影《玩乐时间》讲述了大约1967年的“现代”巴黎，这是一个越来越没有人情味的城市，因为技术创新的目的是让生活更容易，而不是让人们分开。这部电影拍摄时间长，精心编排，动作在屏幕的每个角落和中间展开，有点像在整理一部动画*沃尔多在哪里？*绘图。如果你喜欢兴奋和高度集中，这肯定会让你忙个不停。
+雅克·塔蒂的第三部也是最著名的电影《玩乐时间》讲述了大约 1967 年的“现代”巴黎，这是一个越来越没有人情味的城市，因为技术创新的目的是让生活更容易，而不是让人们分开。这部电影拍摄时间长，精心编排，动作在屏幕的每个角落和中间展开，有点像在整理一部动画*沃尔多在哪里？*绘图。如果你喜欢兴奋和高度集中，这肯定会让你忙个不停。
 
 **向何处流:**标准频道，数字租赁
 
@@ -16,7 +16,7 @@
 
 伊丹十三的《拉面西部》(与意大利面条相对)将人们熟悉的强盗和英雄比喻转化为一个女人的故事，她不知道如何烹饪，但却在寻找完美的拉面配方，以维持她苦苦挣扎的餐馆。这是一部令人眼花缭乱的、插曲式的、打破第四堵墙的讽刺作品，迎合了瘾君子的注意力跨度，而且没有一个场景没有屏幕上看起来美味的食物，所以要准备好零食。(但是要注意生鸡蛋的场景。)
 
-**流媒体播放地点:** HBO Max、Criterion频道、FilmBox+
+**流媒体播放地点:** HBO Max、Criterion 频道、FilmBox+
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-NWu9WjEcdbk&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-NWu9WjEcdbk&start=0) 
 
@@ -32,7 +32,7 @@
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-KlmfRuXxuXo&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-KlmfRuXxuXo&start=0) 
 
-在他的无情节、可爱、漫无目的的哲学处女作中，理查德·林克莱特在1991年跟随一群独一无二的神秘主义者尽力让奥斯丁保持怪异。(或者，如果你更喜欢的话， [漫画*懒鬼*](https://www.youtube.com/watch?v=uk2DeTet98o&ab_channel=KesherAdam)T5】。)
+在他的无情节、可爱、漫无目的的哲学处女作中，理查德·林克莱特在 1991 年跟随一群独一无二的神秘主义者尽力让奥斯丁保持怪异。(或者，如果你更喜欢的话， [漫画*懒鬼*](https://www.youtube.com/watch?v=uk2DeTet98o&ab_channel=KesherAdam)T5】。)
 
 **向何处流:**标准频道，数字租赁
 
@@ -50,13 +50,13 @@
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-3kUa2yV3K4U&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-3kUa2yV3K4U&start=0) 
 
-嗯，基本上我说的所有关于吸血鬼的事情，但是都转到了T2的美女与野兽。这部1946年由法国诗人兼电影制作人让·考克托创作的作品遵循了与迪士尼卡通相同的基本故事节奏，但更加怪异，有印象派的场景(一个大厅排着真实的烛台，伸向人的手臂)，奢华的服装和梦幻般的意象。
+嗯，基本上我说的所有关于吸血鬼的事情，但是都转到了 T2 的美女与野兽。这部 1946 年由法国诗人兼电影制作人让·考克托创作的作品遵循了与迪士尼卡通相同的基本故事节奏，但更加怪异，有印象派的场景(一个大厅排着真实的烛台，伸向人的手臂)，奢华的服装和梦幻般的意象。
 
 **流向哪里:** HBO Max，标准频道
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-Y8dX6ZKJe2o&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-Y8dX6ZKJe2o&start=0) 
 
-说到梦幻般的意象，这个关于两个孩子逃离可怕的、自封的“传教士”寻找他们犯罪的父亲的不义之财的故事是一个活生生的噩梦:沿着一条河流旅行，随着每一次曲折和弯曲，变得更加超现实和危险(和他们的追求者，更加无情)。1955年的观众不知道如何理解它，但今天，它被正确地视为表现主义的杰作。
+说到梦幻般的意象，这个关于两个孩子逃离可怕的、自封的“传教士”寻找他们犯罪的父亲的不义之财的故事是一个活生生的噩梦:沿着一条河流旅行，随着每一次曲折和弯曲，变得更加超现实和危险(和他们的追求者，更加无情)。1955 年的观众不知道如何理解它，但今天，它被正确地视为表现主义的杰作。
 
 **流向哪里:**数码租赁
 
@@ -64,7 +64,7 @@
 
 这里没有故事可循，只有美国城市和自然景观的慢动作和延时镜头，以菲利普·格拉斯的驾驶评分为背景。或许应该附带一个警告，不要在操作重型机械时看电视。
 
-**在哪里播放:**Roku频道、Tubi、Pluto TV、Kanopy、Hoopla
+**在哪里播放:**Roku 频道、Tubi、Pluto TV、Kanopy、Hoopla
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-UbyrQFgRuHA&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-UbyrQFgRuHA&start=0) 
 
@@ -74,15 +74,15 @@
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-SgCxCZNkQ9E&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-SgCxCZNkQ9E&start=0) 
 
-这部由法国和捷克合作制作的实验性动画艺术电影，背景是一个居住着巨人的外星世界，这些巨人把人类当成没有大脑的动物。情节是一种事后的想法，但动画是多余的，怪诞的，超现实的，令人难忘的——特别是如果你的大脑浸泡在THC中体验它。
+这部由法国和捷克合作制作的实验性动画艺术电影，背景是一个居住着巨人的外星世界，这些巨人把人类当成没有大脑的动物。情节是一种事后的想法，但动画是多余的，怪诞的，超现实的，令人难忘的——特别是如果你的大脑浸泡在 THC 中体验它。
 
-**在哪里播放:** HBO Max、Roku频道、Criterion频道、暗物质电视
+**在哪里播放:** HBO Max、Roku 频道、Criterion 频道、暗物质电视
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-8i9Z7r8dAFo&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-8i9Z7r8dAFo&start=0) 
 
 “我正在审视古罗马，就好像这是一部关于火星人习俗和习惯的纪录片，”导演费德里科·费里尼说，这是一部对过去的变幻莫测、享乐主义的描绘——一个颓废共和国的噩梦之旅，基于尼禄皇帝统治时期创作的一部戏剧，以情节性的、梦境逻辑的叙事展开。(如果你倾向于糟糕的旅行，不推荐。)
 
-在哪里播放:没有正式的地方，但你可以在YouTube上找到整部电影(带字幕)
+在哪里播放:没有正式的地方，但你可以在 YouTube 上找到整部电影(带字幕)
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-RrAz1YLh8nY&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-RrAz1YLh8nY&start=0) 
 
@@ -110,15 +110,15 @@
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-xRV6LPtRUyc&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-xRV6LPtRUyc&start=0) 
 
-合称“弓箭手”的联合导演迈克尔·鲍威尔和艾默力·皮斯伯格，通常被认为制作了一些有史以来最迷人的彩色电影，这部幕后芭蕾舞剧讲述了一个芭蕾舞神童和一个痴迷、疯狂的权力经理的故事，他对完美的追求让她疯狂，这是他们的最高成就——特别是他们根据名义上的童话故事上演的17分钟印象派芭蕾舞剧。
+合称“弓箭手”的联合导演迈克尔·鲍威尔和艾默力·皮斯伯格，通常被认为制作了一些有史以来最迷人的彩色电影，这部幕后芭蕾舞剧讲述了一个芭蕾舞神童和一个痴迷、疯狂的权力经理的故事，他对完美的追求让她疯狂，这是他们的最高成就——特别是他们根据名义上的童话故事上演的 17 分钟印象派芭蕾舞剧。
 
 **去哪儿流媒体:** HBO Max，The Criterion Channel，Pluto TV，Kanopy
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video--mxhJzSKV08&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video--mxhJzSKV08&start=0) 
 
-我不是一个喜欢看恐怖片的人，但这部由流行艺术家安迪·沃霍尔制作的做作、血腥的闹剧更接近喜剧，讲述了一个年老的女妖(尤杜·奇尔饰)在20世纪初寻找处女血以保持不朽并缺少处女的故事。矫揉造作的表演和低成本的魅力在烘焙时更加惹人喜爱。
+我不是一个喜欢看恐怖片的人，但这部由流行艺术家安迪·沃霍尔制作的做作、血腥的闹剧更接近喜剧，讲述了一个年老的女妖(尤杜·奇尔饰)在 20 世纪初寻找处女血以保持不朽并缺少处女的故事。矫揉造作的表演和低成本的魅力在烘焙时更加惹人喜爱。
 
-**在哪里播放:** AMC+，Vudu Free，颤栗，夜航Plus
+**在哪里播放:** AMC+，Vudu Free，颤栗，夜航 Plus
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-TM2cacUHnAM&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-TM2cacUHnAM&start=0) 
 
@@ -134,7 +134,7 @@
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-T_eUMq-dYk0&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-T_eUMq-dYk0&start=0) 
 
-嗨的时候听音乐很棒。嗑药的时候看电影很棒。因此，观看公认的有史以来最好的音乐会电影——奥斯卡获奖导演乔纳森·戴米录制的*方言*时代的Talking Heads tour——是加倍的棒。那只是数学。
+嗨的时候听音乐很棒。嗑药的时候看电影很棒。因此，观看公认的有史以来最好的音乐会电影——奥斯卡获奖导演乔纳森·戴米录制的*方言*时代的 Talking Heads tour——是加倍的棒。那只是数学。
 
 **流向何处:** Roku，Plex
 
@@ -170,7 +170,7 @@
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-G4K_9WyQCgA&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-G4K_9WyQCgA&start=0) 
 
-抱歉*洛基恐怖*；谁和肯·罗素的*汤米*是摇滚歌剧ne加大麻。
+抱歉*洛基恐怖*；谁和肯·罗素的*汤米*是摇滚歌剧 ne 加大麻。
 
 **流向哪里:**数码租赁
 
@@ -182,13 +182,13 @@
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-fbz4-du3Ayg&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-fbz4-du3Ayg&start=0) 
 
-很多人会把索菲亚·科波拉获奖的后续作品《迷失在翻译中》列在这个名单上。但不是我。我喜欢这部阳光普照、慢热的怀旧惊悚片，讲述了一群注定要失败的姐妹和在成长过程中被记忆困扰的男孩。夏日薄雾的配乐(梦幻流行二人组Air)将催眠你。
+很多人会把索菲亚·科波拉获奖的后续作品《迷失在翻译中》列在这个名单上。但不是我。我喜欢这部阳光普照、慢热的怀旧惊悚片，讲述了一群注定要失败的姐妹和在成长过程中被记忆困扰的男孩。夏日薄雾的配乐(梦幻流行二人组 Air)将催眠你。
 
 **在哪里流媒体:**富波电视，派拉蒙+，Epix
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-HMkqm7--YrU&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-HMkqm7--YrU&start=0) 
 
-1958年在捷克斯洛伐克拍摄了这部不合时宜的水上冒险，1902年的《月球之旅》展示了所有最热门的技术。
+1958 年在捷克斯洛伐克拍摄了这部不合时宜的水上冒险，1902 年的《月球之旅》展示了所有最热门的技术。
 
 **流向何处:**标准通道
 
@@ -212,7 +212,7 @@
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-SOnrS3jnDb4&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-SOnrS3jnDb4&start=0) 
 
-这种定格奇迹有点像你给你9岁的侄子喂一磅Pixy Stix，让他在一个老式玩具盒中自由活动，并拍摄结果。一个牛仔和一个“印第安人”(名为牛仔和印第安人)意识到他们忘记了他们的朋友马(名字:马)的生日，并开始了一系列的闹剧冒险，因为他们试图为他建立一个完美的礼物。
+这种定格奇迹有点像你给你 9 岁的侄子喂一磅 Pixy Stix，让他在一个老式玩具盒中自由活动，并拍摄结果。一个牛仔和一个“印第安人”(名为牛仔和印第安人)意识到他们忘记了他们的朋友马(名字:马)的生日，并开始了一系列的闹剧冒险，因为他们试图为他建立一个完美的礼物。
 
 **在哪里流媒体:** Kanopy，OVID.tv
 
@@ -236,7 +236,7 @@
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-AxQ9GG6hUDM&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-AxQ9GG6hUDM&start=0) 
 
-很多瘾君子会告诉你，当你被烤熟的时候，塔尔科夫斯基是必经之路，但像《索拉里斯》和《T2 》这样的电影并不像它们那样令人神魂颠倒...无聊。催眠般的无聊，但仍然。取而代之的是，我会选择《莎翁遇上T4》的《星际迷航》和《禁忌星球》的《T5》和《T7》，这是对《牛郎星4》中《暴风雨》的改编。
+很多瘾君子会告诉你，当你被烤熟的时候，塔尔科夫斯基是必经之路，但像《索拉里斯》和《T2 》这样的电影并不像它们那样令人神魂颠倒...无聊。催眠般的无聊，但仍然。取而代之的是，我会选择《莎翁遇上 T4》的《星际迷航》和《禁忌星球》的《T5》和《T7》，这是对《牛郎星 4》中《暴风雨》的改编。
 
 **流向哪里:**数码租赁
 

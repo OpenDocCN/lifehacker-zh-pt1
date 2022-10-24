@@ -1,6 +1,6 @@
 # 鬼火:我们最好的南瓜雕刻技巧
 
-> 原文:[https://life hacker . com/carve your pumpkin with a melon-baller and a-葡萄柚-1839164439](https://lifehacker.com/carve-your-pumpkin-with-a-melon-baller-and-a-grapefruit-1839164439)
+> 原文：<https://lifehacker.com/carve-your-pumpkin-with-a-melon-baller-and-a-grapefruit-1839164439>
 
 介绍“空心南瓜灯”，这是你能制作的最简单的葫芦形装饰品，这个或任何一个万圣节。
 
@@ -8,7 +8,7 @@
 
 *   一个**冰淇淋勺** ( 清空里面的东西)
 *   一把**柚子刀** ( 为 修边)
-*   **木雕工具** s或**美工刀** ( 概述细节)
+*   **木雕工具** s 或**美工刀** ( 概述细节)
 *   **描图纸**和**图钉** ( 转移你的设计)
 *   一个**瓜球** ( 制造眼球)
 *   一个**蔬菜削皮器**和**柠檬剥皮器**(用来添加纹理)
@@ -17,4 +17,4 @@
 
 看看上面视频中我们最喜欢的南瓜灯。
 
-*本故事最初发表于2019年10月21日，更新于2020年10月27日。*
+*本故事最初发表于 2019 年 10 月 21 日，更新于 2020 年 10 月 27 日。*

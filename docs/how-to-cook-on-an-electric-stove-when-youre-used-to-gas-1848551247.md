@@ -1,6 +1,6 @@
 # 当你习惯用煤气时，如何在电炉上做饭
 
-> 原文:[https://life hacker . com/how-to-cook-on-a-electro-stock-when you-use-to-gas-1848551247](https://lifehacker.com/how-to-cook-on-an-electric-stove-when-youre-used-to-gas-1848551247)
+> 原文：<https://lifehacker.com/how-to-cook-on-an-electric-stove-when-youre-used-to-gas-1848551247>
 
 到目前为止，厨房设备是决定你的食谱的最重要的因素，而炉子是最重要的部分。了解你的特殊炉子的怪癖可能是一顿完美烹饪的饭和一场灾难的区别——所以如果你习惯了煤气，突然需要在电炉上烹饪，这真的会让你大吃一惊。
 

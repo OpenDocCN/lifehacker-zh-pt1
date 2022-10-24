@@ -1,6 +1,6 @@
 # 蛋黄酱是很好的蛋液
 
-> 原文:[https://life hacker . com/蛋黄酱做一个极好的蛋液-1847761824](https://lifehacker.com/mayonnaise-makes-an-excellent-egg-wash-1847761824)
+> 原文：<https://lifehacker.com/mayonnaise-makes-an-excellent-egg-wash-1847761824>
 
 几天前，我在做我心爱的 [西兰花茎挞](https://lifehacker.com/your-broccoli-stems-would-make-a-tasty-tart-1847755673) ，我意识到我没有鸡蛋了，因此没有任何东西可以用来做 [鸡蛋*水洗*](https://lifehacker.com/how-to-know-which-egg-wash-to-use-1829507257) 。我诅咒自己缺乏冰箱意识，在厨房里跺着脚，不愿意去杂货店，但看不到任何解决办法——然后我想起:蛋黄酱里总是有鸡蛋。
 

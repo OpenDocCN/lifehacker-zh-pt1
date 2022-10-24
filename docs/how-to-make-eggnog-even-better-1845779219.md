@@ -1,6 +1,6 @@
 # 如何做蛋奶酒更好
 
-> 原文:[https://life hacker . com/how-to-make-eggnog-even-better-1845779219](https://lifehacker.com/how-to-make-eggnog-even-better-1845779219)
+> 原文：<https://lifehacker.com/how-to-make-eggnog-even-better-1845779219>
 
 得知这个消息可能会让你震惊，但我是一个有很多缺点的女人。有些是真实的，有些仅仅存在于我的脑海中。我无法享受蛋奶酒，这一直困扰着我。作为一个喜欢奶油、鸡蛋、酒和季节性乐趣的人，这听起来像是我想要的东西，但我总是觉得口感非常令人不快。
 

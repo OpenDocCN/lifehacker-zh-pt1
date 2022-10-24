@@ -1,12 +1,12 @@
 # 泡泡机真的会驱蚊吗？
 
-> 原文:[https://life hacker . com/do-bubble-machines-really-pulley-mosquites-1849525325](https://lifehacker.com/do-bubble-machines-really-repel-mosquitoes-1849525325)
+> 原文：<https://lifehacker.com/do-bubble-machines-really-repel-mosquitoes-1849525325>
 
-11年前，我们发表了一篇关于一个古怪黑客的 [简要报道](https://lifehacker.com/repel-mosquitoes-with-a-bubble-machine-5806950):T据说在儿童泡泡机上旋转可以驱赶蚊子。这个周末，我看到同样的想法 [在抖音](https://www.tiktok.com/@sarahforwarkholden/video/7138055243216129326?is_from_webapp=v1&item_id=7138055243216129326) 上疯传。但是真的管用吗？
+11 年前，我们发表了一篇关于一个古怪黑客的 [简要报道](https://lifehacker.com/repel-mosquitoes-with-a-bubble-machine-5806950):T 据说在儿童泡泡机上旋转可以驱赶蚊子。这个周末，我看到同样的想法 [在抖音](https://www.tiktok.com/@sarahforwarkholden/video/7138055243216129326?is_from_webapp=v1&item_id=7138055243216129326) 上疯传。但是真的管用吗？
 
 Watch
 
-Snopes，备案， [难倒了](https://www.snopes.com/fact-check/bubble-machines-mosquito-repellent/) 。他们总结道，没有理由相信*会*奏效，我部分同意。例如，泡泡机并没有被列在任何公共卫生组织的防蚊小贴士中。肥皂对蚊子也没有特殊的力量；Snopes对那个 更有权威性。但我想我明白这是怎么回事了。*任何泡泡机的关键部件都是风扇*。
+Snopes，备案， [难倒了](https://www.snopes.com/fact-check/bubble-machines-mosquito-repellent/) 。他们总结道，没有理由相信*会*奏效，我部分同意。例如，泡泡机并没有被列在任何公共卫生组织的防蚊小贴士中。肥皂对蚊子也没有特殊的力量；Snopes 对那个 更有权威性。但我想我明白这是怎么回事了。*任何泡泡机的关键部件都是风扇*。
 
 如果你不熟悉这些小工具，它们只是你用一瓶泡沫溶液和一根手持魔杖做的事情的自动化版本。这种机器有一个吹空气的小风扇，和一系列旋转的泡泡棒，泡泡棒被浸入肥皂溶液中并从风扇前经过。(这就像你在卡通片 中看到的 [古怪发明，除了它能工作。)](https://www.youtube.com/watch?v=2DC1fm0IJy8)
 

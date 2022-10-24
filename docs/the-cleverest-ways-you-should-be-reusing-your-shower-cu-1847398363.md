@@ -1,6 +1,6 @@
 # 重复使用浴帘衬垫的最聪明方法
 
-> 原文:[https://life hacker . com/the-cleverest-ways-you-should-reuse-your-shower-Cu-1847398363](https://lifehacker.com/the-cleverest-ways-you-should-be-reusing-your-shower-cu-1847398363)
+> 原文：<https://lifehacker.com/the-cleverest-ways-you-should-be-reusing-your-shower-cu-1847398363>
 
 浴帘衬里是那些看似毫无意义的东西之一，但实际上有一个重要的功能:在这种情况下，它是淋浴时留在浴缸中的内部材料，有助于防止水流失，防止浴室变得湿漉漉的。如果你的浴室没有适当的通风，你的浴帘衬里有可能最终会发霉。那样的话，最好摆脱掉。
 

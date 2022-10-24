@@ -1,16 +1,16 @@
 # 如何种植芦荟，因为它比你想象的要简单
 
-> 原文:[https://life hacker . com/how-to-grow-aloe-vera-因为它比你瘦更容易1847054864](https://lifehacker.com/how-to-grow-aloe-vera-because-its-easier-than-you-thin-1847054864)
+> 原文：<https://lifehacker.com/how-to-grow-aloe-vera-because-its-easier-than-you-thin-1847054864>
 
-芦荟是一种肉质植物，通常用于凝胶、面霜、软膏和洗手液中，而T2使用T4使用[几千年](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC2763764/#:~:text=History,%2C%20Mexico%2C%20Japan%20and%20China.&text=Egyptian%20queens%20Nefertiti%20and%20Cleopatra,it%20to%20treat%20soldiers'%20wounds.) 、T8现在它被用来缓解晒伤症状或治疗割伤和抓伤。你可能认为它很难种植或护理，但芦荟是一种普通的室内植物，非常容易种植和收获。以下是如何护理自己的。
+芦荟是一种肉质植物，通常用于凝胶、面霜、软膏和洗手液中，而 T2 使用 T4 使用[几千年](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC2763764/#:~:text=History,%2C%20Mexico%2C%20Japan%20and%20China.&text=Egyptian%20queens%20Nefertiti%20and%20Cleopatra,it%20to%20treat%20soldiers'%20wounds.) 、T8 现在它被用来缓解晒伤症状或治疗割伤和抓伤。你可能认为它很难种植或护理，但芦荟是一种普通的室内植物，非常容易种植和收获。以下是如何护理自己的。
 
 Watch
 
 ## 如何盆栽芦荟植物
 
-芦荟植物最好的一点是它们是多肉植物，几乎不需要T2的照料。只要你细心，，，[让它们活下去](https://lifehacker.com/how-to-keep-a-succulent-alive-because-its-trickier-tha-1846917775)，几乎不需要什么维护。首先，确保你买了仙人掌和/或多肉的土壤，大约要花6美元。然后将仙人掌土与 [鹅卵石、沙子或珍珠岩](https://www.gardeningknowhow.com/houseplants/aloe-vera/aloe-vera-plant-care.htm) 混合，以确保适当的排水。像任何肉质植物一样，如果芦荟植物被困在死水中，就容易发生根腐病。也可以考虑把你的芦荟种在[terra cotta](https://www.amazon.com/Natural-Walled-Planters-Individual-Outdoor/dp/B00LVADT6A?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-grow-aloe-vera-because-its-easier-than-you-thin-1847054864&asc_source=&tag=kinjalifehackerlink-20)盆里，也就是快- 干。
+芦荟植物最好的一点是它们是多肉植物，几乎不需要 T2 的照料。只要你细心，，，[让它们活下去](https://lifehacker.com/how-to-keep-a-succulent-alive-because-its-trickier-tha-1846917775)，几乎不需要什么维护。首先，确保你买了仙人掌和/或多肉的土壤，大约要花 6 美元。然后将仙人掌土与 [鹅卵石、沙子或珍珠岩](https://www.gardeningknowhow.com/houseplants/aloe-vera/aloe-vera-plant-care.htm) 混合，以确保适当的排水。像任何肉质植物一样，如果芦荟植物被困在死水中，就容易发生根腐病。也可以考虑把你的芦荟种在[terra cotta](https://www.amazon.com/Natural-Walled-Planters-Individual-Outdoor/dp/B00LVADT6A?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-grow-aloe-vera-because-its-easier-than-you-thin-1847054864&asc_source=&tag=kinjalifehackerlink-20)盆里，也就是快- 干。
 
-当重新移植你的芦荟植物时，确保将芦荟从先前的花盆中取出，并抖落根部所有残留的污垢。用多汁的土壤装满花盆四分之三，然后将植物放入花盆。用植物周围的土壤填满罐子的其余部分，在顶部留出四分之三英寸的空间T2。 [农书](https://www.almanac.com/plant/aloe-vera) 说在重新种植后不要给植物浇水，因为这样会阻止植物长出新根。请记住，如果你的芦荟植物开始长得又大又高，以至于它可能会倒下，那么是时候把它移植到一个更大的花盆里或者修剪它的叶子了。
+当重新移植你的芦荟植物时，确保将芦荟从先前的花盆中取出，并抖落根部所有残留的污垢。用多汁的土壤装满花盆四分之三，然后将植物放入花盆。用植物周围的土壤填满罐子的其余部分，在顶部留出四分之三英寸的空间 T2。 [农书](https://www.almanac.com/plant/aloe-vera) 说在重新种植后不要给植物浇水，因为这样会阻止植物长出新根。请记住，如果你的芦荟植物开始长得又大又高，以至于它可能会倒下，那么是时候把它移植到一个更大的花盆里或者修剪它的叶子了。
 
 ## 如何护理芦荟植物
 

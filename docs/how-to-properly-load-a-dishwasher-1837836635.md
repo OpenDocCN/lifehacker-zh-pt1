@@ -1,6 +1,6 @@
 # 如何正确装入洗碗机
 
-> 原文:[https://life hacker . com/how-to-right-load a-洗碗机-1837836635](https://lifehacker.com/how-to-properly-load-a-dishwasher-1837836635)
+> 原文：<https://lifehacker.com/how-to-properly-load-a-dishwasher-1837836635>
 
 有些人(特别是大学室友和办公室厨房的同事)认为你可以把盘子和银器扔进洗碗机里，这有什么关系，最终都会被清理干净。
 
@@ -12,4 +12,4 @@
 
 现在，你再也不用拿走干的食物，或者把盘子放回去进行第二次循环了。那些日子已经过去了。
 
-*本文原载于2019年9月4日，更新于2021年7月28日。*
+*本文原载于 2019 年 9 月 4 日，更新于 2021 年 7 月 28 日。*

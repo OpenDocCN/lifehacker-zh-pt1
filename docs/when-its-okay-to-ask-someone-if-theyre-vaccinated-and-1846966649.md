@@ -1,6 +1,6 @@
 # 何时可以询问某人是否接种了疫苗(以及如何接种)
 
-> 原文:[https://life hacker . com/when-it-okay-to-ask-someone-if-they-the-1846966649](https://lifehacker.com/when-its-okay-to-ask-someone-if-theyre-vaccinated-and-1846966649)
+> 原文：<https://lifehacker.com/when-its-okay-to-ask-someone-if-theyre-vaccinated-and-1846966649>
 
 尽管新冠肺炎感染率和住院率在全国范围内都在下降，但一些灰色地带和潜在危险仍然存在: [百分之五十的美国成年人已经完全接种了](https://www.cnn.com/2021/05/24/health/us-coronavirus-monday/index.html) ，这是一个了不起的成就，也是常态即将到来的迹象，但很大一部分 [成年人仍然犹豫不决](https://www.newyorker.com/science/medical-dispatch/the-beginning-of-the-end-of-the-american-pandemic) 或 [完全反对接种疫苗](https://vitals.lifehacker.com/heres-your-covid-vaccine-rumor-roundup-1845935618) 。对于那些没有接受注射的人来说，感染的可能性仍然很大。
 
@@ -14,7 +14,7 @@ Watch
 
 ### 如果这是你的家，那当然可以
 
-如果有人在世界被COVID撞离轴心后第一次来到你的住处，那么你应该放心地询问他们的疫苗状况。毕竟，这是你的私人空间，如果你在室内做一些事情，不戴面具，你询问它才有意义。
+如果有人在世界被 COVID 撞离轴心后第一次来到你的住处，那么你应该放心地询问他们的疫苗状况。毕竟，这是你的私人空间，如果你在室内做一些事情，不戴面具，你询问它才有意义。
 
 ### 如果你在照顾一个免疫系统受损的人
 

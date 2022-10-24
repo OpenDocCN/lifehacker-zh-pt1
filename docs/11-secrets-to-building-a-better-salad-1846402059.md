@@ -1,6 +1,6 @@
-# 做更好沙拉的11个秘密
+# 做更好沙拉的 11 个秘密
 
-> 原文:[https://life hacker . com/11-打造更好沙拉的秘密-1846402059](https://lifehacker.com/11-secrets-to-building-a-better-salad-1846402059)
+> 原文：<https://lifehacker.com/11-secrets-to-building-a-better-salad-1846402059>
 
 大多数人会惊讶地发现，我这个热爱腊肠的人非常擅长做美味的沙拉。就连自称讨厌沙拉的人也被我巧妙摆放的树叶和其他东西所吸引。正如你所料，我有很多制作特殊口味沙拉的策略、技巧和诀窍，我愿意与你分享。
 
@@ -14,7 +14,7 @@
 
 自制沙拉酱可以是一件非常私人的事情，但是我发现上面图片 中的 [比率每次都能做出美味的调味汁。你可能会注意到油酸比比你可能习惯的要高一点，但是大多数调料都需要太多的油。](https://skillet.lifehacker.com/use-this-template-to-make-a-perfect-vinaigrette-every-t-1844718967)
 
-正如A.A .牛顿 [在](https://lifehacker.com/vinaigrettes-need-way-less-oil-than-you-think-1837655884) 之前解释的那样，“‘经典’的1:3比例(醋与油)很糟糕，因为它打破了酸度和盐之间的平衡，这是一种很好的调味汁，嗯，很好。加入太多的油会冲淡你辛辛苦苦用精心挑选的醋、碎香料、[糖](https://skillet.lifehacker.com/why-you-should-always-add-a-bit-of-sugar-to-salad-dress-1786074509) 和香草打造的味道...完美的调味汁足够强烈，你只需要几汤匙就可以调味一大碗蔬菜——你不应该高兴地一勺一勺地吃下去。越有力、越尖锐越好。”
+正如 A.A .牛顿 [在](https://lifehacker.com/vinaigrettes-need-way-less-oil-than-you-think-1837655884) 之前解释的那样，“‘经典’的 1:3 比例(醋与油)很糟糕，因为它打破了酸度和盐之间的平衡，这是一种很好的调味汁，嗯，很好。加入太多的油会冲淡你辛辛苦苦用精心挑选的醋、碎香料、[糖](https://skillet.lifehacker.com/why-you-should-always-add-a-bit-of-sugar-to-salad-dress-1786074509) 和香草打造的味道...完美的调味汁足够强烈，你只需要几汤匙就可以调味一大碗蔬菜——你不应该高兴地一勺一勺地吃下去。越有力、越尖锐越好。”
 
 梅森罐——或任何带盖的罐子——是 [制作完美乳化调料的唯一工具](https://lifehacker.com/a-mason-jar-is-the-only-tool-you-need-for-perfectly-emu-1796819745) 。一罐不仅比那些一次性的 [、【乳化】沙拉酱瓶](https://amzn.to/3rlNdcA) 便宜，而且更有效。把你的配料倒入罐子里，关上罐子，然后摇晃罐子。你现在有一个非常均匀的调味汁。
 
@@ -30,7 +30,7 @@
 
 例如，你可以用 [软乎乎的汉堡面包](https://lifehacker.com/make-perfect-croutons-from-leftover-hamburger-buns-1835917183) 制作油炸面包丁，这种面包像小海绵一样吸收脂肪，由于含糖量高，非常容易变成褐色。你也可以放弃面包，拥抱土豆。
 
-好的橄榄油有一种非常独特的味道，但有时这种味道不是你想要的调味汁。如果你想突出昂贵的EVOO以外的东西，比如强力醋或你花园里的一些草药，考虑使用更中性的油，这样你就不会掩盖你的明星味道。
+好的橄榄油有一种非常独特的味道，但有时这种味道不是你想要的调味汁。如果你想突出昂贵的 EVOO 以外的东西，比如强力醋或你花园里的一些草药，考虑使用更中性的油，这样你就不会掩盖你的明星味道。
 
 在光谱的另一端，我们有动物脂肪，它完全抢尽了风头。如果我要经历烤焦牛排做沙拉的麻烦，我不想浪费那些锅里的汁。它们非常美味，除了一点点柠檬作为对比，它们几乎不需要任何东西。只需将热油直接倒在你的蔬菜上，挤上你的酸性柑橘，然后放上剩下的沙拉原料。
 

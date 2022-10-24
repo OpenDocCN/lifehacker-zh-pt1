@@ -1,6 +1,6 @@
 # 你应该对一堆萝卜做的第一件事
 
-> 原文:[https://life hacker . com/the-first-thing-this-you-thing-do-a bunch-of-radishs-1848687979](https://lifehacker.com/the-first-thing-you-should-do-with-a-bunch-of-radishes-1848687979)
+> 原文：<https://lifehacker.com/the-first-thing-you-should-do-with-a-bunch-of-radishes-1848687979>
 
 一个略带辣味的萝卜，配上一层黄油和一些片状盐，是我最喜欢的蔬菜小吃之一。松脆、新鲜、浓郁，这是一种完美的春季口味。根是如此令人愉快，很容易忘记上面的绿色，但这些绿色也值得你的注意，特别是如果你想避免糊状混乱。
 
@@ -28,11 +28,11 @@ Watch
 
 #### 成分:
 
-*   2瓣大蒜
-*   2杯粗略切碎的萝卜头
+*   2 瓣大蒜
+*   2 杯粗略切碎的萝卜头
 *   半杯橄榄油
-*   1/4杯松子(如果你喜欢，也可以使用其他坚果)
-*   1/2磨碎的帕尔马干酪，或其他咸的磨碎干酪
+*   1/4 杯松子(如果你喜欢，也可以使用其他坚果)
+*   1/2 磨碎的帕尔马干酪，或其他咸的磨碎干酪
 *   半个柠檬的汁
 *   盐和胡椒
 

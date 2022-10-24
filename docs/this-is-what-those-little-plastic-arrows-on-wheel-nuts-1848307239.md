@@ -1,6 +1,6 @@
 # 这就是车轮螺母上的小塑料箭头的用途
 
-> 原文:[https://jalopnik . com/this-is-what-that-s-that-that-s-那些小塑料箭头上的车轮螺母-1848307239](https://jalopnik.com/this-is-what-those-little-plastic-arrows-on-wheel-nuts-1848307239)
+> 原文：<https://jalopnik.com/this-is-what-those-little-plastic-arrows-on-wheel-nuts-1848307239>
 
 你有没有在一个大城市公共汽车站的柏油马路上醒来，躺在自己的呕吐物中，然后翻来覆去，直到你和城市公共汽车的车轮面对面？当你抬头看着那个轮子，浑身酸痛，钱包不见了，冷极了，你有没有注意到轮子螺母上有许多奇怪的小塑料箭头？那些到底是什么*？他们为什么在那里？他们是做什么的？我怎么回家？我在这里为你回答其中的一些问题。*
 
@@ -12,7 +12,7 @@ Watch
 
  [https://jalopnik.com/embed/inset/iframe?id=youtube-video-xmFBbchjiQs&start=0](https://jalopnik.com/embed/inset/iframe?id=youtube-video-xmFBbchjiQs&start=0) 
 
-Wheel-Check是这些东西的制造商之一，也是声称自己是“原始”制造商的公司之一，尽管其他视频，如这个视频，做出了类似发明的:
+Wheel-Check 是这些东西的制造商之一，也是声称自己是“原始”制造商的公司之一，尽管其他视频，如这个视频，做出了类似发明的:
 
  [https://jalopnik.com/embed/inset/iframe?id=youtube-video-GCRxE7j-SpY&start=0](https://jalopnik.com/embed/inset/iframe?id=youtube-video-GCRxE7j-SpY&start=0) 
 
@@ -36,7 +36,7 @@ Wheel-Check是这些东西的制造商之一，也是声称自己是“原始”
 
 真的，只要你记得一些一致的模式，我想你最初如何配置箭头并不重要，只要你能很容易地分辨出什么时候移动顺序错了。
 
-顺便说一句，如果你对你的卡车或公共汽车车轮更时尚，我很高兴地说，这些指标有一些更微妙的镀铬版本，所以你不必用day-glo塑料来破坏你的外观。
+顺便说一句，如果你对你的卡车或公共汽车车轮更时尚，我很高兴地说，这些指标有一些更微妙的镀铬版本，所以你不必用 day-glo 塑料来破坏你的外观。
 
 还有另一种变型，它在防止车轮螺母松动方面发挥了更积极的作用，而不是在发生松动时就大声喊出来。
 

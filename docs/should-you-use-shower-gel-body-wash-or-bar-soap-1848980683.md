@@ -1,8 +1,8 @@
 # 你应该用沐浴露、沐浴露还是香皂？
 
-> 原文:[https://life hacker . com/should-you-use-shower-gel-body-wash-or-bar-soap-1848980683](https://lifehacker.com/should-you-use-shower-gel-body-wash-or-bar-soap-1848980683)
+> 原文：<https://lifehacker.com/should-you-use-shower-gel-body-wash-or-bar-soap-1848980683>
 
-当谈到在美国洗澡时，肥皂在19世纪和20世纪的大部分时间里占据了主导地位。但是到了20世纪80年代末，传统的固体肥皂开始受到被称为“沐浴露”和“沐浴露”的液体替代品的激烈竞争
+当谈到在美国洗澡时，肥皂在 19 世纪和 20 世纪的大部分时间里占据了主导地位。但是到了 20 世纪 80 年代末，传统的固体肥皂开始受到被称为“沐浴露”和“沐浴露”的液体替代品的激烈竞争
 
 Watch
 
@@ -40,6 +40,6 @@ Watch
 
 ### 敏感性皮肤
 
-皮肤敏感的人已经知道某些肥皂和清洁剂会引起非常不舒服的反应，也明白阅读标签以评估产品成分的重要性。要考虑的一个因素是pH值。沐浴露的pH值通常比传统的条形肥皂低——这使得它们更适合同样干燥的敏感皮肤。
+皮肤敏感的人已经知道某些肥皂和清洁剂会引起非常不舒服的反应，也明白阅读标签以评估产品成分的重要性。要考虑的一个因素是 pH 值。沐浴露的 pH 值通常比传统的条形肥皂低——这使得它们更适合同样干燥的敏感皮肤。
 
 另外两种需要注意的主要成分是 [香精和](https://www.consumerreports.org/personal-care/smarter-should-you-use-bar-soap-or-body-wash-a9298499866/) 。沐浴露和沐浴露的成分往往比条形清洁剂多，但这也取决于具体的产品。

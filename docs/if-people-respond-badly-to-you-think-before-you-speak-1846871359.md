@@ -1,6 +1,6 @@
 # 如果人们对你的反应不好，在你说话(或在网上发帖)之前先“想想”
 
-> 原文:[https://life hacker . com/if-people-respond-bad-to-you-think-before-you-speak-1846871359](https://lifehacker.com/if-people-respond-badly-to-you-think-before-you-speak-1846871359)
+> 原文：<https://lifehacker.com/if-people-respond-badly-to-you-think-before-you-speak-1846871359>
 
 我们都曾说过后悔的话。也许你有开坏玩笑的倾向(看不懂房间)。也许你喜欢表达你的热情接受最新的社交媒体争议 ( 和发现当愤怒转向你时，你有点困惑。也许你只是有点多嘴。
 

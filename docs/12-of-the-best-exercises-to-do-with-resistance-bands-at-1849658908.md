@@ -1,6 +1,6 @@
-# 健身房阻力带的12个最佳练习
+# 健身房阻力带的 12 个最佳练习
 
-> 原文:[https://life hacker . com/12-of-the-best-exercise-to-do-with-resistance-bands-at-1849658908](https://lifehacker.com/12-of-the-best-exercises-to-do-with-resistance-bands-at-1849658908)
+> 原文：<https://lifehacker.com/12-of-the-best-exercises-to-do-with-resistance-bands-at-1849658908>
 
 阻力带是旅行者和家庭健身爱好者的最爱，因为它们可以折叠成一个小巧轻便、便于运输的包。但是，即使你可以进入一个完整的健身房，仍然有大量的锻炼，其中阻力带是这项工作的正确工具。这里有一些你可以在健身房做的最好的乐队动作，包括几个利用钻机或深蹲架的动作。
 
@@ -8,7 +8,7 @@
 
 <figcaption class="sc-1ptbguh-0 hxeMec caption">Band Pull Aparts Exercise Demonstration</figcaption> 
 
-我几乎每次在健身房都做带状拉伸练习作为热身，我知道有很多举重运动员发誓说这是一种很好的锻炼，可以平衡我们在卧推、头顶推等运动中产生的推力。一条长而细的带子对这些有好处；考虑做20左右的高重复组。
+我几乎每次在健身房都做带状拉伸练习作为热身，我知道有很多举重运动员发誓说这是一种很好的锻炼，可以平衡我们在卧推、头顶推等运动中产生的推力。一条长而细的带子对这些有好处；考虑做 20 左右的高重复组。
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-rXLaKUUBjp8&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-rXLaKUUBjp8&start=0)
 
@@ -20,7 +20,7 @@
 
 <figcaption class="sc-1ptbguh-0 hxeMec caption">Band-Assisted Push-Up</figcaption> 
 
-体重练习的辅助版本被大大低估了。它们不仅可以帮助你做一个你不能做的运动，它们还可以帮助你做更高的重复次数——比如你可以自己做5个俯卧撑，但希望能连续做15个。它们也非常有助于练习的高级版本，比如如果你想做拍手俯卧撑或单臂俯卧撑，但还没有完全做到。
+体重练习的辅助版本被大大低估了。它们不仅可以帮助你做一个你不能做的运动，它们还可以帮助你做更高的重复次数——比如你可以自己做 5 个俯卧撑，但希望能连续做 15 个。它们也非常有助于练习的高级版本，比如如果你想做拍手俯卧撑或单臂俯卧撑，但还没有完全做到。
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-67ScIkj56JA&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-67ScIkj56JA&start=0)
 
@@ -44,13 +44,13 @@
 
 <figcaption class="sc-1ptbguh-0 hxeMec caption">Assisted Dips with Bands | Use Bands to Perfect Your Tricep Dips</figcaption> 
 
-Dips是另一种可以受益于辅助的体重锻炼，无论你是在进行第一次锻炼，还是只是想要一个更轻的版本，这样你就可以做更多的重复。这里的技巧是将带子绕在车把上，为你的膝盖制作一个小的弹性吊床。
+Dips 是另一种可以受益于辅助的体重锻炼，无论你是在进行第一次锻炼，还是只是想要一个更轻的版本，这样你就可以做更多的重复。这里的技巧是将带子绕在车把上，为你的膝盖制作一个小的弹性吊床。
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-6ZAAFh9zeMY&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-6ZAAFh9zeMY&start=0)
 
 <figcaption class="sc-1ptbguh-0 hxeMec caption">Chaos Push UPs</figcaption> 
 
-曾经想要俯卧撑使用更多的核心力量吗？如果在地板上做还不够有趣，试试这个。在器械或深蹲架上拉伸一条粗带子(你甚至可以使用安全装置或j-cups ),在做俯卧撑时把手放在上面。
+曾经想要俯卧撑使用更多的核心力量吗？如果在地板上做还不够有趣，试试这个。在器械或深蹲架上拉伸一条粗带子(你甚至可以使用安全装置或 j-cups ),在做俯卧撑时把手放在上面。
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-sjhYPMTVRM8&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-sjhYPMTVRM8&start=0)
 

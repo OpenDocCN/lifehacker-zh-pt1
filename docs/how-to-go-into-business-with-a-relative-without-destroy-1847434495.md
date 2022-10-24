@@ -1,6 +1,6 @@
 # 如何在不破坏家庭的情况下和亲戚一起做生意
 
-> 原文:[https://life hacker . com/how-to-go-to-business with-a-relative-with-destroy-1847434495](https://lifehacker.com/how-to-go-into-business-with-a-relative-without-destroy-1847434495)
+> 原文：<https://lifehacker.com/how-to-go-into-business-with-a-relative-without-destroy-1847434495>
 
 和家人一起做生意表面上看起来是个好主意。毕竟血浓于水，诸如此类。但是，无论你现在的家庭关系有多好，你都更有可能与家庭成员而不是传统的商业伙伴发生冲突——而这种冲突的连锁反应会超越职业范畴，影响到个人。
 
@@ -16,9 +16,9 @@ Watch
 
 纳德洛在这里显示了适当的意识，所以请注意。她很了解她的父亲和哥哥，知道他们会同意什么和不同意什么。如果你的亲戚兼生意伙伴表达了你已经知道的喜欢或不喜欢，不要表现出惊讶。如果你对彼此不现实，你就不会在事业上有所发展。
 
-迈克尔和扎克·扎卡尔是一对28岁的双胞胎，他们共同创作了 [*祈祷同性恋远离*](https://www.amazon.com/Pray-Gay-Away-Michael-Zakar/dp/0692986723?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-go-into-business-with-a-relative-without-destroy-1847434495&asc_source=&tag=kinjalifehackerlink-20) (及其伴随的off-百老汇制作)和 [*如何他妈的快乐*](https://www.amazon.com/How-Be-Fucking-Happy-happiness/dp/0578937379/ref=sr_1_1?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-go-into-business-with-a-relative-without-destroy-1847434495&asc_source=&dchild=1&qid=1628221888&refinements=p_27:Michael Zakar&s=books&sr=1-1&tag=kinjalifehackerlink-20&text=Michael Zakar) 。扎克回答了关于一起工作和写作是什么感觉的问题:“你知道他们怎么说你是你自己最糟糕的批评家吗？那个人显然没有孪生兄弟。”
+迈克尔和扎克·扎卡尔是一对 28 岁的双胞胎，他们共同创作了 [*祈祷同性恋远离*](https://www.amazon.com/Pray-Gay-Away-Michael-Zakar/dp/0692986723?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-go-into-business-with-a-relative-without-destroy-1847434495&asc_source=&tag=kinjalifehackerlink-20) (及其伴随的 off-百老汇制作)和 [*如何他妈的快乐*](https://www.amazon.com/How-Be-Fucking-Happy-happiness/dp/0578937379/ref=sr_1_1?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-go-into-business-with-a-relative-without-destroy-1847434495&asc_source=&dchild=1&qid=1628221888&refinements=p_27:Michael Zakar&s=books&sr=1-1&tag=kinjalifehackerlink-20&text=Michael Zakar) 。扎克回答了关于一起工作和写作是什么感觉的问题:“你知道他们怎么说你是你自己最糟糕的批评家吗？那个人显然没有孪生兄弟。”
 
-本质上，你会不同意。很多。准备一下，然后g et习惯了。
+本质上，你会不同意。很多。准备一下，然后 g et 习惯了。
 
 ## **告别“下班时间”**
 
@@ -32,17 +32,17 @@ Watch
 
 纳德洛回忆说，她和家人为一个标志的粉笔颜色争论过，但扎卡尔双胞胎甚至为一个单词争吵。
 
-“能够和你的工作伙伴说任何事情有时会让人不知所措，”Zakar说。“我们正在写作，为了‘监管’这个词争论了一个小时，因为我觉得这个词听起来很蠢，而他喜欢这个词。我们本质上是完美主义者，所以有时候很难忍住不说话。”
+“能够和你的工作伙伴说任何事情有时会让人不知所措，”Zakar 说。“我们正在写作，为了‘监管’这个词争论了一个小时，因为我觉得这个词听起来很蠢，而他喜欢这个词。我们本质上是完美主义者，所以有时候很难忍住不说话。”
 
 不管有多难，你都可能不得不咬紧自己的舌头。记住，不仅你事业的成功依赖于你的合作能力，许多家庭动态也是如此。不要因为一句话或者一个洋葱圈炸了你的家庭！除非你有一个万无一失的赚钱计划，否则你不会进入商界，所以专注于你的产品的优势，尽一切努力让它成功——包括成为更大的人。
 
-“没有什么是永恒的，”扎卡尔补充道。“我们之间的很多争吵都是因为我们在争论想法。现在我们互相尊重地交谈。只用了11年。沟通是关键！”
+“没有什么是永恒的，”扎卡尔补充道。“我们之间的很多争吵都是因为我们在争论想法。现在我们互相尊重地交谈。只用了 11 年。沟通是关键！”
 
 ## **最后，要知道它实际上也可能很棒**
 
 当然，考虑到你和他人的亲密关系，你会有一些标准的商业伙伴不会有的分歧，但这种关系会被加强，也会被破坏。
 
-Zakar说:“无论我们如何抗争，最终的结果总是比我们想象的要好，因为我们可以尽可能愚蠢或严肃地谈论我们的想法。”就像有另一双和你一样思考的眼睛
+Zakar 说:“无论我们如何抗争，最终的结果总是比我们想象的要好，因为我们可以尽可能愚蠢或严肃地谈论我们的想法。”就像有另一双和你一样思考的眼睛
 
 纳德洛说:“我知道很多人说为家庭工作是最大的错误，但我觉得这是我做过的最好的决定。 我想它让我和我的父亲和哥哥更亲近了，尤其是当它涉及到我父亲的时候。像大多数父亲一样，他会努力工作。当我开始为父亲工作时，我们的关系更加紧密，也让我更好地了解了他的为人。现在我的父亲去世了，我很感激我和他一起工作，因为他教给我的记忆和事情，他会做的疯狂的事情，甚至我们之间有趣的争吵都是我永远留在心中的事情。”
 

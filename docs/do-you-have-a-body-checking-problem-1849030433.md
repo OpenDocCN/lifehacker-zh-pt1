@@ -1,6 +1,6 @@
 # 你有“身体检查”的问题吗？
 
-> 原文:[https://life hacker . com/do-you-have-a-body-checking-problem-1849030433](https://lifehacker.com/do-you-have-a-body-checking-problem-1849030433)
+> 原文：<https://lifehacker.com/do-you-have-a-body-checking-problem-1849030433>
 
 在一天当中，你可能会发现自己不止一次地寻求关于我们外表的反馈，无论是检查我们的体重，照镜子，试穿不同的衣服，还是自拍。
 
@@ -12,7 +12,7 @@ Watch
 
 当身体检查变成一种强迫行为时，问题就出现了。也许你一天称好几次体重，你的情绪会随着体重计上的数字而波动。其他行为可能包括过度测量身体部位，如腰围或臀围；或者拍大量的自拍照来监控你长相的某个方面。
 
-在一项 [2018元分析](https://onlinelibrary.wiley.com/doi/epdf/10.1002/eat.22867) 中，发现强迫性身体检查与负面身体形象和饮食紊乱相关。另一项 [2019年研究](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC6530359/) 显示，对于女性来说，身体检查导致个人不满，无论她们被监控的是身体的哪个部位。
+在一项 [2018 元分析](https://onlinelibrary.wiley.com/doi/epdf/10.1002/eat.22867) 中，发现强迫性身体检查与负面身体形象和饮食紊乱相关。另一项 [2019 年研究](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC6530359/) 显示，对于女性来说，身体检查导致个人不满，无论她们被监控的是身体的哪个部位。
 
 ## **身体检查习惯失控的征兆**
 
@@ -20,6 +20,6 @@ Watch
 
 ## 如果身体检查有问题，该怎么办
 
-首先也是最重要的，如果你的孩子检查的习惯导致了饮食紊乱，寻求T2的专业支持是很重要的。国家饮食失调协会有一条 [帮助热线](https://www.nationaleatingdisorders.org/help-support/contact-helpline) ，你可以通过在线聊天或发短信/打电话800-931-2237进入。如果你正经历一场危机，需要立即帮助，发短信给NEDA，号码是741741。
+首先也是最重要的，如果你的孩子检查的习惯导致了饮食紊乱，寻求 T2 的专业支持是很重要的。国家饮食失调协会有一条 [帮助热线](https://www.nationaleatingdisorders.org/help-support/contact-helpline) ，你可以通过在线聊天或发短信/打电话 800-931-2237 进入。如果你正经历一场危机，需要立即帮助，发短信给 NEDA，号码是 741741。
 
-当谈到检查你的身体检查行为时， [健康热线](https://www.healthline.com/health/body-checking#prevention) 建议定期离开社交媒体，因为像Instagram这样的应用程序只能助长对身体形象的关注。此外，监控你自己，并努力查明触发你身体检查冲动的情况——跟踪你一天的行为以查看是否有任何模式，然后尝试开发替代性应对策略，可以取代身体检查行为(例如，、、[执行口头确认，以提升你的情绪和自信](https://lifehacker.com/how-to-embrace-daily-verbal-affirmations-without-feeli-1847521664)、，而不是在镜子里批判地看着你自己)。如果这个习惯已经上升到一种强迫的程度， [寻求一个训练有素的治疗师](https://lifehacker.com/how-to-select-the-right-therapist-for-you-1833246447) 的帮助。
+当谈到检查你的身体检查行为时， [健康热线](https://www.healthline.com/health/body-checking#prevention) 建议定期离开社交媒体，因为像 Instagram 这样的应用程序只能助长对身体形象的关注。此外，监控你自己，并努力查明触发你身体检查冲动的情况——跟踪你一天的行为以查看是否有任何模式，然后尝试开发替代性应对策略，可以取代身体检查行为(例如，、、[执行口头确认，以提升你的情绪和自信](https://lifehacker.com/how-to-embrace-daily-verbal-affirmations-without-feeli-1847521664)、，而不是在镜子里批判地看着你自己)。如果这个习惯已经上升到一种强迫的程度， [寻求一个训练有素的治疗师](https://lifehacker.com/how-to-select-the-right-therapist-for-you-1833246447) 的帮助。

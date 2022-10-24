@@ -1,6 +1,6 @@
 # 如何识别亚马逊上的虚假评论
 
-> 原文:[https://life hacker . com/how-to-spot-fake-reviews-on-Amazon-1834561279](https://lifehacker.com/how-to-spot-fake-reviews-on-amazon-1834561279)
+> 原文：<https://lifehacker.com/how-to-spot-fake-reviews-on-amazon-1834561279>
 
 黄金日(又)快到了，也许你正计划利用这一天 [在无线耳塞和电话线等非品牌技术](https://lifehacker.com/how-to-make-the-most-of-prime-day-2021-1846994435) 上寻找划算的交易。尽管网上购物很方便，但它最大的缺点仍然是无法在购买前直接看到或测试产品。因此，为了感觉我们知道我们得到了什么，我们求助于用户评论——至少在亚马逊上，用户评论 [越来越不可信](https://gizmodo.com/amazon-has-removed-ravpower-from-its-store-amid-crackdo-1847120662) 。
 
@@ -16,18 +16,18 @@ Watch
 
 *   实际阅读评论:根据评论的阅读方式，很容易发现虚假评论。如果一个评论者似乎有一个与其他评论完全不同的经历，做出了非常积极或消极的断言，这可能是不可信的。同样的道理也适用于这样的情况，如果一篇评论花了一点点*太多*时间来推荐一个晦涩难懂的替代品，但却没有对这篇评论首先针对的产品进行公平的比较或评论。如果有大量的一星或五星评论，但每条评论的文字都不超过一句话(甚至只有一两个词)，这是假货的另一个迹象。
 
-*   **寻找“已验证购买”:**实际购买该产品的用户的评论名称旁边会有一个“已验证购买”的徽章。这些很有可能是合法的评级/评论，尽管这不是确定的，因为一些无良卖家 [会提供“退款”](https://www.businessinsider.com/facebook-telegram-paypal-false-guidelines-algorithm-detection-jeff-bezos-scam-2021-2) 来换取5星评论。
+*   **寻找“已验证购买”:**实际购买该产品的用户的评论名称旁边会有一个“已验证购买”的徽章。这些很有可能是合法的评级/评论，尽管这不是确定的，因为一些无良卖家 [会提供“退款”](https://www.businessinsider.com/facebook-telegram-paypal-false-guidelines-algorithm-detection-jeff-bezos-scam-2021-2) 来换取 5 星评论。
 *   **阅读产品问答:**这些通常回答常见问题，购买产品的用户的回答将再次带有“已验证购买”标签。
 *   **阅读非亚马逊评论:**寻找非亚马逊评论，尤其是你信任的专业评论者/评论家/网站的评论，总是明智的。它可以帮助你建立一个产品在其他地方的评价的基本概念，并帮助你评估其他地方的用户评价。然而，仅仅因为评论者和用户得出不同的结论并不意味着他们在撒谎。评论本质上是有背景的和主观的，所以不要仅仅因为某个观点违背了更广泛的共识就抛弃它。
 
-## 用FakeSpot或ReviewMeta发现虚假亚马逊评论
+## 用 FakeSpot 或 ReviewMeta 发现虚假亚马逊评论
 
-即使你知道虚假评论的迹象，你有时也会遇到你无法确定其合法性的评论或产品评分。在这些情况下，我们建议使用 [FakeSpot app](https://www.fakespot.com/) 。Fakespot将分析亚马逊上一个商品的评论和/或产品评级，评估每个评论，并让你知道它们看起来有多真实或虚假(它也适用于百思买、沃尔玛、Steam和丝芙兰在线商店)。FakeSpot在网络 上 [可用，在安卓](https://www.fakespot.com/)[iOS](https://itunes.apple.com/us/app/fakespot-analyze-reviews/id1162831562?mt=8)上 [可用。作为替代，](https://play.google.com/store/apps/details?id=com.fakespot.fakespot&hl=en) [ReviewMeta](https://reviewmeta.com/) 作品中的 [与](https://lifehacker.com/determine-if-amazon-product-reviews-are-legit-using-thi-1830622508) 大同小异。
+即使你知道虚假评论的迹象，你有时也会遇到你无法确定其合法性的评论或产品评分。在这些情况下，我们建议使用 [FakeSpot app](https://www.fakespot.com/) 。Fakespot 将分析亚马逊上一个商品的评论和/或产品评级，评估每个评论，并让你知道它们看起来有多真实或虚假(它也适用于百思买、沃尔玛、Steam 和丝芙兰在线商店)。FakeSpot 在网络 上 [可用，在安卓](https://www.fakespot.com/)[iOS](https://itunes.apple.com/us/app/fakespot-analyze-reviews/id1162831562?mt=8)上 [可用。作为替代，](https://play.google.com/store/apps/details?id=com.fakespot.fakespot&hl=en) [ReviewMeta](https://reviewmeta.com/) 作品中的 [与](https://lifehacker.com/determine-if-amazon-product-reviews-are-legit-using-thi-1830622508) 大同小异。
 
 ## 举报虚假和错误的亚马逊评论
 
 事实是，一两个虚假或误导性的评论会出现在任何受欢迎的产品上。这些可以被报道，但是一些错误的评级可能不会改变一个列表的总得分。然而，如果你注意到一个产品的虚假评论数量特别多，或者你注意到一个产品的评论出现在其他地方，你可以使用评论旁边的“报告滥用”按钮来引起亚马逊的注意。
 
-*这篇文章最初发表于2019年，并于2021年6月17日更新，增加了额外的上下文和链接，并与当前的Lifehacker风格保持一致。*
+*这篇文章最初发表于 2019 年，并于 2021 年 6 月 17 日更新，增加了额外的上下文和链接，并与当前的 Lifehacker 风格保持一致。*
 
 *T2】*

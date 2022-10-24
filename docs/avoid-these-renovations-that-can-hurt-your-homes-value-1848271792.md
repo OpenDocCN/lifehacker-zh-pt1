@@ -1,6 +1,6 @@
 # 避免这些会损害你房子价值的装修
 
-> 原文:[https://life hacker . com/avoid-these-renovations-that-can-hurt-your-homes-value-1848271792](https://lifehacker.com/avoid-these-renovations-that-can-hurt-your-homes-value-1848271792)
+> 原文：<https://lifehacker.com/avoid-these-renovations-that-can-hurt-your-homes-value-1848271792>
 
 人们购买和搬进新家(嗯，对他们来说是新的)有许多不同的原因。如果你的想法是在一所房子里度过余生(或者至少是可预见的未来)，这是一回事，但如果你认为——或者知道——你将在不久的将来的某个时候搬家，这完全是另一回事。例如，如果你接受了一份为期五年的工作合同，在一个你不打算待下去的城市工作，或者如果你计划有一个家庭，最终会超出你的第一套房子，这种情况就会发生。
 
@@ -18,4 +18,4 @@ Watch
 
 ## 将较小的卧室合并成一个较大的卧室
 
-拥有一个大的主卧室可能很好，但减少房子里卧室的数量可能意味着潜在的未来买家——他们需要一定的数量——甚至可能不会考虑安排一次展示。据房地产投资者兼租赁资源SparkRental的教育主管Brian Davis称，每间卧室可以为一套房子的价值 增加15%左右的价值 [。](https://www.gobankingrates.com/investing/real-estate/home-renovations-hurt-homes-value/)
+拥有一个大的主卧室可能很好，但减少房子里卧室的数量可能意味着潜在的未来买家——他们需要一定的数量——甚至可能不会考虑安排一次展示。据房地产投资者兼租赁资源 SparkRental 的教育主管 Brian Davis 称，每间卧室可以为一套房子的价值 增加 15%左右的价值 [。](https://www.gobankingrates.com/investing/real-estate/home-renovations-hurt-homes-value/)

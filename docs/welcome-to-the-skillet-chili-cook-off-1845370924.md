@@ -1,6 +1,6 @@
 # 欢迎来到煎锅辣椒烹饪大赛
 
-> 原文:[https://life hacker . com/welcome-to-the-skillet-Chili-cook-off-1845370924](https://lifehacker.com/welcome-to-the-skillet-chili-cook-off-1845370924)
+> 原文：<https://lifehacker.com/welcome-to-the-skillet-chili-cook-off-1845370924>
 
 像比萨饼和烧烤一样，辣椒是具有强烈地区忠诚度的食物之一。我出生在密西西比州，在加利福尼亚州长大，这两个州没有强烈的辣椒特征。从某种程度上来说，这很好——我可以享受所有的辣椒、豆子或没有豆子——但这也意味着我没有最喜欢的食谱，甚至没有最喜欢的风格。
 

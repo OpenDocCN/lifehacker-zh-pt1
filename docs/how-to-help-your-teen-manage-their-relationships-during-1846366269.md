@@ -1,6 +1,6 @@
 # 如何帮助你的孩子在疫情期间处理好他们的关系
 
-> 原文:[https://life hacker . com/how-to-help-your-teen-manage-they-during-1846366269](https://lifehacker.com/how-to-help-your-teen-manage-their-relationships-during-1846366269)
+> 原文：<https://lifehacker.com/how-to-help-your-teen-manage-their-relationships-during-1846366269>
 
 青少年在疫情错过的经历数不胜数。两个不同的高中毕业班将会把他们童年的最后一年视为他们年轻生活中最无聊和孤立的一年。大多数最大和最好的里程碑都是虚拟的，但疫情也夺走了他们的小时刻——比如课间在走廊上和暗恋者调情。
 
@@ -36,7 +36,7 @@ Watch
 
 伊曼纽告诉我，不管是哪种情况，你都应该像平常一样与青少年谈论关于和 [同意](https://offspring.lifehacker.com/a-parents-guide-to-teaching-your-kid-about-consent-1829399859) 的话题，并增加一层关于疫情期间安全问题的内容。
 
-“一般来说，父母想告诉他们的孩子什么是约会，如何进行安全性行为，以及我们无论如何都会做的所有正常事情，”伊曼纽说。但是现在有了一个转折:这里也有你必须注意的所有COVID的东西。"
+“一般来说，父母想告诉他们的孩子什么是约会，如何进行安全性行为，以及我们无论如何都会做的所有正常事情，”伊曼纽说。但是现在有了一个转折:这里也有你必须注意的所有 COVID 的东西。"
 
 ### 如果他们总体上是孤独的
 

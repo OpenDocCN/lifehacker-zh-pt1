@@ -1,6 +1,6 @@
 # 当你的孩子不仅仅是一个挑食的人时，该怎么办
 
-> 原文:[https://life hacker . com/1849374352](https://lifehacker.com/what-to-do-when-your-child-is-more-than-just-a-picky-1849374352)
+> 原文：<https://lifehacker.com/what-to-do-when-your-child-is-more-than-just-a-picky-1849374352>
 
 小孩子是 [挑食](https://lifehacker.com/a-guide-to-feeding-your-picky-eater-1834125109) —t 既常见又正常。然而，有一些迹象表明你的孩子可能不仅仅是挑剔。如果你认为你的孩子的挑剔已经到了极点，但你不确定为什么，你可能需要寻求帮助。你可能会担心你的孩子长大后可能会患上饮食失调症，或者对潜在的健康状况有所担忧。以下是需要注意和考虑的事项。
 

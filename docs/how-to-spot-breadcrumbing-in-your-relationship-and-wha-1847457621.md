@@ -1,6 +1,6 @@
 # 如何发现你的人际关系中的“面包屑”,以及该怎么做
 
-> 原文:[https://life hacker . com/how-to-spot-bread crumbing-in-your-relationship-and-wha-1847457621](https://lifehacker.com/how-to-spot-breadcrumbing-in-your-relationship-and-wha-1847457621)
+> 原文：<https://lifehacker.com/how-to-spot-breadcrumbing-in-your-relationship-and-wha-1847457621>
 
 当你开始浪漫地了解一个人时，你应该能够期待他们诚实地说出他们对你的感觉——否则，何必呢？但是有时候，你会遇到一些人，他们似乎对你感兴趣，但是不愿意承诺任何接近真实关系的事情。如果这听起来很熟悉，你可能是“面包屑”的受害者。
 

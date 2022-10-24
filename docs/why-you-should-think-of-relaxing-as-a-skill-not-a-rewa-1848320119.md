@@ -1,6 +1,6 @@
 # 为什么你应该把放松当成一种技能，而不是奖励
 
-> 原文:[https://life hacker . com/why-you-should-think-as-a-skill-not-a-rewa-1848320119](https://lifehacker.com/why-you-should-think-of-relaxing-as-a-skill-not-a-rewa-1848320119)
+> 原文：<https://lifehacker.com/why-you-should-think-of-relaxing-as-a-skill-not-a-rewa-1848320119>
 
 每个人都有自己的放松方式:有些人认为花时间放松是他们的权利，也是他们优先考虑的事情。另一些人认为它是必须挣来的，只有在完成了一定量的工作，或者完成了一定的任务之后才可以拿。但最接近小姐的是，放松其实是一种*技能*。
 
@@ -20,7 +20,7 @@ Watch
 
 ## 如何学习和练习放松的技巧
 
-无论你是想学习Manjoo的肌肉放松练习，还是想训练你的大脑脱离工作模式，这里有一些学习和练习放松的方法:
+无论你是想学习 Manjoo 的肌肉放松练习，还是想训练你的大脑脱离工作模式，这里有一些学习和练习放松的方法:
 
 *   **渐进式肌肉放松练习**:除了曼朱在文章后半部分描述的之外，还有来自 [密歇根大学健康](https://www.uofmhealth.org/health-library/uz2225) 、 [梅奥诊所](https://www.mayoclinic.org/healthy-lifestyle/stress-management/in-depth/relaxation-technique/art-20045368) 和 [托莱多大学](https://www.utoledo.edu/studentaffairs/counseling/anxietytoolbox/pmr.html) 的其他说明。
 *   [**将放松作为目标**](https://lifehacker.com/how-to-trick-your-work-obsessed-brain-into-taking-actua-1847923580) :这是一个策略，让最沉迷于工作的大脑放松下来。

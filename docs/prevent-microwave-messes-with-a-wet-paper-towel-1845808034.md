@@ -1,6 +1,6 @@
 # 用湿纸巾防止微波干扰
 
-> 原文:[https://life hacker . com/prevent-microwave-messes-with-a-wet-paper-matter-1845808034](https://lifehacker.com/prevent-microwave-messes-with-a-wet-paper-towel-1845808034)
+> 原文：<https://lifehacker.com/prevent-microwave-messes-with-a-wet-paper-towel-1845808034>
 
 如果你的微波剩菜在整个重新加热过程中爆裂飞溅，造成一片混乱，就像上图所示，这意味着你跳过了一个关键步骤。你需要的，当然是一张湿纸巾。
 

@@ -1,6 +1,6 @@
 # 所有你应该在月初打扫的东西
 
-> 原文:[https://life hacker . com/all-the-stuff-you-should-clean-on-the-first-the-mont-1849485773](https://lifehacker.com/all-the-stuff-you-should-clean-on-the-first-of-the-mont-1849485773)
+> 原文：<https://lifehacker.com/all-the-stuff-you-should-clean-on-the-first-of-the-mont-1849485773>
 
 每个月的第一天应该是计划和收拾东西的日子，但是我们大多数人都不是带着计划的神童。尽管如此，这里的还是我们大多数人可以做的几件事让这个月顺利进行:具体来说就是、每月需要打扫一次的家居用品。把它们放在每月的第一天(或临近的某个时间)，这样你就能一直记得去做。
 
@@ -32,4 +32,4 @@ Watch
 *   [通风口盖](https://lifehacker.com/clean-your-air-vents-with-a-butter-knife-and-rag-1846337887)
 *   [视窗](https://lifehacker.com/how-to-clean-your-windows-inside-and-out-1843451482)
 
-A 收益，具体的方法列在上面，所以y 你将准备好按时处理你的家庭清洁任务。剩下要做的就是挑战你自己，在每个月的第一天把它们解决掉，这样你就可以回去做更多有趣的事情， [按照计划](https://www.youtube.com/watch?v=4j_cOsgRY7w) 。
+A 收益，具体的方法列在上面，所以 y 你将准备好按时处理你的家庭清洁任务。剩下要做的就是挑战你自己，在每个月的第一天把它们解决掉，这样你就可以回去做更多有趣的事情， [按照计划](https://www.youtube.com/watch?v=4j_cOsgRY7w) 。

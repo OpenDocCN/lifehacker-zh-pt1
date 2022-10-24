@@ -1,6 +1,6 @@
 # 如何保持你的下水道畅通无阻
 
-> 原文:[https://life hacker . com/how-to-keep your-drains-free-from-clogs-1848084736](https://lifehacker.com/how-to-keep-your-drains-free-from-clogs-1848084736)
+> 原文：<https://lifehacker.com/how-to-keep-your-drains-free-from-clogs-1848084736>
 
 知道如何疏通下水道是一项重要的生活技能。但是有什么比成功疏通下水道更好的呢？不需要一开始就这么做。问题是，许多人倾向于认为排水管是一种处理东西的方式——不管我们的排水管是否有能力处理它们。
 

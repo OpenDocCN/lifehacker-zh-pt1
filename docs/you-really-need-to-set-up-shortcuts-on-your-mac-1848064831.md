@@ -1,39 +1,39 @@
-# 你真的需要在你的Mac上设置快捷方式
+# 你真的需要在你的 Mac 上设置快捷方式
 
-> 原文:[https://life hacker . com/you-really-need-to-set-up-shortcut s-on-your-MAC-1848064831](https://lifehacker.com/you-really-need-to-set-up-shortcuts-on-your-mac-1848064831)
+> 原文：<https://lifehacker.com/you-really-need-to-set-up-shortcuts-on-your-mac-1848064831>
 
-随着 [macOS 12 Monterey](https://lifehacker.com/12-hidden-features-in-macos-monterey-worth-finding-1847972748) ，快捷方式应用首次亮相，实现了iPhones、iPads、苹果手表和HomePods上的自动化。如果你已经在Mac上安装了快捷方式，你应该为你的电脑 尝试一些 [最好的自动化程序。当你这样做时，你会从这些有用的提示中受益，帮助你充分利用Mac上的快捷方式。](https://lifehacker.com/9-of-the-most-helpful-shortcuts-to-automate-tasks-on-yo-1847982949) 
+随着 [macOS 12 Monterey](https://lifehacker.com/12-hidden-features-in-macos-monterey-worth-finding-1847972748) ，快捷方式应用首次亮相，实现了 iPhones、iPads、苹果手表和 HomePods 上的自动化。如果你已经在 Mac 上安装了快捷方式，你应该为你的电脑 尝试一些 [最好的自动化程序。当你这样做时，你会从这些有用的提示中受益，帮助你充分利用 Mac 上的快捷方式。](https://lifehacker.com/9-of-the-most-helpful-shortcuts-to-automate-tasks-on-yo-1847982949) 
 
 Watch
 
-## 更新至macOS 12 Monterey的快捷方式应用
+## 更新至 macOS 12 Monterey 的快捷方式应用
 
-与iOS和iPadOS不同，Shortcuts应用程序预装在macOS上。你只需要进入**系统偏好>软件更新**并确保你已经更新到macOS 12 Monterey。更新完成后，点击屏幕左上角的**苹果标志**，点击**关于这台Mac** 验证你是在macOS 12上。
+与 iOS 和 iPadOS 不同，Shortcuts 应用程序预装在 macOS 上。你只需要进入**系统偏好>软件更新**并确保你已经更新到 macOS 12 Monterey。更新完成后，点击屏幕左上角的**苹果标志**，点击**关于这台 Mac** 验证你是在 macOS 12 上。
 
-完成后，你可以 [使用Spotlight search(或更好的选择)](https://lifehacker.com/how-to-disable-spotlight-search-on-mac-and-replace-it-1847227585) 来定位应用程序。使用**命令+空格键**快捷方式打开搜索栏并寻找快捷方式。你会发现这款应用与它的iPhone和iPad版本很相似。
+完成后，你可以 [使用 Spotlight search(或更好的选择)](https://lifehacker.com/how-to-disable-spotlight-search-on-mac-and-replace-it-1847227585) 来定位应用程序。使用**命令+空格键**快捷方式打开搜索栏并寻找快捷方式。你会发现这款应用与它的 iPhone 和 iPad 版本很相似。
 
-## 将快捷方式从Mac同步到您的 iPhone
+## 将快捷方式从 Mac 同步到您的 iPhone
 
-退一步说，在iPhone上编辑复杂的快捷方式很痛苦。持续的来回滚动很容易让你抓狂，尽管如此，来自iPhone自动化社区的有事业心的人们还是用超过一千个(！)行动。现在快捷方式已经在Mac上了，你可以开始在你的iPhone或iPad上创建一个快捷方式，如果它太长了，你可以在你的 Mac上编辑它。
+退一步说，在 iPhone 上编辑复杂的快捷方式很痛苦。持续的来回滚动很容易让你抓狂，尽管如此，来自 iPhone 自动化社区的有事业心的人们还是用超过一千个(！)行动。现在快捷方式已经在 Mac 上了，你可以开始在你的 iPhone 或 iPad 上创建一个快捷方式，如果它太长了，你可以在你的 Mac 上编辑它。
 
-快捷方式应用程序有iCloud sync，你可以在你的 Mac 上启用它，方法是打开快捷方式应用程序并导航到**快捷方式>偏好设置>常规**。你可以启用 **iCloud Sync** 来确保你的iPhone快捷方式也同步到Mac上。不幸的是，个人自动化例程允许你做一些很酷的事情，比如在iPhone 上自动启用低功耗模式 [，但这些例程不能在设备间同步。](https://lifehacker.com/you-can-customize-low-power-mode-on-your-iphone-1848030354)
+快捷方式应用程序有 iCloud sync，你可以在你的 Mac 上启用它，方法是打开快捷方式应用程序并导航到**快捷方式>偏好设置>常规**。你可以启用 **iCloud Sync** 来确保你的 iPhone 快捷方式也同步到 Mac 上。不幸的是，个人自动化例程允许你做一些很酷的事情，比如在 iPhone 上自动启用低功耗模式 [，但这些例程不能在设备间同步。](https://lifehacker.com/you-can-customize-low-power-mode-on-your-iphone-1848030354)
 
-## 将Automator工作流程导入您的快捷方式应用程序
+## 将 Automator 工作流程导入您的快捷方式应用程序
 
-所有Automator工作流程在Mac上都存储为。工作流文件。找到您想要导入的工作流程，并将其拖到快捷方式应用程序中。工作流程将被快速导入，如果有任何问题，快捷方式将通知您可能需要修改的部分。同样，导入快捷方式也需要你拖动。应用程序中的快捷方式文件。
+所有 Automator 工作流程在 Mac 上都存储为。工作流文件。找到您想要导入的工作流程，并将其拖到快捷方式应用程序中。工作流程将被快速导入，如果有任何问题，快捷方式将通知您可能需要修改的部分。同样，导入快捷方式也需要你拖动。应用程序中的快捷方式文件。
 
 ## 从菜单栏中启动快捷方式
 
-一旦你用一系列的快捷方式武装了自己，你应该把它们设置成让跑得更快。打开Mac上的快捷方式应用，点击左侧窗格中的**所有快捷方式**标签。现在你可以把你喜欢的快捷方式拖到左边窗格的**菜单栏**标签中。
+一旦你用一系列的快捷方式武装了自己，你应该把它们设置成让跑得更快。打开 Mac 上的快捷方式应用，点击左侧窗格中的**所有快捷方式**标签。现在你可以把你喜欢的快捷方式拖到左边窗格的**菜单栏**标签中。
 
 一旦你完成了，点击**菜单栏**标签，检查所有的快捷方式出现在那里。然后你可以点击菜单栏中的快捷方式图标，你会在那里找到快捷方式。您现在可以启动这些快捷方式，而无需每次都打开应用程序。
 
-## 将快捷方式添加到Mac上的上下文菜单
+## 将快捷方式添加到 Mac 上的上下文菜单
 
-另一种快速启动您喜欢的快捷方式的方法是通过上下文菜单。苹果允许你在服务菜单上添加快捷方式，当你在Mac上的任何地方右击时，就会显示出来。
+另一种快速启动您喜欢的快捷方式的方法是通过上下文菜单。苹果允许你在服务菜单上添加快捷方式，当你在 Mac 上的任何地方右击时，就会显示出来。
 
-要完成它，在你的Mac上打开快捷方式应用程序，点击左窗格中的**所有快捷方式**标签。现在把你需要的快捷方式拖到左窗格的**快速动作**标签中。一旦你完成了，右击Mac上的任意位置，选择**服务**来查看所有这些快捷方式，并启动你需要的快捷方式。
+要完成它，在你的 Mac 上打开快捷方式应用程序，点击左窗格中的**所有快捷方式**标签。现在把你需要的快捷方式拖到左窗格的**快速动作**标签中。一旦你完成了，右击 Mac 上的任意位置，选择**服务**来查看所有这些快捷方式，并启动你需要的快捷方式。
 
-## 检查您的快捷方式是否在您的 Mac上运行
+## 检查您的快捷方式是否在您的 Mac 上运行
 
-快捷方式可以让你轻松区分设备特定的动作，就像Twitter上的 [马修·卡西尼利](https://twitter.com/mattcassinelli/status/1453776247952056347) 所展示的那样。如果你想让快捷方式在Mac和iOS上都能运行，你可以快速给你的快捷方式添加一个“我f】动作，选择**设备详情**作为条件。在设备详情下，选择Get子菜单下的**设备类型**，选择 **is** 作为操作符，从设备类型列表中选择 **Mac** 。现在，您可以在“If”下添加所有特定于Mac的操作，并在“ Otherwise”下添加iOS操作
+快捷方式可以让你轻松区分设备特定的动作，就像 Twitter 上的 [马修·卡西尼利](https://twitter.com/mattcassinelli/status/1453776247952056347) 所展示的那样。如果你想让快捷方式在 Mac 和 iOS 上都能运行，你可以快速给你的快捷方式添加一个“我 f】动作，选择**设备详情**作为条件。在设备详情下，选择 Get 子菜单下的**设备类型**，选择 **is** 作为操作符，从设备类型列表中选择 **Mac** 。现在，您可以在“If”下添加所有特定于 Mac 的操作，并在“ Otherwise”下添加 iOS 操作

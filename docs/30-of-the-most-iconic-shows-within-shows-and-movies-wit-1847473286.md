@@ -1,6 +1,6 @@
-# 30部最具标志性的电视剧和电影中的电影
+# 30 部最具标志性的电视剧和电影中的电影
 
-> 原文:[https://life hacker . com/30-of-the-most-iconic-shows-wit-1847473286](https://lifehacker.com/30-of-the-most-iconic-shows-within-shows-and-movies-wit-1847473286)
+> 原文：<https://lifehacker.com/30-of-the-most-iconic-shows-within-shows-and-movies-wit-1847473286>
 
 在我们的宇宙旁边还有其他的宇宙存在，其中的人们也非常喜欢电视。事实上，娱乐选择似乎是无穷无尽的；现在乘以无限的平行世界，你就会明白跟上所有可能的表演和可能的电影的艰巨任务。
 
@@ -16,7 +16,7 @@
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-QJJg-q14Ogg&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-QJJg-q14Ogg&start=0) 
 
-*丑闻*很棒。但是*诽谤*有超过40%的椭圆形办公室鹰行动。
+*丑闻*很棒。但是*诽谤*有超过 40%的椭圆形办公室鹰行动。
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-xdvfDnqzRLQ&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-xdvfDnqzRLQ&start=0) 
 
@@ -24,7 +24,7 @@
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-Czpf8g0DjOA&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-Czpf8g0DjOA&start=0) 
 
-可悲的是，你对多样性的观念是以人类为中心的。二元爱情就是爱情，这部公元3000年的肥皂剧足以让HAL 9000哭。
+可悲的是，你对多样性的观念是以人类为中心的。二元爱情就是爱情，这部公元 3000 年的肥皂剧足以让 HAL 9000 哭。
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video--WgBsWFNE0E&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video--WgBsWFNE0E&start=0) 
 
@@ -40,7 +40,7 @@
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-fXAipmy-Ryg&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-fXAipmy-Ryg&start=0) 
 
-《惊声尖叫2》恰当的元开场序列发生在《刺杀T2》的首映夜，该片改编自《惊声尖叫》 1的剧情。到第四部*尖叫*电影时，我们正在拍第七部*刺杀*电影(明白了吗？)，继续电影中的电影，直到你不能完全确定哪一部才是你真正想要看的电影。
+《惊声尖叫 2》恰当的元开场序列发生在《刺杀 T2》的首映夜，该片改编自《惊声尖叫》 1 的剧情。到第四部*尖叫*电影时，我们正在拍第七部*刺杀*电影(明白了吗？)，继续电影中的电影，直到你不能完全确定哪一部才是你真正想要看的电影。
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-VHox6p5VnJo&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-VHox6p5VnJo&start=0) 
 
@@ -48,11 +48,11 @@
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-f7W_sMFoyMs&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-f7W_sMFoyMs&start=0) 
 
-我认为这更像是一部电影中的假预告片，但埃德加·赖特和赛门·佩格的70年代恐怖电影《致敬》仍然占据一席之地。嘿，我会看的。
+我认为这更像是一部电影中的假预告片，但埃德加·赖特和赛门·佩格的 70 年代恐怖电影《致敬》仍然占据一席之地。嘿，我会看的。
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-26kYzEjiX1o&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-26kYzEjiX1o&start=0) 
 
-这部对黑帮电影的模仿是如此巧妙，以至于许多人仍然认为凯文在完成他的披萨外卖骗局时正在电视上观看一部真正的旧电影，而不仅仅是一个微妙的模仿。*孤家寡人2* 有一个来自(也是虚构的)续集的片段:*有着更肮脏灵魂的天使*。
+这部对黑帮电影的模仿是如此巧妙，以至于许多人仍然认为凯文在完成他的披萨外卖骗局时正在电视上观看一部真正的旧电影，而不仅仅是一个微妙的模仿。*孤家寡人 2* 有一个来自(也是虚构的)续集的片段:*有着更肮脏灵魂的天使*。
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-9Eont_yEGZs&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-9Eont_yEGZs&start=0) 
 
@@ -68,7 +68,7 @@
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-7-brLyrdTyA&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-7-brLyrdTyA&start=0) 
 
-最好的电影中的电影*只是让你相信它们是真实的——而且肯定有比乔·丹堤为*曼特梦想的更怪异的50年代科幻电影！**
+最好的电影中的电影*只是让你相信它们是真实的——而且肯定有比乔·丹堤为*曼特梦想的更怪异的 50 年代科幻电影！**
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-YMzV96LV6Cc&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-YMzV96LV6Cc&start=0) 
 
@@ -76,7 +76,7 @@
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-s-K990t7qFM&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-s-K990t7qFM&start=0) 
 
-我看过制作价值不那么令人印象深刻的加拿大电影。10/10会看。
+我看过制作价值不那么令人印象深刻的加拿大电影。10/10 会看。
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-LUaC_zS-5jE&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-LUaC_zS-5jE&start=0) 
 
@@ -92,11 +92,11 @@
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-iyzzPlgAg9o&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-iyzzPlgAg9o&start=0) 
 
-这是在1999年出现的，当时美国仍有能力感到震惊，但只是轻微的。因此，我们都被这首非常朗朗上口的关于经常与叔叔随意发生性关系的曲子震惊了。
+这是在 1999 年出现的，当时美国仍有能力感到震惊，但只是轻微的。因此，我们都被这首非常朗朗上口的关于经常与叔叔随意发生性关系的曲子震惊了。
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-CBAqzXfd4AI&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-CBAqzXfd4AI&start=0) 
 
-我不知道为什么詹姆斯·卡梅隆坚持要拍15部新的《阿凡达》电影，而我们真正想要的只是这个。
+我不知道为什么詹姆斯·卡梅隆坚持要拍 15 部新的《阿凡达》电影，而我们真正想要的只是这个。
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-fovaVGhbhn4&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-fovaVGhbhn4&start=0) 
 
@@ -112,7 +112,7 @@
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-OQ7DQMd0Ud8&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-OQ7DQMd0Ud8&start=0) 
 
-BoJack骑士完全可以出演《秘书处的生活》的电影版，而且，让我告诉你，这不是一个快乐的故事。
+BoJack 骑士完全可以出演《秘书处的生活》的电影版，而且，让我告诉你，这不是一个快乐的故事。
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-zuwOPF2Kq0M&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-zuwOPF2Kq0M&start=0) 
 

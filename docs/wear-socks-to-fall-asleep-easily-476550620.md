@@ -1,6 +1,6 @@
 # 穿袜子容易入睡
 
-> 原文:[https://life hacker . com/wear-socks-to-mound-easy-476550620](https://lifehacker.com/wear-socks-to-fall-asleep-easily-476550620)
+> 原文：<https://lifehacker.com/wear-socks-to-fall-asleep-easily-476550620>
 
 如果你难以入睡，临阵退缩可能就是问题所在(我不是说害怕做出重大决定)。一项发表在心理学&行为的研究指出“穿中性的床袜会加速睡眠”袜子？
 

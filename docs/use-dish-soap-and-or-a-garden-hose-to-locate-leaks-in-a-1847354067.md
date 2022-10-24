@@ -1,6 +1,6 @@
 # 使用洗洁精和/或橡胶软管找到充气床垫的漏洞
 
-> 原文:[https://life hacker . com/use-dish-soap-and-or-a-garden-hose-to-locate-leaks-in-a-1847354067](https://lifehacker.com/use-dish-soap-and-or-a-garden-hose-to-locate-leaks-in-a-1847354067)
+> 原文：<https://lifehacker.com/use-dish-soap-and-or-a-garden-hose-to-locate-leaks-in-a-1847354067>
 
 睡了几年劣质气垫后，你终于决定投资买一个好的。也许它甚至有特殊的功能——比如内置气泵，或者更厚。
 
@@ -8,7 +8,7 @@ Watch
 
 你对你的购买很有信心，直到有一天早上，在气垫上睡了一觉后，你醒来时感觉像是在游泳池里漂浮，需要更多的空气。不知何故，气垫的诅咒又来了。
 
-当然，这可能是阀门的问题，但也可能是一个洞。尽管令人难以置信的讨厌，这些洞真的很难找到。在 [一篇给BobVila.com](https://www.bobvila.com/articles/how-to-find-a-hole-in-an-air-mattress/)的文章中，托尼·卡里克分享了两种给定位漏洞的方法。以下是需要了解的内容。
+当然，这可能是阀门的问题，但也可能是一个洞。尽管令人难以置信的讨厌，这些洞真的很难找到。在 [一篇给 BobVila.com](https://www.bobvila.com/articles/how-to-find-a-hole-in-an-air-mattress/)的文章中，托尼·卡里克分享了两种给定位漏洞的方法。以下是需要了解的内容。
 
 ## 首先，检查气垫的阀门
 

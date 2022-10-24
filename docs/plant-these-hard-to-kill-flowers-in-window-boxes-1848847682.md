@@ -1,6 +1,6 @@
 # 将这些难以杀死的花种在窗盒里
 
-> 原文:[https://life hacker . com/plant-these-hard-to-kill-flowers-in-window-box-1848847682](https://lifehacker.com/plant-these-hard-to-kill-flowers-in-window-boxes-1848847682)
+> 原文：<https://lifehacker.com/plant-these-hard-to-kill-flowers-in-window-boxes-1848847682>
 
 花园有各种形状、大小和位置，包括从附在窗户上的盒子中生长出来。尽管窗台花箱可能看起来不像传统意义上的花园，但你可以把它们想象成迷你版，在这里你可以种植各种植物，从香草和小蔬菜、到鲜花、 。
 
@@ -91,4 +91,4 @@ Watch
 *   甜蜜的秋天铁线莲
 *   凌霄花
 
-不知道如何开始种植窗盒花园？这个 [以前的Lifehacker帖子](https://lifehacker.com/how-to-plant-a-window-box-garden-and-keep-it-alive-1846979148) 将带你一步步走过去。
+不知道如何开始种植窗盒花园？这个 [以前的 Lifehacker 帖子](https://lifehacker.com/how-to-plant-a-window-box-garden-and-keep-it-alive-1846979148) 将带你一步步走过去。

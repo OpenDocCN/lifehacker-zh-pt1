@@ -1,6 +1,6 @@
 # 如何去除那股发霉的樟脑丸味
 
-> 原文:[https://life hacker . com/how-to-摆脱那种发霉的樟脑丸气味-1848920459](https://lifehacker.com/how-to-get-rid-of-that-musty-mothball-smell-1848920459)
+> 原文：<https://lifehacker.com/how-to-get-rid-of-that-musty-mothball-smell-1848920459>
 
 有些气味可以立即辨认出来:新割的草、烤箱里烤的面包和樟脑丸。如果你接触过存放了很长一段时间的衣服或任何类型的纺织品，而且它们还没有被完全破坏，那么你很可能遇到过(并闻到过)樟脑丸。
 

@@ -1,14 +1,14 @@
 # 尝试“直觉跑步”来锻炼，不要过度思考
 
-> 原文:[https://life hacker . com/try-intuitive-running-to-exercise-without-over-thinking-1845749324](https://lifehacker.com/try-intuitive-running-to-exercise-without-overthinking-1845749324)
+> 原文：<https://lifehacker.com/try-intuitive-running-to-exercise-without-overthinking-1845749324>
 
-有时候，我希望我在慢跑的早期，那时你可以穿上一件大地色的运动服，简单地一步一步往前走，直到你觉得你跑完了。r2020年的运行涉及一个Strava、Garmin、应用和统计的世界。即使是最温和、对初学者最友好的跑步学习方法也是经过严格衡量的:这么多秒的步行，这么多秒的跑步，随着每次锻炼而改变，直到你跑完五公里的特定距离。
+有时候，我希望我在慢跑的早期，那时你可以穿上一件大地色的运动服，简单地一步一步往前走，直到你觉得你跑完了。r2020 年的运行涉及一个 Strava、Garmin、应用和统计的世界。即使是最温和、对初学者最友好的跑步学习方法也是经过严格衡量的:这么多秒的步行，这么多秒的跑步，随着每次锻炼而改变，直到你跑完五公里的特定距离。
 
 Watch
 
 这些都没有必要。你总是能跑得或快或慢或远。除非你对比赛有时间目标，否则你的速度并不重要，即使这样，你的大部分训练也应该只包括以任何你觉得舒适的方式花时间跑步。(反正我们大多数人可能都跑得太快了，因为我们担心自己的步伐。宁要 [缓要](https://vitals.lifehacker.com/you-need-to-run-slower-1844984642) 。)
 
-我参加过一些比赛，但是我现在跑步主要是为了健康，因为，嘿，为什么不呢。我不担心任何app上的数字；大多数时候，我什么都不会做。所以，当我看到运动生理学家乔治·托马斯给这种偷懒的方法起了一个非常友好的名字时，我有一种似曾相识的感觉。
+我参加过一些比赛，但是我现在跑步主要是为了健康，因为，嘿，为什么不呢。我不担心任何 app 上的数字；大多数时候，我什么都不会做。所以，当我看到运动生理学家乔治·托马斯给这种偷懒的方法起了一个非常友好的名字时，我有一种似曾相识的感觉。
 
  [https://lifehacker.com/embed/inset/iframe?id=instagram-CH640DABBEh&autosize=1](https://lifehacker.com/embed/inset/iframe?id=instagram-CH640DABBEh&autosize=1) 
 

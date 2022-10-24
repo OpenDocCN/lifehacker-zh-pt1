@@ -1,6 +1,6 @@
 # 如何回收你的运动场地标志
 
-> 原文:[https://life hacker . com/how-to-recycle-your campaign-yard-signs-1845619444](https://lifehacker.com/how-to-recycle-your-campaign-yard-signs-1845619444)
+> 原文：<https://lifehacker.com/how-to-recycle-your-campaign-yard-signs-1845619444>
 
 选举(大部分)已经结束，是时候取下那些竞选场地的标志了。虽然你绝对不应该把一堆标志直接扔进垃圾桶，但你也不能简单地把它们扔进回收站，然后认为它已经完成了。以下是如何将你的草坪标志最终被填埋的可能性降到最低的方法。
 
@@ -13,7 +13,7 @@ Watch
 *   纸
 *   不真实的
 *   塑料#5:大多数波纹塑料标志( [Coroplast](https://www.coastalcreative.com/coroplast-versatility-corrugated-plastic-board/) )
-*   塑料#2或#4:最薄、最柔韧的塑料标牌
+*   塑料#2 或#4:最薄、最柔韧的塑料标牌
 
 在你把标语扔进回收箱之前，和你当地的垃圾处理公司核实一下，看看哪些可以留在路边捡，哪些需要特殊处理。你需要分解你的标牌，你可能需要把塑料标牌和分离的金属支架放在当地的一个地方。
 
@@ -21,7 +21,7 @@ Watch
 
 ### 重复使用它们
 
-通过Pinterest 的简短滚动 [显示，庭院标志可以用于未来的活动、工艺项目、DIY宠物笼等等。以下是一些重复使用标牌的具体方法:](https://www.pinterest.com/supercheapsigns/corrugated-plastic-ideas/?lp=true)
+通过 Pinterest 的简短滚动 [显示，庭院标志可以用于未来的活动、工艺项目、DIY 宠物笼等等。以下是一些重复使用标牌的具体方法:](https://www.pinterest.com/supercheapsigns/corrugated-plastic-ideas/?lp=true)
 
 *   给它们涂上黑板漆，并把它们用于虚拟学校。
 *   为将来的庆祝活动(生日、周年纪念日等)画它们。).

@@ -1,6 +1,6 @@
 # 是的，你的狗会喝太多的水(如何辨别)
 
-> 原文:[https://life hacker . com/yes-your-dog-can-drink-over-more-water-and-how-to-tell-1849079054](https://lifehacker.com/yes-your-dog-can-drink-too-much-water-and-how-to-tell-1849079054)
+> 原文：<https://lifehacker.com/yes-your-dog-can-drink-too-much-water-and-how-to-tell-1849079054>
 
 像人类一样，狗在温暖或炎热的天气里也会过热。但是不像我们，当他们在闷热的天气里需要休息或喝水时，他们不能用语言告诉我们。不过，它们确实向我们发出了信号——比如气喘吁吁，寻找(并坐在)阴凉处，扑通一声倒下(无论他们想去哪里)并拒绝再往前走。如果我们，作为它们的人类，忽视它们，我们的幼崽会过热，或者 [甚至中暑](https://lifehacker.com/dogs-can-suffer-heatstroke-and-other-things-to-know-ab-1847024393) 。
 
@@ -14,7 +14,7 @@ Watch
 
 这种情况最常发生在狗狗们可以使用水源而不是它们通常使用的碗的时候——比如它们在溪流或湖泊中玩耍，在球场附近散步，或者在喷水器中嬉戏几个小时。
 
-像人类一样，当狗喝太多水时，它会使它们的电解质水平失去平衡，耗尽它们的T2钠水平，达到危险的程度。
+像人类一样，当狗喝太多水时，它会使它们的电解质水平失去平衡，耗尽它们的 T2 钠水平，达到危险的程度。
 
 ## 狗体内水分过多的症状
 
@@ -47,6 +47,6 @@ Watch
 
 你的狗在热天(或任何一天，真的)需要喝多少水，取决于数量的因素，包括它们的大小、年龄、活动水平、饮食，以及它们在炎热和潮湿的户外度过的时间，而不是在有空调的家里。
 
-[一般规则](https://www.petmd.com/dog/nutrition/evr_dg_the_importance_of_water) 是狗每天每磅体重应该喝大约一盎司的水(1/8杯)。预计他们在热天会喝得更多，在他们锻炼期间或之后。你也可以使用一个水摄入量计算器， [就像这个](https://www.omnicalculator.com/biology/dog-water-intake) ，来帮你算算。
+[一般规则](https://www.petmd.com/dog/nutrition/evr_dg_the_importance_of_water) 是狗每天每磅体重应该喝大约一盎司的水(1/8 杯)。预计他们在热天会喝得更多，在他们锻炼期间或之后。你也可以使用一个水摄入量计算器， [就像这个](https://www.omnicalculator.com/biology/dog-water-intake) ，来帮你算算。
 
 不幸的是，因为水中毒最常发生在 [狗在水中](https://www.akc.org/expert-advice/health/can-dogs-drink-much-water-dangers-water-intoxication/) 玩耍时，无意中摄入了水(像玩接球游戏或游泳时，而不是故意喝水)，所有这些食物很快就会累积起来，很难估计它们的实际摄入量。

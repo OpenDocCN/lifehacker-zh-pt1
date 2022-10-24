@@ -1,6 +1,6 @@
 # 如何阻止你的空调发出那该死的噪音
 
-> 原文:[https://life hacker . com/how-to-stop-your-AC-unit-from-making all-the-damn-nois-1849139683](https://lifehacker.com/how-to-stop-your-ac-unit-from-making-all-that-damn-nois-1849139683)
+> 原文：<https://lifehacker.com/how-to-stop-your-ac-unit-from-making-all-that-damn-nois-1849139683>
 
 窗式空调不仅对炎热的夏季保持凉爽至关重要(至少对那些没有中央空调的人来说)，而且它们还能提供一些人喜欢在工作或睡觉时听到的舒缓的白噪声。
 
@@ -22,7 +22,7 @@ Watch
 
 类似地，如果你的窗户空调装置的过滤器是设计要更换的类型，不这样做可能会堵塞蒸发器盘管并产生噪音。
 
-**解决方案**:按照之前Lifehacker帖子 中 [的说明，更换你的空气过滤器。当你在那里的时候，](https://lifehacker.com/im-begging-you-to-not-ignore-your-filter-reset-light-1847073105) [清理螺旋翅片](https://www.cnet.com/home/energy-and-utilities/how-to-clean-your-window-air-conditioner-this-summer/) 。
+**解决方案**:按照之前 Lifehacker 帖子 中 [的说明，更换你的空气过滤器。当你在那里的时候，](https://lifehacker.com/im-begging-you-to-not-ignore-your-filter-reset-light-1847073105) [清理螺旋翅片](https://www.cnet.com/home/energy-and-utilities/how-to-clean-your-window-air-conditioner-this-summer/) 。
 
 ### 它需要一些润滑油
 

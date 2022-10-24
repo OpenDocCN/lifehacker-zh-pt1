@@ -1,8 +1,8 @@
 # 为应对飓风，你应该尽早做的一切
 
-> 原文:[https://life hacker . com/everything-you-should-do-now-to-prepare-a-Hur-1848995841](https://lifehacker.com/everything-you-should-do-right-now-to-prepare-for-a-hur-1848995841)
+> 原文：<https://lifehacker.com/everything-you-should-do-right-now-to-prepare-for-a-hur-1848995841>
 
-[飓风伊恩](https://www.nhc.noaa.gov/refresh/graphics_at4+shtml/042148.shtml?inundation) 是一场主要的三级风暴，预计它将带来时速125英里的大风暴雨，并可能在它向佛罗里达州墨西哥湾海岸移动时引发洪水。总的来说，为了对飓风或热带风暴做好准备，你需要提前做好以下事情。
+[飓风伊恩](https://www.nhc.noaa.gov/refresh/graphics_at4+shtml/042148.shtml?inundation) 是一场主要的三级风暴，预计它将带来时速 125 英里的大风暴雨，并可能在它向佛罗里达州墨西哥湾海岸移动时引发洪水。总的来说，为了对飓风或热带风暴做好准备，你需要提前做好以下事情。
 
 Watch
 
@@ -47,4 +47,4 @@ Watch
 
 提前确定你所在地区是否有宠物友好型收容所。如果不是，你需要在紧急情况发生前为你的毛茸茸的朋友准备好一个计划。向邻居或朋友咨询，如果遇到大风暴，你和你的动物是否可以和他们呆在一起。在你的应急包里，也为你的宠物准备一些干粮。
 
-本故事最初发表于2022年5月，并更新了更多信息。
+本故事最初发表于 2022 年 5 月，并更新了更多信息。

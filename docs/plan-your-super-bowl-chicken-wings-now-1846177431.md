@@ -1,6 +1,6 @@
 # 现在就计划你的超级碗鸡翅
 
-> 原文:[https://life hacker . com/plan-your-super-bowl-chicken-wings-now-1846177431](https://lifehacker.com/plan-your-super-bowl-chicken-wings-now-1846177431)
+> 原文：<https://lifehacker.com/plan-your-super-bowl-chicken-wings-now-1846177431>
 
 一个人不一定要看足球才能享受丰盛的鸡翅，但是没有鸡翅我就无法观看这项运动。无论是烧烤、在烤箱中爆炸、油炸，还是用精巧的厨房用具烹饪，好的鸡翅几乎从来不是“最后一分钟”的努力。这就是为什么它适合你现在就想出你的攻击计划，以免你在超级碗周日被发现没有翅膀。
 

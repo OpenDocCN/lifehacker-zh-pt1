@@ -1,6 +1,6 @@
 # 使用“认知洗牌”更快入睡
 
-> 原文:[https://life hacker . com/入睡-更快-使用-认知-洗牌-1847109724](https://lifehacker.com/fall-asleep-faster-using-cognitive-shuffling-1847109724)
+> 原文：<https://lifehacker.com/fall-asleep-faster-using-cognitive-shuffling-1847109724>
 
 我们当中有谁没有经历过一夜无眠(一夜又一夜)呢？睡不着的时候，满脑子想的都是怎么睡不着。如果你现在就能睡着，你甚至可能会不断地重新计算你能睡多久。或者现在的*。*虽然我们知道这种想法阻碍了我们实现睡眠梦的能力，但我们如何阻止它发生呢？根据一位认知科学家的说法，答案可能是一个他称之为“认知洗牌”的技巧。
 
@@ -20,7 +20,7 @@ Watch
 
 1.躺在床上准备睡觉。
 
-2.想一个至少有五个字母的随机的、情感中性的单词。Beaudoin建议以“就寝时间”为例。其他可能是“笔记本电脑”、“桃子”、“电影”或“灯泡”(尽量选择一个没有太多重复字母的词，比如“香蕉”。)
+2.想一个至少有五个字母的随机的、情感中性的单词。Beaudoin 建议以“就寝时间”为例。其他可能是“笔记本电脑”、“桃子”、“电影”或“灯泡”(尽量选择一个没有太多重复字母的词，比如“香蕉”。)
 
 3.慢慢地在脑海中拼出基本单词，然后，从第一个字母开始，想出另一个也是以那个字母开头的单词。想象一下这个单词所代表的物品——如果你的基本单词是“peach”，你将从以字母“p”开头的单词开始，比如“puzzle”、“pig”或“pizza”一次一个，想象每一个项目，停留足够长的时间来在你的脑海中创建一个清晰的画面，然后释放它，继续下一个“p”字。
 
@@ -32,4 +32,4 @@ Watch
 
 > 你累得想不出话来，但还没困到睡着。(比如你半夜醒来的时候。)*   You don't like to think deliberately when trying to fall asleep. Although you practice, you find it difficult to think of words that begin with a certain letter. You find spelling boring.T9】
 
-但是如果条件合适，你只是很难指导自己完成练习，你也可以下载Beaudoin的免费mySleepButton应用程序，用于iOS或Android的 。把它想象成一种有指导的睡眠冥想，而不是在沉默中冥想——从有指导的版本开始会有所帮助，直到你自己能够自如地引导练习。希望做个好梦。
+但是如果条件合适，你只是很难指导自己完成练习，你也可以下载 Beaudoin 的免费 mySleepButton 应用程序，用于 iOS 或 Android 的 。把它想象成一种有指导的睡眠冥想，而不是在沉默中冥想——从有指导的版本开始会有所帮助，直到你自己能够自如地引导练习。希望做个好梦。

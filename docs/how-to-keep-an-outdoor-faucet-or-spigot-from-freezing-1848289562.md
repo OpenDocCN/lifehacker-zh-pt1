@@ -1,6 +1,6 @@
 # 如何防止室外水龙头结冰
 
-> 原文:[https://life hacker . com/how-to-keep-an-outdoor-水龙头不结冰-1848289562](https://lifehacker.com/how-to-keep-an-outdoor-faucet-or-spigot-from-freezing-1848289562)
+> 原文：<https://lifehacker.com/how-to-keep-an-outdoor-faucet-or-spigot-from-freezing-1848289562>
 
 即使你在冬天可能不会像在夏天那样频繁地使用你的室外水龙头，但这并不意味着你可以整个季节都忘记它。那是因为如果你的室外水龙头、水管和里面的水结冰，它 [可能会导致水管](https://www.mrrooter.ca/about/blog/2020/january/how-to-protect-outdoor-faucets-from-freezing/) 爆裂，并潜在地给你的房子造成一些严重的损害。
 

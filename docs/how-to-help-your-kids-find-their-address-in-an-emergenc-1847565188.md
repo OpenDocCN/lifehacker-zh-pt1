@@ -1,8 +1,8 @@
 # 如何在紧急情况下帮助您的孩子找到他们的地址
 
-> 原文:[https://life hacker . com/how-to-help-your-kids-find-their-address in-a-emergenc-1847565188](https://lifehacker.com/how-to-help-your-kids-find-their-address-in-an-emergenc-1847565188)
+> 原文：<https://lifehacker.com/how-to-help-your-kids-find-their-address-in-an-emergenc-1847565188>
 
-如果你打过911，你会知道他们问你的第一件事是你的位置，通常在你说你为什么打电话之前。所以，当你教你的孩子如何用你的电话拨打紧急号码时，确保他们也知道他们的地址。贴纸会有帮助。
+如果你打过 911，你会知道他们问你的第一件事是你的位置，通常在你说你为什么打电话之前。所以，当你教你的孩子如何用你的电话拨打紧急号码时，确保他们也知道他们的地址。贴纸会有帮助。
 
 Watch
 

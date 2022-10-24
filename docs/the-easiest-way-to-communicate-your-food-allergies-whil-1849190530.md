@@ -1,6 +1,6 @@
 # 旅行时交流食物过敏的最简单方法
 
-> 原文:[https://life hacker . com/the-easy-way-communication-your food-allergies-whil-1849190530](https://lifehacker.com/the-easiest-way-to-communicate-your-food-allergies-whil-1849190530)
+> 原文：<https://lifehacker.com/the-easiest-way-to-communicate-your-food-allergies-whil-1849190530>
 
 如果你有食物过敏或可能需要向他人解释的健康状况，出国旅行会带来新的挑战。你必须想出如何用一种你可能说不好(或者根本不会说)的语言来解释自己，以确保你不会吃下不该吃的东西。这就是翻译医疗卡 的用武之地——如果你没有足够的信心制作自己的医疗卡，你可以从几个网上渠道购买。
 
@@ -12,11 +12,11 @@ Watch
 
 *   [精挑细选](https://www.selectwisely.com/catalog/All_Products) ，其中提供多种卡牌选择。
 *   [等于吃](https://equaleats.com/) ，哪个让你自定义设计一张牌。
-*   [过敏症&过敏症澳大利亚，它为提供了一个可下载的PDF文件](https://allergyfacts.org.au/resources/aaa-translated-chef-card-template) ，你可以对其进行定制，以包括你过敏的食物。
-*   FoodAllergy.org也有免费下载的卡。
+*   [过敏症&过敏症澳大利亚，它为提供了一个可下载的 PDF 文件](https://allergyfacts.org.au/resources/aaa-translated-chef-card-template) ，你可以对其进行定制，以包括你过敏的食物。
+*   FoodAllergy.org 也有免费下载的卡。
 
 除了食物过敏，你可能还需要一张卡来治疗其他疾病。明智地选择有糖尿病，哮喘和更多的卡。例如，糖尿病卡上有要求该人给你糖的语言，所以如果你低血糖，你可以指向这条消息。还有一条请求帮助搭车去医院的信息。
 
 在你把你的健康托付给一张上面有你不太理解的单词的纸之前，聪明的做法是让一个会双语的人来验证这张卡片确切地表达了你的意思，并且你将能够理解服务员或厨师是如何回应的。明智地选择卡片通常以一个问题结尾，比如“这食物里有坚果吗？”应该有一个明确的是/否答案。
 
-当然，你也可以走DIY路线:把你的信息翻译出来，然后自己制作卡片或截图，把你想说的话保存到手机里。只要确保你仍然让精通目标语言的人来看，这样你就不会在不知不觉中依赖糟糕的谷歌翻译。
+当然，你也可以走 DIY 路线:把你的信息翻译出来，然后自己制作卡片或截图，把你想说的话保存到手机里。只要确保你仍然让精通目标语言的人来看，这样你就不会在不知不觉中依赖糟糕的谷歌翻译。

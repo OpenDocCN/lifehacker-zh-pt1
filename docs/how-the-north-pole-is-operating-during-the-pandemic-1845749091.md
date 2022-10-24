@@ -1,6 +1,6 @@
 # 疫情期间北极是如何运转的
 
-> 原文:[https://life hacker . com/how-the-north-pole-is-operating-in-the-疫情-1845749091](https://lifehacker.com/how-the-north-pole-is-operating-during-the-pandemic-1845749091)
+> 原文：<https://lifehacker.com/how-the-north-pole-is-operating-during-the-pandemic-1845749091>
 
 你的孩子可能会关心圣诞老人今年一年一度的环球旅行——这是理所当然的。我们刚刚花了几个月解释为什么他们不能去学校，体操班，夏令营，他们朋友家，奶奶家，或者其他任何地方，真的。你已经告诉他们为什么感恩节或圣诞节你不会去拜访家人，我们都必须蹲下来保护彼此免受冠状病毒的侵害。然而...圣诞老人肯定不会离开拥挤的北极飞往世界各地，潜在地感染每个人，他会吗？
 
@@ -34,7 +34,7 @@ Watch
 
 北极有很多精灵，但谢天谢地，圣诞老人的工作室很大，这使得适当的社交距离变得可行。清洁人员也定期对玩具制造工具和机械进行消毒，洗手液分配器可以在每个工作站附近看到。
 
-考虑到寒冷的温度，最棘手的部分是保持车间通风良好。然而，考虑到气候变化 导致的 [【北极变暖】(也就是说，在过去30年里，北极变暖的速度大约是全球变暖速度的两倍)，它不像以前那么冷了。](https://nsidc.org/cryosphere/arctic-meteorology/climate_change.html#:~:text=Over%20the%20past%2030%20years,of%20human%2Dcaused%20climate%20change.)
+考虑到寒冷的温度，最棘手的部分是保持车间通风良好。然而，考虑到气候变化 导致的 [【北极变暖】(也就是说，在过去 30 年里，北极变暖的速度大约是全球变暖速度的两倍)，它不像以前那么冷了。](https://nsidc.org/cryosphere/arctic-meteorology/climate_change.html#:~:text=Over%20the%20past%2030%20years,of%20human%2Dcaused%20climate%20change.)
 
 另外，这些精灵和其他生物一生都住在北极；他们习惯了清新的空气。
 

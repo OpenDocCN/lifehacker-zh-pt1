@@ -1,6 +1,6 @@
 # 如何修复浴缸里的芯片
 
-> 原文:[https://life hacker . com/how-to-fix-a-chip-in-your-tubble-1848984857](https://lifehacker.com/how-to-fix-a-chip-in-your-bathtub-1848984857)
+> 原文：<https://lifehacker.com/how-to-fix-a-chip-in-your-bathtub-1848984857>
 
 无论你有一个世纪之久的独立式克劳福特模型，一个五颜六色的世纪中期的嵌入式，还是更现代的，你的浴缸可能会占据你浴室的很大一部分。就算你不定期洗澡(而如果真是这样， [为什么不呢？](https://lifehacker.com/how-to-perfect-the-art-of-bathing-1844593912) )，你还在它附近呆了很长时间。
 
@@ -18,7 +18,7 @@ Watch
 
 ### 清洁该区域
 
-为了让环氧树脂附着在你的浴缸上， [该区域需要清洁](https://www.thisoldhouse.com/bathrooms/23030814/how-to-repair-a-chipped-bathtub)——没有死皮、肥皂沫和任何其他堆积的粘糊糊的东西。首先用洗洁精擦洗污渍，比如洗碗皂或清洁剂、脱脂剂，或者带一点砂砾的东西，比如Bar K eeper s Friend。接着用 [酒精或丙酮](https://toolsspecialist.com/how-to-fix-a-chipped-bathtub/) 擦拭该区域，去除任何残留的残留物。最后用 [无绒布](https://www.thisoldhouse.com/bathrooms/23030814/how-to-repair-a-chipped-bathtub) 擦干。
+为了让环氧树脂附着在你的浴缸上， [该区域需要清洁](https://www.thisoldhouse.com/bathrooms/23030814/how-to-repair-a-chipped-bathtub)——没有死皮、肥皂沫和任何其他堆积的粘糊糊的东西。首先用洗洁精擦洗污渍，比如洗碗皂或清洁剂、脱脂剂，或者带一点砂砾的东西，比如 Bar K eeper s Friend。接着用 [酒精或丙酮](https://toolsspecialist.com/how-to-fix-a-chipped-bathtub/) 擦拭该区域，去除任何残留的残留物。最后用 [无绒布](https://www.thisoldhouse.com/bathrooms/23030814/how-to-repair-a-chipped-bathtub) 擦干。
 
 ### 混合环氧树脂
 
@@ -30,7 +30,7 @@ Watch
 
 ### 让那层变干
 
-环氧树脂层通常需要三到五个小时才能干燥，但如果可能的话，让它保持24小时，这样你就知道它已经固化了。干燥后，环氧树脂应该和浴缸本身一样硬。
+环氧树脂层通常需要三到五个小时才能干燥，但如果可能的话，让它保持 24 小时，这样你就知道它已经固化了。干燥后，环氧树脂应该和浴缸本身一样硬。
 
 ### 打磨污点
 

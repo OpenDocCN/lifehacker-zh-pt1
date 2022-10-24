@@ -1,6 +1,6 @@
 # 为什么你的厨房需要油漆刷
 
-> 原文:[https://life hacker . com/why-your ' s kitchen-need-a paint-brush-1846398404](https://lifehacker.com/why-your-kitchen-needs-a-paint-brush-1846398404)
+> 原文：<https://lifehacker.com/why-your-kitchen-needs-a-paint-brush-1846398404>
 
 我讨厌面包屑。比溢出或甚至粘点更糟糕的是，面包屑分散、粘附并隐藏在裂缝和微波炉后面，在那里它们能够躲避湿抹布或纸巾。但幸运的是，它们被一把旧的或廉价的画笔征服了。
 

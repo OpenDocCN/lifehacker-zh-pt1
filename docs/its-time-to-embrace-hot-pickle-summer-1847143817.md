@@ -1,6 +1,6 @@
 # 是时候拥抱热泡菜的夏天了
 
-> 原文:[https://life hacker . com/its-time-to-embrace-hot-pickle-summer-1847143817](https://lifehacker.com/its-time-to-embrace-hot-pickle-summer-1847143817)
+> 原文：<https://lifehacker.com/its-time-to-embrace-hot-pickle-summer-1847143817>
 
 在一个科学家称之为“并不那么令人惊讶”的虚构事件中，我已经变得对烹饪黄瓜着迷了，不管是腌制的还是原味的。首先我 [在炭火上煮了一些后者](https://lifehacker.com/you-should-grill-a-cucumber-1846967681) ，然后我把注意力转向了，现在我完全——我是说*完全*关于——烤泡菜。
 
@@ -8,7 +8,7 @@ Watch
 
 烤泡菜之于烤黄瓜，就像咸牛肉之于烟熏牛腩——它们都受益于我的韦伯的烟熏热，但其中只有一种是腌的。但是不像牛腩——咸的也好，不咸的也好——烤泡菜可以在几分钟内做好。
 
-之前写过烤咸菜，只是操作顺序略有不同。烧烤蔬菜和 [*然后*腌制它们](https://lifehacker.com/grill-vegetables-before-pickling-or-marinating-them-1828057997) 当然增加了一点维度(和焦)，但是腌制和*然后*烧烤创造了更多有趣的味道。盐水中的糖使T8和T9变成焦糖，结果尝起来非常棒。泡菜的酸味稍微缓和了，而味道却增加了。这是一道美味的泡菜。
+之前写过烤咸菜，只是操作顺序略有不同。烧烤蔬菜和 [*然后*腌制它们](https://lifehacker.com/grill-vegetables-before-pickling-or-marinating-them-1828057997) 当然增加了一点维度(和焦)，但是腌制和*然后*烧烤创造了更多有趣的味道。盐水中的糖使 T8 和 T9 变成焦糖，结果尝起来非常棒。泡菜的酸味稍微缓和了，而味道却增加了。这是一道美味的泡菜。
 
 ## 如何烧烤泡菜
 

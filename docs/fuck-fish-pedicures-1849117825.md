@@ -1,6 +1,6 @@
 # 去他妈的“鱼足疗”
 
-> 原文:[https://lifehacker.com/fuck-fish-pedicures-1849117825](https://lifehacker.com/fuck-fish-pedicures-1849117825)
+> 原文：<https://lifehacker.com/fuck-fish-pedicures-1849117825>
 
 上次你在国外的时候，你可能看过鱼足疗的视频或者看到过鱼足疗的广告。金·卡戴珊(Kim Kardashian)在希腊就有一个，当小鱼啃掉她脚上的死皮时，她在镜头前尖叫。这个想法为美国观众所熟悉，但在我们的日常生活中并不常见——鱼足疗在许多州实际上是非法的，包括德克萨斯州、纽约州、新泽西州和加利福尼亚州。这可能看起来很恶心，但却无伤大雅，但是在你把脚放进一个小水箱之前，有些事情你应该知道。
 
@@ -28,8 +28,8 @@ Watch
 
 你可能仍然想知道做鱼疗是什么感觉，这是一个公平的问题，尽管金·卡戴珊尖叫的持久记忆应该是一个线索，让鱼在你的脚周围游动并轻咬它们感觉就像你所期望的那样。
 
-一位名叫 [的博主，拉荷亚妈妈](https://lajollamom.com/doctor-fish-spa-pedicure/#:~:text=It%20tickles%2C%20but%20not%20more,feel%20ever%20so%20slightly%20cleaner.) 描述了她的经历，她说“这很痒，但不比普通修脚更痒。”她说，在50条或更多的鱼围着她的每只脚转了10分钟后，她的脚“确实感觉稍微干净了一些。”当你做一次正常的足疗时，你的脚也会变得更加干净。
+一位名叫 [的博主，拉荷亚妈妈](https://lajollamom.com/doctor-fish-spa-pedicure/#:~:text=It%20tickles%2C%20but%20not%20more,feel%20ever%20so%20slightly%20cleaner.) 描述了她的经历，她说“这很痒，但不比普通修脚更痒。”她说，在 50 条或更多的鱼围着她的每只脚转了 10 分钟后，她的脚“确实感觉稍微干净了一些。”当你做一次正常的足疗时，你的脚也会变得更加干净。
 
-另一位作家 [为奔忙](https://www.bustle.com/p/what-does-a-fish-pedicure-feel-like-i-got-one-so-you-dont-have-to-59535) 详细描述了“鱼攻击”她“吓坏了”并开始尖叫和哭泣，然后将脚从浴缸中拔出来。她重新将它们浸入水中，但只持续了规定的20分钟中的15分钟。
+另一位作家 [为奔忙](https://www.bustle.com/p/what-does-a-fish-pedicure-feel-like-i-got-one-so-you-dont-have-to-59535) 详细描述了“鱼攻击”她“吓坏了”并开始尖叫和哭泣，然后将脚从浴缸中拔出来。她重新将它们浸入水中，但只持续了规定的 20 分钟中的 15 分钟。
 
 不言而喻，但是我如果你担心鱼修脚会很恶心或有压力，仅仅为了刺激或社交媒体内容可能不值得这么做。还有潜在的感染，虐待动物，和出血，这似乎是一个非常简单的特技来避免。

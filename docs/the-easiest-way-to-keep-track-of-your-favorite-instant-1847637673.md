@@ -1,6 +1,6 @@
 # 最简单的方法来跟踪你最喜欢的即时锅煮时间
 
-> 原文:[https://life hacker . com/the-easy-way-keep-track-of-your favorite-instant-1847637673](https://lifehacker.com/the-easiest-way-to-keep-track-of-your-favorite-instant-1847637673)
+> 原文：<https://lifehacker.com/the-easiest-way-to-keep-track-of-your-favorite-instant-1847637673>
 
 如果你有一个速溶壶——或者我继母喜欢称之为“一锅”——你可能已经注意到互联网上贴满了速溶壶的图片和备忘单。这些时间和水比例的表格以层压的表格、磁铁和简单的打印输出的形式出现，但是它们经常相互冲突，大多数厨师都有他们的最爱。
 

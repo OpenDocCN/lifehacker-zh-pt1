@@ -1,16 +1,16 @@
 # 即使你很少使用你的设备，你也需要给它们充电
 
-> 原文:[https://life hacker . com/you-need-to-charge-your-devices-even-if-you-less-use-1845244882](https://lifehacker.com/you-need-to-charge-your-devices-even-if-you-rarely-use-1845244882)
+> 原文：<https://lifehacker.com/you-need-to-charge-your-devices-even-if-you-rarely-use-1845244882>
 
-任天堂 [最近警告交换机所有者](https://kotaku.com/charge-your-switch-every-six-months-says-nintendo-1845225010) 不定期(在这种情况下，至少每六个月左右)给游戏机充电可能会影响电池寿命。这是一个很容易避免的问题——如果你不怎么使用它来耗尽电池，只要确保你每年给你的Switch或Switch Lite充电两次左右——但这不是任天堂硬件独有的问题。
+任天堂 [最近警告交换机所有者](https://kotaku.com/charge-your-switch-every-six-months-says-nintendo-1845225010) 不定期(在这种情况下，至少每六个月左右)给游戏机充电可能会影响电池寿命。这是一个很容易避免的问题——如果你不怎么使用它来耗尽电池，只要确保你每年给你的 Switch 或 Switch Lite 充电两次左右——但这不是任天堂硬件独有的问题。
 
 Watch
 
 每一个带充电电池的小工具都需要定期充电，以避免无数的问题，即使是那些你只是偶尔使用一次的。一些电池如果闲置太久就会停止充电，而另一些电池最终可能会经历化学反应导致……爆炸结果。
 
-你很少使用并且不太可能更换的设备是最危险的——想一想那台旧的 [PlayStation便携掌上电脑](https://www.techradar.com/news/psp-owners-beware-you-might-want-to-check-your-playstation-portable-battery) 当冲动袭来时你仍然会拿出来，你只在夏季野营旅行中使用的便携电池组，或者你在大学时买的并且从起就一直持有的那台DSLR的电池组。
+你很少使用并且不太可能更换的设备是最危险的——想一想那台旧的 [PlayStation 便携掌上电脑](https://www.techradar.com/news/psp-owners-beware-you-might-want-to-check-your-playstation-portable-battery) 当冲动袭来时你仍然会拿出来，你只在夏季野营旅行中使用的便携电池组，或者你在大学时买的并且从起就一直持有的那台 DSLR 的电池组。
 
-推荐的充电间隔因设备和电池类型而异，但是每三到六个月给你未使用的硬件充电一次似乎是普遍的建议。如果可能的话，在收起来之前，试着给你的旧设备充电50%左右。如果只是放回抽屉中，没有必要耗尽电池，因为那也会影响 [的整体容量。(且抽屉理想情况下应该在](https://www.call2recycle.org/consumer-safety-tips) [阴凉干燥的位置](https://support.garmin.com/en-US/?faq=MRS4iKokKE7I2TT6AwsxG7) )。)
+推荐的充电间隔因设备和电池类型而异，但是每三到六个月给你未使用的硬件充电一次似乎是普遍的建议。如果可能的话，在收起来之前，试着给你的旧设备充电 50%左右。如果只是放回抽屉中，没有必要耗尽电池，因为那也会影响 [的整体容量。(且抽屉理想情况下应该在](https://www.call2recycle.org/consumer-safety-tips) [阴凉干燥的位置](https://support.garmin.com/en-US/?faq=MRS4iKokKE7I2TT6AwsxG7) )。)
 
 也就是说，不要立即催促插上你几个月或几年没用过的齿轮；其中一些电池可能不安全。检查你的旧硬件是否有膨胀、裂缝、腐蚀或电池漏液——特别是如果它们已经被放在亭没动过的壁橱或温暖的车库里。
 
@@ -18,6 +18,6 @@ Watch
 
 ### 智能手机、平板电脑和笔记本电脑呢？
 
-虽然你偶尔使用的技术最有可能长期退化，但你每天使用的iPhones、Android设备和笔记本电脑的电池也会受到充电不足的影响，尽管方式不同。
+虽然你偶尔使用的技术最有可能长期退化，但你每天使用的 iPhones、Android 设备和笔记本电脑的电池也会受到充电不足的影响，尽管方式不同。
 
-现代智能手机、平板电脑和笔记本电脑通常会在长达500次循环(将电池电量耗尽至零，然后完全充电)后，电池寿命才会缩短。然而，部分充电不计入全周期计数，这就是为什么你 [不应该让你的智能手机或笔记本电脑的电池完全耗尽，如果你能避免的话](https://lifehacker.com/stop-letting-your-smartphones-battery-die-before-you-ch-1828420290) 。好消息是什么？Y 你可以安全地将这些设备插上电源，而不会比你已经做的更容易损坏电池。
+现代智能手机、平板电脑和笔记本电脑通常会在长达 500 次循环(将电池电量耗尽至零，然后完全充电)后，电池寿命才会缩短。然而，部分充电不计入全周期计数，这就是为什么你 [不应该让你的智能手机或笔记本电脑的电池完全耗尽，如果你能避免的话](https://lifehacker.com/stop-letting-your-smartphones-battery-die-before-you-ch-1828420290) 。好消息是什么？Y 你可以安全地将这些设备插上电源，而不会比你已经做的更容易损坏电池。

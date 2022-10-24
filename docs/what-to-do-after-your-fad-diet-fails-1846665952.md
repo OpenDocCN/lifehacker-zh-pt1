@@ -1,12 +1,12 @@
 # 你的时尚饮食失败后该怎么办
 
-> 原文:[https://life hacker . com/what-to-do-after-your-fad-diet-fails-1846665952](https://lifehacker.com/what-to-do-after-your-fad-diet-fails-1846665952)
+> 原文：<https://lifehacker.com/what-to-do-after-your-fad-diet-fails-1846665952>
 
 节食往往会失败，而那些承诺通过遵循一个奇怪的技巧来快速减肥的节食者尤其注定会失败。如果你刚刚经历过其中的一种，不要只是尝试不同的时尚饮食；相反，花一分钟反思你所学到的，并制定一个计划，在未来吃得更健康。
 
 Watch
 
-但是在你得到我们下面的建议之前，考虑使用国家饮食失调协会的 [这种饮食失调筛查工具来检查你与食物和你的身体形象的关系。NEDA也有一条](https://www.nationaleatingdisorders.org/screening-tool) [热线](https://www.nationaleatingdisorders.org/help-support/contact-helpline) ，你可以打电话或发短信。
+但是在你得到我们下面的建议之前，考虑使用国家饮食失调协会的 [这种饮食失调筛查工具来检查你与食物和你的身体形象的关系。NEDA 也有一条](https://www.nationaleatingdisorders.org/screening-tool) [热线](https://www.nationaleatingdisorders.org/help-support/contact-helpline) ，你可以打电话或发短信。
 
 ### 重新编程你自己
 
@@ -22,7 +22,7 @@ Watch
 
 体重每天都在波动，这不仅仅是脂肪增加或减少的问题。你肚子里的食物有重量；你身体所有组织中的水分也是如此，当你体内的水分越多，你就会越重。如果你摄入大量碳水化合物，你的肌肉中会有更多的糖原和水；如果你坚持低碳水化合物饮食，你会从储存的糖原(碳水化合物)中减肥。同时，如果你有一个月经周期，你可能会发现你在一个月中有体重较重的时候，也有体重较轻的时候。
 
-出于所有这些原因，短期体重减轻(或增加)并不总是与脂肪有关。如果你在速成节食的头一两周减掉了5磅，很有可能其中很少一部分是真正的脂肪——，如果你在某个时候又反弹了，你也不会逆转你的进步。
+出于所有这些原因，短期体重减轻(或增加)并不总是与脂肪有关。如果你在速成节食的头一两周减掉了 5 磅，很有可能其中很少一部分是真正的脂肪——，如果你在某个时候又反弹了，你也不会逆转你的进步。
 
 在几周的时间里，如果你迅速减肥，你也可能随着脂肪一起失去肌肉。肌肉对整体健康很重要，也能让你锻炼，所以在你节食结束或失败后，如果你减掉太多，恢复肌肉实际上是健康的。
 
@@ -32,7 +32,7 @@ Watch
 
 所有的减肥食谱都是一样的，那就是给你一个框架，让你摄入的热量少于消耗的热量。有很多不同的方法可以做到这一点:你可以计算每一卡路里，你可以减少某些食物的摄入量，或者你可以在你的日常饮食中吃稍微少一点的食物，等等。选择一种吸引你的方法。如果你看到一周比一周稳定的变化，你就会知道它在起作用。
 
-如果你想追踪卡路里或者宏， [我们推荐Cronometer胜过更受欢迎的MyFitnessPal](https://vitals.lifehacker.com/why-you-should-dump-myfitnesspal-for-cronometer-1837835080)；它的数据库更加精确，界面更加易用和友好。
+如果你想追踪卡路里或者宏， [我们推荐 Cronometer 胜过更受欢迎的 MyFitnessPal](https://vitals.lifehacker.com/why-you-should-dump-myfitnesspal-for-cronometer-1837835080)；它的数据库更加精确，界面更加易用和友好。
 
 ### 实际上吃一些蛋白质
 

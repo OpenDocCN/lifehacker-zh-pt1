@@ -1,6 +1,6 @@
 # 如何预防游泳者的耳朵
 
-> 原文:[https://life hacker . com/how-to-prevent-flowers-ear-1849136083](https://lifehacker.com/how-to-prevent-swimmers-ear-1849136083)
+> 原文：<https://lifehacker.com/how-to-prevent-swimmers-ear-1849136083>
 
 现在夏天正如火如荼地进行，那些足够幸运拥有自己游泳池的人(或者至少住在有游泳池的人附近)可能会在水里呆很长时间。虽然这是在热天降温的好方法，但你可能会有一些不愉快的后遗症，比如晒伤或游泳者的耳朵。
 

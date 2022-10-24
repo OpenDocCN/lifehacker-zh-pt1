@@ -1,6 +1,6 @@
 # 为什么你应该为你的室内植物节约用水
 
-> 原文:[https://life hacker . com/why-you-should-save your-cooking-water for your house-p-1848385645](https://lifehacker.com/why-you-should-save-your-cooking-water-for-your-house-p-1848385645)
+> 原文：<https://lifehacker.com/why-you-should-save-your-cooking-water-for-your-house-p-1848385645>
 
 我通常不擅长照料室内植物。我目前有三种室内植物，它们都是“活的，”，但它们并不完全茁壮成长。也许是太平洋西北部的低光照水平(我听说这里有灯)，或者是我的零星浇水计划。也许我的植物在我的窗台上没有得到它们需要的营养来过它们最好的生活。
 

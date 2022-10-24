@@ -1,6 +1,6 @@
 # 这就是你如何解决一个凌乱的夏季冰淇淋甜筒
 
-> 原文:[https://life hacker . com/this-is-how-you-fix-a-dirty-summer-ice cream-cone-1849025130](https://lifehacker.com/this-is-how-you-fix-a-messy-summer-ice-cream-cone-1849025130)
+> 原文：<https://lifehacker.com/this-is-how-you-fix-a-messy-summer-ice-cream-cone-1849025130>
 
 也许你已经注意到，我一直在 [思考](https://lifehacker.com/up-your-ice-cream-game-with-one-of-these-easy-sundae-sa-1849015466) 和 [写关于](https://lifehacker.com/why-you-should-chop-your-sundae-cherries-1849024945) 冰淇淋的一大堆东西。炎热的天气需要冷食，虽然我(一个太平洋西北部的居民)仍然缺乏持续的阳光，但我知道某个地方很热，知道这就够了。
 
@@ -16,4 +16,4 @@ Watch
 
 第三种方法是——巴布斯没有提到，但我可以用我敏锐的眼睛看出来——在加入冰淇淋之前，先在纸杯蛋糕衬垫上撒上粉末。这些勺子出来时已经预先撒上了糖霜，这意味着它们会一直留在你的嘴里。(试试用花生做鼓槌的感觉。)
 
-除了冰淇淋，值得注意的是，Babs是一个很好的跟随者，他还有其他很棒的秘籍、 [秘籍](https://www.instagram.com/p/CdqABlaFEtY/) 和与冰淇淋无关的建议，包括本周我很兴奋尝试的 [除草剂秘籍](https://www.instagram.com/p/CdskvInl7tH/) 。(在俄勒冈，我可能晒不到多少太阳，但我这里雨水很多，杂草丛生。)
+除了冰淇淋，值得注意的是，Babs 是一个很好的跟随者，他还有其他很棒的秘籍、 [秘籍](https://www.instagram.com/p/CdqABlaFEtY/) 和与冰淇淋无关的建议，包括本周我很兴奋尝试的 [除草剂秘籍](https://www.instagram.com/p/CdskvInl7tH/) 。(在俄勒冈，我可能晒不到多少太阳，但我这里雨水很多，杂草丛生。)

@@ -1,6 +1,6 @@
 # 你从来不知道可以重复使用香蕉皮的最奇怪的方法
 
-> 原文:[https://life hacker . com/the-vergeest-ways-you-unknow-you-can-reuse-your-b-1849152343](https://lifehacker.com/the-weirdest-ways-you-never-knew-you-could-reuse-your-b-1849152343)
+> 原文：<https://lifehacker.com/the-weirdest-ways-you-never-knew-you-could-reuse-your-b-1849152343>
 
 吃香蕉的“正确”方式仍然没有定论，但不可否认的是，如果你只是把香蕉皮扔进垃圾桶，你就是在浪费它。香蕉皮具有 [消炎](https://www.thaiscience.info/Article%20for%20ThaiScience/Article/62/10038948.pdf) 和 [抗氧化](https://www.sciencedirect.com/science/article/abs/pii/S1756464617306783?via%3Dihub) 的特性，但它们也可以以一些怪异、有创意的方式在家里使用。不要麻烦把香蕉皮放在你的花园土壤里——那有点儿荒唐。
 

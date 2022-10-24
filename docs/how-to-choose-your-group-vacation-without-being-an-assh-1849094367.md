@@ -1,18 +1,18 @@
 # 如何选择你的集体假期而不成为一个混蛋
 
-> 原文:[https://life hacker . com/how-to-choose-your-group-vacation-without-an-assh-1849094367](https://lifehacker.com/how-to-choose-your-group-vacation-without-being-an-assh-1849094367)
+> 原文：<https://lifehacker.com/how-to-choose-your-group-vacation-without-being-an-assh-1849094367>
 
 团体旅行可以让你梦想成真——你永远不会忘记与家人、朋友或伴侣一起漫步海滩或探索新城市的美好回忆。但是在你到达梦想中的度假地点或者在 [你的终极旅行电子表格](https://lifehacker.com/how-to-create-the-ultimate-travel-spreadsheet-and-why-1848623260) 中开始计划之前，你需要克服实际决定去哪里的头痛。
 
 Watch
 
-虽然理论上假期听起来很奢侈，但是把一群人从A点召集到B点所需的工作会给你们的关系带来压力。我很想在地图上扔一个飞镖，并根据我浪漫的自发性购买一张机票，但群体决策的现实要紧张得多。以下是如何选择你的集体假期而不变成一个混蛋。
+虽然理论上假期听起来很奢侈，但是把一群人从 A 点召集到 B 点所需的工作会给你们的关系带来压力。我很想在地图上扔一个飞镖，并根据我浪漫的自发性购买一张机票，但群体决策的现实要紧张得多。以下是如何选择你的集体假期而不变成一个混蛋。
 
 ## 群体决策总是很难
 
-提高你决策能力的方法并不缺乏。有[37%决策法则](https://lifehacker.com/use-the-37-rule-to-make-better-decisions-1848916008) ，还有我们的 [做出更好决策的指南](https://lifehacker.com/how-to-make-better-decisions-1829224542) 一般。不幸的是，group dynamics将这些经典的技巧扔出了窗外。
+提高你决策能力的方法并不缺乏。有[37%决策法则](https://lifehacker.com/use-the-37-rule-to-make-better-decisions-1848916008) ，还有我们的 [做出更好决策的指南](https://lifehacker.com/how-to-make-better-decisions-1829224542) 一般。不幸的是，group dynamics 将这些经典的技巧扔出了窗外。
 
-在深入了解地点和住宿的细节之前，你必须评估你的旅游团。你的影响力自然取决于你在T2团队中的角色，在他的预先计划阶段，你必须了解一个混蛋可以采取的所有不同形式。
+在深入了解地点和住宿的细节之前，你必须评估你的旅游团。你的影响力自然取决于你在 T2 团队中的角色，在他的预先计划阶段，你必须了解一个混蛋可以采取的所有不同形式。
 
 显而易见:过度控制和挑剔的人会很快成为团队中的混蛋。然而，也有可能*太“*低维护。”如果你冷漠到不说话或根本不参与集体决策，你同样很难共事。你把做决定的负担放在别人身上，这是另一种混蛋。
 
@@ -26,22 +26,22 @@ Watch
 
 *   **地点**。你愿意旅行多远？你想要什么样的天气？总体体验呢:一个人想要放松的假期，而另一个人想要挑战性的文化冲击吗？
 *   **预算**。这是完全消除昂贵选择的最有帮助的方法之一。
-*   **住宿**。招待所是不可能的吗？你能租下整个海滩别墅吗？考虑寻找Airbnb 的最佳租赁选择 [。](https://lifehacker.com/the-best-vacation-rental-alternatives-to-airbnb-1849088885)
-*   **COVID安全**。如果有人对飞行感到不舒服，那么你的假期一定在开车的距离之内。
+*   **住宿**。招待所是不可能的吗？你能租下整个海滩别墅吗？考虑寻找 Airbnb 的最佳租赁选择 [。](https://lifehacker.com/the-best-vacation-rental-alternatives-to-airbnb-1849088885)
+*   **COVID 安全**。如果有人对飞行感到不舒服，那么你的假期一定在开车的距离之内。
 *   **时间承诺**。如果你要预订国际航班，你愿意在国外呆多久？如果有些人愿意，他们能远程工作吗？人们想要强加什么样的时间限制？
 
 在主要的交易破坏者之后，开始在所有的小事情上工作，像食物，拍照的机会，和特定的景点。这些都会对不同的人产生不同程度的影响。在加入小组之前，先研究一下你想体验什么。
 
 ## **如何收集和权衡大家的意见**
 
-现在你已经创建了一个决定因素的列表，你需要一个方法来收集和评估每个人的意见。第三方投票应用程序、、[像涂鸦投票](https://doodle.com/make-a-poll)、、[像谷歌表单](https://www.google.com/forms/about/)、，是收集和组织每个人想法的简单方法。除了投票之外，你还可以 [**创建一个锦标赛组别**](https://challonge.com/tournament/bracket_generator) 将你所有不同的目的地选项放在一起，直到出现赢家。如果“投票”在你的群体动态中没有意义，你也可以在**共享愿望列表**中达成群体共识。这可以是一个DIY协作文档或 [旅行电子表格](https://lifehacker.com/how-to-create-the-ultimate-travel-spreadsheet-and-why-1848623260) ，每个人都可以编辑和添加他们的输入。
+现在你已经创建了一个决定因素的列表，你需要一个方法来收集和评估每个人的意见。第三方投票应用程序、、[像涂鸦投票](https://doodle.com/make-a-poll)、、[像谷歌表单](https://www.google.com/forms/about/)、，是收集和组织每个人想法的简单方法。除了投票之外，你还可以 [**创建一个锦标赛组别**](https://challonge.com/tournament/bracket_generator) 将你所有不同的目的地选项放在一起，直到出现赢家。如果“投票”在你的群体动态中没有意义，你也可以在**共享愿望列表**中达成群体共识。这可以是一个 DIY 协作文档或 [旅行电子表格](https://lifehacker.com/how-to-create-the-ultimate-travel-spreadsheet-and-why-1848623260) ，每个人都可以编辑和添加他们的输入。
 
 ## **尝试在线模板，让你的规划起步**
 
 当一切都感觉遥远和抽象时，做决定会很有挑战性。有时候，你需要开始规划物流，以了解你的旅行重点到底是什么。如果你喜欢开始计划，然后在此过程中做出重大决定，这里有我们最喜欢的在线旅游工具:
 
 *   [约翰尼非洲](https://johnnyafrica.com/travel-itinerary-planning-spreadsheet/) ，其中包括一个神奇的解释者和谷歌工作表的行程模板
-*   ，与上面类似并包含Excel特有的提示
+*   ，与上面类似并包含 Excel 特有的提示
 *   [【旅游地图】，](https://workspace.google.com/marketplace/app/travel_mapper/412821700766) 包含现成的可定制模板的谷歌附加组件
 
 更多保持井然有序的应用包括[TripIt](https://www.tripit.com/web)[Tripify](https://apps.apple.com/us/app/tripify-travel-better/id1138434260)和 [Wanderlog](https://apps.apple.com/us/app/wanderlog-travel-planner/id1476732439) 。

@@ -1,6 +1,6 @@
 # 你家里的五样东西你可能应该马上换掉
 
-> 原文:[https://life hacker . com/five-things in-your-home-you-should-possible-replace-ri-1848869645](https://lifehacker.com/five-things-in-your-home-you-should-probably-replace-ri-1848869645)
+> 原文：<https://lifehacker.com/five-things-in-your-home-you-should-probably-replace-ri-1848869645>
 
 即使保持一个干净的家对你来说很重要，但也有很多事情要做。显而易见的是:倒垃圾、卸洗碗机、吸尘——让其中任何一项滑落，你几乎会立即感受到影响。但它们也在你面前，所以跟上它们很容易(或者说更容易)。还有那些不太频繁但同样重要的工作，比如 [换海绵](https://lifehacker.com/how-to-always-have-a-clean-sponge-1844996813) 和 [清理冰箱](https://lifehacker.com/our-best-fridge-cleaning-hacks-1844362067) e.
 
@@ -26,4 +26,4 @@ Watch
 
 ## 你的马桶座圈
 
-我从未想过要更换马桶座圈，但事实证明你应该每五到七年更换一次，根据BobVila.com的说法。再久一点，它们可能会裂开，每次你坐下时开始滑动，或者开始积累你无法洗掉的奇怪的橙色矿物污渍——[，尤其是如果你住在硬水地区](https://amarcoplumbing.com/yellow-stains-toilet-seat/) 。
+我从未想过要更换马桶座圈，但事实证明你应该每五到七年更换一次，根据 BobVila.com 的说法。再久一点，它们可能会裂开，每次你坐下时开始滑动，或者开始积累你无法洗掉的奇怪的橙色矿物污渍——[，尤其是如果你住在硬水地区](https://amarcoplumbing.com/yellow-stains-toilet-seat/) 。

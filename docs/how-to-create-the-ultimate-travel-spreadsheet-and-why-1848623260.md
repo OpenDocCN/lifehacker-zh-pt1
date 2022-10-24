@@ -1,6 +1,6 @@
 # 如何创建终极旅行电子表格(以及为什么你需要一个)
 
-> 原文:[https://life hacker . com/how-to-create-the-ultimate-travel-spread sheet-and-why-1848623260](https://lifehacker.com/how-to-create-the-ultimate-travel-spreadsheet-and-why-1848623260)
+> 原文：<https://lifehacker.com/how-to-create-the-ultimate-travel-spreadsheet-and-why-1848623260>
 
 组织可以创造或破坏任何旅行体验。当然，人们很容易将粗犷的背包客的生活浪漫化，但背包里可能还有放笔记本电脑或手机的空间。如果你有笔记本电脑或手机，那么你可以并且应该为自己制作一份终极旅行电子表格，帮助你管理你的下一次冒险。
 
@@ -28,7 +28,7 @@ Watch
 
 现在你已经完全准备好了，下面是如何开始创建你自己的包罗万象的旅行电子表格。
 
-选择你喜欢的平台。我已经明确表示，我最习惯使用Google Sheets，但这些建议也适用于你最喜欢的任何电子表格软件。
+选择你喜欢的平台。我已经明确表示，我最习惯使用 Google Sheets，但这些建议也适用于你最喜欢的任何电子表格软件。
 
 **创建标签。**每段旅程都是不同的，但以下标签是安全的赌注:
 
@@ -36,7 +36,7 @@ Watch
 *   *详细，掌握行程:*一个地方的所有信息，链接到不同的标签页，(一个地方的所有信息，可以根据需要链接到不同的标签页？)
 *   *打包清单:*不要发现自己在机场带了很多袜子，却没有护照。
 *   *交通:*航班、火车、租车等。
-*   *住宿:*酒店位置及费用，Airbnb联系方式等。
+*   *住宿:*酒店位置及费用，Airbnb 联系方式等。
 *   预算:用简单的形式把你所有的费用加起来。
 *   每日行程:确保你不会错过任何会议、实地参观、晚餐预订等活动。
 *   有趣的东西:记录不同餐馆的链接，夜生活的想法，以及所有其他你不想冒险忘记的有趣的东西。
@@ -50,7 +50,7 @@ Watch
 没有必要从头开始建立一个旅行电子表格。这里有一些资源可以让你的起步:
 
 *   [约翰尼非洲](https://johnnyafrica.com/travel-itinerary-planning-spreadsheet/) ，其中包括一个神奇的解释者和谷歌工作表的行程模板
-*   ，与上面类似并包含Excel特有的提示
+*   ，与上面类似并包含 Excel 特有的提示
 *   [【旅游地图】，](https://workspace.google.com/marketplace/app/travel_mapper/412821700766) 包含现成的可定制模板的谷歌附加组件
 
 如果你仍然不喜欢电子表格，你可以使用诸如[Tripify](https://apps.apple.com/us/app/tripify-travel-better/id1138434260)[Wanderlog](https://apps.apple.com/us/app/wanderlog-travel-planner/id1476732439)等应用来保持有序。

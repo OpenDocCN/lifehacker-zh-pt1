@@ -1,6 +1,6 @@
 # 为什么永远不要在烤箱里放锡箔
 
-> 原文:[https://life hacker . com/why-you-should-never-line-your-foil-1847716701](https://lifehacker.com/why-you-should-never-line-your-oven-with-foil-1847716701)
+> 原文：<https://lifehacker.com/why-you-should-never-line-your-oven-with-foil-1847716701>
 
 [铝箔](https://lifehacker.com/aluminum-foil-is-more-awesome-than-people-give-it-credi-1729690242) 是一种非常有用的、扁平的、有延展性的材料，非常适合制作即兴的烤肉架、馅饼皮护板和简单的食物包装(用于非酸性食物)。用锡箔给平底锅做衬里有助于加快清洁过程——把锡箔扔进垃圾箱就行了——但是在你的厨房里有一样东西你绝对不能用锡箔做衬里，不管你认为它会变得多脏:你的烤箱地板。
 

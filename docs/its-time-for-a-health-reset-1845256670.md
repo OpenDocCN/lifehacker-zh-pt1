@@ -1,6 +1,6 @@
 # 是时候进行健康重置了
 
-> 原文:[https://life hacker . com/its-time-for-a-health-reset-1845256670](https://lifehacker.com/its-time-for-a-health-reset-1845256670)
+> 原文：<https://lifehacker.com/its-time-for-a-health-reset-1845256670>
 
 自从疫情关闭和封锁开始以来，已经过去了漫长的六、七个月。还记得头几周待在家里是件新鲜事，社交媒体上充斥着自制面包的情景吗？嗯，开始变老了。
 

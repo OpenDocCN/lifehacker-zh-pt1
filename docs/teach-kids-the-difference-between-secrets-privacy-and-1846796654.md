@@ -1,6 +1,6 @@
 # 教会孩子秘密、隐私和惊喜之间的区别
 
-> 原文:[https://life hacker . com/teach-kids-the-difference-between-secrets-privacy-and-1846796654](https://lifehacker.com/teach-kids-the-difference-between-secrets-privacy-and-1846796654)
+> 原文：<https://lifehacker.com/teach-kids-the-difference-between-secrets-privacy-and-1846796654>
 
 作为成年人，我们理解惊喜、秘密和隐私之间的细微差别。但是对于孩子来说，这些概念可能会模糊和重叠——不幸的是，这是儿童掠夺者利用的事实。这就是为什么帮助定义每个概念是什么以及什么时候对他们来说保留某些信息是好的或不好的非常重要。
 

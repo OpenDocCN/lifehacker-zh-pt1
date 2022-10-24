@@ -1,6 +1,6 @@
 # 夜间换尿布时使用台灯
 
-> 原文:[https://life hacker . com/use-a-book-light-for-night-diaper-changes-1846537759](https://lifehacker.com/use-a-book-light-for-nighttime-diaper-changes-1846537759)
+> 原文：<https://lifehacker.com/use-a-book-light-for-nighttime-diaper-changes-1846537759>
 
 关于婴儿的一件事是，他们不只是在白天弄脏他们的尿布，当每个人都醒着、警觉着并准备好处理这项工作的时候。你也要做大量的夜间改变，你需要照亮至少足够的情况，以确保你在做一份体面的工作——但不要太多，以免对每个人的系统造成冲击。
 

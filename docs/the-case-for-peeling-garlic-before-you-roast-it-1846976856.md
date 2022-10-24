@@ -1,8 +1,8 @@
 # 烤大蒜之前先剥皮的理由
 
-> 原文:[https://life hacker . com/the-case for-peeling-again-you-bake-it-1846976856](https://lifehacker.com/the-case-for-peeling-garlic-before-you-roast-it-1846976856)
+> 原文：<https://lifehacker.com/the-case-for-peeling-garlic-before-you-roast-it-1846976856>
 
-我喜欢上 [一整头烤蒜](https://skillet.lifehacker.com/how-to-roast-a-whole-head-of-garlic-1820407305) 的戏剧。这是一种总能给人留下深刻印象的味道，但提取丁香可能会有点乱(即使是用泡菜叉 提取 [)，而且(除非你用](https://skillet.lifehacker.com/easily-extract-roasted-garlic-cloves-with-this-tool-1832429698) [空气油炸锅](https://skillet.lifehacker.com/you-should-roast-garlic-in-your-air-fryer-1846574579) )将它烤到柔软和可涂抹的阶段至少需要50分钟。
+我喜欢上 [一整头烤蒜](https://skillet.lifehacker.com/how-to-roast-a-whole-head-of-garlic-1820407305) 的戏剧。这是一种总能给人留下深刻印象的味道，但提取丁香可能会有点乱(即使是用泡菜叉 提取 [)，而且(除非你用](https://skillet.lifehacker.com/easily-extract-roasted-garlic-cloves-with-this-tool-1832429698) [空气油炸锅](https://skillet.lifehacker.com/you-should-roast-garlic-in-your-air-fryer-1846574579) )将它烤到柔软和可涂抹的阶段至少需要 50 分钟。
 
 Watch
 
@@ -22,6 +22,6 @@ Watch
 
 剥下你的大蒜，不管你有多少。如果你想保持丁香的完整，从每一瓣的每一端切下一点点——表皮很容易脱落。如果你想要脆脆的焦糖小块，用你的刀把每一瓣捣碎，然后把皮去掉。
 
-将去皮的丁香放入烤箱安全的盘子中，然后加入橄榄油。你加的油越多，它们就越软，越不容易变成褐色。每头大蒜加入两大把盐，快速搅拌使其均匀分布。在350度的烤箱中烘烤大蒜，直到蒜瓣变软，变香，颜色变深——大约半小时。粉碎并涂在各种各样的食物上。
+将去皮的丁香放入烤箱安全的盘子中，然后加入橄榄油。你加的油越多，它们就越软，越不容易变成褐色。每头大蒜加入两大把盐，快速搅拌使其均匀分布。在 350 度的烤箱中烘烤大蒜，直到蒜瓣变软，变香，颜色变深——大约半小时。粉碎并涂在各种各样的食物上。
 
 在储存到冰箱之前(如果你用了很多油的话),把剩下的丁香从油中取出来，并且当天用完所有多余的油。(肉毒杆菌在厌氧环境中繁殖，这就是石油，我不希望你得肉毒杆菌中毒。)

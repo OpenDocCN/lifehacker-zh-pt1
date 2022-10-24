@@ -1,6 +1,6 @@
 # 在为时已晚之前，在你的薄煎饼中加入新鲜的玉米
 
-> 原文:[https://life hacker . com/add-fresh-corn-to-your-pancake-before-that-late-1849443591](https://lifehacker.com/add-fresh-corn-to-your-pancakes-before-its-too-late-1849443591)
+> 原文：<https://lifehacker.com/add-fresh-corn-to-your-pancakes-before-its-too-late-1849443591>
 
 这个夏天并没有如我所愿。一台坏掉的冰箱(和令人压抑的夏季高温)使得很难在房子里保存新鲜的农产品，旅行(甚至更令人压抑的夏季高温)使得很难保持花园的良好状态。所有这些导致我吃的甜玉米比平时少得多，这意味着我整个夏天都没有发表一篇 [玉米黑客](https://lifehacker.com/11-tasty-things-you-should-be-doing-with-corn-1847388269) ，我深感惭愧。
 

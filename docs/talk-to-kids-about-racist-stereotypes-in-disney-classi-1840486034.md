@@ -1,8 +1,8 @@
 # 和孩子们谈论迪士尼+经典电影中的种族主义刻板印象
 
-> 原文:[https://life hacker . com/talk-to-kids-on-Disney-class I-1840486034](https://lifehacker.com/talk-to-kids-about-racist-stereotypes-in-disney-classi-1840486034)
+> 原文：<https://lifehacker.com/talk-to-kids-about-racist-stereotypes-in-disney-classi-1840486034>
 
-当Disney+在2019年推出时，它的一些经典儿童电影附带了一个垒球警告，上面写着:“本节目以原创形式呈现。它可能包含过时的文化描述。”这种语言不仅不足以在迪士尼的许多老电影中对种族主义刻板印象进行分类，还在一定程度上被电影的描述或单独的“细节”标签所掩盖。但是现在，迪士尼将这些警告变得更加详细和突出，使父母能够利用它们作为一个机会，与年幼的孩子谈论种族主义和有问题的故事。
+当 Disney+在 2019 年推出时，它的一些经典儿童电影附带了一个垒球警告，上面写着:“本节目以原创形式呈现。它可能包含过时的文化描述。”这种语言不仅不足以在迪士尼的许多老电影中对种族主义刻板印象进行分类，还在一定程度上被电影的描述或单独的“细节”标签所掩盖。但是现在，迪士尼将这些警告变得更加详细和突出，使父母能够利用它们作为一个机会，与年幼的孩子谈论种族主义和有问题的故事。
 
 Watch
 
@@ -14,9 +14,9 @@ Watch
 > 
 > 要了解更多关于故事如何影响社会的信息，请访问[www.disney.com/StoriesMatter](http://www.disney.com/StoriesMatter)。
 
-如果你随后访问迪士尼的“ [Stories Matter](https://storiesmatter.thewaltdisneycompany.com) ”网站，你可以找到更多关于某些电影中特别有问题的详细信息。迪士尼表示，内容警告是在第三方咨询委员会的帮助下创建的。比如这里的 [更详细的解释](https://storiesmatter.thewaltdisneycompany.com) 关于1941年上映的《小飞象 中的 [有害内容:](https://www.youtube.com/watch?v=_v2exWrsGOc)
+如果你随后访问迪士尼的“ [Stories Matter](https://storiesmatter.thewaltdisneycompany.com) ”网站，你可以找到更多关于某些电影中特别有问题的详细信息。迪士尼表示，内容警告是在第三方咨询委员会的帮助下创建的。比如这里的 [更详细的解释](https://storiesmatter.thewaltdisneycompany.com) 关于 1941 年上映的《小飞象 中的 [有害内容:](https://www.youtube.com/watch?v=_v2exWrsGOc)
 
-> 《乌鸦》和《音乐之声》向种族主义的吟游歌手表演致敬，在那里，脸涂黑、衣服破烂的白人表演者模仿和嘲笑南方种植园里被奴役的非洲人。在Dumbo的这个组织的领导人是Jim Crow，该组织与美国南部实行种族隔离的法律同名。在“码头工人之歌”中，不知名的黑人工人在令人不快的歌词中辛勤工作，比如“当我们拿到工资时，我们把钱都扔了。”
+> 《乌鸦》和《音乐之声》向种族主义的吟游歌手表演致敬，在那里，脸涂黑、衣服破烂的白人表演者模仿和嘲笑南方种植园里被奴役的非洲人。在 Dumbo 的这个组织的领导人是 Jim Crow，该组织与美国南部实行种族隔离的法律同名。在“码头工人之歌”中，不知名的黑人工人在令人不快的歌词中辛勤工作，比如“当我们拿到工资时，我们把钱都扔了。”
 
 同样， [这里是警告](https://storiesmatter.thewaltdisneycompany.com) 关于*小飞侠:*
 
@@ -30,4 +30,4 @@ Watch
 
 * * *
 
-这个故事最初于2019年播出，并于2020年10月19日更新，以反映当前信息。
+这个故事最初于 2019 年播出，并于 2020 年 10 月 19 日更新，以反映当前信息。

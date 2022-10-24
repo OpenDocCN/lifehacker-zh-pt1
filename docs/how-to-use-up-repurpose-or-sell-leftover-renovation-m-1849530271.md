@@ -1,6 +1,6 @@
 # 如何用完、重新利用或出售剩余的装修材料
 
-> 原文:[https://life hacker . com/how-to-use-up-re purpose-or-sell-left-renewal-m-1849530271](https://lifehacker.com/how-to-use-up-repurpose-or-sell-leftover-renovation-m-1849530271)
+> 原文：<https://lifehacker.com/how-to-use-up-repurpose-or-sell-leftover-renovation-m-1849530271>
 
 翻新你的家是令人兴奋的，昂贵的，有压力的。你可能认为一旦最后一层油漆干了，困难就结束了，但几乎总是有最后一步:处理剩余的建筑材料。
 
@@ -18,7 +18,7 @@ Watch
 
 ## 卖掉你的剩菜
 
-在许多情况下，你可以在Craigslist或脸书上出售你的剩余物品——你甚至可以 [找人为你从家里*搬走的*](https://www.washingtonpost.com/news/where-we-live/wp/2017/09/05/dont-dump-discarded-material-from-your-home-renovation-in-the-trash-try-selling-it/)的材料付款，如果处理得当的话——其他人可能会觉得你的“过时”地板、家具或其他材料更“经典”
+在许多情况下，你可以在 Craigslist 或脸书上出售你的剩余物品——你甚至可以 [找人为你从家里*搬走的*](https://www.washingtonpost.com/news/where-we-live/wp/2017/09/05/dont-dump-discarded-material-from-your-home-renovation-in-the-trash-try-selling-it/)的材料付款，如果处理得当的话——其他人可能会觉得你的“过时”地板、家具或其他材料更“经典”
 
 如果你用了，问问你的承包商。许多承包商都储备了建筑材料，以备不时之需，或者获得有趣的建筑细节，如装修设计中使用的固定装置或旧门。对于门、橱柜和旧抽屉拉手之类的东西，另一个选择是 [在你附近的](https://www.oldhouseonline.com/interiors-and-decor/where-to-shop-for-architectural-salvage/) 建筑废品商店找找看他们是否会买。人们总是在寻找古董来为他们的新装修增添情趣，所以有可能有人想买你刚刚(精致地)从家里拿出来的东西。
 
@@ -26,7 +26,7 @@ Watch
 
 剩余材料的另一个选择是用它们做一些很酷的东西。根据你的便利程度、创造力和精力，你可以将过多的建筑材料转化为很棒的东西:
 
-*   **瓷砖。**吃剩的瓷砖可以改造成so， *so* 很多东西。用剩余的瓷砖制作一个最简单的项目是 [奶酪板或上菜托盘](https://www.homejelly.com/how-to-make-cheeseboard-leftover-tile/) 。另一个使用多余瓷砖的超级简单的方法是买一些软木和 [制作杯垫](https://craftingagreenworld.com/articles/how-to-turn-leftover-tiles-into-coasters/) 。说真的，有[*很多*的方法可以把你多余的瓷砖加工成漂亮的东西](https://www.apartmenttherapy.com/diy-ideas-13-ways-to-reuse-leftover-tiles-248257) 。
+*   **瓷砖。**吃剩的瓷砖可以改造成 so， *so* 很多东西。用剩余的瓷砖制作一个最简单的项目是 [奶酪板或上菜托盘](https://www.homejelly.com/how-to-make-cheeseboard-leftover-tile/) 。另一个使用多余瓷砖的超级简单的方法是买一些软木和 [制作杯垫](https://craftingagreenworld.com/articles/how-to-turn-leftover-tiles-into-coasters/) 。说真的，有[*很多*的方法可以把你多余的瓷砖加工成漂亮的东西](https://www.apartmenttherapy.com/diy-ideas-13-ways-to-reuse-leftover-tiles-248257) 。
 *   **木头。**木头的弹性令人难以置信。如果你有一点处理木材的技巧，你可以 [建造一个凉爽的谷仓门](https://youtu.be/NynNveYh66M) 来封闭你新装修的房间，或者 [一个书架来增加额外的存储空间](https://www.homedepot.com/c/ah/how-to-build-a-bookshelf/9ba683603be9fa5395fab904e329862) 。额外的木地板可以做成 [长凳、桌子、书桌或架子](https://sawdustsisters.com/leftover-hardwood-flooring-projects/) 。
 *   **门。**有几扇雷诺留下的旧门？他们制作很棒的桌子、床头板、书桌，甚至是 [折衷的墙壁艺术](https://homeguides.sfgate.com/turn-door-wall-art-72079.html) 。
 

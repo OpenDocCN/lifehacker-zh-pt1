@@ -1,8 +1,8 @@
 # 如何找出水压低的原因(并解决它)
 
-> 原文:[https://life hacker . com/how-to-figure-why-you-have-low-water-pressure-and-1849684406](https://lifehacker.com/how-to-figure-out-why-you-have-low-water-pressure-and-1849684406)
+> 原文：<https://lifehacker.com/how-to-figure-out-why-you-have-low-water-pressure-and-1849684406>
 
-当水龙头里的水涓涓细流时，做饭、洗碗和洗澡都变得很困难。虽然你可能认为低水压会是一个非常复杂的问题，但实际上通过一些简单的方法就可以解决T4问题。诀窍是首先找到水压问题的原因；这将帮助你确定问题有多大，以及你是否需要召集专家。这里是开始的地方。
+当水龙头里的水涓涓细流时，做饭、洗碗和洗澡都变得很困难。虽然你可能认为低水压会是一个非常复杂的问题，但实际上通过一些简单的方法就可以解决 T4 问题。诀窍是首先找到水压问题的原因；这将帮助你确定问题有多大，以及你是否需要召集专家。这里是开始的地方。
 
 Watch
 

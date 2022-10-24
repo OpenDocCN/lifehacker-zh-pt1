@@ -1,6 +1,6 @@
 # 重新粉刷户外家具的正确方法(这样你就不用更换它了)
 
-> 原文:[https://life hacker . com/the-right-way-to-repaint-your-outdoor-furniture-so-you-1848774164](https://lifehacker.com/the-right-way-to-repaint-your-outdoor-furniture-so-you-1848774164)
+> 原文：<https://lifehacker.com/the-right-way-to-repaint-your-outdoor-furniture-so-you-1848774164>
 
 如果你打算在温暖的天气里娱乐，你需要在你的甲板或露台上摆放舒适的家具，但是因为它们暴露在自然环境中，这些家具可能会在一两个季节后磨损。如果你的一些户外家具看起来很破旧，不要跑出去买新的。给自己省点钱，给你的露台刷上一层油漆，让它焕然一新。
 
@@ -10,9 +10,9 @@ Watch
 
 画画的时候，最努力的其实是进入 的准备。上漆前适当的打磨和清洁会让变成完美无瑕和一团糟的区别。对于较大的家具，考虑用一个 [动力清洗机](https://www.homedepot.com/p/rental/Mi-T-M-Electric-Pressure-Washer-CM-1400-HDEC/309005725) 来清洗这部分，但是对于或较小的家具，用硬毛刷刷上一些清洁剂和水就可以了。
 
-如果你的作品已经有一层油漆，重要的是尽可能多的去除它以便新的完成将顺利进行，所以开始用 [油漆刮刀](https://www.lowes.com/pd/4-in-Carbon-Steel-Paint-Scraper/5001989711) 或 [五合一](https://www.tractorsupply.com/tsc/product/merit-pro-03020-5-in-1-painters-tool-3492450?cid=Shopping-Google-Organic_Feed-Product-3492450&cid=Shopping-Google-LOB-Orgainc_Feed&utm_medium=Google&utm_source=Shopping&utm_campaign=LOB&utm_content=Organic_Feed) 去除大的油漆碎片和薄片。对于木制家具，首先使用100- 或120- 粒度的砂纸，然后逐渐使用180- 或220- 粒度的砂纸。对于金属家具，使用钢丝刷和钻头的钢丝轮附件去除任何松散的油漆并使表面光滑。在螺丝刀或锉刀上折叠砂纸可以帮助你进入更小的弯曲区域或裂缝。
+如果你的作品已经有一层油漆，重要的是尽可能多的去除它以便新的完成将顺利进行，所以开始用 [油漆刮刀](https://www.lowes.com/pd/4-in-Carbon-Steel-Paint-Scraper/5001989711) 或 [五合一](https://www.tractorsupply.com/tsc/product/merit-pro-03020-5-in-1-painters-tool-3492450?cid=Shopping-Google-Organic_Feed-Product-3492450&cid=Shopping-Google-LOB-Orgainc_Feed&utm_medium=Google&utm_source=Shopping&utm_campaign=LOB&utm_content=Organic_Feed) 去除大的油漆碎片和薄片。对于木制家具，首先使用 100- 或 120- 粒度的砂纸，然后逐渐使用 180- 或 220- 粒度的砂纸。对于金属家具，使用钢丝刷和钻头的钢丝轮附件去除任何松散的油漆并使表面光滑。在螺丝刀或锉刀上折叠砂纸可以帮助你进入更小的弯曲区域或裂缝。
 
-最后，如果你的家具是古董——可以追溯到1978年或更早——你应该 [检测铅](https://www.hardwareworld.com/prnh8sd/Lead-Check-Instant-Lead-Test-Swabs-2-Pk-LC2S24C) 并遵循安全操作规程(如果有)。
+最后，如果你的家具是古董——可以追溯到 1978 年或更早——你应该 [检测铅](https://www.hardwareworld.com/prnh8sd/Lead-Check-Instant-Lead-Test-Swabs-2-Pk-LC2S24C) 并遵循安全操作规程(如果有)。
 
 ## 重新粉刷户外家具需要的一些工具
 
@@ -40,4 +40,4 @@ Watch
 
 塑料家具带来了一个挑战:很难让油漆粘在无孔的表面。拥有塑料家具的一个好处是它很容易清洗，因为表面很滑，不容易粘上灰尘。塑料家具也更适合用在雨水多的地方或者天气非常温暖的地方，因为它不会生锈，不会吸水，坐在上面也不会太热。很容易理解为什么你想要在院子里放塑料家具，即使重新粉刷是一件痛苦的事。
 
-有 [喷漆](https://www.lowes.com/pd/Krylon-FUSION-ALL-IN-ONE-Acrylic-Enamel-Satin-Metallic-Spray-Paint-Actual-Net-Contents-12/5001057259) 和 [刷- 油漆](https://www.lowes.com/pd/Beyond-Paint-All-in-One-Furniture-Poppy-Flat-Acrylic-Interior-Exterior-Paint-Actual-Net-Contents-16/1003236404?user=shopping) 会粘合到塑料上，但用一些180- 粒度的砂纸稍微粗糙一点表面将有助于油漆真正粘附。
+有 [喷漆](https://www.lowes.com/pd/Krylon-FUSION-ALL-IN-ONE-Acrylic-Enamel-Satin-Metallic-Spray-Paint-Actual-Net-Contents-12/5001057259) 和 [刷- 油漆](https://www.lowes.com/pd/Beyond-Paint-All-in-One-Furniture-Poppy-Flat-Acrylic-Interior-Exterior-Paint-Actual-Net-Contents-16/1003236404?user=shopping) 会粘合到塑料上，但用一些 180- 粒度的砂纸稍微粗糙一点表面将有助于油漆真正粘附。

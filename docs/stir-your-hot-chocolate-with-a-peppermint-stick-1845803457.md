@@ -1,6 +1,6 @@
 # 用薄荷棒搅拌你的热巧克力
 
-> 原文:[https://life hacker . com/stir-your ' s hot chocolate with a peppermint-stick-1845803457](https://lifehacker.com/stir-your-hot-chocolate-with-a-peppermint-stick-1845803457)
+> 原文：<https://lifehacker.com/stir-your-hot-chocolate-with-a-peppermint-stick-1845803457>
 
 无论你是用可可粉制作热巧克力，还是商店里买的混合巧克力，或者是一块奇特的巧克力，你都需要搅拌它。大多数人伸手拿勺子，聪明的人伸手拿叉子，但在节日期间，你应该拿一根薄荷棒或糖果棒。
 

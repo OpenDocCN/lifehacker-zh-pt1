@@ -1,6 +1,6 @@
 # 如何辨别一所房子是否有“好骨头”
 
-> 原文:[https://life hacker . com/how-to-tell-if-a house-good-bones-1848322667](https://lifehacker.com/how-to-tell-if-a-house-has-good-bones-1848322667)
+> 原文：<https://lifehacker.com/how-to-tell-if-a-house-has-good-bones-1848322667>
 
 不太新建造的房屋通常被房地产经纪人描述为“好骨头”，这意味着其核心是坚固的结构和高水平的质量和工艺。当然，找房子的时候，你看不到油漆和干墙下面的东西，所以你怎么知道你看中的房子是否有这个令人满意的骨架呢？这里是寻找的地方，寻找什么。
 

@@ -1,10 +1,10 @@
-# 今年复活节享用火腿或羊肉的9种美味方式
+# 今年复活节享用火腿或羊肉的 9 种美味方式
 
-> 原文:[https://life hacker . com/9-复活节享受火腿或羊肉的美味方式-1846593755](https://lifehacker.com/9-delicious-ways-to-enjoy-ham-or-lamb-this-easter-1846593755)
+> 原文：<https://lifehacker.com/9-delicious-ways-to-enjoy-ham-or-lamb-this-easter-1846593755>
 
 火腿和羊肉是复活节的首选蛋白质。它们是非常不同的肉块，但是在你的餐桌中间，两者都令人印象深刻，值得庆祝。这些年来，我做了很多，也吃了很多，一如既往，我有一些建议。
 
-Lamb-neh(在 [labneh](https://skillet.lifehacker.com/how-to-make-your-own-labneh-and-how-to-eat-it-1796785416) 中腌制过的羊肉)嫩、多汁、省力。你所要做的就是在一些排骨上涂上不太酸奶油不太奶油奶酪酱(和一点盐)，让它在冰箱里静置一夜，然后擦掉labneh，用平底锅煎排骨，直到外面形成黑色的外壳，内部温度达到130℉-140℉，这取决于你的喜好。他的食谱非常适合那些喜欢烤得更熟的羊肉的人——即使在较高的温度下，labneh也能保持食物的美味和湿润。
+Lamb-neh(在 [labneh](https://skillet.lifehacker.com/how-to-make-your-own-labneh-and-how-to-eat-it-1796785416) 中腌制过的羊肉)嫩、多汁、省力。你所要做的就是在一些排骨上涂上不太酸奶油不太奶油奶酪酱(和一点盐)，让它在冰箱里静置一夜，然后擦掉 labneh，用平底锅煎排骨，直到外面形成黑色的外壳，内部温度达到 130℉-140℉，这取决于你的喜好。他的食谱非常适合那些喜欢烤得更熟的羊肉的人——即使在较高的温度下，labneh 也能保持食物的美味和湿润。
 
 如果你买了一个螺旋切割或其他预煮的火腿，你所要做的就是把它加热，而真空烹饪是实现这一点的最佳方式。在恒温水浴中烹饪你的火腿可以保持美味和湿润(阅读 [这个](https://lifehacker.com/sous-vide-your-holiday-ham-1831204938) 了解温度和时间细节)，而且——一旦加热——你可以将你的火腿放在那里长达一个小时，直到你准备好给它上釉。
 
@@ -14,10 +14,10 @@ Lamb-neh(在 [labneh](https://skillet.lifehacker.com/how-to-make-your-own-labneh
 
 羊脖子是一种不被重视、未被充分利用且成本低廉的切割方式。任何颈部的全部目的都是支撑头部，因此，这个切口充满了骨头和结缔组织，这听起来像是一个缺点，但实际上是一个好处。就味道而言，它尝起来像野生的炖肉——比它的牛肉亲戚更嫩、更肉，味道更野，但烹饪速度太快或温度太高会产生坚韧、耐嚼的肉。因为那个，我喜欢 [用一把扑鼻的葡萄和一些新鲜的香草浸泡我的脖子](https://lifehacker.com/sous-vide-your-lamb-with-grapes-1838948491) ，然后减少袋汁来做咸酱。
 
-羊腿也 [腌制得相当不错](https://lifehacker.com/make-glazed-sous-vide-lamb-shanks-with-only-four-ingred-1833985618) 。肉变得非常嫩，而骨头里的骨髓变得又好又滑。在170华氏度的水浴中烹饪24小时，然后在烤盘下涂上简单的双组分釉料。用骨头做把手来吃。
+羊腿也 [腌制得相当不错](https://lifehacker.com/make-glazed-sous-vide-lamb-shanks-with-only-four-ingred-1833985618) 。肉变得非常嫩，而骨头里的骨髓变得又好又滑。在 170 华氏度的水浴中烹饪 24 小时，然后在烤盘下涂上简单的双组分釉料。用骨头做把手来吃。
 
 如果你想带你的羊肉出去，你可以用你的烤架(是的，甚至是你的丙烷烤架)，来熏一大块烤肉。本指南 将带你完成整个过程，但请注意山姆使用的摩擦——将冻干水果加入摩擦中是一种经过认证的技巧，你可以在许多烧烤活动中使用。
 
-羊排是一道很好的“介绍羊肉”它们比排骨更温和，用腌制或反烤都可以做出很好的效果。我喜欢在恒温水浴中煮一个小时，然后 [静置](https://skillet.lifehacker.com/you-actually-should-rest-sous-vide-cooked-meat-1837839472) ，最后在热锅中加入大量黄油。如果我用的是 [反向烤焦](https://skillet.lifehacker.com/how-to-cook-filet-mignon-without-a-sous-vide-circulator-1846498144) 的方法，我会在200度的烤箱里慢慢烤，直到内部温度达到120华氏度，然后在炉子上的热锅里烤到135华氏度。
+羊排是一道很好的“介绍羊肉”它们比排骨更温和，用腌制或反烤都可以做出很好的效果。我喜欢在恒温水浴中煮一个小时，然后 [静置](https://skillet.lifehacker.com/you-actually-should-rest-sous-vide-cooked-meat-1837839472) ，最后在热锅中加入大量黄油。如果我用的是 [反向烤焦](https://skillet.lifehacker.com/how-to-cook-filet-mignon-without-a-sous-vide-circulator-1846498144) 的方法，我会在 200 度的烤箱里慢慢烤，直到内部温度达到 120 华氏度，然后在炉子上的热锅里烤到 135 华氏度。
 
 不管你是煮火腿还是羊肉，一定要保留骨头。你可以把它们扔进一锅豆子里，做成高汤，或者(在火腿骨头的情况下)，用骨头做一大锅红豆米饭(这是我最喜欢的选择)。

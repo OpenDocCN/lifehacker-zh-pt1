@@ -1,6 +1,6 @@
 # 如何将快速便餐冒充为自制的
 
-> 原文:[https://the take out . com/how-to-pass-off-fast-casual-meals-as-made-1849034322](https://thetakeout.com/how-to-pass-off-fast-casual-meals-as-homemade-1849034322)
+> 原文：<https://thetakeout.com/how-to-pass-off-fast-casual-meals-as-homemade-1849034322>
 
 为别人做饭并不总是那么容易。如果你想给他们留下深刻印象，你可能会在细节上绞尽脑汁。但是，如果你突然觉得很懒，或者答应别人做一顿家常菜后时间不够了，你会怎么做？很明显，你从餐馆买食物并撒谎。
 
@@ -10,9 +10,9 @@ Watch
 
  [https://thetakeout.com/embed/inset/iframe?id=twitter-1531137787969388545&autosize=1](https://thetakeout.com/embed/inset/iframe?id=twitter-1531137787969388545&autosize=1) 
 
-用户@ImFrom_Paris发布了一张照片，照片上是明显的大力水手带骨炸鸡、红豆米饭、薯条和一块饼干，放在一个纸盘上，并写道:“有一天我会成为妻子，因为我会做饭。”
+用户@ImFrom_Paris 发布了一张照片，照片上是明显的大力水手带骨炸鸡、红豆米饭、薯条和一块饼干，放在一个纸盘上，并写道:“有一天我会成为妻子，因为我会做饭。”
 
-另一名用户@tamarauniquee引用这条推文称:“我看到它就知道是大力水手。”(我也是。)但这让我开始认真思考，你能拿什么样的快餐来冒充你自己的？我想出了一些主意，这样你就可以完成你人生中最伟大的烹饪骗局。见鬼，把这些东西偷偷带进烹饪比赛(*打败巴比·福雷*，我来找你了)你一定会打败你的对手。
+另一名用户@tamarauniquee 引用这条推文称:“我看到它就知道是大力水手。”(我也是。)但这让我开始认真思考，你能拿什么样的快餐来冒充你自己的？我想出了一些主意，这样你就可以完成你人生中最伟大的烹饪骗局。见鬼，把这些东西偷偷带进烹饪比赛(*打败巴比·福雷*，我来找你了)你一定会打败你的对手。
 
 ## 乱搞温迪的辣椒
 

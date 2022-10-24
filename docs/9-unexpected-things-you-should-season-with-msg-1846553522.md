@@ -1,6 +1,6 @@
-# 你应该用味精调味的9件意想不到的事情
+# 你应该用味精调味的 9 件意想不到的事情
 
-> 原文:[https://life hacker . com/9-unexpected-things-you-should-season-with-msg-1846553522](https://lifehacker.com/9-unexpected-things-you-should-season-with-msg-1846553522)
+> 原文：<https://lifehacker.com/9-unexpected-things-you-should-season-with-msg-1846553522>
 
 谷氨酸一钠是一种结晶的增味剂，它能让几乎所有美味的食物尝起来都很美味。你几乎可以把它放在任何酱、汤、炖肉或调料中，它会使它变得更好一点。我们已经讨论过味精的 [更明显的应用](https://lifehacker.com/put-msg-in-everything-you-cowards-1831721707) ，但那是几年前的事了，从那以后我发现了鲜味放大器的一些独特和意想不到的用途。跟我来一次风味之旅吧？
 
@@ -12,11 +12,11 @@
 
 <aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled 9 Unexpected Things You Should Season With MSG](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/make-an-absolutely-filthy-martini-with-msg-1836892332)</aside>
 
-人们(主要是Pinterest上的人)过去常说福乐鸡快餐店三明治和鸡块的秘密配料是泡菜汁，但这从来都不是真的。他们鸡肉诱人味道的秘密是并且一直是味精。一旦你意识到这一点，你的油炸食物游戏将会升级到下一个级别。你可以用这些知识来制作你自己的nugs ，但是你也可以向任何干盐水或面糊混合物中加入几茶匙，以获得简单、额外的美味。
+人们(主要是 Pinterest 上的人)过去常说福乐鸡快餐店三明治和鸡块的秘密配料是泡菜汁，但这从来都不是真的。他们鸡肉诱人味道的秘密是并且一直是味精。一旦你意识到这一点，你的油炸食物游戏将会升级到下一个级别。你可以用这些知识来制作你自己的 nugs ，但是你也可以向任何干盐水或面糊混合物中加入几茶匙，以获得简单、额外的美味。
 
 事实上，你不需要拍打一只鸟来增加它的肉。任何整只鸟或鸟的一部分都可以(也应该)撒上一点味精，特别是在皮肤上的，如果你做得对的话，这基本上应该是一个酥脆的肉饼。这一举动也带来了额外的美味 [锅滴落](https://skillet.lifehacker.com/roast-your-vegetables-in-a-dirty-pan-1846479372) ，这反过来可以让你的蔬菜味道更好。
 
-咸焦糖很2011，味精焦糖完全是2034。这是反差的极致——黄油味、甜味、咸味和深深的咸味。像鱼酱焦糖，只是更甜点(和素食)友好。
+咸焦糖很 2011，味精焦糖完全是 2034。这是反差的极致——黄油味、甜味、咸味和深深的咸味。像鱼酱焦糖，只是更甜点(和素食)友好。
 
 <aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled 9 Unexpected Things You Should Season With MSG](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/make-the-ultimate-salted-caramel-with-msg-1837100417)</aside>
 

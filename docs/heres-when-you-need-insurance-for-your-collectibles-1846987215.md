@@ -1,6 +1,6 @@
 # 这就是你需要为你的收藏品买保险的时候
 
-> 原文:[https://life hacker . com/heres-when-when-you-need-your-collective-1846987215](https://lifehacker.com/heres-when-you-need-insurance-for-your-collectibles-1846987215)
+> 原文：<https://lifehacker.com/heres-when-you-need-insurance-for-your-collectibles-1846987215>
 
 人们很容易认为你的收藏品已经被房主或租房者保险覆盖，但事实并非总是如此。如果你的收藏品丢失或被盗，你通常只能得到部分价值，有时你根本没有资格享受保险。这里有一个看看什么是可收集的保险提供，多少钱，什么时候得到它。
 
@@ -8,9 +8,9 @@ Watch
 
 ## **为什么传统的房屋保险可能不尽人意**
 
-房主或租房者保险是保护你家中物品现金价值的好方法，因为它们将涵盖飓风、龙卷风、冰雹、风、火灾和盗窃造成的损失。不幸的是，这些政策并不总是涵盖你的收藏品的*评估*价值，这可能远远高于它们的现金价值。此外，一份标准保单可以对每个项目的承保范围进行限制， [从500美元到2，000美元](https://www.investopedia.com/financial-edge/0911/should-you-insure-your-collectibles.aspx) 不等。
+房主或租房者保险是保护你家中物品现金价值的好方法，因为它们将涵盖飓风、龙卷风、冰雹、风、火灾和盗窃造成的损失。不幸的是，这些政策并不总是涵盖你的收藏品的*评估*价值，这可能远远高于它们的现金价值。此外，一份标准保单可以对每个项目的承保范围进行限制， [从 500 美元到 2，000 美元](https://www.investopedia.com/financial-edge/0911/should-you-insure-your-collectibles.aspx) 不等。
 
-另一方面，收藏品保险在几个方面有所不同:它可以涵盖更广泛的灾害的全部评估价值(如意外破损、洪水和邮寄损坏)；它有零美元免赔额；它可以是便携式的，允许你在某些情况下在家门外提出索赔，比如你的收藏品在去展览会或交易会的途中受损。所有这些额外覆盖的代价是成本。根据Investopedia 的说法，大多数收藏品可以每年投保1%到2%的作品价值、 [。](https://www.investopedia.com/best-collectibles-insurance-5101072) 
+另一方面，收藏品保险在几个方面有所不同:它可以涵盖更广泛的灾害的全部评估价值(如意外破损、洪水和邮寄损坏)；它有零美元免赔额；它可以是便携式的，允许你在某些情况下在家门外提出索赔，比如你的收藏品在去展览会或交易会的途中受损。所有这些额外覆盖的代价是成本。根据 Investopedia 的说法，大多数收藏品可以每年投保 1%到 2%的作品价值、 [。](https://www.investopedia.com/best-collectibles-insurance-5101072) 
 
 ## **何时获得可收集的保险**
 

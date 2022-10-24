@@ -1,6 +1,6 @@
 # 如何在不追踪卡路里的情况下吃得更健康
 
-> 原文:[https://life hacker . com/how-to-eat-healthy-without-tracking-calories-1847759847](https://lifehacker.com/how-to-eat-healthier-without-tracking-calories-1847759847)
+> 原文：<https://lifehacker.com/how-to-eat-healthier-without-tracking-calories-1847759847>
 
 吃得更健康本身就是一个有价值的目标，而不仅仅是达到减肥目的的一种手段。但是，如果你曾经试图改变你的饮食习惯，你可能知道网上饮食文化的误导 的 [。](https://lifehacker.com/why-theres-so-much-confusion-over-nutrition-and-fitness-1572870867) 
 
@@ -34,7 +34,7 @@ Watch
 
 ## **获得更好的睡眠**
 
-最被低估的健康饮食建议与食物无关。研究表明，定期睡眠少于7小时会导致难以控制的饥饿和渴望。以下是如何充分利用睡眠的。
+最被低估的健康饮食建议与食物无关。研究表明，定期睡眠少于 7 小时会导致难以控制的饥饿和渴望。以下是如何充分利用睡眠的。
 
 ## **从你的心态开始**
 

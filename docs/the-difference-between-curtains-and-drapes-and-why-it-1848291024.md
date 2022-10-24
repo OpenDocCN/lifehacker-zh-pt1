@@ -1,6 +1,6 @@
 # 窗帘和布帘的区别
 
-> 原文:[https://life hacker . com/the-difference-about-and-why-it-1848291024](https://lifehacker.com/the-difference-between-curtains-and-drapes-and-why-it-1848291024)
+> 原文：<https://lifehacker.com/the-difference-between-curtains-and-drapes-and-why-it-1848291024>
 
 当谈到窗户处理时，术语可能会有点混乱——从“窗户处理”本身开始。是窗户的保护涂层，还是像处理木头一样的工艺？是指修理破损或老化窗户的方法吗？(你懂的。)
 

@@ -1,6 +1,6 @@
 # 没有这些东西千万不要去露营
 
-> 原文:[https://life hacker . com/never-go-camping-without-things-1849469481](https://lifehacker.com/never-go-camping-without-these-things-1849469481)
+> 原文：<https://lifehacker.com/never-go-camping-without-these-things-1849469481>
 
 如果你是一个喜欢户外活动的人，没有什么比露营更好的了，无论你是享受房车的轻奢还是真正在帐篷里过艰苦的生活。虽然与自然交流是一种享受，但人类花了几千年时间试图驯服它，并取得进步，使与自然的互动成为一种可选的娱乐活动，而不是一种必要的活动，这是有原因的:户外可能会有点不舒服，最糟糕的是和危险。
 
@@ -10,27 +10,27 @@ Watch
 
 ## **包一块防水布**
 
-当需要躺下的时候，仅仅一顶帐篷和一条毯子是不够的。Lifehacker的特约撰稿人梅雷迪思·迪茨也建议打包防水布。这些起着双重作用，更好的保护你的身体不受你下面任何尖尖的石头和令人毛骨悚然的爬虫的伤害，*和* 保护你的食物或财产不受自然环境、动物甚至其他露营者的伤害。
+当需要躺下的时候，仅仅一顶帐篷和一条毯子是不够的。Lifehacker 的特约撰稿人梅雷迪思·迪茨也建议打包防水布。这些起着双重作用，更好的保护你的身体不受你下面任何尖尖的石头和令人毛骨悚然的爬虫的伤害，*和* 保护你的食物或财产不受自然环境、动物甚至其他露营者的伤害。
 
 ## **带上一个充气太阳能灯笼**
 
-你可能已经带了手电筒、蜡烛和火柴，但是光是非常必要的——尤其是如果你在一个你从未去过的地方扎营。这条建议来自Lifehacker视频制作人乔丹·希克斯:太阳能灯在白天充电，使用太阳光线，所以你不需要对你的电池偏执- 包装。一个充气太阳能灯笼， [就像这个](https://www.rei.com/product/124869/mpowerd-luci-outdoor-20-inflatable-solar-lantern) ，可以折叠，防水，明亮，可以发光长达24小时。
+你可能已经带了手电筒、蜡烛和火柴，但是光是非常必要的——尤其是如果你在一个你从未去过的地方扎营。这条建议来自 Lifehacker 视频制作人乔丹·希克斯:太阳能灯在白天充电，使用太阳光线，所以你不需要对你的电池偏执- 包装。一个充气太阳能灯笼， [就像这个](https://www.rei.com/product/124869/mpowerd-luci-outdoor-20-inflatable-solar-lantern) ，可以折叠，防水，明亮，可以发光长达 24 小时。
 
 ## **包括个人滤水器**
 
-希克斯说，个人滤水器也是必须的。甚至一个个人吸管过滤器，像的LifeStraw，也能做到这一点。当然，你应该带尽可能多的饮用水，但如果你用完了或发现自己没有水，一种保护你免受细菌、寄生虫和微塑料伤害的设备可以帮助你避免脱水，并回到一个更安全的地方。
+希克斯说，个人滤水器也是必须的。甚至一个个人吸管过滤器，像的 LifeStraw，也能做到这一点。当然，你应该带尽可能多的饮用水，但如果你用完了或发现自己没有水，一种保护你免受细菌、寄生虫和微塑料伤害的设备可以帮助你避免脱水，并回到一个更安全的地方。
 
 ## **装上对讲机**
 
-即使你选择了一个手机信号不错的地方，明智的做法是为团队中的每个人配备对讲机，以防你们走散或发现自己的服务比预期的差。当然，现在是2022年，所以你可能连对讲机都没有，但是这些东西有不同的价位。看看 [这款评价极高的套装](https://www.homedepot.com/p/COBRA-16-Mile-Range-2-Way-Radio-ACXT145-HD/319391211) 售价约30美元，或者 [这款售价约150美元](https://www.globalindustrial.com/p/motorola-talkabout-t600-waterproof-rechargeable-two-way-radios-yellow-2-pack?infoParam.campaignId=T9F&gclid=CjwKCAjwx7GYBhB7EiwA0d8oeyQ4W3joZ6EPvzu0C_z8A97BXvQPxWUWx11-saWxLXsbGpxwhKjl4RoCIrQQAvD_BwE) 。
+即使你选择了一个手机信号不错的地方，明智的做法是为团队中的每个人配备对讲机，以防你们走散或发现自己的服务比预期的差。当然，现在是 2022 年，所以你可能连对讲机都没有，但是这些东西有不同的价位。看看 [这款评价极高的套装](https://www.homedepot.com/p/COBRA-16-Mile-Range-2-Way-Radio-ACXT145-HD/319391211) 售价约 30 美元，或者 [这款售价约 150 美元](https://www.globalindustrial.com/p/motorola-talkabout-t600-waterproof-rechargeable-two-way-radios-yellow-2-pack?infoParam.campaignId=T9F&gclid=CjwKCAjwx7GYBhB7EiwA0d8oeyQ4W3joZ6EPvzu0C_z8A97BXvQPxWUWx11-saWxLXsbGpxwhKjl4RoCIrQQAvD_BwE) 。
 
 ## **带上多功能工具**
 
-当你去野营的时候，很难预料你会遇到什么，但是即使你计划只是使用一个火炉，闲荡着读一本书，当你离最近的商店很远的时候，你可能会对你会遇到的一些问题感到惊讶。你最好的选择是多功能工具，像 [这种十四合一的坏小子](https://tinyurl.com/3ynmarcz) ，其中配有尖嘴钳、圆口钳、切割钳、各种刀具和螺丝刀、开瓶器。你不能预测你会遇到的所有问题，但是花大约20美元，你至少可以储备一些工具来帮助你解决这些问题。感谢Lifehacker资深健康编辑贝丝·斯沃雷基的这篇文章。
+当你去野营的时候，很难预料你会遇到什么，但是即使你计划只是使用一个火炉，闲荡着读一本书，当你离最近的商店很远的时候，你可能会对你会遇到的一些问题感到惊讶。你最好的选择是多功能工具，像 [这种十四合一的坏小子](https://tinyurl.com/3ynmarcz) ，其中配有尖嘴钳、圆口钳、切割钳、各种刀具和螺丝刀、开瓶器。你不能预测你会遇到的所有问题，但是花大约 20 美元，你至少可以储备一些工具来帮助你解决这些问题。感谢 Lifehacker 资深健康编辑贝丝·斯沃雷基的这篇文章。
 
 ## **其他一些必需品**
 
-除了这些想法，根据 [安全组织SureFire CPR](https://www.surefirecpr.com/essential-safety-items-pack-going-camping/) 的说法，这里的更多的是你露营旅行需要的基本知识:
+除了这些想法，根据 [安全组织 SureFire CPR](https://www.surefirecpr.com/essential-safety-items-pack-going-camping/) 的说法，这里的更多的是你露营旅行需要的基本知识:
 
 *   手电筒
 *   电池

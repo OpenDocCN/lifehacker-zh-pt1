@@ -1,8 +1,8 @@
 # 这些是飞机扶手分配的明确规则
 
-> 原文:[https://jalopnik . com/this-is-the-definitive-rules-for-aircraft-扶手-all-1847095061](https://jalopnik.com/these-are-the-definitive-rules-for-airplane-armrest-all-1847095061)
+> 原文：<https://jalopnik.com/these-are-the-definitive-rules-for-airplane-armrest-all-1847095061>
 
-你可能已经听说，随着人们从他们的COVID 诱导的禁闭中走出来，再次飞向天空，飞行中的打架事件、、疯狂的场景[一般不守规矩的行为](https://www.npr.org/2021/06/04/1003191559/as-covid-19-restrictions-ease-airline-employees-are-seeing-trouble-on-flights) 达到了惊人的高水平。虽然其中一些与面具和酒精有关，但仍有经典的飞行冲突主题，如扶手分配。扶手领土争端的事情是，这应该是一个很好解决的问题。如果你不知道，我现在要提醒你扶手的规则。
+你可能已经听说，随着人们从他们的 COVID 诱导的禁闭中走出来，再次飞向天空，飞行中的打架事件、、疯狂的场景[一般不守规矩的行为](https://www.npr.org/2021/06/04/1003191559/as-covid-19-restrictions-ease-airline-employees-are-seeing-trouble-on-flights) 达到了惊人的高水平。虽然其中一些与面具和酒精有关，但仍有经典的飞行冲突主题，如扶手分配。扶手领土争端的事情是，这应该是一个很好解决的问题。如果你不知道，我现在要提醒你扶手的规则。
 
 Watch
 

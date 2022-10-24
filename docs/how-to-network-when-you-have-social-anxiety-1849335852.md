@@ -1,6 +1,6 @@
 # 当你有社交焦虑时，如何建立关系网
 
-> 原文:[https://life hacker . com/how-to-network-when you-have-social-anxiety-1849335852](https://lifehacker.com/how-to-network-when-you-have-social-anxiety-1849335852)
+> 原文：<https://lifehacker.com/how-to-network-when-you-have-social-anxiety-1849335852>
 
 人际关系网有许多实实在在的好处，从找到能帮你导航职业生涯的导师和能提供建议和支持的同事，到找到下一份工作的线索。然而，尽管网络很有用，但它也可能非常可怕。
 
@@ -18,7 +18,7 @@ Watch
 
 正如她所指出的，带着好奇心进去有助于将注意力从我们的神经上转移，更多地转向你要见的人。“好处是你可以了解其他人，也更有可能找到共同点。”
 
-正如2017年 的一项研究 [所显示的，拥有好奇心态的人更少受到社会排斥的影响，他们更受同龄人的喜爱。“这真的是一个简单的解决方案，却有这么多好处，”亨特·阿斯科特说。](https://www.sciencedirect.com/science/article/abs/pii/S0191886916310340)
+正如 2017 年 的一项研究 [所显示的，拥有好奇心态的人更少受到社会排斥的影响，他们更受同龄人的喜爱。“这真的是一个简单的解决方案，却有这么多好处，”亨特·阿斯科特说。](https://www.sciencedirect.com/science/article/abs/pii/S0191886916310340)
 
 此外，我们使用的语言也会产生很大的影响。正如 [研究显示](https://journals.sagepub.com/doi/abs/10.1177/0001839214554990?journalCode=asqa) 的那样，光是网络这个想法就让很多人觉得肮脏。亨特·阿斯科特说:“我们如何构建事物会产生不同的心理和行为影响。”。
 

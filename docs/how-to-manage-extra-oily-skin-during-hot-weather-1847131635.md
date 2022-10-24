@@ -1,6 +1,6 @@
 # 如何在炎热的天气里管理额外的油性皮肤
 
-> 原文:[https://life hacker . com/how-to-manage-extra-oily-skin-during-hot-weather-1847131635](https://lifehacker.com/how-to-manage-extra-oily-skin-during-hot-weather-1847131635)
+> 原文：<https://lifehacker.com/how-to-manage-extra-oily-skin-during-hot-weather-1847131635>
 
 夏天还没有正式开始，但这个国家的许多地方已经出现了飙升的温度和极端的热量。出于多种原因，炎热的天气令人讨厌——而且有潜在的危险，其中一个令人讨厌的部分是它对你皮肤的影响。
 

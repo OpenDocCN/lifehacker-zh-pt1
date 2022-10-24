@@ -1,6 +1,6 @@
 # 也许你不应该冰敷疼痛的肌肉和关节
 
-> 原文:[https://life hacker . com/what-do-ice-baths-do-for-your-body-1838950441](https://lifehacker.com/what-do-ice-baths-do-for-your-body-1838950441)
+> 原文：<https://lifehacker.com/what-do-ice-baths-do-for-your-body-1838950441>
 
 锻炼后的冰浴可以减少酸痛肌肉的肿胀，这听起来是一个在艰苦锻炼后的好主意。但即使有些运动员信誓旦旦，冰浴也未必对恢复有很大帮助。
 
@@ -14,10 +14,10 @@ Watch
 
 减少炎症听起来很棒，直到你意识到愈合的过程与炎症密切相关——也就是说，如果你减少了血流量、肿胀和免疫系统反应，你也可能会推迟愈合。最近的研究表明，即使结冰扭伤和受伤 [实际上可能不会帮助](https://www.washingtonpost.com/lifestyle/wellness/why-icing-a-sprain-doesnt-help-and-could-make-the-injury-worse/2019/03/04/25a6caa0-3ae4-11e9-a2cd-307b06d0257b_story.html) ，冰浴似乎也是如此。
 
-正如Christie Aschwanden [在她关于运动恢复技巧](https://www.sciencefriday.com/articles/do-ice-baths-work/) 的深度探讨中所写的，运动后冰浴正在失宠，也是如此。它们可能会让你在短期内感觉更好，但如果你在每次锻炼后都使用它们，你实际上可能会减缓你的收获。
+正如 Christie Aschwanden [在她关于运动恢复技巧](https://www.sciencefriday.com/articles/do-ice-baths-work/) 的深度探讨中所写的，运动后冰浴正在失宠，也是如此。它们可能会让你在短期内感觉更好，但如果你在每次锻炼后都使用它们，你实际上可能会减缓你的收获。
 
 ## 肌肉和关节疼痛可能感觉良好
 
-冰浴不只是治疗你的肌肉；它们是一种完整的体验。有些人喜欢从浴缸里出来的感觉，即使他们不喜欢待在里面；T4的冰浴爱好者说，他们感到欣快或不可战胜。毕竟你刚刚经历了一些痛苦和困难，你挺过来了。如果这让你觉得自己是一个更坚强的运动员，也许这对你来说是值得的。
+冰浴不只是治疗你的肌肉；它们是一种完整的体验。有些人喜欢从浴缸里出来的感觉，即使他们不喜欢待在里面；T4 的冰浴爱好者说，他们感到欣快或不可战胜。毕竟你刚刚经历了一些痛苦和困难，你挺过来了。如果这让你觉得自己是一个更坚强的运动员，也许这对你来说是值得的。
 
-*本故事最初发表于2019年10月，2021年6月28日更新，以符合Lifehacker风格指南。*
+*本故事最初发表于 2019 年 10 月，2021 年 6 月 28 日更新，以符合 Lifehacker 风格指南。*

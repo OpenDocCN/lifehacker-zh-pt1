@@ -1,12 +1,12 @@
 # 在你的早餐三明治上磨碎一个西红柿
 
-> 原文:[https://life hacker . com/grate-a-tomato-on-your ' s breakfast-sandwich-1849470643](https://lifehacker.com/grate-a-tomato-on-your-breakfast-sandwich-1849470643)
+> 原文：<https://lifehacker.com/grate-a-tomato-on-your-breakfast-sandwich-1849470643>
 
 我是一个糟糕的园丁，但我还是设法种出了一整串(非常小的)西红柿。那些西红柿现在真的上市了，但是它们根本不够大，不能切片。这有点悲剧，因为切片番茄是我最喜欢的三明治的基础( [番茄三明治](https://lifehacker.com/12-tasty-ways-you-should-be-eating-tomatoes-1847343803/slides/2) ，是用蛋黄酱、番茄、盐和胡椒做的，那就是 *it* )。
 
 Watch
 
-通常，当遇到这样的恩惠时，我会把西红柿磨碎，做成小番茄吐司。小小的番茄吐司非常美味，但是，即使涂上一层labneh或农家干酪，也不如煎蛋早餐三明治那样能填饱肚子。所以我决定把这两者结合起来，把我的一些小的、有味道的西红柿磨碎到我的煎蛋和奶酪上。
+通常，当遇到这样的恩惠时，我会把西红柿磨碎，做成小番茄吐司。小小的番茄吐司非常美味，但是，即使涂上一层 labneh 或农家干酪，也不如煎蛋早餐三明治那样能填饱肚子。所以我决定把这两者结合起来，把我的一些小的、有味道的西红柿磨碎到我的煎蛋和奶酪上。
 
 非常完美。
 

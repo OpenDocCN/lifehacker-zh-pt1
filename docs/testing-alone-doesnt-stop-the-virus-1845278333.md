@@ -1,6 +1,6 @@
 # 单靠测试并不能阻止病毒
 
-> 原文:[https://life hacker . com/testing-alone-donts-stop-the-virus-1845278333](https://lifehacker.com/testing-alone-doesnt-stop-the-virus-1845278333)
+> 原文：<https://lifehacker.com/testing-alone-doesnt-stop-the-virus-1845278333>
 
 让我吃惊的不是总统染上了冠状病毒，而是过了这么久。他不戴面具；他经常被不戴面具的人包围；他 [告诉和他说话的人摘下面具](https://www.nytimes.com/2020/10/03/us/politics/white-house-coronavirus.html?smid=tw-share) 。看起来他似乎仅仅依靠对周围人的频繁检测来阻止病毒。
 
@@ -14,11 +14,11 @@ Watch
 
 让我们假设你已经远离了那些已知患有这种疾病的人。不仅仅是六英尺远——你不会想和他们在同一个房间里。他们应该呆在家里。不是来工作的。不参加聚会。
 
-因为不是每个感染了病毒的人都知道自己感染了病毒，所以你应该尽最大努力远离那些你绝对不需要与之交往的人(T2和T3)。为了降低你在身份不明的人附近时的风险，你会戴上面具，并要求他们戴上面具(或者*让*他们戴上面具，因为你是老板)。你应该经常洗手，让你的员工消毒表面，这只是为了更好的衡量。
+因为不是每个感染了病毒的人都知道自己感染了病毒，所以你应该尽最大努力远离那些你绝对不需要与之交往的人(T2 和 T3)。为了降低你在身份不明的人附近时的风险，你会戴上面具，并要求他们戴上面具(或者*让*他们戴上面具，因为你是老板)。你应该经常洗手，让你的员工消毒表面，这只是为了更好的衡量。
 
 ### 只有当你知道如何处理结果时，测试才有帮助
 
-好的，但是测试应该仍然有助于T1，对吗？当然，但前提是你要根据结果采取适当的行动。
+好的，但是测试应该仍然有助于 T1，对吗？当然，但前提是你要根据结果采取适当的行动。
 
 这里就说明迂腐的 [隔离和检疫](https://vitals.lifehacker.com/what-does-self-quarantine-actually-mean-1842268976) 的区别变得重要了:
 
@@ -31,8 +31,8 @@ Watch
 
 ### 阴性测试并不意味着你没有被感染
 
-重要的是，一个人可能感染了冠状病毒，但测试结果仍然是阴性。这可能是因为他们得到了假阴性结果。其中一个可能的原因是:也许拭子没有获得足够的病毒RNA，或者也许这个人处于感染的早期阶段，很难检测出来。FDA在一份关于PCR检测 的 [说明书中指出，“阴性结果并不能排除新冠肺炎，也不应作为治疗或患者管理决策的唯一依据。一个否定的结果不排除新冠肺炎的可能性。”](https://www.fda.gov/media/134920/download)
+重要的是，一个人可能感染了冠状病毒，但测试结果仍然是阴性。这可能是因为他们得到了假阴性结果。其中一个可能的原因是:也许拭子没有获得足够的病毒 RNA，或者也许这个人处于感染的早期阶段，很难检测出来。FDA 在一份关于 PCR 检测 的 [说明书中指出，“阴性结果并不能排除新冠肺炎，也不应作为治疗或患者管理决策的唯一依据。一个否定的结果不排除新冠肺炎的可能性。”](https://www.fda.gov/media/134920/download)
 
-重要的是，白宫正在使用的测试，雅培的ID Now测试，是为在有症状的人身上使用而创建的(例如，在紧急护理中心)，而不是为了在还没有表现出症状的人中发现疾病， [STAT报道](https://www.statnews.com/2020/10/02/why-the-white-houses-testing-only-strategy-to-shield-trump-from-covid-19-fell-short) 。公司 [声明](https://www.abbott.com/corpnewsroom/product-and-innovation/abbott-statement-on-first-family-COVID-19-diagnosis.html) 它在“症状出现后7天内”检测到95%的病例。
+重要的是，白宫正在使用的测试，雅培的 ID Now 测试，是为在有症状的人身上使用而创建的(例如，在紧急护理中心)，而不是为了在还没有表现出症状的人中发现疾病， [STAT 报道](https://www.statnews.com/2020/10/02/why-the-white-houses-testing-only-strategy-to-shield-trump-from-covid-19-fell-short) 。公司 [声明](https://www.abbott.com/corpnewsroom/product-and-innovation/abbott-statement-on-first-family-COVID-19-diagnosis.html) 它在“症状出现后 7 天内”检测到 95%的病例。
 
-COVID患者在最终检测为阳性之前，可以多次检测为阴性。举例来说，这可能就是发生在McEnany身上的事情，因为她曾多次接触过后来检测呈阳性的人。这就是为什么乔·拜登的阴性测试不能保证他没有病毒 。任何与 [检测呈阳性的人有过接触的人都应该隔离14天，正如疾病预防控制中心明确指出的](https://www.cdc.gov/coronavirus/2019-ncov/if-you-are-sick/quarantine.html) ，无论他们是否是总统的朋友。
+COVID 患者在最终检测为阳性之前，可以多次检测为阴性。举例来说，这可能就是发生在 McEnany 身上的事情，因为她曾多次接触过后来检测呈阳性的人。这就是为什么乔·拜登的阴性测试不能保证他没有病毒 。任何与 [检测呈阳性的人有过接触的人都应该隔离 14 天，正如疾病预防控制中心明确指出的](https://www.cdc.gov/coronavirus/2019-ncov/if-you-are-sick/quarantine.html) ，无论他们是否是总统的朋友。

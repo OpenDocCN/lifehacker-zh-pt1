@@ -1,6 +1,6 @@
 # 如何了解孩子的气质
 
-> 原文:[https://life hacker . com/how-to-understand-your-childs-脾性-1847091345](https://lifehacker.com/how-to-understand-your-childs-temperament-1847091345)
+> 原文：<https://lifehacker.com/how-to-understand-your-childs-temperament-1847091345>
 
 作为父母，我们倾向于将孩子的情绪和行为视为我们养育方式的反映。当你看到某人轻松、外向的孩子能够适应计划的突然变化时，你会想，“伙计，那些父母做得很好。”与此同时，你的孩子很容易生气或沮丧，需要每件事都以特定的方式完成，你想知道你哪里错了。简单的回答是:那只是他们与生俱来的气质。
 
@@ -16,7 +16,7 @@ Watch
 
 ## 气质的九个主要特征
 
-虽然气质有三大类(容易、热身缓慢或害羞、困难或具有挑战性)，但根据美国儿科学会(AAP) 的 [，至少还有九个更具体的特征需要考虑，每个孩子都会有不同的模式。下面是](https://www.healthychildren.org/English/ages-stages/gradeschool/Pages/How-to-Understand-Your-Childs-Temperament.aspx) [AAP如何定义那些特征](https://www.healthychildren.org/English/ages-stages/gradeschool/Pages/How-to-Understand-Your-Childs-Temperament.aspx) :
+虽然气质有三大类(容易、热身缓慢或害羞、困难或具有挑战性)，但根据美国儿科学会(AAP) 的 [，至少还有九个更具体的特征需要考虑，每个孩子都会有不同的模式。下面是](https://www.healthychildren.org/English/ages-stages/gradeschool/Pages/How-to-Understand-Your-Childs-Temperament.aspx) [AAP 如何定义那些特征](https://www.healthychildren.org/English/ages-stages/gradeschool/Pages/How-to-Understand-Your-Childs-Temperament.aspx) :
 
 > *   **Activity level** : The level of physical activity, movement, restlessness or fidgety behavior that children show in their daily activities (which may also affect their sleep).
 > *   **Rhythm or regularity** : Whether the basic physiological functions such as appetite, sleep and defecation habits are regular or not.

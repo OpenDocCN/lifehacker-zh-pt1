@@ -1,6 +1,6 @@
 # 你在杂货店应该更安全
 
-> 原文:[https://life hacker . com/you-should-be-safe-in-the-杂货店-1848598210](https://lifehacker.com/you-should-be-safer-at-the-grocery-store-1848598210)
+> 原文：<https://lifehacker.com/you-should-be-safer-at-the-grocery-store-1848598210>
 
 当我们想到食物中毒时，通常是在频繁的食物召回背景下，从 [沙拉](https://lifehacker.com/don-t-eat-these-recalled-salads-fda-says-1848344484) ，到 [洋葱](https://lifehacker.com/throw-your-onions-in-the-trash-cdc-says-1847907564) ，到 [干香料](https://lifehacker.com/check-your-spices-to-see-if-theyre-part-of-a-recall-ove-1845468692) 。
 

@@ -1,6 +1,6 @@
 # 蚱蜢和蟋蟀的区别(以及如何防止这两者在今年秋天入侵你的家)
 
-> 原文:[https://life hacker . com/the-difference-of-grasshopters-and-crickets-and-h-1849508617](https://lifehacker.com/the-difference-between-grasshoppers-and-crickets-and-h-1849508617)
+> 原文：<https://lifehacker.com/the-difference-between-grasshoppers-and-crickets-and-h-1849508617>
 
 外面，蚱蜢和蟋蟀的鸣叫声增加了气氛——尤其是在夏天。但是在室内，这种噪音很快就会让人讨厌。此外，虽然有些人可能不觉得蚱蜢和蟋蟀像蜘蛛一样可怕，但在你的家里遇到一只或多只这样的昆虫可能会让你不舒服。
 

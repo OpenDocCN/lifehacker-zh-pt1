@@ -1,24 +1,24 @@
 # 如何在接受工作之前评估福利待遇
 
-> 原文:[https://life hacker . com/how-to-evaluate-a-benefits-package-before-you-accept-a-1846936196](https://lifehacker.com/how-to-evaluate-a-benefits-package-before-you-accept-a-1846936196)
+> 原文：<https://lifehacker.com/how-to-evaluate-a-benefits-package-before-you-accept-a-1846936196>
 
 当谈到工作机会时，人们很容易关注薪水，因为，嗯...你需要钱来生活。但是你也要仔细评估所提供的福利，因为它们有数千美元的货币价值，可以让低于预期的工资值得接受。以下是你应该寻找的好处。
 
 Watch
 
-## **寻找具有匹配贡献的401(k)s**
+## **寻找具有匹配贡献的 401(k)s**
 
-你的雇主可能会提供401(k)退休储蓄计划，如果你幸运的话，他们会提供与你相同的缴款，通常是50%，有时甚至是100%，通常上限约为你工资的4.3%【余额】有很好的选项概述。这是你最接近自由资金的方式，因为它们是随着时间的推移复利的匹配资金。
+你的雇主可能会提供 401(k)退休储蓄计划，如果你幸运的话，他们会提供与你相同的缴款，通常是 50%，有时甚至是 100%，通常上限约为你工资的 4.3%【余额】有很好的选项概述。这是你最接近自由资金的方式，因为它们是随着时间的推移复利的匹配资金。
 
-举一个富达 的 [的例子，假设你得到了一份高达你工资4%的完全匹配。如果你每年挣50，000美元，那就意味着每年有2，000美元的额外“自由”收入。假设你的401(k)的回报率保持稳定(说， 7%)，你的雇主的匹配缴款复合计算，并在你退休时为你的储蓄增加*额外的*320，250美元。](https://www.fidelity.com/viewpoints/personal-finance/evaluate-a-job-offer)
+举一个富达 的 [的例子，假设你得到了一份高达你工资 4%的完全匹配。如果你每年挣 50，000 美元，那就意味着每年有 2，000 美元的额外“自由”收入。假设你的 401(k)的回报率保持稳定(说， 7%)，你的雇主的匹配缴款复合计算，并在你退休时为你的储蓄增加*额外的*320，250 美元。](https://www.fidelity.com/viewpoints/personal-finance/evaluate-a-job-offer)
 
-使用这个计算器 来估算401(k)的价值，并在评估工作机会时考虑这个价值。
+使用这个计算器 来估算 401(k)的价值，并在评估工作机会时考虑这个价值。
 
 ## 确保你的雇主会支付医疗费用
 
 不幸的是，如果你的雇主没有提供足够的医疗保险，那么高医疗费用会抵消高于平均水平的工资。计划和选择可能会变得复杂，但有一件事你可以关注，那就是你和你的雇主支付的工资百分比的差异。
 
-据美国新闻报道，平均而言，的员工支付了 [81%的保险费用](https://money.usnews.com/money/personal-finance/family-finance/articles/what-to-expect-from-your-employers-health-plan-in-2021) ，大型雇主最受欢迎的保险计划的平均扣除额约为1500美元。您还需要检查这些福利，看看它们与您的医疗需求有多接近。
+据美国新闻报道，平均而言，的员工支付了 [81%的保险费用](https://money.usnews.com/money/personal-finance/family-finance/articles/what-to-expect-from-your-employers-health-plan-in-2021) ，大型雇主最受欢迎的保险计划的平均扣除额约为 1500 美元。您还需要检查这些福利，看看它们与您的医疗需求有多接近。
 
 最后，检查该计划是否提供健康储蓄账户(HSA)或灵活支出账户(FSA)，因为在支付医疗费用时，它们可以为你节省几千美元的税款。
 
@@ -32,7 +32,7 @@ Watch
 
 ## **寻找负担得起的保险选择**
 
-雇主通常会以折扣率提供保险，这可以省去你自己购物的麻烦(例如，残疾和人寿保险的费用通常会作为你的薪酬包的一部分完全涵盖)。考虑到每年的牙科费用通常为[600美元左右](https://www.investopedia.com/articles/pf/07/dental-insurance.asp#citation-1) ，的低端视力计划为240美元，牙科大约为[【600美元](https://www.consumerreports.org/insurance/private-dental-insurance-think-twice-before-buying/) ，这些费用很快就会增加。然而，并不是所有的计划都是一样的——你需要仔细看看每个计划到底提供了什么，并确保它们满足你的需求。
+雇主通常会以折扣率提供保险，这可以省去你自己购物的麻烦(例如，残疾和人寿保险的费用通常会作为你的薪酬包的一部分完全涵盖)。考虑到每年的牙科费用通常为[600 美元左右](https://www.investopedia.com/articles/pf/07/dental-insurance.asp#citation-1) ，的低端视力计划为 240 美元，牙科大约为[【600 美元](https://www.consumerreports.org/insurance/private-dental-insurance-think-twice-before-buying/) ，这些费用很快就会增加。然而，并不是所有的计划都是一样的——你需要仔细看看每个计划到底提供了什么，并确保它们满足你的需求。
 
 ## **计算其他津贴的货币价值**
 

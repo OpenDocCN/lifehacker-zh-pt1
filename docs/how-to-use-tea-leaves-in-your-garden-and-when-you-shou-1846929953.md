@@ -1,6 +1,6 @@
 # 如何在你的花园里使用茶叶(以及什么时候不应该使用)
 
-> 原文:[https://life hacker . com/how-to-use-your-garden-and-when-you-shou-1846929953](https://lifehacker.com/how-to-use-tea-leaves-in-your-garden-and-when-you-shou-1846929953)
+> 原文：<https://lifehacker.com/how-to-use-tea-leaves-in-your-garden-and-when-you-shou-1846929953>
 
 一些 [多年生蔬菜](https://lifehacker.com/the-difference-between-annuals-perennials-and-biennia-1846913179) 为自己和附近的植物生命提供天然肥料。草药也是如此。旧的和用过的 [茶包提供氮气、单宁酸](https://www.homesandgardens.com/advice/using-tea-leaves-in-the-garden) 和其他成分，帮助使成为一个健康的生长环境。
 

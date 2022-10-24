@@ -1,6 +1,6 @@
-# 这个免费的Mod将魔兽世界区域添加到瓦尔海姆
+# 这个免费的 Mod 将魔兽世界区域添加到瓦尔海姆
 
-> 原文:[https://life hacker . com/this-free-mod-adds-world-of-war craft-zones-to-valheim-1846863156](https://lifehacker.com/this-free-mod-adds-world-of-warcraft-zones-to-valheim-1846863156)
+> 原文：<https://lifehacker.com/this-free-mod-adds-world-of-warcraft-zones-to-valheim-1846863156>
 
 *瓦尔海姆*玩家担心他们在*魔兽世界*之外花费的所有时间，现在可以一举两得了。多亏了一个新的——免费——mod，你可以在每个人都喜欢的维京生存游戏中探索艾泽拉斯心爱的领域。
 
@@ -8,9 +8,9 @@ Watch
 
 名为*瓦尔海姆魔兽*的免费模式并没有改变*瓦尔海姆*的核心游戏，但是将*魔兽世界*的大部分区域添加到*瓦尔海姆*作为可玩的大陆。这包括卡利姆多、东方王国、奎尔萨拉斯、诺森德、潘达里亚等等。
 
-注意，这个导入不是一对一的娱乐。在Nexus mod网站上被称为“Kromek”的Mod创建者说，每个大陆都被缩小了大约20%，以使地图适合*瓦尔海姆*，而像阿格斯、德拉诺、外域和阴影之地这样的宇宙领域还没有被包括在内。大漩涡在技术上也是存在的，但是没有它标志性的旋转漩涡。
+注意，这个导入不是一对一的娱乐。在 Nexus mod 网站上被称为“Kromek”的 Mod 创建者说，每个大陆都被缩小了大约 20%，以使地图适合*瓦尔海姆*，而像阿格斯、德拉诺、外域和阴影之地这样的宇宙领域还没有被包括在内。大漩涡在技术上也是存在的，但是没有它标志性的旋转漩涡。
 
-自定义地图让玩家在一个重建版本的永恒之岛中开始游戏，其中包括通往魔兽世界各种起始区域的活动入口。从那里开始，每个区域都有自己的前进路线和boss战斗可以玩，有更多的入口可以代替魔兽世界*的*船和齐柏林飞艇路线带你环游这片土地。
+自定义地图让玩家在一个重建版本的永恒之岛中开始游戏，其中包括通往魔兽世界各种起始区域的活动入口。从那里开始，每个区域都有自己的前进路线和 boss 战斗可以玩，有更多的入口可以代替魔兽世界*的*船和齐柏林飞艇路线带你环游这片土地。
 
 也就是说，你不会找到主要的城市、地牢或其他建筑来探索，尽管克罗梅克计划添加可选的预建筑 s，并用“墓室、沉没的地窖和地精村庄”充实地图，它们会可信地出现在那里。但是由于*瓦尔海姆*允许玩家建造他们自己的城镇，你和你的朋友们可以挑战自己，现在就独自重建奥格瑞玛、暴风城和其他地方。
 
@@ -18,9 +18,9 @@ Watch
 
 1.  在你的电脑上进入 **Users/【你的用户名】/AppData/local low/iron gate/Valheim**。
 2.  将“世界”和“角色”文件夹备份到一个安全、容易访问的位置，以便在出现问题时可以恢复游戏数据。
-3.  从Nexus Mods安装[Better continentals mod](https://billw2012.github.io/BetterContinents-Docs/setup-guide.html)(需要一个免费的Nexus Mods帐号)。
-4.  从 [Nexus Mods](https://www.nexusmods.com/valheim/mods/1181) 下载*魔兽瓦尔海姆*地图zip文件夹。
+3.  从 Nexus Mods 安装[Better continentals mod](https://billw2012.github.io/BetterContinents-Docs/setup-guide.html)(需要一个免费的 Nexus Mods 帐号)。
+4.  从 [Nexus Mods](https://www.nexusmods.com/valheim/mods/1181) 下载*魔兽瓦尔海姆*地图 zip 文件夹。
 5.  将魔兽争霸的瓦尔海姆地图解压到 **Users/【你的用户名】/AppData/local low/iron gate/瓦尔海姆/worlds**
 6.  打开瓦尔海姆，然后从列出的世界中选择**《魔兽瓦尔海姆》**开始游戏。
 
-魔兽争霸 [Nexus mod页面](https://www.nexusmods.com/valheim/mods/1181) 中包含了在线玩地图的说明。
+魔兽争霸 [Nexus mod 页面](https://www.nexusmods.com/valheim/mods/1181) 中包含了在线玩地图的说明。

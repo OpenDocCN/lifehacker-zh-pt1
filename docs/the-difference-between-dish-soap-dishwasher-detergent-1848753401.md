@@ -1,6 +1,6 @@
 # 洗碗皂、洗碗机用洗涤剂和洗衣液的区别(以及它的重要性)
 
-> 原文:[https://life hacker . com/the-difference-between-dish-soap-洗碗机-洗涤剂-1848753401](https://lifehacker.com/the-difference-between-dish-soap-dishwasher-detergent-1848753401)
+> 原文：<https://lifehacker.com/the-difference-between-dish-soap-dishwasher-detergent-1848753401>
 
 最近，我写了一些鲜为人知的家庭周围洗碗机平板 的 [清洁应用。在评论中，有人问，“用温水溶解豆荚和用温水清洗有什么区别...你知道，肥皂水？”](https://lifehacker.com/the-smartest-ways-to-use-dishwasher-tablets-to-clean-yo-1848712078) 
 
@@ -14,9 +14,9 @@ Watch
 
 ## **液体洗碗皂和洗碗机清洁剂有何不同**
 
-但是，洗碗精、洗碗精和洗衣液的成分有着重要的区别，这使得每一种产品都最适合其特定的环境。根据威斯康星大学麦迪逊分校T3的说法，“主要的区别在于pH值、漂白剂的存在与否以及表面活性剂的类型——长分子一端亲水，另一端亲油。”
+但是，洗碗精、洗碗精和洗衣液的成分有着重要的区别，这使得每一种产品都最适合其特定的环境。根据威斯康星大学麦迪逊分校 T3 的说法，“主要的区别在于 pH 值、漂白剂的存在与否以及表面活性剂的类型——长分子一端亲水，另一端亲油。”
 
-洗碗机用洗涤剂是设计用来溶解食物和油的，含有高pH值和氯漂白剂，而液体洗碗皂不含漂白剂和更温和的表面活性剂，因此不会刺激我们的手。根据 [鲍勃·维拉](https://www.bobvila.com/articles/can-you-use-dish-soap-in-a-dishwasher/#:~:text=While%20dishwasher%20detergent%20is%20a,eat%20away%20at%20the%20mess.) 的说法，洗碗机洗涤剂的配方也是为了清洁而没有液体洗碗皂的粘稠泡沫，而是依靠酶将食物蛋白质链和淀粉分解成足够小的部分，可以被洗掉。
+洗碗机用洗涤剂是设计用来溶解食物和油的，含有高 pH 值和氯漂白剂，而液体洗碗皂不含漂白剂和更温和的表面活性剂，因此不会刺激我们的手。根据 [鲍勃·维拉](https://www.bobvila.com/articles/can-you-use-dish-soap-in-a-dishwasher/#:~:text=While%20dishwasher%20detergent%20is%20a,eat%20away%20at%20the%20mess.) 的说法，洗碗机洗涤剂的配方也是为了清洁而没有液体洗碗皂的粘稠泡沫，而是依靠酶将食物蛋白质链和淀粉分解成足够小的部分，可以被洗掉。
 
 洗碗皂含有“温和添加剂”，如油和保湿剂，因为它被设计成经常与人类皮肤接触。此外，正如名字*肥皂*所暗示的那样，它的配方是用浓稠的泡沫来溶解食物和油脂(而不是酶)。
 

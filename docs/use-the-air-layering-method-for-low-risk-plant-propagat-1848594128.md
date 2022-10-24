@@ -1,8 +1,8 @@
 # 使用空气压条法繁殖低风险植物
 
-> 原文:[https://life hacker . com/use-the-air-layering-method-for-low-risk-plant-propagat-1848594128](https://lifehacker.com/use-the-air-layering-method-for-low-risk-plant-propagat-1848594128)
+> 原文：<https://lifehacker.com/use-the-air-layering-method-for-low-risk-plant-propagat-1848594128>
 
-繁殖植物可能会碰运气——尤其是对初学者来说。教学抖音或Instagram视频让它看起来很容易。虽然有时是这样，但其他时候你只剩下一棵被切碎的母(原)植物，没有任何东西可以展示。
+繁殖植物可能会碰运气——尤其是对初学者来说。教学抖音或 Instagram 视频让它看起来很容易。虽然有时是这样，但其他时候你只剩下一棵被切碎的母(原)植物，没有任何东西可以展示。
 
 Watch
 
@@ -17,7 +17,7 @@ Watch
 有几种不同的空气分层技术，其中一些不一定适合初学者，但一般过程如下:
 
 1.  找一根 [大致两三岁的](https://whyfarmit.com/air-layering/) 的树枝或嫩枝。(应该是既有弹性又有强度，并表现出多重新增长的迹象。)
-2.  剥去树枝1-2英寸的皮，或在靠近基部的地方进行拍摄。
+2.  剥去树枝 1-2 英寸的皮，或在靠近基部的地方进行拍摄。
 3.  在你剥开树枝或嫩枝的地方裹上潮湿的泥炭藓。
 4.  用花结或植物缠绕来固定苔藓。
 5.  用保鲜膜覆盖整捆。

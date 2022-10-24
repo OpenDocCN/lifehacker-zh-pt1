@@ -1,6 +1,6 @@
 # 在你的壁炉里生起熊熊大火的最简单的方法
 
-> 原文:[https://life hacker . com/the-easy-way-build-a-rowing-fire-fire PLA-1847948206](https://lifehacker.com/the-easiest-way-to-build-a-roaring-fire-in-your-firepla-1847948206)
+> 原文：<https://lifehacker.com/the-easiest-way-to-build-a-roaring-fire-in-your-firepla-1847948206>
 
 壁炉天气很快就要来临了。壁炉里的火是给你的家增加舒适温暖的好方法，但是如果在壁炉里生火看起来很麻烦，以至于你一年才生一次，那你就花了太多精力了。这里有一些策略可以让它变得不那么艰难，这样你就可以从里到外享受这种独一无二的温暖。
 

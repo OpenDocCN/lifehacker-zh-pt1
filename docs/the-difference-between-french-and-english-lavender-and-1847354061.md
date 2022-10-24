@@ -1,6 +1,6 @@
 # 法国和英国薰衣草的区别，以及在你的花园里种植哪一种
 
-> 原文:[https://life hacker . com/the-difference-of-French-and-English-lavender-and-1847354061](https://lifehacker.com/the-difference-between-french-and-english-lavender-and-1847354061)
+> 原文：<https://lifehacker.com/the-difference-between-french-and-english-lavender-and-1847354061>
 
 薰衣草不仅在花束中展示时看起来很棒，它还有一种干净、令人愉快的香味，许多人喜欢这种香味，并从中找到平静。如果你曾经购买过新鲜的薰衣草，你就会知道它可能相当昂贵。所以，如果你想拥有源源不断的芳香植物，你可以在自己的花园里种植薰衣草。
 
@@ -22,10 +22,10 @@ Watch
 
 ### 气味
 
-香味方面也有区别。我们通常与薰衣草联系在一起的香味来自英国品种——根据 [Gardening Know How的一篇文章，英国品种也比法国品种产生更强烈的香味。](https://www.gardeningknowhow.com/edible/herbs/lavender/french-vs-english-lavender.htm) 另一方面，法国薰衣草的香气要淡得多，闻起来更像迷迭香，而不是我们通常认为的“薰衣草”
+香味方面也有区别。我们通常与薰衣草联系在一起的香味来自英国品种——根据 [Gardening Know How 的一篇文章，英国品种也比法国品种产生更强烈的香味。](https://www.gardeningknowhow.com/edible/herbs/lavender/french-vs-english-lavender.htm) 另一方面，法国薰衣草的香气要淡得多，闻起来更像迷迭香，而不是我们通常认为的“薰衣草”
 
 ### 气候
 
 在这里，你可能会在种植自己的薰衣草时遇到麻烦。虽然英国薰衣草可以忍受各种不同的气候——包括有(至少我们曾经有)四季分明的气候，但法国薰衣草远没有这么灵活。
 
-其实在[8区](https://www.brecks.com/category/zone8/a) 生长最好，4月初至10月下旬为无霜期。根据布瑞克的，在美国，这个区域包括亚特兰大、达拉斯和塔斯卡卢萨等城市。毫不奇怪，法国薰衣草生长的地方之一是普罗旺斯。
+其实在[8 区](https://www.brecks.com/category/zone8/a) 生长最好，4 月初至 10 月下旬为无霜期。根据布瑞克的，在美国，这个区域包括亚特兰大、达拉斯和塔斯卡卢萨等城市。毫不奇怪，法国薰衣草生长的地方之一是普罗旺斯。

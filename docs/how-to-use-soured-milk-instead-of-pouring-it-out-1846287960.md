@@ -1,12 +1,12 @@
 # 如何使用酸奶而不是倒掉
 
-> 原文:[https://life hacker . com/how-to-use-酸奶-而不是倒出来-1846287960](https://lifehacker.com/how-to-use-soured-milk-instead-of-pouring-it-out-1846287960)
+> 原文：<https://lifehacker.com/how-to-use-soured-milk-instead-of-pouring-it-out-1846287960>
 
 如果你看过 [这个视频](https://skillet.lifehacker.com/should-you-try-these-retro-soda-pop-concoctions-1846089449) ，你已经知道我是那种变态的人——很像一个孩子——喝全脂牛奶只是为了尝一尝。我喜欢它，多年的 [对我的身体有益](https://www.youtube.com/watch?v=InOuPYCsUjs) 帮助我培养了一种精致的“乳制品口味”如果我的牛奶有一丁点儿酸，我都能尝出来。
 
 Watch
 
-然而，这种轻微的异味，甚至更强烈的酸味，并不一定意味着牛奶是无用的。根据2015年NPR采访自然资源保护委员会的与 [达纳·冈德斯](http://www.nrdc.org/about/staff/dana-gunders) 的报道，变质的巴氏杀菌奶不太可能让人生病:
+然而，这种轻微的异味，甚至更强烈的酸味，并不一定意味着牛奶是无用的。根据 2015 年 NPR 采访自然资源保护委员会的与 [达纳·冈德斯](http://www.nrdc.org/about/staff/dana-gunders) 的报道，变质的巴氏杀菌奶不太可能让人生病:
 
 > 冈德斯写道，因为随着牛奶的老化，它变得更酸，创造了一个“对可能导致疾病的微生物不友好”的环境
 

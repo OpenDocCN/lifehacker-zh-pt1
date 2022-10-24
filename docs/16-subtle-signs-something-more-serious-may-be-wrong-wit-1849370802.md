@@ -1,6 +1,6 @@
-# 16个细微迹象你的健康可能出现了更严重的问题
+# 16 个细微迹象你的健康可能出现了更严重的问题
 
-> 原文:[https://life hacker . com/16-微妙-迹象-更严重-可能出错-机智-1849370802](https://lifehacker.com/16-subtle-signs-something-more-serious-may-be-wrong-wit-1849370802)
+> 原文：<https://lifehacker.com/16-subtle-signs-something-more-serious-may-be-wrong-wit-1849370802>
 
 我们中的大多数人至少会做一点点尽职调查来保持健康。我们注意我们吃的东西，我们锻炼，我们每年一次 [看医生](https://lifehacker.com/be-a-better-patient-what-your-doctor-recommends-when-y-1527394524) ，以及 [我们监控自己](https://lifehacker.com/these-simple-home-health-tests-are-actually-worth-tryin-1848640897) 和我们的身体是否有异常和不祥的迹象。你绝对会走得太远，最终陷入疑病症的边缘。但是你也可以反其道而行之，忽略那些可能表明你身体有更大问题的小迹象。没有人愿意浪费去急诊室或去看医生的时间，除非绝对必要，所以忽视我们健康的变化并希望它们自行消失是一种常见的反应，除非这些变化是重大的和令人担忧的。但并不是所有健康状况下降的迹象都是重大而明显的——有些迹象非常微妙，很容易被忽视或完全忽略。
 
@@ -34,7 +34,7 @@
 
 <figcaption class="sc-1ptbguh-0 hxeMec caption">#Tired all the Time? Common Lifestyle and Health #Causes of Fatigue</figcaption> 
 
-有些人可以通过一连串的小睡来进行手术，而另一些人则需要每天睡15个小时，否则他们会感觉很迟钝。只要你觉得休息好了，醒来时准备好了，你的睡眠时间可能不是一个直接的问题。如果你总是感觉疲劳——无法集中注意力，甚至无法工作——尽管你休息了很长时间，这不仅仅是“睡眠债”，这是一个潜在的警钟，可能预示着睡眠呼吸暂停、慢性疲劳综合征，甚至心脏病等疾病。
+有些人可以通过一连串的小睡来进行手术，而另一些人则需要每天睡 15 个小时，否则他们会感觉很迟钝。只要你觉得休息好了，醒来时准备好了，你的睡眠时间可能不是一个直接的问题。如果你总是感觉疲劳——无法集中注意力，甚至无法工作——尽管你休息了很长时间，这不仅仅是“睡眠债”，这是一个潜在的警钟，可能预示着睡眠呼吸暂停、慢性疲劳综合征，甚至心脏病等疾病。
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-Zs89O7ivpsY&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-Zs89O7ivpsY&start=0)
 
@@ -70,7 +70,7 @@
 
 <figcaption class="sc-1ptbguh-0 hxeMec caption">What do Your Nails Say About Your Health & Nutrition? – Dr.Berg</figcaption> 
 
-看看你的指甲。它们上面有凸起的脊吗？白线？它们容易破碎吗？这有可能表明存在严重的健康问题，尽管更有可能是营养缺乏——你可能需要更多的铁、锌、维生素A或其他东西。咨询你的医生，排除任何严重的疾病，然后检查你的饮食。
+看看你的指甲。它们上面有凸起的脊吗？白线？它们容易破碎吗？这有可能表明存在严重的健康问题，尽管更有可能是营养缺乏——你可能需要更多的铁、锌、维生素 A 或其他东西。咨询你的医生，排除任何严重的疾病，然后检查你的饮食。
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-P-V5BZ1iUA0&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-P-V5BZ1iUA0&start=0)
 
@@ -88,7 +88,7 @@
 
 <figcaption class="sc-1ptbguh-0 hxeMec caption">Erectile Dysfunction & Vascular Health</figcaption> 
 
-男人不喜欢谈论勃起功能障碍，但这种事发生在很多人身上。很多时候，ED有心理成分，它也经常植根于疲惫，但如果认为这是一个暂时的问题，一夜好眠或一个假期——或一粒蓝色小药丸——可以治愈，那就错了。勃起功能障碍可能是心脏病发展的迹象，因为虚弱的心脏无法泵出勃起所需的血液。
+男人不喜欢谈论勃起功能障碍，但这种事发生在很多人身上。很多时候，ED 有心理成分，它也经常植根于疲惫，但如果认为这是一个暂时的问题，一夜好眠或一个假期——或一粒蓝色小药丸——可以治愈，那就错了。勃起功能障碍可能是心脏病发展的迹象，因为虚弱的心脏无法泵出勃起所需的血液。
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-IT7CHUICleM&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-IT7CHUICleM&start=0)
 

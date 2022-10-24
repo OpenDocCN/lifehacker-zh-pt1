@@ -1,6 +1,6 @@
 # 基于问题的应对和基于情绪的应对的区别
 
-> 原文:[https://life hacker . com/the-difference-based-on-problem-based-and-emotion-based-1849587690](https://lifehacker.com/the-difference-between-problem-based-and-emotion-based-1849587690)
+> 原文：<https://lifehacker.com/the-difference-between-problem-based-and-emotion-based-1849587690>
 
 当你处理不适当的压力时，没有一个正确的方法来应对挑战。不同的情况需要不同的反应，主要取决于手头的问题是否在你的控制范围之内。你怎么知道什么时候你过于情绪化，或者什么时候你唯一能做的就是关注自己的感受？
 

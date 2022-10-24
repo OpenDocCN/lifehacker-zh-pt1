@@ -1,10 +1,10 @@
-# 在最后一季结束前狂欢10场
+# 在最后一季结束前狂欢 10 场
 
-> 原文:[https://life hacker . com/10-shows-to-binge-before-the final-seasons-drop-1845995155](https://lifehacker.com/10-shows-to-binge-before-their-final-seasons-drop-1845995155)
+> 原文：<https://lifehacker.com/10-shows-to-binge-before-their-final-seasons-drop-1845995155>
 
 这是新的一年，也是享受新鲜娱乐的绝佳时机——至少对你来说是新鲜的。我要说的是，是时候开始你的朋友们已经赞不绝口多年的节目了。我建议挑选一个今年即将结束的季节——早些时候的季节将是狂欢的时机，如果你喜欢它，你可以加入到捕捉最后一季的乐趣中来。
 
-在广受好评的剧集——*最好叫索尔*的最后一季中有很多东西要打包——以及新的热门剧集，如网飞的郊区喜剧*对我来说已经死了*(它已经在我的观察名单上几个月了)，有足够多的即将结束的剧集来填充你的流媒体队列一段时间。这里有10个节目，你可以在它们结束前尽情狂欢。
+在广受好评的剧集——*最好叫索尔*的最后一季中有很多东西要打包——以及新的热门剧集，如网飞的郊区喜剧*对我来说已经死了*(它已经在我的观察名单上几个月了)，有足够多的即将结束的剧集来填充你的流媒体队列一段时间。这里有 10 个节目，你可以在它们结束前尽情狂欢。
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-CDv6PRi1SgQ&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-CDv6PRi1SgQ&start=0) 
 
@@ -16,13 +16,13 @@
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-9q4qzYrHVmI&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-9q4qzYrHVmI&start=0) 
 
-《绝命毒师》的前传揭示了吉米·麦克吉尔(鲍勃·奥登科克)如何转变成毒贩沃尔特·怀特的刑事律师索尔·古德曼。与前一部长达两年的最后一季不同，这部衍生剧不想让结局拖得太久；该剧将在六季后结束，大结局将于今年晚些时候在AMC播出。五季有很多要补上，但你有时间，谁不喜欢一个坚韧不拔的背景故事？T2第一季到第四季现在在网飞播出。(附:你不必先看*绝命毒师*才能欣赏。)
+《绝命毒师》的前传揭示了吉米·麦克吉尔(鲍勃·奥登科克)如何转变成毒贩沃尔特·怀特的刑事律师索尔·古德曼。与前一部长达两年的最后一季不同，这部衍生剧不想让结局拖得太久；该剧将在六季后结束，大结局将于今年晚些时候在 AMC 播出。五季有很多要补上，但你有时间，谁不喜欢一个坚韧不拔的背景故事？T2 第一季到第四季现在在网飞播出。(附:你不必先看*绝命毒师*才能欣赏。)
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-hJNPI8AAttE&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-hJNPI8AAttE&start=0) 
 
-这些天一切都在重新启动，从*魅力*到*超市扫荡*，迪士尼的*鸭子故事*是其中最好的一部。这部重拍版是经典的80年代版本的升级，加入了更深层次的家庭紧张关系(随着剧集的开始，守财奴叔叔和唐老鸭疏远了)和巧妙的流行文化典故(包括对经典纽约电影*勇士*的引用)。这部剧出人意料地传达了强烈的千禧年幽默，迎合了我们怀旧的需要。
+这些天一切都在重新启动，从*魅力*到*超市扫荡*，迪士尼的*鸭子故事*是其中最好的一部。这部重拍版是经典的 80 年代版本的升级，加入了更深层次的家庭紧张关系(随着剧集的开始，守财奴叔叔和唐老鸭疏远了)和巧妙的流行文化典故(包括对经典纽约电影*勇士*的引用)。这部剧出人意料地传达了强烈的千禧年幽默，迎合了我们怀旧的需要。
 
-可惜撑不过目前Disney+和DisneyXD上的三季。有传言称，该剧取消的宣布是推动观众转向迪士尼流媒体服务、远离有线电视节目的努力的一部分。仍有希望 *DuckTales* 能在Disney+上卷土重来，但无论如何它都会以 *Darkwing Duck* 的形式获得 [流媒体衍生产品。史诗般的最后一集将在今年结束，所以现在赶上。](https://variety.com/2020/tv/news/darkwing-duck-reboot-disney-plus-1234830283/)
+可惜撑不过目前 Disney+和 DisneyXD 上的三季。有传言称，该剧取消的宣布是推动观众转向迪士尼流媒体服务、远离有线电视节目的努力的一部分。仍有希望 *DuckTales* 能在 Disney+上卷土重来，但无论如何它都会以 *Darkwing Duck* 的形式获得 [流媒体衍生产品。史诗般的最后一集将在今年结束，所以现在赶上。](https://variety.com/2020/tv/news/darkwing-duck-reboot-disney-plus-1234830283/)
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-BwYBw1raC2o&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-BwYBw1raC2o&start=0) 
 
@@ -30,11 +30,11 @@
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-8V-zp5oO9jc&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-8V-zp5oO9jc&start=0) 
 
-这部系列片讲述了一个佛罗里达的美甲沙龙作为毒品交易的幌子，将于今年结束。尼斯·纳什(Nicey Nash)和她的美甲技师团队是浮华的暴民级企业家，他们白天会给你做丙烯酸美甲，晚上会用金枪射杀对手。这是潮湿和野生的乐趣。在第三季于2019年播出后，电视网高管和该剧的创作者共同决定以明确的方式结束该剧。第四季将于今年上映，大张旗鼓地结束正在进行的剧情。在大结局在TNT播出之前，在Hulu上狂吃当前的三季会让你很快赶上。
+这部系列片讲述了一个佛罗里达的美甲沙龙作为毒品交易的幌子，将于今年结束。尼斯·纳什(Nicey Nash)和她的美甲技师团队是浮华的暴民级企业家，他们白天会给你做丙烯酸美甲，晚上会用金枪射杀对手。这是潮湿和野生的乐趣。在第三季于 2019 年播出后，电视网高管和该剧的创作者共同决定以明确的方式结束该剧。第四季将于今年上映，大张旗鼓地结束正在进行的剧情。在大结局在 TNT 播出之前，在 Hulu 上狂吃当前的三季会让你很快赶上。
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-fzmM0AB60QQ&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-fzmM0AB60QQ&start=0) 
 
-这部意外重启的《迷失太空》第一季让粉丝们兴奋不已，因为它相当不错——考虑到1998年由威廉·赫特和加里·奥德曼主演的悲惨电影版本，这绝不是一件确定的事情。太空中的罗宾逊一家被证明是值得一看的，他们危及生命的冒险让观众坐立不安。但是仅仅过了两季，创作者们已经决定以第三集也是最后一集来结束这个系列，这一集将在年底前在网飞播出。你可以在最后一季快速赶上现有的20期。
+这部意外重启的《迷失太空》第一季让粉丝们兴奋不已，因为它相当不错——考虑到 1998 年由威廉·赫特和加里·奥德曼主演的悲惨电影版本，这绝不是一件确定的事情。太空中的罗宾逊一家被证明是值得一看的，他们危及生命的冒险让观众坐立不安。但是仅仅过了两季，创作者们已经决定以第三集也是最后一集来结束这个系列，这一集将在年底前在网飞播出。你可以在最后一季快速赶上现有的 20 期。
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-ieHh4U-QYwU&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-ieHh4U-QYwU&start=0) 
 
@@ -42,8 +42,8 @@
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-S6xjnsuIfA4&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-S6xjnsuIfA4&start=0) 
 
-这部网飞原创系列电影根据同名书 改编，讲述了虚构的常春藤盟校温彻斯特大学的年轻大学生的故事。在三季中，它正面解决了种族关系和身份认同的问题，从肤色主义到挪用公款以及介于两者之间的一切。由萨曼莎·怀特(洛根·勃朗宁饰)解说，它是对2014年故事片改编的一个很好的补充，尽管它是为了迎合年轻观众。对我来说，这些隐喻可能有点太直接了(文化挪用万圣节派对是一个主要的例子)，但这部剧选择处理的主题有丰富的价值。该系列将于今年晚些时候首播第四季。
+这部网飞原创系列电影根据同名书 改编，讲述了虚构的常春藤盟校温彻斯特大学的年轻大学生的故事。在三季中，它正面解决了种族关系和身份认同的问题，从肤色主义到挪用公款以及介于两者之间的一切。由萨曼莎·怀特(洛根·勃朗宁饰)解说，它是对 2014 年故事片改编的一个很好的补充，尽管它是为了迎合年轻观众。对我来说，这些隐喻可能有点太直接了(文化挪用万圣节派对是一个主要的例子)，但这部剧选择处理的主题有丰富的价值。该系列将于今年晚些时候首播第四季。
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-7I8kUiY7NTQ&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-7I8kUiY7NTQ&start=0) 
 
-在前福克斯电视节目*路西法*中，魔鬼本人来到地球并获得一个灵魂(或类似的东西)。 [福克斯此前取消了](https://www.hollywoodreporter.com/live-feed/lucifer-renewed-season-6-as-netflix-reverses-course-1296445#:~:text=Netflix%20picked%20up%20Lucifer%20in,five%2C%20Netflix%20had%20second%20thoughts.) 四季后的犯罪剧。该节目很快被网飞选作第五和第六季。根据同名漫画小说改编，*路西法*赋予*城堡* / *白骨*程序一个超自然的转折。侦探克洛伊·德克尔(劳伦·日尔曼饰)在一桩谋杀案与他的夜总会有关后寻求路西法·晨星(汤姆·伊莱斯饰)的帮助。路西法——是的，就是那个路西法——完全愿意利用他邪恶的欲望力量从嫌疑人那里获取供词，他开始担任LAPD的顾问。像圣经中的路西法一样，这个路西法不是一个回避公众的人，但当他告诉人们他到底是谁时，大多数人都不相信他。在这些案件中，晨星和侦探之间擦出火花(你可能已经猜到了)，在几个层面上让人上瘾。这是一部有趣的电视剧，但要赶上还需要努力:前五季都在网飞播出，最后一季将于今年晚些时候播出。
+在前福克斯电视节目*路西法*中，魔鬼本人来到地球并获得一个灵魂(或类似的东西)。 [福克斯此前取消了](https://www.hollywoodreporter.com/live-feed/lucifer-renewed-season-6-as-netflix-reverses-course-1296445#:~:text=Netflix%20picked%20up%20Lucifer%20in,five%2C%20Netflix%20had%20second%20thoughts.) 四季后的犯罪剧。该节目很快被网飞选作第五和第六季。根据同名漫画小说改编，*路西法*赋予*城堡* / *白骨*程序一个超自然的转折。侦探克洛伊·德克尔(劳伦·日尔曼饰)在一桩谋杀案与他的夜总会有关后寻求路西法·晨星(汤姆·伊莱斯饰)的帮助。路西法——是的，就是那个路西法——完全愿意利用他邪恶的欲望力量从嫌疑人那里获取供词，他开始担任 LAPD 的顾问。像圣经中的路西法一样，这个路西法不是一个回避公众的人，但当他告诉人们他到底是谁时，大多数人都不相信他。在这些案件中，晨星和侦探之间擦出火花(你可能已经猜到了)，在几个层面上让人上瘾。这是一部有趣的电视剧，但要赶上还需要努力:前五季都在网飞播出，最后一季将于今年晚些时候播出。

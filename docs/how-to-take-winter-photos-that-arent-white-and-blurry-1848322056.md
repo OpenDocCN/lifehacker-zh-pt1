@@ -1,6 +1,6 @@
 # 如何拍出不白不模糊的冬季照片(除非这是重点)
 
-> 原文:[https://life hacker . com/how-to-take-the-parent-white-and-fuzzy-1848322056](https://lifehacker.com/how-to-take-winter-photos-that-arent-white-and-blurry-1848322056)
+> 原文：<https://lifehacker.com/how-to-take-winter-photos-that-arent-white-and-blurry-1848322056>
 
 捕捉下雪天的自然美景似乎很简单，但它(通常)不像拿起手机或相机，走到外面，立即拍摄完美照片那么简单。
 

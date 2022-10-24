@@ -1,12 +1,12 @@
 # 这是激励自己打扫房间的最有回报的方法
 
-> 原文:[https://life hacker . com/这是激励自己最有回报的方式1848145391](https://lifehacker.com/this-is-the-most-rewarding-way-to-motivate-yourself-to-1848145391)
+> 原文：<https://lifehacker.com/this-is-the-most-rewarding-way-to-motivate-yourself-to-1848145391>
 
 六年前，克里斯·弗莱明(Chris Fleming)发布了小品《 [公司来了](https://www.youtube.com/watch?v=GBwELzvnrQg&t=22s) 》，作为他热播网络系列[*格利*](https://www.youtube.com/watch?v=ZdPdiQNWDeY&list=PL6B0B7F79AE5B948B&t=0s) 的一部分。在影片中，一个疯狂的盖尔用吸尘器吸了吸空气，转了一圈，然后大喊“大卫，把贝壳放在门把手上！、“抖抖枕头，你们这些失败者！”和“我们能把同性恋植物弄走吗？?"
 
 Watch
 
-YouTube上有超过1300万的浏览量，可以肯定地说这个视频是可信的(尽管它只展示了盖尔和弗莱明所能提供的一切的一小部分)。我从来没有用吸尘器吸过空气，但是如果我知道除了我自己或我男朋友之外的其他人会从前门进来，我会很有动力去打扫我的住所。
+YouTube 上有超过 1300 万的浏览量，可以肯定地说这个视频是可信的(尽管它只展示了盖尔和弗莱明所能提供的一切的一小部分)。我从来没有用吸尘器吸过空气，但是如果我知道除了我自己或我男朋友之外的其他人会从前门进来，我会很有动力去打扫我的住所。
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-GBwELzvnrQg&start=22](https://lifehacker.com/embed/inset/iframe?id=youtube-video-GBwELzvnrQg&start=22) 
 

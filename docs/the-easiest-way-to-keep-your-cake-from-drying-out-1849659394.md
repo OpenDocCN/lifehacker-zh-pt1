@@ -1,6 +1,6 @@
 # 防止蛋糕变干的最简单方法
 
-> 原文:[https://life hacker . com/the-easy-way-to-keep your ' s cake-from-drying-1849659394](https://lifehacker.com/the-easiest-way-to-keep-your-cake-from-drying-out-1849659394)
+> 原文：<https://lifehacker.com/the-easiest-way-to-keep-your-cake-from-drying-out-1849659394>
 
 “蛋糕是好的”这句话不需要限定，不需要措辞，不需要附加说明。蛋糕不需要我来炒作。蛋糕不需要公关公司。毫无疑问，好东西，比如蛋糕，应该得到保护和珍惜，对于蛋糕来说，应该尽可能长时间保持湿润。
 

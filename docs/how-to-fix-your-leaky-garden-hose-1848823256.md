@@ -1,6 +1,6 @@
 # 如何修理你漏水的花园水管
 
-> 原文:[https://life hacker . com/how-to-fix-your ' s leaky-garden-hose-1848823256](https://lifehacker.com/how-to-fix-your-leaky-garden-hose-1848823256)
+> 原文：<https://lifehacker.com/how-to-fix-your-leaky-garden-hose-1848823256>
 
 随着天气变暖，你开始把你的草坪和园艺设备从车库或地下室拖到你的院子里，你可能会注意到，并不是所有的东西都能安然度过冬天。例如，你可能会把你可信赖的花园水管连接到室外水管，却发现水管出现了一个(或几个)漏洞。
 
@@ -14,7 +14,7 @@ Watch
 
 一旦你找到它们，关掉水管，然后用毛巾彻底擦干，如果可能的话，在阳光下晒几分钟。(因为你将使用绝缘胶带，所以你要确保软管尽可能干燥，这样胶带才能粘住。)
 
-将绝缘胶带——理想情况下， [由PVC背衬和橡胶基粘合剂](https://www.bobvila.com/articles/repairing-a-garden-hose/) 制成——缠绕在针孔周围，使其重叠，但不要太紧(以防止软管起皱)。
+将绝缘胶带——理想情况下， [由 PVC 背衬和橡胶基粘合剂](https://www.bobvila.com/articles/repairing-a-garden-hose/) 制成——缠绕在针孔周围，使其重叠，但不要太紧(以防止软管起皱)。
 
 ## 对于小的撕裂和穿孔，使用橡胶粘合剂
 

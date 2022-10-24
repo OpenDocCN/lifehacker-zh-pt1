@@ -1,6 +1,6 @@
 # 毒藤在秋天会变色
 
-> 原文:[https://life hacker . com/poison-ivy-changes-color-in-the-fall-1845241984](https://lifehacker.com/poison-ivy-changes-color-in-the-fall-1845241984)
+> 原文：<https://lifehacker.com/poison-ivy-changes-color-in-the-fall-1845241984>
 
 如果你经常徒步旅行，或者去公园散步，你可能已经记住了 [什么是毒藤](https://lifehacker.com/how-to-identify-poison-ivy-1836417759)——如果你没有，你应该记住。传单三五成群，随它去吧，诸如此类。但是随着夏秋交替，有一个重要的变化值得注意:毒常春藤会变色，就像树上的叶子一样。
 

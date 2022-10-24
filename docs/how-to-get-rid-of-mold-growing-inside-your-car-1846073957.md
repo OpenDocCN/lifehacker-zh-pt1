@@ -1,6 +1,6 @@
 # 如何去除长在车内的霉菌
 
-> 原文:[https://life hacker . com/how-to-get-out-of-mold-growing-in-your car-1846073957](https://lifehacker.com/how-to-get-rid-of-mold-growing-inside-your-car-1846073957)
+> 原文：<https://lifehacker.com/how-to-get-rid-of-mold-growing-inside-your-car-1846073957>
 
 拥有一辆汽车或其他交通工具是一件复杂的事情。一方面，你可以自由地去你想去的任何地方，而不必依赖公共交通或你自己的双脚——这使得他们在疫情期间特别令人垂涎。但另一方面，他们的支出会很快增加，包括保险、汽油、通行费和定期维护。
 
@@ -18,7 +18,7 @@ Watch
 
 首先，我想说一下为什么花时间和精力去除车内的霉菌如此重要。虽然有不同类型的霉菌——其中一些对我们的健康更有害 [而另一些](https://www.cdc.gov/mold/faqs.htm)——但总的来说，它不是你在任何时候都想要在你身边的东西(特别是如果你有过敏症的话)。
 
-幸运的是，开车的克里斯·提格(Chris Teague)已经整理出了一份方便的DIY汽车模具拆除指南 。
+幸运的是，开车的克里斯·提格(Chris Teague)已经整理出了一份方便的 DIY 汽车模具拆除指南 。
 
 #### 你需要什么:
 

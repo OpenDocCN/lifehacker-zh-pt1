@@ -1,14 +1,14 @@
 # 如何向未来的雇主推销自己
 
-> 原文:[https://life hacker . com/how-to-pitch yourself to-a-problem-employee-1847328429](https://lifehacker.com/how-to-pitch-yourself-to-a-prospective-employer-1847328429)
+> 原文：<https://lifehacker.com/how-to-pitch-yourself-to-a-prospective-employer-1847328429>
 
-我只获得了m y两个最有影响力的工作，每个都开启了许多其他的机会，因为我在正确的时间接触了正确的人。一份工作是在遗传学实验室，另一份是科学写作职位，这两个职位之前都没有广告；在给许许多多的人发了许许多多的电子邮件，解释我是谁以及为什么我想为他们工作之后，我收到了这两封邮件。(在第二种情况下，他们甚至专门为我创造了一个新职位。)
+我只获得了 m y 两个最有影响力的工作，每个都开启了许多其他的机会，因为我在正确的时间接触了正确的人。一份工作是在遗传学实验室，另一份是科学写作职位，这两个职位之前都没有广告；在给许许多多的人发了许许多多的电子邮件，解释我是谁以及为什么我想为他们工作之后，我收到了这两封邮件。(在第二种情况下，他们甚至专门为我创造了一个新职位。)
 
 Watch
 
-我一直认为这两份工作是偶然的，但是根据西雅图新闻主播Starla sampa co Starla sampa co Starla sampa co Starla sampa co Starla Starla sampa co Starla Starla Starla Starla Starla的最近一篇文章 [【哈佛商业评论】](https://hbr.org/2021/07/how-to-pitch-yourself-to-an-employer?utm_campaign=hbr&utm_medium=social&utm_source=facebook&fbclid=IwAR1qNbpRNMdGbrxplFM1gwi_Kq-7xCAS0ySF6mou2ERjxRlTL0GdXmbnCak) ，联系你想为之工作的潜在老板的方法——即使他们目前没有为一个特定的职位招聘——是值得你花时间的，并且很可能让你比其他申请人更有优势。
+我一直认为这两份工作是偶然的，但是根据西雅图新闻主播 Starla sampa co Starla sampa co Starla sampa co Starla sampa co Starla Starla sampa co Starla Starla Starla Starla Starla 的最近一篇文章 [【哈佛商业评论】](https://hbr.org/2021/07/how-to-pitch-yourself-to-an-employer?utm_campaign=hbr&utm_medium=social&utm_source=facebook&fbclid=IwAR1qNbpRNMdGbrxplFM1gwi_Kq-7xCAS0ySF6mou2ERjxRlTL0GdXmbnCak) ，联系你想为之工作的潜在老板的方法——即使他们目前没有为一个特定的职位招聘——是值得你花时间的，并且很可能让你比其他申请人更有优势。
 
-根据Sampaco，他通过对早期职业人士的采访整理了信息[](https://www.starlasampaco.com/about)，这些是你以这种方式找工作时应该考虑的一些步骤:
+根据 Sampaco，他通过对早期职业人士的采访整理了信息[](https://www.starlasampaco.com/about)，这些是你以这种方式找工作时应该考虑的一些步骤:
 
 ## **把握好时机**
 

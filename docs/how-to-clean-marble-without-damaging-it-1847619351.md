@@ -1,16 +1,16 @@
 # 如何清洁大理石而不损坏它
 
-> 原文:[https://life hacker . com/how-to-clean-marble-without-damage-it-1847619351](https://lifehacker.com/how-to-clean-marble-without-damaging-it-1847619351)
+> 原文：<https://lifehacker.com/how-to-clean-marble-without-damaging-it-1847619351>
 
 大理石不仅仅是美丽的——它还能成为你家持久的特色。这就是为什么它被用来制作从工作台面、地板到淋浴的所有东西。任何在大理石地板上擦过的人都知道，这很难。
 
 Watch
 
-但与此同时，一些在你家其他地方很棒的清洁产品和技术最终会损坏大理石。幸运的是，ThisOldHouse.com的编辑整理出了安全清洁大理石的指南。以下是需要了解的内容。
+但与此同时，一些在你家其他地方很棒的清洁产品和技术最终会损坏大理石。幸运的是，ThisOldHouse.com 的编辑整理出了安全清洁大理石的指南。以下是需要了解的内容。
 
 ## 清洗大理石时要避免什么
 
-让我们从那些会损坏大理石的东西开始，这样就清楚应该避免什么了。以下是来自ThisOldHouse.com:
+让我们从那些会损坏大理石的东西开始，这样就清楚应该避免什么了。以下是来自 ThisOldHouse.com:
 的 [编辑的一些例子](https://www.thisoldhouse.com/cleaning/21558238/how-to-clean-marble)
 
 *   太大的压力或过度劳累会导致大理石被划伤(或者，用大理石的术语来说，“被蚀刻”)。
@@ -20,7 +20,7 @@ Watch
 
 ## 如何安全清洁大理石
 
-现在你知道应该远离什么了，以下是如何清洁你家的大理石表面而不损坏它们，这也是ThisOldHouse.com的 [编辑的好意:](https://www.thisoldhouse.com/cleaning/21558238/how-to-clean-marble)
+现在你知道应该远离什么了，以下是如何清洁你家的大理石表面而不损坏它们，这也是 ThisOldHouse.com 的 [编辑的好意:](https://www.thisoldhouse.com/cleaning/21558238/how-to-clean-marble)
 
 *   使用温和、中性、非研磨性的肥皂，如洗碗皂。市场上有专门的大理石清洁剂，但大多数人已经有了洗碗皂(可以完成这项工作)，所以没有必要再购买其他产品。
 *   在湿布上滴几滴安全的肥皂，或者在喷雾瓶里混合几滴温水。然后擦拭大理石表面。只需要少量的肥皂，太多会形成一层薄膜。

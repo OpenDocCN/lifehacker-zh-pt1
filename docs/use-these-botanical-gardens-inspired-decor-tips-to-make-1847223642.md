@@ -1,6 +1,6 @@
 # 使用这些受植物园启发的装饰技巧，让你的家感觉像一片绿洲
 
-> 原文:[https://life hacker . com/use-these-botanical-gardens-inspired-decor-tips-to-make-1847223642](https://lifehacker.com/use-these-botanical-gardens-inspired-decor-tips-to-make-1847223642)
+> 原文：<https://lifehacker.com/use-these-botanical-gardens-inspired-decor-tips-to-make-1847223642>
 
 参观植物园有一种非常平静的感觉。也许它被树叶包围着，或者吸收了一系列的颜色。或者，在别人做了所有的园艺和景观美化工作的地方，能够享受精心修剪和维护的大自然是一件好事。不管是什么原因，如果你喜欢植物园美学，你并不孤单。
 
@@ -10,7 +10,7 @@ Watch
 
 ## 在室内和室外安装更多镜子
 
-你可能熟悉经典的设计策略，在房间里装一面大镜子，让房间看起来比实际大。Slack解释说，一些植物园，比如纽约市的植物园，出于类似的原因也在户外放置镜子:增加花和植物的美丽。
+你可能熟悉经典的设计策略，在房间里装一面大镜子，让房间看起来比实际大。Slack 解释说，一些植物园，比如纽约市的植物园，出于类似的原因也在户外放置镜子:增加花和植物的美丽。
 
 你也可以在室内植物的后面(或下面)或室外花园的不同地方放置一面镜子，达到同样的效果。
 

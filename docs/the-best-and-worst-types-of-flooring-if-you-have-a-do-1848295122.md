@@ -1,6 +1,6 @@
 # 如果你养狗，最好(和最差)的地板类型是什么
 
-> 原文:[https://life hacker . com/the-best and-worth-types-if-you-have-a-do-1848295122](https://lifehacker.com/the-best-and-worst-types-of-flooring-if-you-have-a-do-1848295122)
+> 原文：<https://lifehacker.com/the-best-and-worst-types-of-flooring-if-you-have-a-do-1848295122>
 
 养狗会影响你生活的许多不同方面——从你的旅行计划，到你的家庭开支，到你衣服上的毛皮数量。但是养狗后最大的变化之一(有些种类比其他种类更多)是你的家。
 

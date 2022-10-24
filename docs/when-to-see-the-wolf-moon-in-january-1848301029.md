@@ -1,8 +1,8 @@
 # 一月什么时候看狼月
 
-> 原文:[https://life hacker . com/when-to-see-the-wolf-moon-in-January-1848301029](https://lifehacker.com/when-to-see-the-wolf-moon-in-january-1848301029)
+> 原文：<https://lifehacker.com/when-to-see-the-wolf-moon-in-january-1848301029>
 
-一月的满月，有时被称为狼月，将在东海岸时间1月17日星期一下午6:51从东北方地平线升起。从周日开始到周三结束，月亮会连续三个晚上看起来很圆。
+一月的满月，有时被称为狼月，将在东海岸时间 1 月 17 日星期一下午 6:51 从东北方地平线升起。从周日开始到周三结束，月亮会连续三个晚上看起来很圆。
 
 Watch
 

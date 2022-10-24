@@ -1,8 +1,8 @@
 # 你会因为抽大麻而被拒绝人寿保险吗？
 
-> 原文:[https://life hacker . com/can-you-be-denied-life-insurance-for-smoking-pot-1845424881](https://lifehacker.com/can-you-be-denied-life-insurance-for-smoking-pot-1845424881)
+> 原文：<https://lifehacker.com/can-you-be-denied-life-insurance-for-smoking-pot-1845424881>
 
-人们很容易对是否应该向人寿保险公司披露大麻使用情况感到困惑。拥有大麻——一种附表1 药物——是一种联邦罪行，但在许多州是合法的。你的保险公司会向政府告发你使用它吗？你的保险会被拒吗？
+人们很容易对是否应该向人寿保险公司披露大麻使用情况感到困惑。拥有大麻——一种附表 1 药物——是一种联邦罪行，但在许多州是合法的。你的保险公司会向政府告发你使用它吗？你的保险会被拒吗？
 
 Watch
 
@@ -10,23 +10,23 @@ Watch
 
 ### 不要在大麻使用上撒谎
 
-作为 [人寿保险](https://www.policygenius.com/life-insurance) [承保流程](https://www.policygenius.com/life-insurance/how-does-the-life-insurance-underwriting-process-work) 的一部分，你经常需要参加体检。随着您的病史，您目前的健康状况决定了健康分类，这将影响您支付多少保险费。说谎是很诱人的，但是请记住，THC可以在你的血液或尿液中检测到，持续几天或几周。
+作为 [人寿保险](https://www.policygenius.com/life-insurance) [承保流程](https://www.policygenius.com/life-insurance/how-does-the-life-insurance-underwriting-process-work) 的一部分，你经常需要参加体检。随着您的病史，您目前的健康状况决定了健康分类，这将影响您支付多少保险费。说谎是很诱人的，但是请记住，THC 可以在你的血液或尿液中检测到，持续几天或几周。
 
-同样，如果你公开你的大麻使用情况，但在考试中没有检测出THC阳性，一些公司会给你更好的评价，所以提前至少一个月戒酒是个好主意。(你也应该避免使用CBD油，因为它们可能在药物测试中产生 [阳性大麻结果](https://www.consumerreports.org/cbd/can-you-take-cbd-and-pass-a-drug-test) )。
+同样，如果你公开你的大麻使用情况，但在考试中没有检测出 THC 阳性，一些公司会给你更好的评价，所以提前至少一个月戒酒是个好主意。(你也应该避免使用 CBD 油，因为它们可能在药物测试中产生 [阳性大麻结果](https://www.consumerreports.org/cbd/can-you-take-cbd-and-pass-a-drug-test) )。
 
 此外，你不想撒谎的最大原因是，保险公司可以查看你的医疗记录、处方历史和驾驶记录。他们很容易在你保单的任何一点上发现你的谎言，因此，他们可以提高你的保费，取消你的保险，甚至在你死后质疑你的赔付。更糟糕的是，如果你因为在申请中撒谎而被拒绝购买人寿保险，这些信息就会通过一个叫做 [医疗信息局](https://www.policygenius.com/life-insurance/life-insurance-medical-information-bureau) (MIB)的机构与其他保险公司共享。
 
 ### **逛逛**
 
-根据你的使用频率，公司对大麻使用的政策各不相同，从很少(比如一年两次)到每天。对于一些人来说，任何形式的娱乐性大麻吸食都会让你被指定为“吸烟者”，根据Policygenius 的说法，这些政策可能比非吸烟者的费率 [贵200%。然而，其他人则宽容得多，允许几乎每天使用，而不会将你归类为吸烟者。你最好的办法是货比三家。](https://www.policygenius.com/life-insurance/best-life-insurance-companies/marijuana-users)
+根据你的使用频率，公司对大麻使用的政策各不相同，从很少(比如一年两次)到每天。对于一些人来说，任何形式的娱乐性大麻吸食都会让你被指定为“吸烟者”，根据 Policygenius 的说法，这些政策可能比非吸烟者的费率 [贵 200%。然而，其他人则宽容得多，允许几乎每天使用，而不会将你归类为吸烟者。你最好的办法是货比三家。](https://www.policygenius.com/life-insurance/best-life-insurance-companies/marijuana-users)
 
-根据QuickQuote，吸烟者的平均人寿保险费率为每月83美元或每年992美元。他们也有一个 [好的细分](https://www.quickquote.com/marijuana-and-life-insurance) 什么样的政策是可用的，它们如何变化。
+根据 QuickQuote，吸烟者的平均人寿保险费率为每月 83 美元或每年 992 美元。他们也有一个 [好的细分](https://www.quickquote.com/marijuana-and-life-insurance) 什么样的政策是可用的，它们如何变化。
 
 ### 其他因素也会影响您的保费:
 
 *   吸入或摄入的大麻？不吸烟可能会给你打折。
 *   医疗用途:您的费率可能因潜在疾病而异。
-*   你的年龄:一些政策只允许在一定年龄后的娱乐使用，比如25岁。
+*   你的年龄:一些政策只允许在一定年龄后的娱乐使用，比如 25 岁。
 *   一般来说，在你的记录上有一个与大麻有关的酒后驾车是…不好的。
 
 ### 底线

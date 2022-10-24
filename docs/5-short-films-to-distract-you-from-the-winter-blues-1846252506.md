@@ -1,6 +1,6 @@
-# 5部短片让你从冬天的忧郁中转移注意力
+# 5 部短片让你从冬天的忧郁中转移注意力
 
-> 原文:[https://gizmodo . com/5-分散你冬季忧郁的短片-1846252506](https://gizmodo.com/5-short-films-to-distract-you-from-the-winter-blues-1846252506)
+> 原文：<https://gizmodo.com/5-short-films-to-distract-you-from-the-winter-blues-1846252506>
 
 需要一个快速的 [脑残](https://gizmodo.com/5-sci-fi-and-horror-shorts-to-help-fill-that-no-new-mov-1843262841) ？我们有五部 [短片](https://io9.gizmodo.com/5-short-sci-fi-and-fantasy-films-to-watch-when-you-dont-1842586271) ，将带你走出你目前陷入的任何冬季恐惧，并向你展示外太空和社交媒体非常人性化的危险——以及一些涉及超能力和超自然力量的超人类故事。
 
@@ -10,7 +10,7 @@ Watch
 
 ### 1)车轮
 
-我们之前在io9上展示过尼基尔·巴加 的作品，他的最新作品是一小段 [*恐怖片*](https://io9.gizmodo.com/shudders-creepshow-horror-anthology-series-is-off-to-a-1838082270)风格的恐怖片。当一个古董商的丈夫送她一个老式摩天轮的发条雕像时，一旦她意识到有什么东西，新鲜感就会消失得非常快...*对此感到不安*。到达终点的过程非常诡异。
+我们之前在 io9 上展示过尼基尔·巴加 的作品，他的最新作品是一小段 [*恐怖片*](https://io9.gizmodo.com/shudders-creepshow-horror-anthology-series-is-off-to-a-1838082270)风格的恐怖片。当一个古董商的丈夫送她一个老式摩天轮的发条雕像时，一旦她意识到有什么东西，新鲜感就会消失得非常快...*对此感到不安*。到达终点的过程非常诡异。
 
  [https://gizmodo.com/embed/inset/iframe?id=vimeo-427579189](https://gizmodo.com/embed/inset/iframe?id=vimeo-427579189) 
 
@@ -28,7 +28,7 @@ Watch
 
 ### 4)月亮没那么大
 
-这位精力充沛的Vimeo工作人员从编剧兼导演马蒂厄·利伯曼那里挑选了和，他想象第一个登上月球的女人回来后发现地球的兴趣已经转移...去火星。这让宇航员很失望，这位雄心勃勃的导演试图拍一部关于她的生活的电影，结果是，月球本身。还有，独轮车上有只熊。看好了！
+这位精力充沛的 Vimeo 工作人员从编剧兼导演马蒂厄·利伯曼那里挑选了和，他想象第一个登上月球的女人回来后发现地球的兴趣已经转移...去火星。这让宇航员很失望，这位雄心勃勃的导演试图拍一部关于她的生活的电影，结果是，月球本身。还有，独轮车上有只熊。看好了！
 
  [https://gizmodo.com/embed/inset/iframe?id=vimeo-499016143](https://gizmodo.com/embed/inset/iframe?id=vimeo-499016143) 
 
@@ -40,4 +40,4 @@ Watch
 
 * * *
 
-*要了解更多信息，请务必在我们的Instagram上关注我们@*[*io 9 dot com*](https://www.instagram.com/io9dotcom)*。*
+*要了解更多信息，请务必在我们的 Instagram 上关注我们@*[*io 9 dot com*](https://www.instagram.com/io9dotcom)*。*

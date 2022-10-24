@@ -1,6 +1,6 @@
 # 如何让你的狗为长期分离做好准备
 
-> 原文:[https://life hacker . com/how-to-prepare-your dog for-a-extended-separation-1848601512](https://lifehacker.com/how-to-prepare-your-dog-for-an-extended-separation-1848601512)
+> 原文：<https://lifehacker.com/how-to-prepare-your-dog-for-an-extended-separation-1848601512>
 
 一次周末外出，甚至是一次长时间的工作旅行，都可以是你日常生活中的一次有趣的休息，但不幸的是，当你离开时，你的责任仍然在家里等着你。如果这些责任中有一项包括养狗，你必须提前计划好如何在你不在的时候让你的宠物开心、健康、有事可做、有吃的。
 
@@ -22,7 +22,7 @@ Watch
 
 不管谁会和你的狗在一起，你都需要确保那个人能得到足够的食物、零食、玩具、药物以及你的特别朋友需要的任何东西。向你的兽医咨询你的狗在旅行期间可能需要的任何东西，包括抗焦虑药物。储备他们最喜欢的食物。
 
-同样，考虑投资一个重力进料器或自动进料器。重力喂食器是老派的，可以相对便宜。如果你想多花一点钱， [电子喂食器](https://www.petco.com/shop/en/petcostore/product/petsafe-second-generation-dog-and-cat-automatic-smart-feeder-3168811?cm_mmc=PSH%7cGGL%7cSPP%7cSBU04%7cSH10%7c0%7cizV2jath4DrA3bc95GAsiR%7c58700007554970168%7cPRODUCT_GROUP%7c0%7c0&gclid=CjwKCAiAgvKQBhBbEiwAaPQw3DAPHmktMYynVZln9KNfJ7zZ5CPnfaUz5qggkgQnVKzz177X5m8Y2hoCHt4QAvD_BwE&gclsrc=aw.ds) 的价格可以超过100美元，但其中一些甚至与你手机上的应用程序配对，这样你就可以决定他们何时分发食物，以及分发多少。
+同样，考虑投资一个重力进料器或自动进料器。重力喂食器是老派的，可以相对便宜。如果你想多花一点钱， [电子喂食器](https://www.petco.com/shop/en/petcostore/product/petsafe-second-generation-dog-and-cat-automatic-smart-feeder-3168811?cm_mmc=PSH%7cGGL%7cSPP%7cSBU04%7cSH10%7c0%7cizV2jath4DrA3bc95GAsiR%7c58700007554970168%7cPRODUCT_GROUP%7c0%7c0&gclid=CjwKCAiAgvKQBhBbEiwAaPQw3DAPHmktMYynVZln9KNfJ7zZ5CPnfaUz5qggkgQnVKzz177X5m8Y2hoCHt4QAvD_BwE&gclsrc=aw.ds) 的价格可以超过 100 美元，但其中一些甚至与你手机上的应用程序配对，这样你就可以决定他们何时分发食物，以及分发多少。
 
 即使有人向你发誓他们会在你离开的时候一直陪着你，做好一切准备。如果，不管什么原因，那个人有一天不行了，你的狗还是要吃饭的。不管你买便宜的还是贵的，买一个重型给料机。(还有别忘了一个 [大容量饮水机](https://www.petco.com/shop/en/petcostore/product/petmate-blue-replendish-filtered-pet-auto-watering-system-5-gal-capacity-x-small-1417398?cm_mmc=PSH%7cGGL%7cSPP%7cSBU04%7cSH10%7c0%7c2nyDHSdzuQvNdLg8omt6Ph%7c58700007557419343%7cPRODUCT_GROUP%7c0%7c0&gclid=CjwKCAiAgvKQBhBbEiwAaPQw3Nl6IGOD5sKp-uDLtgenPD6ds9F4fsqLjJHmS3AzXKUAJGzIIiKknhoCI7wQAvD_BwE&gclsrc=aw.ds) ，也是。)
 

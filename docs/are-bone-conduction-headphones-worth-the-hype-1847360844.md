@@ -1,6 +1,6 @@
 # 骨传导耳机值得炒作吗？
 
-> 原文:[https://life hacker . com/are-bone-conduction-headphones-worth-the-hype-1847360844](https://lifehacker.com/are-bone-conduction-headphones-worth-the-hype-1847360844)
+> 原文：<https://lifehacker.com/are-bone-conduction-headphones-worth-the-hype-1847360844>
 
 你会尝试一副搁在颧骨上，通过骨头把音频传到耳朵里的耳机吗？这可以通过一种称为“骨传导”的技术来实现，这种技术最常用于消费耳机。这些产品不太贵，对于不喜欢使用耳机或想尝试不同东西的人来说，可能是一个不错的选择。下面是你自己买一双之前要考虑的。
 
@@ -26,6 +26,6 @@ Watch
 
 这个问题的答案是主观的，取决于你的耳机使用，需求和尝试不同技术的愿望。对于大多数人来说，它们不会被视为*必需品—* 但它们在某些情况下可能是有益的，包括使用防水版本的游泳者、有听力障碍的人以及由于皮肤刺激或眩晕问题而无法佩戴普通耳机的人。
 
-一般来说，一套骨传导耳机， [要花50美元到200美元](https://www.amazon.com/s?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/are-bone-conduction-headphones-worth-the-hype-1847360844&asc_source=&k=bone conduction headphones&tag=kinjalifehackerlink-20) 不等，还有一些品牌，比如 [Aftershokz](https://aftershokz.com/) ，专做骨传导耳机。
+一般来说，一套骨传导耳机， [要花 50 美元到 200 美元](https://www.amazon.com/s?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/are-bone-conduction-headphones-worth-the-hype-1847360844&asc_source=&k=bone conduction headphones&tag=kinjalifehackerlink-20) 不等，还有一些品牌，比如 [Aftershokz](https://aftershokz.com/) ，专做骨传导耳机。
 
 如果振动不适合你，像 [Bose Sport Open](https://www.bose.com/en_us/products/headphones/earbuds/sport-open-earbuds.html) 耳塞可能是一个替代选择——它们提供了骨传导的一些好处(它们轻轻地放在你的耳朵上，不会阻塞你的耳道)，但没有振动。

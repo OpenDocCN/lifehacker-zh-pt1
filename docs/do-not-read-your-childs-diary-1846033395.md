@@ -1,6 +1,6 @@
 # 不要看你孩子的日记
 
-> 原文:[https://life hacker . com/do-not-read-your-childs-diary-1846033395](https://lifehacker.com/do-not-read-your-childs-diary-1846033395)
+> 原文：<https://lifehacker.com/do-not-read-your-childs-diary-1846033395>
 
 当我们的孩子还小的时候，我们知道他们内心深处的许多想法。事实上，对于学龄前儿童来说，实时说出几乎每一个想法并不罕见，这是一种关于他们大脑内部发生的事情的连续对话——这既可爱又令人疲惫。然而，在某一点上，小孩子进化成更大的孩子，并且决定他们宁愿不告诉我们*所有的事情*。或者任何东西。
 
@@ -8,7 +8,7 @@ Watch
 
 在那个时候，通常是在十几岁的时候，你会希望他们又开始漫无边际了。现在，他们的沉默或一句话的回答会让你更加渴望。你可能会注意到，虽然他们不怎么和你说话，但他们*却*在日记中写了很多；也许你会偷看一眼——只是为了确保一切都好。正如一位自称“爱管闲事”的家长在给 [板岩的照顾和喂养](https://slate.com/human-interest/2021/01/can-parents-read-kids-diaries-care-and-feeding.html) 的建议专栏中写道:
 
-> 我女儿10岁，上五年级。她在九月开始了一所新学校，在那里她不认识任何人。我敢肯定，对于她的年龄来说，这是完全合适的，她几乎没有告诉我关于她的生活。我的很多问题都得到了一个字的回答。但是每天晚上，她都在日记里写。虽然我没有任何特别的担忧，除了在当今世界养育一个五年级女孩所带来的普遍焦虑，但我认为如果我读了她的日记，我会对正在发生的事情有所了解，并能够成为一个更支持和响应的家长。
+> 我女儿 10 岁，上五年级。她在九月开始了一所新学校，在那里她不认识任何人。我敢肯定，对于她的年龄来说，这是完全合适的，她几乎没有告诉我关于她的生活。我的很多问题都得到了一个字的回答。但是每天晚上，她都在日记里写。虽然我没有任何特别的担忧，除了在当今世界养育一个五年级女孩所带来的普遍焦虑，但我认为如果我读了她的日记，我会对正在发生的事情有所了解，并能够成为一个更支持和响应的家长。
 
 不别说了。不要这样做。
 
@@ -22,7 +22,7 @@ Watch
 
 如果你想打开他们的日记，哪怕只是匆匆一瞥，记住写日记对孩子有很多好处。这不仅有助于他们练习和提高写作，而且也是识别、检查、和处理他们的感受和经历的一个出口。发现那些私人的内心想法被窃取，不仅会威胁到你和孩子的关系——还可能让他们犹豫是否要再次把他们的想法和感受写在纸上，剥夺了他们发展情绪反思和调节的一个不可思议的工具。
 
-此外，正如哲学教授兼作家Kwame Anthony Appia在《纽约时报》 的 [中写给另一位家长的:](https://www.nytimes.com/2017/02/15/magazine/whats-a-liberal-to-do-when-his-spouse-is-a-trump-zealot.html?action=click&pgtype=Homepage&version=Moth-Visible&moduleDetail=inside-nyt-region-2&module=inside-nyt-region&region=inside-nyt-region&WT.nav=inside-nyt-region)
+此外，正如哲学教授兼作家 Kwame Anthony Appia 在《纽约时报》 的 [中写给另一位家长的:](https://www.nytimes.com/2017/02/15/magazine/whats-a-liberal-to-do-when-his-spouse-is-a-trump-zealot.html?action=click&pgtype=Homepage&version=Moth-Visible&moduleDetail=inside-nyt-region-2&module=inside-nyt-region&region=inside-nyt-region&WT.nav=inside-nyt-region)
 
 > 几十万年来，孩子们一直存活到成熟，他们的父母没有侵入他们最深处的思想。不可能是必须的。别碰她的日记。
 

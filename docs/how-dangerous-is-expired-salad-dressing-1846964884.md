@@ -1,8 +1,8 @@
 # 过期的沙拉酱有多危险？
 
-> 原文:[https://life hacker . com/how-dangerous-is-expired-salad-dressing-1846964884](https://lifehacker.com/how-dangerous-is-expired-salad-dressing-1846964884)
+> 原文：<https://lifehacker.com/how-dangerous-is-expired-salad-dressing-1846964884>
 
-不知什么原因，到了一定年龄的人都爱收集瓶瓶 [过期的沙拉酱](https://twitter.com/search?q=expired%20salad%20dressing&src=typed_query) 。事实上，我自己冰箱里最近过期的一瓶Trader Joe's Green女神调料只是又一个确凿的证据，证明我正在慢慢变成我的祖母，一次一种食物(廉价的博洛尼亚包装只能证实这一点)。
+不知什么原因，到了一定年龄的人都爱收集瓶瓶 [过期的沙拉酱](https://twitter.com/search?q=expired%20salad%20dressing&src=typed_query) 。事实上，我自己冰箱里最近过期的一瓶 Trader Joe's Green 女神调料只是又一个确凿的证据，证明我正在慢慢变成我的祖母，一次一种食物(廉价的博洛尼亚包装只能证实这一点)。
 
 Watch
 
@@ -18,6 +18,6 @@ Watch
 
 确定的最好方法是什么？闻一闻，尝一尝。“如果它没有开封，而且已经过了保质期，我会试着尝一点，”沙夫纳说。“如果味道还可以，那就去好了！由于这些产品的加工和配制方式，我认为你打开后很可能找不到任何霉菌。但根据过期时间和处理方式的不同，它可能会氧化或变质。所以，下次你去你父母家的时候，把他们的许多瓶粗略的调料收集起来，做一些口味测试。你可能会在那里找到一些非常好的覆盆子调味汁；你可能会发现一些味道像纸板的农场。这个过程不会令人愉快，但至少你能够正确地识别出哪些食物有“异味”。"
 
-为了清晰起见，这篇采访稍加编辑。更新于2022年3月2日，新增详细信息。
+为了清晰起见，这篇采访稍加编辑。更新于 2022 年 3 月 2 日，新增详细信息。
 
  *T6】*

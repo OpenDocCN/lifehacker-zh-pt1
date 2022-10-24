@@ -1,8 +1,8 @@
 # 永远不要在裸体海滩做这些事情
 
-> 原文:[https://life hacker . com/never-do-things-at-a-nude-beach-1849142296](https://lifehacker.com/never-do-these-things-at-a-nude-beach-1849142296)
+> 原文：<https://lifehacker.com/never-do-these-things-at-a-nude-beach-1849142296>
 
-你可能会觉得 [去裸体海滩](https://lifehacker.com/15-of-the-best-nudist-beaches-to-flaunt-it-this-year-1848714163) 的想法既刺激又吓人，或者两者兼而有之，但是如果你觉得它很诱人，那就值得在你的一生中至少尝试一次。在你自己的自然状态下与自然交流是令人放松和充满力量的，拥有一个身体或向他人展示它并不可耻。(全国裸泳日是7月9日，随便说说。)
+你可能会觉得 [去裸体海滩](https://lifehacker.com/15-of-the-best-nudist-beaches-to-flaunt-it-this-year-1848714163) 的想法既刺激又吓人，或者两者兼而有之，但是如果你觉得它很诱人，那就值得在你的一生中至少尝试一次。在你自己的自然状态下与自然交流是令人放松和充满力量的，拥有一个身体或向他人展示它并不可耻。(全国裸泳日是 7 月 9 日，随便说说。)
 
 Watch
 
@@ -32,7 +32,7 @@ Watch
 
 裸体主义者将喜欢穿衣服的人称为“纺织品”，英国裸体主义者警告那些喜欢裸体的人不要在这种海滩上“对抗或接近”他们。
 
-在Reddit上一个关于人们在裸体海滩最糟糕经历的旧帖子中， [一位用户回忆起](https://www.reddit.com/r/AskReddit/comments/1natt2/comment/ccgzbtd/?utm_source=reddit&utm_medium=web2x&context=3) “这个家伙因为我和我的朋友没有裸体而给我和我的朋友们带来了麻烦……我正要脱衣服，他来了。”他们称之为“相当怪异”，的确如此。有些人可能不喜欢完全脱光衣服，这没关系，只要他们遵守海滩上张贴的规则。这真的不关你的事。
+在 Reddit 上一个关于人们在裸体海滩最糟糕经历的旧帖子中， [一位用户回忆起](https://www.reddit.com/r/AskReddit/comments/1natt2/comment/ccgzbtd/?utm_source=reddit&utm_medium=web2x&context=3) “这个家伙因为我和我的朋友没有裸体而给我和我的朋友们带来了麻烦……我正要脱衣服，他来了。”他们称之为“相当怪异”，的确如此。有些人可能不喜欢完全脱光衣服，这没关系，只要他们遵守海滩上张贴的规则。这真的不关你的事。
 
 ## **不要被烧伤——字面意思是**
 

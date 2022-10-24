@@ -1,6 +1,6 @@
 # 如何去死皮，让你的头皮在这个冬天不剥落
 
-> 原文:[https://life hacker . com/how-to-stake-your头皮去死皮-保持无鳞片-this-win-1846027160](https://lifehacker.com/how-to-exfoliate-your-scalp-to-stay-flake-free-this-win-1846027160)
+> 原文：<https://lifehacker.com/how-to-exfoliate-your-scalp-to-stay-flake-free-this-win-1846027160>
 
 冬天对我们的皮肤来说可能相当难熬——尤其是对那些住在有强制空气加热 的地方的人来说。这不仅适用于我们脸上、手上和手臂上的皮肤，也适用于我们的头部。没错:头皮发麻。在上面，皮肤干燥=头皮屑。如果你不喜欢常用的去屑洗发水，或者它们根本不能去除头屑，你可能想试试另一种去除头皮的方法。以下是需要了解的内容。
 
@@ -14,7 +14,7 @@ Watch
 
 ### 如何去除头皮上的角质
 
-毫不奇怪，现在有大量的工具和产品可以帮助你保持头皮健康。但是这并不意味着所有的方法都有效或者是必要的(下面会有更多的介绍)。 [MindBodyGreen分解了](https://www.mindbodygreen.com/articles/how-to-exfoliate-scalp) 几个选项摆在那里。
+毫不奇怪，现在有大量的工具和产品可以帮助你保持头皮健康。但是这并不意味着所有的方法都有效或者是必要的(下面会有更多的介绍)。 [MindBodyGreen 分解了](https://www.mindbodygreen.com/articles/how-to-exfoliate-scalp) 几个选项摆在那里。
 
 #### 洗发水和磨砂
 
@@ -26,7 +26,7 @@ Watch
 
 最后，玛西娅·布拉迪发现了她的梳头方法:这是另一种清除头发上死皮和其他碎屑的方法(尽管它不能去除头发上的油)。如果你平时不刷牙，你可能想开始刷牙，至少偶尔开始。
 
-当然，如果你想走这条路，还有很多专业的(也叫“头皮按摩器”)可供选择。它们通常更小，更圆(顶部有一个手柄)，刷毛由硅或塑料制成。MindBodyGreen有一个 [专用的头皮刷使用指南，如果你需要一些指导的话还有](https://www.wellandgood.com/scalp-massage-brush-for-hair-growth/) 。
+当然，如果你想走这条路，还有很多专业的(也叫“头皮按摩器”)可供选择。它们通常更小，更圆(顶部有一个手柄)，刷毛由硅或塑料制成。MindBodyGreen 有一个 [专用的头皮刷使用指南，如果你需要一些指导的话还有](https://www.wellandgood.com/scalp-massage-brush-for-hair-growth/) 。
 
 ### 快速提醒
 

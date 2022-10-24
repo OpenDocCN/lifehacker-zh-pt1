@@ -1,6 +1,6 @@
 # 将最后一点番茄酱加入这些以番茄为原料的鸡尾酒中
 
-> 原文:[https://life hacker . com/add-the last-bit of the tomato-based-1847236871](https://lifehacker.com/add-that-last-bit-of-tomato-paste-to-these-tomato-based-1847236871)
+> 原文：<https://lifehacker.com/add-that-last-bit-of-tomato-paste-to-these-tomato-based-1847236871>
 
 番茄酱是一种厨房主食，它会给酱汁、米饭、炖菜和任何你碰巧搅拌进去的调味品或调料增加纯素食的鲜味和深度。而且，不管你买的是罐装还是管状的面糊，总会有最后一点讨厌的面糊，不够用在一份完整的食谱中，但只够做一些事情。那东西应该是血腥玛丽。
 

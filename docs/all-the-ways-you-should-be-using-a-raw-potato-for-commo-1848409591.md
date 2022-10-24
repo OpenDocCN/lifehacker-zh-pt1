@@ -1,8 +1,8 @@
 # 你应该用生土豆做日常家务的所有方式
 
-> 原文:[https://life hacker . com/all-the-way-you-should-be-use-a-raw-potato-for-commo-1848409591](https://lifehacker.com/all-the-ways-you-should-be-using-a-raw-potato-for-commo-1848409591)
+> 原文：<https://lifehacker.com/all-the-ways-you-should-be-using-a-raw-potato-for-commo-1848409591>
 
-自从大约8000年前在南美安第斯山脉首次驯化以来，现代马铃薯已经 [改变了世界](https://www.bbc.com/travel/article/20200302-the-true-origins-of-the-humble-potato#:~:text=Despite%20its%20origins%20in%20the%20Andes%2C%20it's%20an%20incredibly%20successful%20global%20food&text=The%20humble%20potato%20was%20domesticated,to%20the%20Americas%2C%20and%20beyond.) 。虽然有很多关于土豆作为一种食物已经进入全球美食的说法，但这种美味的块茎也可以在厨房之外发挥许多功能。这里有几个例子，展示了用生土豆做各种家务的许多方法。
+自从大约 8000 年前在南美安第斯山脉首次驯化以来，现代马铃薯已经 [改变了世界](https://www.bbc.com/travel/article/20200302-the-true-origins-of-the-humble-potato#:~:text=Despite%20its%20origins%20in%20the%20Andes%2C%20it's%20an%20incredibly%20successful%20global%20food&text=The%20humble%20potato%20was%20domesticated,to%20the%20Americas%2C%20and%20beyond.) 。虽然有很多关于土豆作为一种食物已经进入全球美食的说法，但这种美味的块茎也可以在厨房之外发挥许多功能。这里有几个例子，展示了用生土豆做各种家务的许多方法。
 
 Watch
 
@@ -34,4 +34,4 @@ Watch
 *   用一片生土豆摩擦你眼镜的**镜片以 [清洁镜片，防止镜片在外面和/或戴口罩时](https://www.thekitchn.com/cleaning-tricks-potatoes-23076733) 起雾。**
 *   当**清理碎玻璃**时，首先清扫并丢弃较大的碎片。然后， [将一个生土豆切成两半](https://www.thekitchn.com/cleaning-tricks-potatoes-23076733) ，戴上一副手套，在有碎玻璃的区域周围按压土豆的切割面。
 
-而如果读到这里让你对土豆产生了渴望(只有我？)，你应该知道它们在厨房里的用途也非常广泛。事实上，这里有10种用土豆 烹饪的创意方法，由Lifehacker美食编辑Claire Lower提供。
+而如果读到这里让你对土豆产生了渴望(只有我？)，你应该知道它们在厨房里的用途也非常广泛。事实上，这里有 10 种用土豆 烹饪的创意方法，由 Lifehacker 美食编辑 Claire Lower 提供。

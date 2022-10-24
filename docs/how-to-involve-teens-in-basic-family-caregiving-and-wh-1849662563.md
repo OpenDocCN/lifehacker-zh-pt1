@@ -1,6 +1,6 @@
 # 如何让青少年参与基本的家庭护理(以及为什么你应该这样做)
 
-> 原文:[https://life hacker . com/how-to-contract-in-basic-family-care-and-wh-1849662563](https://lifehacker.com/how-to-involve-teens-in-basic-family-caregiving-and-wh-1849662563)
+> 原文：<https://lifehacker.com/how-to-involve-teens-in-basic-family-caregiving-and-wh-1849662563>
 
 对于许多老年人来说，辅助生活和其他长期护理设施以及家庭保健助理的高昂费用超出了他们的经济能力。其他人可能负担得起这种类型的护理，但更喜欢与家人住在一起，或者一生都住在几代同堂的家庭中。有些人能够继续独立生活，但在某些任务上偶尔需要一些帮助。
 

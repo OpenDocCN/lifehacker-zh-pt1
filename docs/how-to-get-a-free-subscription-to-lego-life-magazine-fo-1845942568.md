@@ -1,6 +1,6 @@
 # 如何为孩子免费订阅“乐高生活杂志”
 
-> 原文:[https://life hacker . com/how-to-get-a-free-subscription-to-Lego-life-magazine-fo-1845942568](https://lifehacker.com/how-to-get-a-free-subscription-to-lego-life-magazine-fo-1845942568)
+> 原文：<https://lifehacker.com/how-to-get-a-free-subscription-to-lego-life-magazine-fo-1845942568>
 
 即使有了今天所有的技术，孩子们仍然喜欢收到邮件。打开邮箱，发现上面印着你自己名字的东西，这种激动是难以抗拒的。(当然是小时候。作为一个成年人，这是一个不同的故事——可能是一个涉及焦虑的故事。)
 
@@ -10,7 +10,7 @@ Watch
 
 ### 如何免费订阅“乐高生活杂志”
 
-[*《乐高生活》杂志*](https://www.lego.com/en-us/life/magazine?CMP=AFC-AffiliateUS-FRnmoZHUnH4-2156899-115554-1&Country=US&siteId=FRnmoZHUnH4-qrQBN_nrSVlc3PpxaOVXlw) 是一份面向儿童(和/或他们的父母)的季刊，他们是塑料积木玩具套装、STEM相关活动或一般品牌(如乐高电影或主题公园)的粉丝。
+[*《乐高生活》杂志*](https://www.lego.com/en-us/life/magazine?CMP=AFC-AffiliateUS-FRnmoZHUnH4-2156899-115554-1&Country=US&siteId=FRnmoZHUnH4-qrQBN_nrSVlc3PpxaOVXlw) 是一份面向儿童(和/或他们的父母)的季刊，他们是塑料积木玩具套装、STEM 相关活动或一般品牌(如乐高电影或主题公园)的粉丝。
 
 当然，这肯定是为品牌做广告，但除此之外，订户还可以获得迷宫(和类似活动)、海报、漫画和用乐高搭建不同东西的说明。还有一个名为 [【酷炫创意】](https://www.lego.com/r/www/r/portals/-/media/images/lego-life/magazine/pdfs/us_submission_form.pdf?l.r=-1268610607?CMP=AFC-AffiliateUS-FRnmoZHUnH4-2156899-115554-1&Country=US&siteId=FRnmoZHUnH4-qrQBN_nrSVlc3PpxaOVXlw) 的垂直项目，孩子们(嗯，他们的父母)可以提交他们用乐高制作的照片，以备出版。
 

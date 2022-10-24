@@ -1,6 +1,6 @@
 # 制作完美蔬菜三明治的配方
 
-> 原文:[https://life hacker . com/the-formula-for-make-a-perfect-vegetable-sandwich-1848843734](https://lifehacker.com/the-formula-for-making-a-perfect-veggie-sandwich-1848843734)
+> 原文：<https://lifehacker.com/the-formula-for-making-a-perfect-veggie-sandwich-1848843734>
 
 素食三明治可能会令人失望，尤其是从以肉类为主的餐馆订购的时候。通常情况下，默认是一个油腻的波多贝罗蘑菇帽，配一些生蔬菜片，也许还有一片奶酪。经常有豆芽。
 

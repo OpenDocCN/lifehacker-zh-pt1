@@ -1,6 +1,6 @@
 # 停止叠孩子的衣服(以及其他帮助他们保持房间整洁的方法)
 
-> 原文:[https://life hacker . com/stop-folding-your-kids-ways-and-other-way-to-help-1847936705](https://lifehacker.com/stop-folding-your-kids-clothes-and-other-ways-to-help-1847936705)
+> 原文：<https://lifehacker.com/stop-folding-your-kids-clothes-and-other-ways-to-help-1847936705>
 
 除非你有一个我们偶尔听说过但仍不相信存在的异常整洁的小孩，你可能需要一些帮助来限制他们房间的混乱。虽然我们不能让你的孩子自己打扫卫生，但我们有一些组织技巧可以帮助他们更轻松地完成这项工作——当然也包括你。
 
@@ -22,11 +22,11 @@ Watch
 
 ## **你考虑过*而不是*折叠任何东西吗？**
 
-好吧，不要任何东西( t恤会是一种灾难)。但是某些东西——比如睡衣、短裤、紧身衣和游泳衣——可以扔进贴有标签的垃圾桶，对吗？我们不是说把东西扔进巨大的球里，但是某些东西不会受到太大的影响，比如说，T2放松了你的折叠标准。虽然这会导致更多的皱纹，但它会为你和你的孩子节省大量的时间。(重点是让他们尽可能多地做这些工作，对吗？)
+好吧，不要任何东西( t 恤会是一种灾难)。但是某些东西——比如睡衣、短裤、紧身衣和游泳衣——可以扔进贴有标签的垃圾桶，对吗？我们不是说把东西扔进巨大的球里，但是某些东西不会受到太大的影响，比如说，T2 放松了你的折叠标准。虽然这会导致更多的皱纹，但它会为你和你的孩子节省大量的时间。(重点是让他们尽可能多地做这些工作，对吗？)
 
 ## 安装钉板和挂钩
 
-[钉板](https://www.amazon.com/pegboard/s?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/stop-folding-your-kids-clothes-and-other-ways-to-help-1847936705&asc_source=&k=pegboard&tag=kinjalifehackerlink-20) 不再仅仅是工具。在孩子衣柜的后墙上安装一个，可以提供一个空间来挂球帽、项链、填充动物玩具、头带和其他任何足够轻小的东西，以便挂在金属T5挂钩上。如果想要更好的外观，可以把挂钉板拿到外面，刷成和房间相配的颜色(或者买白色的，避免单调的纸板色)。说到挂钩，用 [装饰墙钩](https://www.amazon.com/Decorative-Wall-Hooks-Kids/s?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/stop-folding-your-kids-clothes-and-other-ways-to-help-1847936705&asc_source=&k=Decorative Wall Hooks for Kids&tag=kinjalifehackerlink-20) 帮孩子清理地板空间，挂长袍、运动衫、皮带、帽子、包包。
+[钉板](https://www.amazon.com/pegboard/s?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/stop-folding-your-kids-clothes-and-other-ways-to-help-1847936705&asc_source=&k=pegboard&tag=kinjalifehackerlink-20) 不再仅仅是工具。在孩子衣柜的后墙上安装一个，可以提供一个空间来挂球帽、项链、填充动物玩具、头带和其他任何足够轻小的东西，以便挂在金属 T5 挂钩上。如果想要更好的外观，可以把挂钉板拿到外面，刷成和房间相配的颜色(或者买白色的，避免单调的纸板色)。说到挂钩，用 [装饰墙钩](https://www.amazon.com/Decorative-Wall-Hooks-Kids/s?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/stop-folding-your-kids-clothes-and-other-ways-to-help-1847936705&asc_source=&k=Decorative Wall Hooks for Kids&tag=kinjalifehackerlink-20) 帮孩子清理地板空间，挂长袍、运动衫、皮带、帽子、包包。
 
 ## 放下你孩子的水平
 
@@ -34,6 +34,6 @@ Watch
 
 ## 完全拒绝玩具
 
-根据你孩子的年龄，把他们房间里的玩具全部清理掉可能是有意义的(当然，除了几个最喜欢的填充动物朋友)。我不能代表所有的孩子，但是我的孩子在7、8岁之前从来不想一个人在他们的房间里玩——即使那样，也不经常。当他们还小的时候，利用他们想和别人在一起的愿望，把玩具移到你可以帮忙管理的公共区域。
+根据你孩子的年龄，把他们房间里的玩具全部清理掉可能是有意义的(当然，除了几个最喜欢的填充动物朋友)。我不能代表所有的孩子，但是我的孩子在 7、8 岁之前从来不想一个人在他们的房间里玩——即使那样，也不经常。当他们还小的时候，利用他们想和别人在一起的愿望，把玩具移到你可以帮忙管理的公共区域。
 
 诚然，这是一把双刃剑，选择把所有的玩具放在楼下的公共休息室或地下室。首先，厨房会有大量的溢出物。但至少你会知道前面会有什么混乱，而不是在一天结束后上楼，却在睡觉前发现一个巨大的乐高爆炸。

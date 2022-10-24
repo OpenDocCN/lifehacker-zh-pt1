@@ -1,8 +1,8 @@
 # 为什么你应该加入当地的园艺俱乐部
 
-> 原文:[https://life hacker . com/why-you-should-join-your-local-garden-club-1848995994](https://lifehacker.com/why-you-should-join-your-local-garden-club-1848995994)
+> 原文：<https://lifehacker.com/why-you-should-join-your-local-garden-club-1848995994>
 
-奥普拉·温弗瑞、茱莉亚·罗伯茨和杰克·吉伦哈尔有什么共同点？是的，他们都比我有钱，但他们也 [各有各的园艺享受](https://balconygardenweb.com/celebrities-that-love-gardening-growing-plants/) 。不难看出为什么；无论你是想花更多的时间在户外还是仅仅与有共同兴趣的人互动，加入当地的园艺俱乐部都会有很多收获。美国最大的园艺协会美国园艺俱乐部拥有超过18000名会员，遍布200个地方分会；找到你的会面地点就像看一看他们的 [国家地图](https://www.gcamerica.org/clubs_national_map) 一样简单。
+奥普拉·温弗瑞、茱莉亚·罗伯茨和杰克·吉伦哈尔有什么共同点？是的，他们都比我有钱，但他们也 [各有各的园艺享受](https://balconygardenweb.com/celebrities-that-love-gardening-growing-plants/) 。不难看出为什么；无论你是想花更多的时间在户外还是仅仅与有共同兴趣的人互动，加入当地的园艺俱乐部都会有很多收获。美国最大的园艺协会美国园艺俱乐部拥有超过 18000 名会员，遍布 200 个地方分会；找到你的会面地点就像看一看他们的 [国家地图](https://www.gcamerica.org/clubs_national_map) 一样简单。
 
 Watch
 
@@ -22,7 +22,7 @@ Watch
 
 ## **你可以省钱**
 
-如果你种植正确的水果和蔬菜，你可以通过种植自己的产品来节省一大笔钱。 不一会儿就到了:根据劳工统计局最新的消费者价格指数，水果和蔬菜的价格比去年同期上涨了7.8%。如果你主动种植一些蔬菜，不仅你的口袋里会有更多的现金，而且你会在制作更好的沙拉的道路上走得更好。
+如果你种植正确的水果和蔬菜，你可以通过种植自己的产品来节省一大笔钱。 不一会儿就到了:根据劳工统计局最新的消费者价格指数，水果和蔬菜的价格比去年同期上涨了 7.8%。如果你主动种植一些蔬菜，不仅你的口袋里会有更多的现金，而且你会在制作更好的沙拉的道路上走得更好。
 
 ## **你可以改善你的社区**
 

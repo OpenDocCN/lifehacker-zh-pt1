@@ -1,8 +1,8 @@
 # 你对付恶霸的最好建议是什么？
 
-> 原文:[https://life hacker . com/whats-whats-you ' s best-advice-to-dealing-1848046978](https://lifehacker.com/whats-your-best-advice-for-dealing-with-bullies-1848046978)
+> 原文：<https://lifehacker.com/whats-your-best-advice-for-dealing-with-bullies-1848046978>
 
-有一天晚上吃饭时，我儿子给我们讲了他的一个朋友在学校被欺负的事。他是一个超级好的13岁男孩，但是非常害羞，在一所新学校，所以他没有和去年的朋友在一起。一个同学发现了他的笨拙，这是欺负者所拥有的奇怪弱点——雷达，现在她经常在课堂上侮辱他。这是典型的刻薄小孩欺负害羞小孩的场景。
+有一天晚上吃饭时，我儿子给我们讲了他的一个朋友在学校被欺负的事。他是一个超级好的 13 岁男孩，但是非常害羞，在一所新学校，所以他没有和去年的朋友在一起。一个同学发现了他的笨拙，这是欺负者所拥有的奇怪弱点——雷达，现在她经常在课堂上侮辱他。这是典型的刻薄小孩欺负害羞小孩的场景。
 
 Watch
 

@@ -1,8 +1,8 @@
 # 当警察要求搜查你的车时该怎么办
 
-> 原文:[https://life hacker . com/what-to-do what-what-do what-what-a-COP-asked-search-your vehicle-1848930764](https://lifehacker.com/what-to-do-when-a-cop-asks-to-search-your-vehicle-1848930764)
+> 原文：<https://lifehacker.com/what-to-do-when-a-cop-asks-to-search-your-vehicle-1848930764>
 
-美国人花很多时间在他们的车里，所以警察拦下我们这些*人*也就不足为奇了——大约 [每天5万，每年2000万](https://openpolicing.stanford.edu/findings/) 。如果你曾经被拦下过(根据这些数字，你很可能被拦下过)，你就会知道这种经历有多让人紧张。简单地说，警察在交通拦截中拥有所有的权力——或者至少，他们想让你相信他们拥有权力。所以当警察问他们是否可以搜查你的车时，很难知道该怎么做。
+美国人花很多时间在他们的车里，所以警察拦下我们这些*人*也就不足为奇了——大约 [每天 5 万，每年 2000 万](https://openpolicing.stanford.edu/findings/) 。如果你曾经被拦下过(根据这些数字，你很可能被拦下过)，你就会知道这种经历有多让人紧张。简单地说，警察在交通拦截中拥有所有的权力——或者至少，他们想让你相信他们拥有权力。所以当警察问他们是否可以搜查你的车时，很难知道该怎么做。
 
 对大多数人来说，这将是一个令人担忧的请求，暗示警官怀疑你在做违法的事情。一方面，有一句古老的谚语说，如果你没有什么要隐藏的，你就应该遵守——尤其是当这么多警察遭遇变得丑陋的时候。另一方面，你的车辆是你的私有财产，你有权利。
 

@@ -1,6 +1,6 @@
 # 如何区分傲慢和自信
 
-> 原文:[https://life hacker . com/how-to-tell-the-difference-and-confid-1847275615](https://lifehacker.com/how-to-tell-the-difference-between-arrogance-and-confid-1847275615)
+> 原文：<https://lifehacker.com/how-to-tell-the-difference-between-arrogance-and-confid-1847275615>
 
 傲慢令人反感；但是自信是受人崇拜和追捧的。虽然这两个特征有一些相似之处，但是你如何区分它们呢？在什么时候你会从自信变成自欺欺人，变成彻头彻尾的自恋？界线并不总是很清楚，但是当你把这两种性格类型归结起来，他们的差异就开始显现了。
 
@@ -8,11 +8,11 @@ Watch
 
 ## 自信和傲慢有什么不同？
 
-我们生活在一个 [重视自信](https://www.inc.com/andrew-thomas/10-ways-extremely-confident-people-train-their-minds-every-day.html) 的文化中，这通常被认为是成功 背后的 [。正如Eric Ravenscourt在2013年为Lifehacker撰写的文章中所说，自信是“知道你擅长什么，你能提供什么价值，并以某种方式向他人传达这一点。”](https://www.linkedin.com/pulse/confident-confidence-foundation-success-ms-jemi-sudhakar/)
+我们生活在一个 [重视自信](https://www.inc.com/andrew-thomas/10-ways-extremely-confident-people-train-their-minds-every-day.html) 的文化中，这通常被认为是成功 背后的 [。正如 Eric Ravenscourt 在 2013 年为 Lifehacker 撰写的文章中所说，自信是“知道你擅长什么，你能提供什么价值，并以某种方式向他人传达这一点。”](https://www.linkedin.com/pulse/confident-confidence-foundation-success-ms-jemi-sudhakar/)
 
 自信的人可能会遵循自信和自大之间的界限，但他们总是会尽量克制虚张声势，以避免散发出傲慢的氛围。首先，一个自信的人可能愿意赞美自己的技能，但他们仍然会花时间去倾听他人，并接受反馈或建设性的批评。
 
-此外，自信的人倾向于强调他人的成功，因为他们不怕别人赢得喝彩。正如职场咨询公司 [翡翠作品2019](https://emeraldworks.com/resources/blog/tips-and-expertise/confident-arrogant-difference) 所解释的那样，自信的人是大度的——自大的人不是。在工作场所，你可能会这样理解两个对立的例子:
+此外，自信的人倾向于强调他人的成功，因为他们不怕别人赢得喝彩。正如职场咨询公司 [翡翠作品 2019](https://emeraldworks.com/resources/blog/tips-and-expertise/confident-arrogant-difference) 所解释的那样，自信的人是大度的——自大的人不是。在工作场所，你可能会这样理解两个对立的例子:
 
 > 例如，在会议中，傲慢的人通常会寻求聚光灯。不管是有意识还是无意识的，他们让别人觉得不那么重要。他们可能会使用居高临下的语言，谈论他人，或展示对他人缺乏兴趣的肢体语言。
 
@@ -28,4 +28,4 @@ Watch
 
 如果你选择了自信而不是傲慢(首先，对你有好处)，有一些方法可以让你周围的人更明显地看到这一点。除了你可能在多年磨练技能中培养起来的内在自信(或者这可能是你的天赋)，你还可以通过迎接学习*甚至更多*的前景来散发自信。
 
-接受批评——无论是工作中的，朋友的，你的爱人的，还是任何人的——并把它作为一种激励工具。你可以相信你的自信，但是接受总有更多的东西要学将会把你和那些流露出傲慢的T2区分开来。你也应该乐于以身作则，帮助他人学习。你的知识和技能可以为任何愿意学习的人带来好处，知道这一点将有助于你表现得健康自信，而不是傲慢自大。
+接受批评——无论是工作中的，朋友的，你的爱人的，还是任何人的——并把它作为一种激励工具。你可以相信你的自信，但是接受总有更多的东西要学将会把你和那些流露出傲慢的 T2 区分开来。你也应该乐于以身作则，帮助他人学习。你的知识和技能可以为任何愿意学习的人带来好处，知道这一点将有助于你表现得健康自信，而不是傲慢自大。

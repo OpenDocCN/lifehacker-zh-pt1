@@ -1,12 +1,12 @@
 # 如何洗钱
 
-> 原文:[https://life hacker . com/how-to-launder-dirty-money-1849595817](https://lifehacker.com/how-to-launder-dirty-money-1849595817)
+> 原文：<https://lifehacker.com/how-to-launder-dirty-money-1849595817>
 
-如果你和我一样，你已经通过热门节目 [*奥扎克*](https://www.youtube.com/watch?v=KXTaksJxO90)T5】和 [*绝命毒师*](https://www.youtube.com/watch?v=RhsUHDJ0BFM) 看过《洗钱101》。(链接的例子非常有趣地解释了洗钱是如何在他们的电视世界中进行的，以供参考。)
+如果你和我一样，你已经通过热门节目 [*奥扎克*](https://www.youtube.com/watch?v=KXTaksJxO90)T5】和 [*绝命毒师*](https://www.youtube.com/watch?v=RhsUHDJ0BFM) 看过《洗钱 101》。(链接的例子非常有趣地解释了洗钱是如何在他们的电视世界中进行的，以供参考。)
 
 Watch
 
-洗钱当然不是指*字面上的* [消毒你的现金](https://www.marthastewart.com/8068893/how-clean-money-credit-cards-wallet) — 洗钱是使非法- 获得的金钱看似来自合法的商业运作以逃避国税局或执法部门的愤怒的过程。虽然我们Lifehacker从未想过会支持金融犯罪，但我们还是要了解一下如今人们是如何洗钱的。
+洗钱当然不是指*字面上的* [消毒你的现金](https://www.marthastewart.com/8068893/how-clean-money-credit-cards-wallet) — 洗钱是使非法- 获得的金钱看似来自合法的商业运作以逃避国税局或执法部门的愤怒的过程。虽然我们 Lifehacker 从未想过会支持金融犯罪，但我们还是要了解一下如今人们是如何洗钱的。
 
 ## 到底什么是洗钱？
 

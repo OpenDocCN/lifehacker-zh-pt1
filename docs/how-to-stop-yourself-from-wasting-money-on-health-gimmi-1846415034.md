@@ -1,6 +1,6 @@
 # 如何阻止自己在健康噱头上浪费金钱
 
-> 原文:[https://life hacker . com/how-to-stop-yourself-waste-money-on health-gimmi-1846415034](https://lifehacker.com/how-to-stop-yourself-from-wasting-money-on-health-gimmi-1846415034)
+> 原文：<https://lifehacker.com/how-to-stop-yourself-from-wasting-money-on-health-gimmi-1846415034>
 
 每当我看到一个新的健康或健身产品的引人注目的广告或听到一个诱人的趋势，我必须承认我和其他人一样受到诱惑。有时候东西看起来很酷！我想象自己像广告中的人一样，收获承诺的好处——然后我振作起来，问自己两个问题。
 
@@ -28,7 +28,7 @@ Watch
 免疫增强补充剂:
 
 1.  它们解决了真正的问题吗？我不想生病，所以在这个意义上，是的。
-2.  它们是解决这个问题的最好方法吗？不， [增强你的免疫系统不是万能的](https://vitals.lifehacker.com/you-dont-actually-want-to-boost-your-immune-system-1842754207) 。如果我担心感染COVID，我的最佳选择是尽可能呆在家里，外出时戴口罩。
+2.  它们是解决这个问题的最好方法吗？不， [增强你的免疫系统不是万能的](https://vitals.lifehacker.com/you-dont-actually-want-to-boost-your-immune-system-1842754207) 。如果我担心感染 COVID，我的最佳选择是尽可能呆在家里，外出时戴口罩。
 
 轻质塑料杠铃:
 

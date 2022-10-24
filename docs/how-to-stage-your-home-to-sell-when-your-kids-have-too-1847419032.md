@@ -1,14 +1,14 @@
 # 当你的孩子有太多垃圾时，如何布置你的房子来出售
 
-> 原文:[https://life hacker . com/how-to-stage-your ' s home to-sell when-your-kids-have-too 1847419032](https://lifehacker.com/how-to-stage-your-home-to-sell-when-your-kids-have-too-1847419032)
+> 原文：<https://lifehacker.com/how-to-stage-your-home-to-sell-when-your-kids-have-too-1847419032>
 
-无论是 [可持续还是](https://www.nasdaq.com/articles/a-housing-market-crash-is-coming.-heres-how-to-prepare-2021-08-01) ，美国的房地产市场在2021年的大部分时间里都不可否认地*火热*。在一些最受欢迎的市场，房屋只挂牌几天，就会有大量的报价涌入。然而，即使在卖方市场，分期付款时偷工减料也会对最终购买价格产生影响——尤其是如果你家有小孩的话。
+无论是 [可持续还是](https://www.nasdaq.com/articles/a-housing-market-crash-is-coming.-heres-how-to-prepare-2021-08-01) ，美国的房地产市场在 2021 年的大部分时间里都不可否认地*火热*。在一些最受欢迎的市场，房屋只挂牌几天，就会有大量的报价涌入。然而，即使在卖方市场，分期付款时偷工减料也会对最终购买价格产生影响——尤其是如果你家有小孩的话。
 
 Watch
 
 出售房屋的过程是有压力的——对于抚养小孩的父母来说尤其如此。当你的家里堆满了玩具、脏兮兮的幼童留下的堆积如山的脏衣服，以及散落在沙发垫之间的金鱼饼干时，布置一个对买家来说有吸引力且整洁的家 [似乎是不可能的](https://www.scarymommy.com/toddlers-hard-sell-house/) 。但是这两个都是可能的*和*重要的事情。
 
-密歇根房地产公司Promise Land Realty Group的首席执行官兼经纪人Sparkle Rattler 说:“分期付款是出售房屋最重要的部分之一。“当买家在找房子的时候，除了房子的外观和他们是否能想象自己住在那里之外，他们对房子了解不多。即使在这个市场上，尽你所能展示(你的家)也是非常重要的。当我与卖家进行磋商时，分期是我们很早就谈论的话题。”
+密歇根房地产公司 Promise Land Realty Group 的首席执行官兼经纪人 Sparkle Rattler 说:“分期付款是出售房屋最重要的部分之一。“当买家在找房子的时候，除了房子的外观和他们是否能想象自己住在那里之外，他们对房子了解不多。即使在这个市场上，尽你所能展示(你的家)也是非常重要的。当我与卖家进行磋商时，分期是我们很早就谈论的话题。”
 
 但是，对于那些正在烦恼如何让他们的家保持中立，没有他们孩子日常生活所需的所有东西，而仍然住在那里的父母来说，这个过程不必过于令人生畏或令人生畏。
 

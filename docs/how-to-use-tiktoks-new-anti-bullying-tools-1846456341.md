@@ -1,12 +1,12 @@
 # 如何使用抖音新的反欺凌工具
 
-> 原文:[https://life hacker . com/how-to-use-tiktoks-new-anti-欺负-tools-1846456341](https://lifehacker.com/how-to-use-tiktoks-new-anti-bullying-tools-1846456341)
+> 原文：<https://lifehacker.com/how-to-use-tiktoks-new-anti-bullying-tools-1846456341>
 
 任何社交媒体平台成功的一个不幸的副作用是相关的网络欺凌和骚扰的增加，抖音也不例外。
 
 Watch
 
-幸运的是，该公司已经开始实施新的反欺凌战略来保护用户的安全，开始于2020年12月推出的更强有力的反骚扰和网络欺凌政策。抖音反欺凌倡议的最新部分是两个旨在减少有害评论的新功能。
+幸运的是，该公司已经开始实施新的反欺凌战略来保护用户的安全，开始于 2020 年 12 月推出的更强有力的反骚扰和网络欺凌政策。抖音反欺凌倡议的最新部分是两个旨在减少有害评论的新功能。
 
 ### 评论批准
 

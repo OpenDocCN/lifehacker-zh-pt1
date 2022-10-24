@@ -1,24 +1,24 @@
 # 你应该穿着跑步短裤去突击吗？
 
-> 原文:[https://life hacker . com/should-you-go-突击队员-1847246819](https://lifehacker.com/should-you-go-commando-in-your-running-shorts-1847246819)
+> 原文：<https://lifehacker.com/should-you-go-commando-in-your-running-shorts-1847246819>
 
 如果你是那种什么都穿内衣的人——在我看来，这是一种非常正常的人——你可能会开始想跑步短裤和运动绑腿是怎么回事。有时宽松的男式短裤会有一个贴身的衬里，或者某些女式短裤会有一个由不同材料制成的裤裆。*你可能会想，我应该不穿内裤就穿这些吗*？在很多情况下，答案是肯定的。
 
 Watch
 
-不过，这是一个常见的问题。在Reddit上，这个话题在跑步论坛、 [女子健身论坛](https://www.reddit.com/r/xxfitness/comments/8ypv56/do_you_wear_underwear/) 、 [“没有愚蠢的问题”子论坛](https://www.reddit.com/r/NoStupidQuestions/comments/90c65c/womens_running_shorts_come_with_built_in_panties/) 等等都有讨论。接下来的讨论经常涉及两组人(穿内衣的和不穿内衣的)，他们对对方的存在感到震惊。
+不过，这是一个常见的问题。在 Reddit 上，这个话题在跑步论坛、 [女子健身论坛](https://www.reddit.com/r/xxfitness/comments/8ypv56/do_you_wear_underwear/) 、 [“没有愚蠢的问题”子论坛](https://www.reddit.com/r/NoStupidQuestions/comments/90c65c/womens_running_shorts_come_with_built_in_panties/) 等等都有讨论。接下来的讨论经常涉及两组人(穿内衣的和不穿内衣的)，他们对对方的存在感到震惊。
 
 所以让我们看看我们是否能把它分解一下。在我看来，任何人都可以穿任何他们喜欢的短裤，但它们往往以“男式”和“女式”风格出售，所以这里是你可以在过道两边找到的东西。
 
-## 在m en的跑步短裤中期待什么
+## 在 m en 的跑步短裤中期待什么
 
-男式跑步短裤通常有一个类似内衣的衬里，“用来固定你的蛋蛋”，正如一位热心的redditor所说的。为什么不穿普通内衣呢？嗯，你可以，但跑步短裤通常被设计成舒适和排汗的，所以为什么要用你的普通棉内衣破坏这种工程学呢？把衬里想象成免费的内衣，为你的跑步需求而优化。
+男式跑步短裤通常有一个类似内衣的衬里，“用来固定你的蛋蛋”，正如一位热心的 redditor 所说的。为什么不穿普通内衣呢？嗯，你可以，但跑步短裤通常被设计成舒适和排汗的，所以为什么要用你的普通棉内衣破坏这种工程学呢？把衬里想象成免费的内衣，为你的跑步需求而优化。
 
 衬垫也有助于防止皮肤发炎，正如超跑者(跑超过马拉松距离的人)之间的讨论 所揭示的。款式多样，从极简内衬到全压缩短裤。紧身跑步紧身衣通常会在前面有一个防风板，这是他们打算穿突击队的另一个标志。
 
 如果你的跑步短裤没有内衬，一个常见的 [建议](https://www.reddit.com/r/running/comments/izpzwm/men_what_do_you_wear_under_your_shorts/) 是搭配紧身短裤——或者去商店买一条内置内衬的短裤。
 
-## w omen的跑步短裤有什么值得期待的
+## w omen 的跑步短裤有什么值得期待的
 
 人们对女性短裤和打底裤的看法不太一致:有些人会搭配内衣，有些人则不会。
 

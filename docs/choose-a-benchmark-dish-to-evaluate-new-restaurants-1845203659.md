@@ -1,6 +1,6 @@
 # 选择一道“基准菜”来评估新餐馆
 
-> 原文:[https://life hacker . com/choose-a-benchmark-dish-to-evaluate-new-restaurants-1845203659](https://lifehacker.com/choose-a-benchmark-dish-to-evaluate-new-restaurants-1845203659)
+> 原文：<https://lifehacker.com/choose-a-benchmark-dish-to-evaluate-new-restaurants-1845203659>
 
 外出就餐或在家点菜时，我很少每次都点同样的菜。有一整套菜单可以享用，我认为自己是一个风味探索者。但是，当尝试一家新的餐厅时，我经常会在其他类似的餐厅吃到我已经吃过很多次的东西。我称这些为“基准菜”，它们非常重要。
 

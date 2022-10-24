@@ -1,6 +1,6 @@
 # 如何在不影响同事的情况下休假
 
-> 原文:[https://life hacker . com/how-to-take-time-off-over-screw-your-worker-1846296976](https://lifehacker.com/how-to-take-time-off-without-screwing-over-your-coworke-1846296976)
+> 原文：<https://lifehacker.com/how-to-take-time-off-without-screwing-over-your-coworke-1846296976>
 
 周三晚上，一场史无前例的暴风雪袭击了得克萨斯州，导致数百万居民断电断水，参议员特德·克鲁兹和家人逃到了阳光明媚的墨西哥坎昆。
 

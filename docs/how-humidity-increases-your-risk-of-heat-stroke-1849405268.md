@@ -1,8 +1,8 @@
 # 湿度如何增加你中暑的风险
 
-> 原文:[https://life hacker . com/how-moisture-increase-your ' s risk of heat-stroke-1849405268](https://lifehacker.com/how-humidity-increases-your-risk-of-heat-stroke-1849405268)
+> 原文：<https://lifehacker.com/how-humidity-increases-your-risk-of-heat-stroke-1849405268>
 
-当温度高达华氏80度，湿度很高时，热量就像一张厚厚的毯子，让你透不过气来。事实证明，湿热结合也会增加你中暑的风险。
+当温度高达华氏 80 度，湿度很高时，热量就像一张厚厚的毯子，让你透不过气来。事实证明，湿热结合也会增加你中暑的风险。
 
 Watch
 
@@ -10,7 +10,7 @@ Watch
 
 当谈到干热和湿热时，主要的区别是湿度阻止汗液从你的皮肤表面蒸发，这有助于你的身体降温。
 
-休斯顿卫理公会医院T3[的急诊医生尼尔·甘地说:“当天气干燥得多的时候，汗水就更容易迅速离开你的身体。”这里的温度和湿度都很高。"额外的湿度会让你更难有效地排汗。"](https://www.houstonmethodist.org/)
+休斯顿卫理公会医院 T3[的急诊医生尼尔·甘地说:“当天气干燥得多的时候，汗水就更容易迅速离开你的身体。”这里的温度和湿度都很高。"额外的湿度会让你更难有效地排汗。"](https://www.houstonmethodist.org/)
 
 当汗水粘在你的皮肤上而不是蒸发时，你会觉得比实际上更热。环境温度和湿度的组合就是进入 [热指数](https://www.weather.gov/ama/heatindex) 的内容，也就是温度的感觉。热和湿度的组合越高，热指数越高。
 

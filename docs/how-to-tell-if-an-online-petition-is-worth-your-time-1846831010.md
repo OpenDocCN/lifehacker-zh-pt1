@@ -1,6 +1,6 @@
 # 如何判断网上请愿是否值得你花费时间
 
-> 原文:[https://life hacker . com/how-to-tell-if-a-online-tension-worth-your-time-1846831010](https://lifehacker.com/how-to-tell-if-an-online-petition-is-worth-your-time-1846831010)
+> 原文：<https://lifehacker.com/how-to-tell-if-an-online-petition-is-worth-your-time-1846831010>
 
 创建一份请愿书来抱怨不公正是很容易的，签署一份请愿书可能会感觉很宣泄，但并不是所有的请愿书都有机会创造变化。以下是专家们所说的影响请愿和无影响请愿的因素。
 

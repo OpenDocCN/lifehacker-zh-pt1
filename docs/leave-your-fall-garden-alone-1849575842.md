@@ -1,6 +1,6 @@
 # 不要管你的秋季花园
 
-> 原文:[https://life hacker . com/leave-your-fall-garden-alone-1849575842](https://lifehacker.com/leave-your-fall-garden-alone-1849575842)
+> 原文：<https://lifehacker.com/leave-your-fall-garden-alone-1849575842>
 
 那里有很多信息——包括这个网站上的——列出了在特定月份、或特定季节之前要完成的花园任务。虽然现在总有一些工作可以让你未来的生活更轻松，但一些园艺专家说，当涉及到冬季前的清理时，越少越好。以下是需要了解的内容。
 

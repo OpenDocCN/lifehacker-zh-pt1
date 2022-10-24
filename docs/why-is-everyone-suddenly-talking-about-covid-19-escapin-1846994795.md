@@ -1,8 +1,8 @@
 # 为什么每个人都突然谈论新冠肺炎从实验室逃跑？
 
-> 原文:[https://life hacker . com/为什么每个人都突然在谈论新冠肺炎-escapin-1846994795](https://lifehacker.com/why-is-everyone-suddenly-talking-about-covid-19-escapin-1846994795)
+> 原文：<https://lifehacker.com/why-is-everyone-suddenly-talking-about-covid-19-escapin-1846994795>
 
-研究病毒的科学家已经达成了相当广泛的共识，即导致新冠肺炎的病毒是自然产生的，并在2019年底的某个时候在中国武汉或武汉附近从动物传播给人类。但是另一个假设——它是从那个城市的一个实验室逃出来的——从疫情开始就像一个政治足球一样被抛来抛去，从来没有像最近几天的一样被 [更轻信](https://www.cnbc.com/2021/05/26/biden-orders-us-intelligence-to-intensify-investigation-into-covid-19-origins.html) 对待。
+研究病毒的科学家已经达成了相当广泛的共识，即导致新冠肺炎的病毒是自然产生的，并在 2019 年底的某个时候在中国武汉或武汉附近从动物传播给人类。但是另一个假设——它是从那个城市的一个实验室逃出来的——从疫情开始就像一个政治足球一样被抛来抛去，从来没有像最近几天的一样被 [更轻信](https://www.cnbc.com/2021/05/26/biden-orders-us-intelligence-to-intensify-investigation-into-covid-19-origins.html) 对待。
 
 Watch
 
@@ -10,11 +10,11 @@ Watch
 
 ## 是什么让武汉实验室泄露理论再次成为新闻？
 
-本周早些时候，华尔街日报 [报道了](https://www.wsj.com/articles/intelligence-on-sick-staff-at-wuhan-lab-fuels-debate-on-covid-19-origin-11621796228) 武汉实验室的三名研究人员于2019年11月住院治疗(该病毒于12月被正式发现)。他们的症状与新冠肺炎一致，但也符合“季节性疾病”——换句话说，他们可能只是感冒或流感。
+本周早些时候，华尔街日报 [报道了](https://www.wsj.com/articles/intelligence-on-sick-staff-at-wuhan-lab-fuels-debate-on-covid-19-origin-11621796228) 武汉实验室的三名研究人员于 2019 年 11 月住院治疗(该病毒于 12 月被正式发现)。他们的症状与新冠肺炎一致，但也符合“季节性疾病”——换句话说，他们可能只是感冒或流感。
 
 这一新信息很难说是确凿的证据，但它是在世界卫生组织准备对病毒起源进行下一阶段调查时发布的。
 
-拜登总统随后 [宣布](https://www.whitehouse.gov/briefing-room/statements-releases/2021/05/26/statement-by-president-joe-biden-on-the-investigation-into-the-origins-of-covid-19/) 他已经要求情报部门在90天内提交一份关于冠状病毒可能来源的已知报告。在接下来的90天里，他们不太可能学到过去一年半里没有学到的东西，但这个问题一直是政治性的，并且正在以这种方式进行。民主党和共和党正在为此争论不休；美国和中国威胁要互相调查。
+拜登总统随后 [宣布](https://www.whitehouse.gov/briefing-room/statements-releases/2021/05/26/statement-by-president-joe-biden-on-the-investigation-into-the-origins-of-covid-19/) 他已经要求情报部门在 90 天内提交一份关于冠状病毒可能来源的已知报告。在接下来的 90 天里，他们不太可能学到过去一年半里没有学到的东西，但这个问题一直是政治性的，并且正在以这种方式进行。民主党和共和党正在为此争论不休；美国和中国威胁要互相调查。
 
 ## 这种病毒会不会是在实验室里制造出来并作为生化武器使用的？
 
@@ -26,6 +26,6 @@ Watch
 
 这比病毒被创造或被故意释放的想法更可信，但是很少有专家认为这是可能的。不过，值得研究一下，因为这并非完全不可能。
 
-武汉实验室的部分工作是调查各种冠状病毒，包括许多来自蝙蝠的冠状病毒，以确定是什么使其中一些如此危险。(请记住，SARS是另一种冠状病毒，可能源于蝙蝠，它导致了2003年在亚洲爆发的可怕但短暂的疫情。)
+武汉实验室的部分工作是调查各种冠状病毒，包括许多来自蝙蝠的冠状病毒，以确定是什么使其中一些如此危险。(请记住，SARS 是另一种冠状病毒，可能源于蝙蝠，它导致了 2003 年在亚洲爆发的可怕但短暂的疫情。)
 
-关于SARS和其他冠状病毒的一些背景知识，以及目前已知的导致新冠肺炎病毒的可能自然来源(新型冠状病毒，这是官方的说法)， [这篇来自科学新闻](https://www.sciencenews.org/article/coronavirus-covid-pandemic-origins-bats-virus) 的摘要很好地解释了这一点。简而言之，追踪病毒的来源真的很难，因为有太多不同的动物病毒，而寻找与新冠肺炎病毒最密切相关的特定病毒是大海捞针的问题。直到2017年，人们才很好地了解了SARS病毒的起源，而新冠肺炎的起源也可能需要数年才能弄清楚。
+关于 SARS 和其他冠状病毒的一些背景知识，以及目前已知的导致新冠肺炎病毒的可能自然来源(新型冠状病毒，这是官方的说法)， [这篇来自科学新闻](https://www.sciencenews.org/article/coronavirus-covid-pandemic-origins-bats-virus) 的摘要很好地解释了这一点。简而言之，追踪病毒的来源真的很难，因为有太多不同的动物病毒，而寻找与新冠肺炎病毒最密切相关的特定病毒是大海捞针的问题。直到 2017 年，人们才很好地了解了 SARS 病毒的起源，而新冠肺炎的起源也可能需要数年才能弄清楚。

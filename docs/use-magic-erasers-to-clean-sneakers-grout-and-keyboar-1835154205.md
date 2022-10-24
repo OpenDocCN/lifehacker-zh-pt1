@@ -1,6 +1,6 @@
 # 使用魔法橡皮擦来清洁运动鞋、水泥浆和键盘
 
-> 原文:[https://life hacker . com/use-magic-eraser-to-clean-spokes-grout-and-key boar-1835154205](https://lifehacker.com/use-magic-erasers-to-clean-sneakers-grout-and-keyboar-1835154205)
+> 原文：<https://lifehacker.com/use-magic-erasers-to-clean-sneakers-grout-and-keyboar-1835154205>
 
 我们知道清洁先生“神奇的橡皮”是白色的垫子，上面有一个闪亮的秃顶男人告诉你清除墙上的磨损痕迹。
 
@@ -12,4 +12,4 @@
 
 关于在你的皮肤上使用这种东西，有一点要注意:有些地方建议用魔法橡皮擦去除皮肤上的墨水。三聚氰胺会对儿童和敏感皮肤的人产生过敏反应，所以请不要在你的手上胡乱涂抹。
 
-*本文原载于2019年6月3日，更新于2021年6月16日。*
+*本文原载于 2019 年 6 月 3 日，更新于 2021 年 6 月 16 日。*

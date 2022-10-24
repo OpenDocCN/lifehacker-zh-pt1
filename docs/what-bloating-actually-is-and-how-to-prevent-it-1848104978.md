@@ -1,6 +1,6 @@
 # 膨胀到底是什么(以及如何预防)
 
-> 原文:[https://life hacker . com/what-floating-actually-is-and-how-to-prevent-it-1848104978](https://lifehacker.com/what-bloating-actually-is-and-how-to-prevent-it-1848104978)
+> 原文：<https://lifehacker.com/what-bloating-actually-is-and-how-to-prevent-it-1848104978>
 
 我在假期最喜欢玩的游戏是，我是自己的竞争对手，测试自己的极限，强迫自己看看在不使自己处于严重不适的情况下，我能吃多少食物。我怎么赢？嗯，这是一个微妙的游戏，需要谨慎的策略(和乳酸)。然而，我并不总是胜利的。很多次，我被留在餐桌旁，双手小心翼翼地放在肚子上，呻吟着让所有人听到我是如何让自己变得臃肿不堪的。这个游戏听起来是不是很适合全家人玩？
 
@@ -32,7 +32,7 @@ Watch
 
 腹胀的另一个常见原因是某种食物过敏。当你吃了你不能忍受的食物，它会导致过多的气体产生，腹胀，和其他症状。我们之前已经介绍过 [如何找出哪些食物](https://lifehacker.com/how-to-find-out-which-foods-are-making-you-sick-1557628052) 可能会让你感到疼痛。(相关:什么是 [对付面筋](https://lifehacker.com/here-s-the-deal-with-gluten-1796820761) ？)(请用杰瑞·宋飞的声音读出来)。
 
-导致腹胀的常见罪魁祸首包括乳糖、果糖、小麦、面筋和鸡蛋。乳糖和果糖都是被称为s的更大碳水化合物组的一部分，它们通常会导致腹胀和其他消化系统症状，特别是在患有 [肠易激综合征](https://lifehacker.com/how-to-take-care-of-your-gut-health-1838875310) 的人身上。
+导致腹胀的常见罪魁祸首包括乳糖、果糖、小麦、面筋和鸡蛋。乳糖和果糖都是被称为 s 的更大碳水化合物组的一部分，它们通常会导致腹胀和其他消化系统症状，特别是在患有 [肠易激综合征](https://lifehacker.com/how-to-take-care-of-your-gut-health-1838875310) 的人身上。
 
 如果你试图找出可能导致你腹胀的特定食物，考虑写食物日记，这有助于你发现你吃什么的模式以及你的身体对它的反应。
 

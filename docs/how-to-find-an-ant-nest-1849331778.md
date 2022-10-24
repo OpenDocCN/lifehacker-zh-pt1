@@ -1,6 +1,6 @@
 # 如何找到一个蚁巢
 
-> 原文:[https://lifehacker.com/how-to-find-an-ant-nest-1849331778](https://lifehacker.com/how-to-find-an-ant-nest-1849331778)
+> 原文：<https://lifehacker.com/how-to-find-an-ant-nest-1849331778>
 
 你家里的蚂蚁总是让人担心。除了一长串蠕动的蚂蚁士兵看起来很恶心之外，蚂蚁还会将细菌和霉菌孢子带入你的食物供应中(包括宠物食品)，所以蚂蚁在你的食品柜中接触到的任何东西都需要扔掉。另一方面，并不是所有的蚂蚁物种都是无害的:火蚁和疯狂蚂蚁(真的， [他们就是这么叫的](https://www.catseyepest.com/library/pests/ants/crazy-ant/) )都咬人，如果不加控制，木工蚁会毁了你的房子。
 

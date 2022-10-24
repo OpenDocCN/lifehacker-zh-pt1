@@ -1,24 +1,24 @@
 # 如何准确说出你需要多少盏圣诞灯
 
-> 原文:[https://life hacker . com/how-to-tell-exact-what-number-Christmas-lights-you-need-1848126999](https://lifehacker.com/how-to-tell-exactly-how-many-christmas-lights-you-need-1848126999)
+> 原文：<https://lifehacker.com/how-to-tell-exactly-how-many-christmas-lights-you-need-1848126999>
 
 有一条潜规则规定，任何圣诞喜剧都必须有一个场景，其中一个角色完全被节日灯串缠住。虽然这种情况在屏幕上可能很有趣，但当它发生在你的客厅时，你很难从中找到幽默。
 
 Watch
 
-事实上，几乎所有关于这些透明或彩色小灯串的事情都很烦人，也很麻烦——包括知道要买多少英尺来装饰你的圣诞树。幸运的是，[Real Simple的编辑整理了一份方便的指南](https://www.realsimple.com/holidays-entertaining/holidays/christmas/how-many-feet-christmas-lights-tree) 来帮助你计算出你的树需要多少英尺长的灯。以下是需要了解的内容。
+事实上，几乎所有关于这些透明或彩色小灯串的事情都很烦人，也很麻烦——包括知道要买多少英尺来装饰你的圣诞树。幸运的是，[Real Simple 的编辑整理了一份方便的指南](https://www.realsimple.com/holidays-entertaining/holidays/christmas/how-many-feet-christmas-lights-tree) 来帮助你计算出你的树需要多少英尺长的灯。以下是需要了解的内容。
 
 ## (某种程度上)有一个公式
 
-当然，当谈到圣诞树的尺寸时，有无数的变量(尤其是活的)，但作为一个通用的指导方针，每一英尺高，你需要一串有150个灯泡的灯，道具设计师和工匠卡琳·利德贝克-布伦特 [告诉真正简单的](https://www.realsimple.com/holidays-entertaining/holidays/christmas/how-many-feet-christmas-lights-tree) 。她说，大多数人倾向于选择大约六英尺高的树，所以这需要六股大约900个球茎。
+当然，当谈到圣诞树的尺寸时，有无数的变量(尤其是活的)，但作为一个通用的指导方针，每一英尺高，你需要一串有 150 个灯泡的灯，道具设计师和工匠卡琳·利德贝克-布伦特 [告诉真正简单的](https://www.realsimple.com/holidays-entertaining/holidays/christmas/how-many-feet-christmas-lights-tree) 。她说，大多数人倾向于选择大约六英尺高的树，所以这需要六股大约 900 个球茎。
 
 ## 要考虑的其他因素
 
-说到装饰圣诞树，Lidbeck-Brent知道她在说什么 :在她的职业生涯中，她已经装饰了一千多棵了。尽管有一个公式可能会有所帮助，但她也强调，在为你的圣诞树购买灯具时，还有其他因素需要考虑。其中包括:
+说到装饰圣诞树，Lidbeck-Brent 知道她在说什么 :在她的职业生涯中，她已经装饰了一千多棵了。尽管有一个公式可能会有所帮助，但她也强调，在为你的圣诞树购买灯具时，还有其他因素需要考虑。其中包括:
 
 *   树的宽度:这个公式关注的是树的高度，但是树的宽度也有很大的不同。如果你的树特别宽，你需要更多的灯。
-*   **它发出的光量**:如果你想要一棵超级亮的树，选择每束有200个灯泡的灯。对于一个微妙的，暗淡的树，选择100个灯泡的股。Lidbeck-Brent认为每串150个灯泡是一个不错的选择。
-*   意外时有发生，或者有时你在树上放完灯后发现有缝隙，所以Lidbeck-Brent建议多买一两根，以防万一。
-*   储存空间:在一年中的其他11个月里，你需要多少空间来储存所有这些灯？
+*   **它发出的光量**:如果你想要一棵超级亮的树，选择每束有 200 个灯泡的灯。对于一个微妙的，暗淡的树，选择 100 个灯泡的股。Lidbeck-Brent 认为每串 150 个灯泡是一个不错的选择。
+*   意外时有发生，或者有时你在树上放完灯后发现有缝隙，所以 Lidbeck-Brent 建议多买一两根，以防万一。
+*   储存空间:在一年中的其他 11 个月里，你需要多少空间来储存所有这些灯？
 
-当然，你可以即兴发挥，但是有计划地进行会让整个过程更容易。Lidbeck-Brent告诉Real Simple:“在开始装修之前，先弄清楚你的优先事项是什么。”“如果你想让你的饰品引人注目，成为明星，那就少用些灯光。如果你过度使用灯光，强光会使你的饰品变得炫目，这样你就看不到它们了。”
+当然，你可以即兴发挥，但是有计划地进行会让整个过程更容易。Lidbeck-Brent 告诉 Real Simple:“在开始装修之前，先弄清楚你的优先事项是什么。”“如果你想让你的饰品引人注目，成为明星，那就少用些灯光。如果你过度使用灯光，强光会使你的饰品变得炫目，这样你就看不到它们了。”

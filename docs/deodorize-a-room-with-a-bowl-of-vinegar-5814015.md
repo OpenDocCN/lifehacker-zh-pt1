@@ -1,8 +1,8 @@
 # 用一碗醋给房间除臭
 
-> 原文:[https://life hacker . com/用一碗醋除臭一个房间-5814015](https://lifehacker.com/deodorize-a-room-with-a-bowl-of-vinegar-5814015)
+> 原文：<https://lifehacker.com/deodorize-a-room-with-a-bowl-of-vinegar-5814015>
 
-蒸馏醋 [非常擅长清洁多种类型的表面](https://lifehacker.com/8-things-you-probably-didnt-know-you-can-clean-with-vin-1846357379/slides/2) 以至于我们有时会忘记它还能清洁空气。如果你用完了Febreze，但你的客厅开始有一点臭味，你可以用一碗醋来清除臭味。
+蒸馏醋 [非常擅长清洁多种类型的表面](https://lifehacker.com/8-things-you-probably-didnt-know-you-can-clean-with-vin-1846357379/slides/2) 以至于我们有时会忘记它还能清洁空气。如果你用完了 Febreze，但你的客厅开始有一点臭味，你可以用一碗醋来清除臭味。
 
 Watch
 
@@ -10,4 +10,4 @@ Watch
 
 你不必四处喷洒醋来获得它的除臭效果。只要盛一个小而浅的盘子，把它放在角落里，然后等待。几个小时后，那种气味就会消失。
 
-*本文最初发表于2011年6月21日。它于2021年4月26日更新，以反映Lifehacker当前的风格指南，并提供新照片、更新的链接和最新信息。*
+*本文最初发表于 2011 年 6 月 21 日。它于 2021 年 4 月 26 日更新，以反映 Lifehacker 当前的风格指南，并提供新照片、更新的链接和最新信息。*

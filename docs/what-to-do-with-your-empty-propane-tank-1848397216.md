@@ -1,6 +1,6 @@
 # 如何处理你的空丙烷罐
 
-> 原文:[https://life hacker . com/what-to-do-with the-your-empty-丙烷-tank-1848397216](https://lifehacker.com/what-to-do-with-your-empty-propane-tank-1848397216)
+> 原文：<https://lifehacker.com/what-to-do-with-your-empty-propane-tank-1848397216>
 
 如果你有一个靠丙烷运转的烧烤架，总有一天你需要处理空罐。根据油箱的使用年限，你可以有多种选择，从重新填充或回收到完全丢弃。
 
@@ -22,4 +22,4 @@ Watch
 
 ## **如何存放空的丙烷罐**
 
-如果你有一个干净的空罐，它可以安全地存放在你的房子里。为此，你需要 [遵循一些安全准则](https://propanedepot.com/how-to-dispose-of-a-propane-tank/) 。这包括不要把它储存在室内，因为残余气体可能会泄漏；将其储存在适当的温度下，温度不应低于-40°F或高于120°F；保持气阀关闭，并将其直立存放，以避免任何可能的泄漏；远离任何易燃物品。
+如果你有一个干净的空罐，它可以安全地存放在你的房子里。为此，你需要 [遵循一些安全准则](https://propanedepot.com/how-to-dispose-of-a-propane-tank/) 。这包括不要把它储存在室内，因为残余气体可能会泄漏；将其储存在适当的温度下，温度不应低于-40°F 或高于 120°F；保持气阀关闭，并将其直立存放，以避免任何可能的泄漏；远离任何易燃物品。

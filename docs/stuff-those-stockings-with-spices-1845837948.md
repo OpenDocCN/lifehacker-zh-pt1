@@ -1,12 +1,12 @@
 # 用香料填满那些长筒袜
 
-> 原文:[https://life hacker . com/stuff-these-thoughts-with-spices-1845837948](https://lifehacker.com/stuff-those-stockings-with-spices-1845837948)
+> 原文：<https://lifehacker.com/stuff-those-stockings-with-spices-1845837948>
 
 最成功的圣诞礼物包装者是平凡与特别的完美结合，如果是袜子的主人永远不会给自己买的东西，还有加分。这就是香料——真正的*优质*香料——对于任何厨师(或想学习烹饪的人)来说都是完美的圣诞礼物。
 
 Watch
 
-我说的不是混合，虽然我有[rec给那些太](https://skillet.lifehacker.com/give-the-gift-of-flavor-with-fancy-spices-and-seasoning-1831050603) 的。混合香料不像单一香料那样多才多艺，也不会激发人们对厨房的好奇心。我说的是普遍有用的豆荚、种子和粉末的豪华版本。非常好的烟熏辣椒粉、豆蔻豆荚(绿色和黑色都有)和Tellicherry胡椒粒只是立即浮现在脑海中的几个选项，还有众所周知的昂贵的香草豆和藏红花线。
+我说的不是混合，虽然我有[rec 给那些太](https://skillet.lifehacker.com/give-the-gift-of-flavor-with-fancy-spices-and-seasoning-1831050603) 的。混合香料不像单一香料那样多才多艺，也不会激发人们对厨房的好奇心。我说的是普遍有用的豆荚、种子和粉末的豪华版本。非常好的烟熏辣椒粉、豆蔻豆荚(绿色和黑色都有)和 Tellicherry 胡椒粒只是立即浮现在脑海中的几个选项，还有众所周知的昂贵的香草豆和藏红花线。
 
 如果店主想尝试一种特殊的地方美食，那就买他们最可能需要的香料。如果他们刚刚开始做复活节菜肴，给他们漆树，给墨西哥人全干辣椒，或者给泰国人马克鲁特酸橙叶。(额外奖励:酸橙树叶会让袜子闻起来很棒。如果你的目标真的喜欢烘焙，给他们买一些锡兰肉桂，一种他们永远不会给自己买的香草酱，或者一罐完整的肉豆蔻。
 

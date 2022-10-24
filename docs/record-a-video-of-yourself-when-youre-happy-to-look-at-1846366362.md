@@ -1,6 +1,6 @@
 # 当你开心的时候录下你自己的视频，当你难过的时候看看
 
-> 原文:[https://life hacker . com/record-a-video-of-you-happy-to-look-1846366362](https://lifehacker.com/record-a-video-of-yourself-when-youre-happy-to-look-at-1846366362)
+> 原文：<https://lifehacker.com/record-a-video-of-yourself-when-youre-happy-to-look-at-1846366362>
 
 为未来的自己录制视频的想法听起来很傻，唤起了三年级时的想法，那时你可能被指示给成年人你写一封信。
 

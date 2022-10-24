@@ -1,8 +1,8 @@
-# 如何为您的Google帐户设置“两步验证”
+# 如何为您的 Google 帐户设置“两步验证”
 
-> 原文:[https://life hacker . com/how-to-set-up-2-step-verification-for-your-Google-accou-1846867823](https://lifehacker.com/how-to-set-up-2-step-verification-for-your-google-accou-1846867823)
+> 原文：<https://lifehacker.com/how-to-set-up-2-step-verification-for-your-google-accou-1846867823>
 
-谷歌将开始对其所有用户进行两步验证，如果他们还没有设置的话。T2会让一些人感到震惊吗？当然可以。但这没关系；惊喜会逐渐消失，留下比以前更安全的账户，特别是那些使用容易猜到的密码的人，或者更糟的是，在所有服务中重复使用相同的密码。
+谷歌将开始对其所有用户进行两步验证，如果他们还没有设置的话。T2 会让一些人感到震惊吗？当然可以。但这没关系；惊喜会逐渐消失，留下比以前更安全的账户，特别是那些使用容易猜到的密码的人，或者更糟的是，在所有服务中重复使用相同的密码。
 
 Watch
 
@@ -16,7 +16,7 @@ Watch
 
 我建议点击**显示更多选项**，这将让你设置一个谷歌提示。这将要求你实际接触你的设备，以确认登录，这是 [比](https://lifehacker.com/how-to-prevent-and-respond-to-a-sim-swap-scam-1835627474) 通过文本获得发送给你的代码安全一点。如果你真的很棒，你可以使用物理安全密钥登录你的谷歌账户，但即使是我也不会这么做。(而且我应该，我只是在偷懒。)
 
-如果你在Android上，这个提示会自动出现在你的设备上。然而，在iOS上，你需要安装 [**谷歌**](https://apps.apple.com/us/app/google/id284815942) 应用、 [**Gmail**](https://apps.apple.com/us/app/gmail-email-by-google/id422689480) ，或者谷歌的 [**智能锁**](https://apps.apple.com/us/app/google-smart-lock/id1152066360) 应用，才能看到通知。
+如果你在 Android 上，这个提示会自动出现在你的设备上。然而，在 iOS 上，你需要安装 [**谷歌**](https://apps.apple.com/us/app/google/id284815942) 应用、 [**Gmail**](https://apps.apple.com/us/app/gmail-email-by-google/id422689480) ，或者谷歌的 [**智能锁**](https://apps.apple.com/us/app/google-smart-lock/id1152066360) 应用，才能看到通知。
 
 一旦你设置好了，你可以重新访问谷歌的“ [”两步验证](https://myaccount.google.com/signinoptions/two-step-verification) ”页面来改变你的登录机制，要么交换你已经有的，要么添加新的措施作为登录你账户的第二种方式。你想走多深，取决于你自己；你提供的登录方式越多，其他人就越容易发现你的技术并使用它。
 

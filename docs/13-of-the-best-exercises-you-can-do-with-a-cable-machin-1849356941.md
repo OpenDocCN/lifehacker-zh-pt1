@@ -1,8 +1,8 @@
-# 你可以用缆索机器做的13个最好的练习
+# 你可以用缆索机器做的 13 个最好的练习
 
-> 原文:[https://life hacker . com/13-of-the-best-exercises-you-can-do-a-cable-machin-1849356941](https://lifehacker.com/13-of-the-best-exercises-you-can-do-with-a-cable-machin-1849356941)
+> 原文：<https://lifehacker.com/13-of-the-best-exercises-you-can-do-with-a-cable-machin-1849356941>
 
-对你健身房里的那些有线电视机很好奇？正如我们指导你通过一些最好的初学者友好练习来做壶铃 和 [与TRX式悬挂训练器](https://lifehacker.com/11-of-the-best-exercises-you-can-do-on-trx-straps-at-th-1848908010) 一样，今天我们来看看你可以用缆索机做的一些最好的练习。
+对你健身房里的那些有线电视机很好奇？正如我们指导你通过一些最好的初学者友好练习来做壶铃 和 [与 TRX 式悬挂训练器](https://lifehacker.com/11-of-the-best-exercises-you-can-do-on-trx-straps-at-th-1848908010) 一样，今天我们来看看你可以用缆索机做的一些最好的练习。
 
 这些机器带有某种把手，把手连接在滑轮上，滑轮的另一端有一堆重物。许多健身器材都是这样设置的，但是今天，我们来看看多功能的器材。有了这些线缆，你可以做任何事情，而不局限于某个特定的练习。您可能只有一根电缆，或者更常见的是两根电缆，每只手一根。您可以选择将滑轮移动到垂直轨道的顶部、底部或中间的任何位置。准备好看看他们能做什么了吗？让我们开始吧！
 
@@ -20,7 +20,7 @@
 
 <figcaption class="sc-1ptbguh-0 hxeMec caption">Overhead Cable Tricep Extension</figcaption> 
 
-这个可以锻炼你的三头肌(你手臂的推进力),是skullcrusher或法式压力机的不错选择。
+这个可以锻炼你的三头肌(你手臂的推进力),是 skullcrusher 或法式压力机的不错选择。
 
 **附件**:绳索或直杆
 
@@ -60,9 +60,9 @@
 
 <figcaption class="sc-1ptbguh-0 hxeMec caption">How to do Standing Bicep Cable Curl exactly - Biceps Workout</figcaption> 
 
-在健身房没有二头肌弯曲的一天算什么？对于一个伟大的超集，得到一个机器有两个电缆滑轮紧挨着。S 在顶部设置一根绳索，用于头顶的三头肌拉伸，另一根在底部设置EZ bar(摆动的那根),用于卷曲。在它们之间交替。
+在健身房没有二头肌弯曲的一天算什么？对于一个伟大的超集，得到一个机器有两个电缆滑轮紧挨着。S 在顶部设置一根绳索，用于头顶的三头肌拉伸，另一根在底部设置 EZ bar(摆动的那根),用于卷曲。在它们之间交替。
 
-**附件** : EZ-curl棒、直棒或绳索
+**附件** : EZ-curl 棒、直棒或绳索
 
 **电缆位置**:底部
 
@@ -82,7 +82,7 @@
 
 坐式缆索排是我个人最喜欢的健身器械之一，但是当它们有专用的长凳和搁脚板时效果最好。在普通的缆索机器上做双手划船，你可以站着，臀部稍微向后，或者一直深蹲。
 
-**附件** : v型手柄、绳索或直杆
+**附件** : v 型手柄、绳索或直杆
 
 **电缆位置**:中间
 
@@ -110,7 +110,7 @@
 
 <figcaption class="sc-1ptbguh-0 hxeMec caption">Cable Zercher Squat</figcaption> 
 
-有些缆索机器配有一根长而直的杆，两端都有孔。您可以将它连接到成对线缆机的两根线缆上。我第一次看到它的时候，我试着用它来做深蹲，但是电缆拉着横杆，很难保持稳定，我讨厌它。最近我尝试了zerchers，这些我喜欢。把杠铃放在你的肘弯处，蹲下，然后站起来。
+有些缆索机器配有一根长而直的杆，两端都有孔。您可以将它连接到成对线缆机的两根线缆上。我第一次看到它的时候，我试着用它来做深蹲，但是电缆拉着横杆，很难保持稳定，我讨厌它。最近我尝试了 zerchers，这些我喜欢。把杠铃放在你的肘弯处，蹲下，然后站起来。
 
 你也可以用一根电缆来做这些，但是除非你很小，否则你会发现整个堆叠不够重。
 

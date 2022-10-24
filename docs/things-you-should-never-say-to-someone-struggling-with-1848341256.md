@@ -1,6 +1,6 @@
 # 你永远不应该对与抑郁症作斗争的人说的话
 
-> 原文:[https://life hacker . com/things-you-should-never-to-say-someone-fighting-with-1848341256](https://lifehacker.com/things-you-should-never-say-to-someone-struggling-with-1848341256)
+> 原文：<https://lifehacker.com/things-you-should-never-say-to-someone-struggling-with-1848341256>
 
 无论你对自己的心理健康有什么样的体验，当你关心的人正与抑郁症作斗争时，找到一个完美的话题来说都是令人畏惧的。但更容易弄清楚什么不该说。
 
@@ -42,7 +42,7 @@ Watch
 
 ## “你表现得很自私。”
 
-根据你和抑郁者的关系，你可能会感到山穷水尽。记住，“患有临床抑郁症的人很可能很难跟上他们自己的个人生活，”临床治疗师 [古怪的K·朗姆](https://oddestyk.com/licensedprofessionalcounselor) 在 [心理中心](https://psychcentral.com/depression/what-to-say-and-do-to-someone-with-depression#what-not-to-say) 中写道。“他们不自私；他们只是身体不好。他们可能没有能力成为别人希望他们成为的人或做别人希望他们做的事。”
+根据你和抑郁者的关系，你可能会感到山穷水尽。记住，“患有临床抑郁症的人很可能很难跟上他们自己的个人生活，”临床治疗师 [古怪的 K·朗姆](https://oddestyk.com/licensedprofessionalcounselor) 在 [心理中心](https://psychcentral.com/depression/what-to-say-and-do-to-someone-with-depression#what-not-to-say) 中写道。“他们不自私；他们只是身体不好。他们可能没有能力成为别人希望他们成为的人或做别人希望他们做的事。”
 
 即使你个人很沮丧，也要试着保持乐观。你爱的人正在挣扎，指责他们自私从长远来看对你们都没有帮助。
 
@@ -71,10 +71,10 @@ Watch
 
 当有疑问时，依靠开放式问题，并验证关于他们正在经历的陈述。通常你能做的最有帮助的事情就是倾听你所爱的人。你也可以记得定期和他们联系，即使(或者特别是)他们不能回应。
 
-[*SAMHSA的全国求助热线*](https://www.samhsa.gov/find-help/national-helpline) *、1-800-662-HELP (4357)(也称为治疗转诊服务)或TTY: 1-800-487-4889是一项保密的免费信息服务，每天24小时，每年365天，以英语和西班牙语为面临精神和/或物质使用障碍的个人和家庭成员提供服务。*
+[*SAMHSA 的全国求助热线*](https://www.samhsa.gov/find-help/national-helpline) *、1-800-662-HELP (4357)(也称为治疗转诊服务)或 TTY: 1-800-487-4889 是一项保密的免费信息服务，每天 24 小时，每年 365 天，以英语和西班牙语为面临精神和/或物质使用障碍的个人和家庭成员提供服务。*
 
-如果你正在经历一场心理健康危机，需要找人倾诉，有几个组织可以免费提供全天候的危机支持和一般咨询。正文【开始】至741-741到达 [*危机正文行*](https://www.crisistextline.org/) *或拨打* [*特雷弗项目的*](https://www.thetrevorproject.org/)*热线电话(866)488-7386；*[*Trans Lifeline*](https://www.translifeline.org/)*在美国可以打(877) 565-8860，在加拿大可以打(877) 330-6366。*
+如果你正在经历一场心理健康危机，需要找人倾诉，有几个组织可以免费提供全天候的危机支持和一般咨询。正文【开始】至 741-741 到达 [*危机正文行*](https://www.crisistextline.org/) *或拨打* [*特雷弗项目的*](https://www.thetrevorproject.org/)*热线电话(866)488-7386；*[*Trans Lifeline*](https://www.translifeline.org/)*在美国可以打(877) 565-8860，在加拿大可以打(877) 330-6366。*
 
-*如果你有自杀的念头，请拨打 **1-800-273-8255** 联系* [*国家预防自杀生命线*](https://suicidepreventionlifeline.org/) *，寻求训练有素的心理咨询师的支持和帮助。如果你或你所爱的人有危险，请拨打911。*
+*如果你有自杀的念头，请拨打 **1-800-273-8255** 联系* [*国家预防自杀生命线*](https://suicidepreventionlifeline.org/) *，寻求训练有素的心理咨询师的支持和帮助。如果你或你所爱的人有危险，请拨打 911。*
 
  *T4】*

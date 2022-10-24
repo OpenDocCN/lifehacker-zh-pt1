@@ -1,8 +1,8 @@
 # 这是布朗宁最好的黄油
 
-> 原文:[https://life hacker . com/this-is-the-best-butter-for-browning-1849174807](https://lifehacker.com/this-is-the-best-butter-for-browning-1849174807)
+> 原文：<https://lifehacker.com/this-is-the-best-butter-for-browning-1849174807>
 
-用 [棕色黄油](https://lifehacker.com/the-difference-between-clarified-butter-and-ghee-1849143100)——如果你是法国人，就叫beurre noisette结束一道菜是给增添一点令人印象深刻的奢华的简单方法。一旦你知道怎么做，感觉就像是在作弊。用小火煨一些黄油，直到固体沉淀出来，然后继续煮，直到它们变成深金黄色。用勺子将坚果味浓郁的酱汁浇在蔬菜、碳水化合物或任何你想要的东西上，让它尝起来像是来自一家别致的法国小酒馆。
+用 [棕色黄油](https://lifehacker.com/the-difference-between-clarified-butter-and-ghee-1849143100)——如果你是法国人，就叫 beurre noisette 结束一道菜是给增添一点令人印象深刻的奢华的简单方法。一旦你知道怎么做，感觉就像是在作弊。用小火煨一些黄油，直到固体沉淀出来，然后继续煮，直到它们变成深金黄色。用勺子将坚果味浓郁的酱汁浇在蔬菜、碳水化合物或任何你想要的东西上，让它尝起来像是来自一家别致的法国小酒馆。
 
 Watch
 

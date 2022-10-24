@@ -1,12 +1,12 @@
 # 给自己找一个有用的傻瓜(以及为什么你应该成为别人的傻瓜)
 
-> 原文:[https://life hacker . com/get-yourself-a-useful-idiot-and-why-you-be-one-f-1847328738](https://lifehacker.com/get-thyself-a-useful-idiot-and-why-you-should-be-one-f-1847328738)
+> 原文：<https://lifehacker.com/get-thyself-a-useful-idiot-and-why-you-should-be-one-f-1847328738>
 
 彻底学习一门学科不仅仅需要阅读或观看视频。它有助于讨论和应用你的新知识，这就是为什么和一个同学一起学习是如此聪明。但是，如果你是自己学习呢？事实证明，你根本不需要你的学习伙伴了解你的学科。
 
 Watch
 
-我们喜欢redditor u/ElboMan的这个建议 ，他正在帮助他们的伴侣学习:
+我们喜欢 redditor u/ElboMan 的这个建议 ，他正在帮助他们的伴侣学习:
 
 > 我的女朋友正在准备注册会计师考试，我们最近发现这是一种非常有效的学习方法。她设置练习题，我们俩都说自己认为对的，我们核对，然后她详细给我解释为什么我错了。90%的内容完全超出了我的理解，老实说，我大部分时间都是在胡乱猜测，但这对她帮助很大。另外，我还学习了一点会计知识。
 

@@ -1,12 +1,12 @@
 # 心理学家伊桑·克罗斯教你如何驯服内心的批评家
 
-> 原文:[https://life hacker . com/how-to-tame-your-inner-critical-with-psychological-Ethan-1846526691](https://lifehacker.com/how-to-tame-your-inner-critic-with-psychologist-ethan-1846526691)
+> 原文：<https://lifehacker.com/how-to-tame-your-inner-critic-with-psychologist-ethan-1846526691>
 
 你有没有发现自己处于焦虑的漩涡中，反复思考让你紧张的事情？你有没有一遍又一遍地重演过和伴侣那种尴尬的互动或打斗？
 
 Watch
 
-如果你曾经与这些事情中的任何一个作斗争，你会感激本周我们在心理学家Ethan Kross的帮助下学习如何更好地控制我们头脑中的声音。请收听本周的升级节目，了解为什么向信任的朋友发泄并不总是最有帮助的处理方式，以及我们如何使用语言和其他疏远工具来帮助我们更好地看待我们的问题。
+如果你曾经与这些事情中的任何一个作斗争，你会感激本周我们在心理学家 Ethan Kross 的帮助下学习如何更好地控制我们头脑中的声音。请收听本周的升级节目，了解为什么向信任的朋友发泄并不总是最有帮助的处理方式，以及我们如何使用语言和其他疏远工具来帮助我们更好地看待我们的问题。
 
 伊森是密歇根大学心理学系和罗斯商学院的教授，是世界上控制意识思维的领先专家之一。他的书叫做 [*喋喋不休:我们脑袋里的声音，它为什么重要，以及如何驾驭它*](http://amazon.com/Chatter-Voice-Head-Matters-Harness/dp/0525575235?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-tame-your-inner-critic-with-psychologist-ethan-1846526691&asc_source=&tag=kinjalifehackerlink-20) 。
 
@@ -14,7 +14,7 @@ Watch
 
 T2】
 
-听听上面的升级或者在所有通常提供播客的地方找到我们，包括[Google Play](https://play.google.com/music/listen?u=0#/ps/Illldmn6f4jkwb32lslhae3laru)[Spotify](https://open.spotify.com/show/43qzAEOZ861D4aXaBXaRKj)[iHeartRadio](https://www.iheart.com/podcast/8-The-Upgrade-by-Lifehacker-28037794)和NPR一号。
+听听上面的升级或者在所有通常提供播客的地方找到我们，包括[Google Play](https://play.google.com/music/listen?u=0#/ps/Illldmn6f4jkwb32lslhae3laru)[Spotify](https://open.spotify.com/show/43qzAEOZ861D4aXaBXaRKj)[iHeartRadio](https://www.iheart.com/podcast/8-The-Upgrade-by-Lifehacker-28037794)和 NPR 一号。
 
 ## **本周集锦**
 
@@ -34,7 +34,7 @@ T2】
 
 为了听到更多关于如何平息内心担忧和自我批评的建议，我们强烈建议听完整集。
 
-对未来的剧集有什么反馈或想法吗？想上节目吗？请拨打347-687-8109给我们留言，或者给upgrade@lifehacker.com发送语音备忘录。
+对未来的剧集有什么反馈或想法吗？想上节目吗？请拨打 347-687-8109 给我们留言，或者给 upgrade@lifehacker.com 发送语音备忘录。
 
 ### **一集文字记录**
 

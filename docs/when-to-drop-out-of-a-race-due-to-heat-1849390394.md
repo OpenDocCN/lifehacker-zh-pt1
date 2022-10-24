@@ -1,12 +1,12 @@
 # 何时因天气炎热而退出比赛
 
-> 原文:[https://life hacker . com/when-to-drop-out-of-a-race-due-to-heat-1849390394](https://lifehacker.com/when-to-drop-out-of-a-race-due-to-heat-1849390394)
+> 原文：<https://lifehacker.com/when-to-drop-out-of-a-race-due-to-heat-1849390394>
 
-在这个 [酷暑](https://lifehacker.com/the-7-deadly-sins-of-surviving-a-heat-wave-1849320136) 中，我一直在跑一些小型公路赛(比如[1英里和5公里](https://lifehacker.com/try-setting-these-running-goals-that-aren-t-tackling-a-1847974405) )，最终目标是参加10月份的半程马拉松、以及2023年11月的我的下一场全程马拉松。这些夏季比赛都糟透了。外面很热。尽管如此，和大多数跑步者一样，我一想到要退出就感到愤怒。但是，你怎么能确定什么时候天气真的热得让人无法忍受而无法参加公路赛呢？
+在这个 [酷暑](https://lifehacker.com/the-7-deadly-sins-of-surviving-a-heat-wave-1849320136) 中，我一直在跑一些小型公路赛(比如[1 英里和 5 公里](https://lifehacker.com/try-setting-these-running-goals-that-aren-t-tackling-a-1847974405) )，最终目标是参加 10 月份的半程马拉松、以及 2023 年 11 月的我的下一场全程马拉松。这些夏季比赛都糟透了。外面很热。尽管如此，和大多数跑步者一样，我一想到要退出就感到愤怒。但是，你怎么能确定什么时候天气真的热得让人无法忍受而无法参加公路赛呢？
 
 Watch
 
-受我个人经历以及 [的启发，这个Reddit帖子](https://www.reddit.com/r/running/comments/w5c0u7/would_you_transfer_out_of_a_race_due_to/) 中，跑步者谈论他们自己的转折点，请允许我帮助你权衡是否应该出现在一场你知道将是一场真正艰苦的比赛的起跑线上——甚至 [对你的健康有害](https://lifehacker.com/know-the-signs-of-heat-exhaustion-and-heat-stroke-1827388999) 。无论这是你第一次有组织的比赛，还是你是一个顽固的老手，在你因为炎热和潮湿退出比赛之前，这里有一些要考虑的事情。
+受我个人经历以及 [的启发，这个 Reddit 帖子](https://www.reddit.com/r/running/comments/w5c0u7/would_you_transfer_out_of_a_race_due_to/) 中，跑步者谈论他们自己的转折点，请允许我帮助你权衡是否应该出现在一场你知道将是一场真正艰苦的比赛的起跑线上——甚至 [对你的健康有害](https://lifehacker.com/know-the-signs-of-heat-exhaustion-and-heat-stroke-1827388999) 。无论这是你第一次有组织的比赛，还是你是一个顽固的老手，在你因为炎热和潮湿退出比赛之前，这里有一些要考虑的事情。
 
 ## **知道何时真的太热而无法跑步**
 

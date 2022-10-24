@@ -1,8 +1,8 @@
 # 野营时如何避免在黑暗中摸索
 
-> 原文:[https://life hacker . com/how-to-避免在黑暗中摸索-when-you-cam-1847565552](https://lifehacker.com/how-to-avoid-fumbling-around-in-the-dark-when-youre-cam-1847565552)
+> 原文：<https://lifehacker.com/how-to-avoid-fumbling-around-in-the-dark-when-youre-cam-1847565552>
 
-下周我要去猎麋鹿。这将是我第一次打猎——也是我从小到大第一次露营——我没有意识到这需要这么多的计划(或者花这么多钱)。显然，我知道这将涉及到*的一些*计划，但是我必须记住的许多小细节(和我必须购买的20美元的物品)确实很重要。
+下周我要去猎麋鹿。这将是我第一次打猎——也是我从小到大第一次露营——我没有意识到这需要这么多的计划(或者花这么多钱)。显然，我知道这将涉及到*的一些*计划，但是我必须记住的许多小细节(和我必须购买的 20 美元的物品)确实很重要。
 
 Watch
 

@@ -1,6 +1,6 @@
 # 让你的客厅看起来更贵的六种便宜方法
 
-> 原文:[https://life hacker . com/six-cheap-ways-make-your-living-room-look-more-expen-1849542525](https://lifehacker.com/six-cheap-ways-to-make-your-living-room-look-more-expen-1849542525)
+> 原文：<https://lifehacker.com/six-cheap-ways-to-make-your-living-room-look-more-expen-1849542525>
 
 当谈到室内设计时，你往往会物有所值:你在杂志和设计博客上看到的看起来很昂贵的房间，实际上非常昂贵。但是你不一定需要“雇用室内设计师”的钱来让你的家看起来更贵。这里有六种不用花一大笔钱就能让你的客厅焕然一新的方法。
 
@@ -16,7 +16,7 @@ Watch
 
 ## 安装装饰线条和/或踢脚板
 
-如果你准备做一个DIY项目，给你的客厅墙壁添加装饰线条可能是值得考虑的。这比改变你的装饰更复杂，但比彻底改造花费更少——而且它给你一个的机会来定制你墙壁的外观。 [有几种造型可供选择](https://www.bobvila.com/slideshow/know-your-moldings-10-popular-trim-styles-to-spiff-up-any-space-44353) : S ome纯粹是装饰性的，而其他的(如图片和椅子扶手)也提供一些功能，。
+如果你准备做一个 DIY 项目，给你的客厅墙壁添加装饰线条可能是值得考虑的。这比改变你的装饰更复杂，但比彻底改造花费更少——而且它给你一个的机会来定制你墙壁的外观。 [有几种造型可供选择](https://www.bobvila.com/slideshow/know-your-moldings-10-popular-trim-styles-to-spiff-up-any-space-44353) : S ome 纯粹是装饰性的，而其他的(如图片和椅子扶手)也提供一些功能，。
 
 ## 策略性地悬挂镜子
 
@@ -28,4 +28,4 @@ Watch
 
 ## 买一些鲜花
 
-没有什么比鲜花更能照亮预算有限的房间了。它们看起来很漂亮，闻起来很香，而且比单子上的其他东西都便宜得多。你不必让它们24/7都在(当然，除非你想)，但在有人来之前拿起一束或两束鲜花是一种简单的方法，不用花很多钱就能给你的客人留下深刻印象。
+没有什么比鲜花更能照亮预算有限的房间了。它们看起来很漂亮，闻起来很香，而且比单子上的其他东西都便宜得多。你不必让它们 24/7 都在(当然，除非你想)，但在有人来之前拿起一束或两束鲜花是一种简单的方法，不用花很多钱就能给你的客人留下深刻印象。

@@ -1,6 +1,6 @@
 # 如何提高你的空间意识(不要撞到东西)
 
-> 原文:[https://life hacker . com/how-to-improve-your-spatial-awareness-and-stop-bumping-1849354731](https://lifehacker.com/how-to-improve-your-spatial-awareness-and-stop-bumping-1849354731)
+> 原文：<https://lifehacker.com/how-to-improve-your-spatial-awareness-and-stop-bumping-1849354731>
 
 如果你像我一样，因为撞到家具而到处碰伤，并且挣扎着去某个地方而没有迷路，那么问题可能是缺乏 [空间意识。](http://www.wales.nhs.uk/sitesplus/documents/861/Spatial%20Awareness.pdf) 空间感是知道自己的身体在空间的什么位置，包括与其他物体或人的关系。 [空间意识还包括在脑海中想象事物的能力](https://numeracyforallab.ca/what-we-learned/developing-spatial-awareness/) ，能够预测物体可能如何组合在一起，能够从不同的角度想象物体。
 

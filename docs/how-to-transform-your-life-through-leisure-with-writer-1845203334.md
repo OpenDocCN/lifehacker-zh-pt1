@@ -1,6 +1,6 @@
 # 如何通过休闲改变你的生活，作者约翰·菲奇和马克斯·弗伦泽尔
 
-> 原文:[https://life hacker . com/how-to-transform-your life with-writer-1845203334](https://lifehacker.com/how-to-transform-your-life-through-leisure-with-writer-1845203334)
+> 原文：<https://lifehacker.com/how-to-transform-your-life-through-leisure-with-writer-1845203334>
 
 本周，我们将学习如何从工作中休息和抽出时间来帮助我们提高创造力和生产力。作家约翰·菲奇和马克斯·弗伦泽尔向我们讲述了如何培养他们所谓的高质量的“休息伦理”为什么战略性的休息和休假对于创造力和创新来说是必要的，以及我们如何开始将我们忙碌的文化转变为更重视工作与生活平衡的文化。
 
@@ -12,7 +12,7 @@ Watch
 
 T2】
 
-听听上面的升级或者在所有通常提供播客的地方找到我们，包括[Google Play](https://play.google.com/music/listen?u=0#/ps/Illldmn6f4jkwb32lslhae3laru)[Spotify](https://open.spotify.com/show/43qzAEOZ861D4aXaBXaRKj)[iHeartRadio](https://www.iheart.com/podcast/8-The-Upgrade-by-Lifehacker-28037794)和NPR一号。
+听听上面的升级或者在所有通常提供播客的地方找到我们，包括[Google Play](https://play.google.com/music/listen?u=0#/ps/Illldmn6f4jkwb32lslhae3laru)[Spotify](https://open.spotify.com/show/43qzAEOZ861D4aXaBXaRKj)[iHeartRadio](https://www.iheart.com/podcast/8-The-Upgrade-by-Lifehacker-28037794)和 NPR 一号。
 
 ## **本周集锦**
 
@@ -32,7 +32,7 @@ T2】
 
 想听更多约翰和马克斯关于如何以对你有益的方式休假的建议，请听上面的完整一集或通过你选择的播客平台。
 
-对未来的剧集有什么反馈或想法吗？想上节目吗？请拨打347-687-8109给我们留言，或者给upgrade@lifehacker.com发送语音备忘录。
+对未来的剧集有什么反馈或想法吗？想上节目吗？请拨打 347-687-8109 给我们留言，或者给 upgrade@lifehacker.com 发送语音备忘录。
 
 ### 情节抄本
 

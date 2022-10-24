@@ -1,6 +1,6 @@
 # 你终于可以从谷歌上获取你的个人信息了
 
-> 原文:[https://life hacker . com/you-can-finally-get-your-personal-information-off-googl-1848861331](https://lifehacker.com/you-can-finally-get-your-personal-information-off-googl-1848861331)
+> 原文：<https://lifehacker.com/you-can-finally-get-your-personal-information-off-googl-1848861331>
 
 本周，谷歌宣布他们现在将允许人们请求从搜索结果中删除他们的个人联系信息。这家科技公司允许撤销电话号码、电子邮件地址和物理地址，试图保护他们的用户免受不必要的直接接触和身体伤害。
 
@@ -8,7 +8,7 @@ Watch
 
 谷歌全球搜索政策负责人， Michelle Chang，在一篇博客文章中解释说，“开放信息访问是搜索的一个关键目标，但赋予人们保护自己和保持敏感的个人身份信息隐私所需的工具也是如此。这就是我们更新政策的原因，以帮助人们在搜索中更好地控制自己的在线状态。”
 
-也许促使谷歌改变政策的是网络欺诈的增加。 [据TelTech](https://teltech.co/) 报道，2022年3月，美国无线网络上发送了116亿条诈骗短信。当与 [机器人电话](https://www.aarp.org/money/scams-fraud/info-2021/robocalls-rise.html) 的持续上升，以及 [美国联邦贸易委员会报告诈骗者损失金额同比增长70%](https://www.ftc.gov/news-events/news/press-releases/2022/02/new-data-shows-ftc-received-28-million-fraud-reports-consumers-2021-0)的事实相结合时，很容易理解为什么谷歌认为是时候改变他们在谷歌搜索上的可识别信息政策了。
+也许促使谷歌改变政策的是网络欺诈的增加。 [据 TelTech](https://teltech.co/) 报道，2022 年 3 月，美国无线网络上发送了 116 亿条诈骗短信。当与 [机器人电话](https://www.aarp.org/money/scams-fraud/info-2021/robocalls-rise.html) 的持续上升，以及 [美国联邦贸易委员会报告诈骗者损失金额同比增长 70%](https://www.ftc.gov/news-events/news/press-releases/2022/02/new-data-shows-ftc-received-28-million-fraud-reports-consumers-2021-0)的事实相结合时，很容易理解为什么谷歌认为是时候改变他们在谷歌搜索上的可识别信息政策了。
 
 如果您想从谷歌中删除您的联系信息，请访问 [这个谷歌网站](https://support.google.com/websearch/troubleshooter/9685456#ts=2889054%2C2889099) 并指出您想从谷歌搜索结果中删除的信息。您可以从以下类别中进行选择:
 

@@ -1,8 +1,8 @@
 # 你需要在你的腌泡汁和调味汁中加入蒜粉
 
-> 原文:[https://life hacker . com/you-need-powdered-in-your-marinates-and-dressing-1846784686](https://lifehacker.com/you-need-powdered-garlic-in-your-marinades-and-dressing-1846784686)
+> 原文：<https://lifehacker.com/you-need-powdered-garlic-in-your-marinades-and-dressing-1846784686>
 
-大蒜粉不受尊重。当然，新鲜大蒜的香气和味道很难被击败，但在某些情况下，干燥的东西不仅仅符合标准，而是直接胜出。如果你需要一种、腌泡汁或者 [蘸酱](https://skillet.lifehacker.com/this-diy-garlic-sauce-is-way-better-than-papa-johns-1826018011) 来品尝超过24小时的美味，粉状或者粒状大蒜是不错的选择。
+大蒜粉不受尊重。当然，新鲜大蒜的香气和味道很难被击败，但在某些情况下，干燥的东西不仅仅符合标准，而是直接胜出。如果你需要一种、腌泡汁或者 [蘸酱](https://skillet.lifehacker.com/this-diy-garlic-sauce-is-way-better-than-papa-johns-1826018011) 来品尝超过 24 小时的美味，粉状或者粒状大蒜是不错的选择。
 
 Watch
 

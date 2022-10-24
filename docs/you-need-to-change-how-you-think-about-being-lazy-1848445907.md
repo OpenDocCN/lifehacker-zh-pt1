@@ -1,6 +1,6 @@
 # 你需要改变你对“懒惰”的看法
 
-> 原文:[https://life hacker . com/you-need-to-change-how-you-think-of-you-lazy-1848445907](https://lifehacker.com/you-need-to-change-how-you-think-about-being-lazy-1848445907)
+> 原文：<https://lifehacker.com/you-need-to-change-how-you-think-about-being-lazy-1848445907>
 
 周五的部分吸引力是期待你周末要做什么(至少对于那些通常周六和周日休息的人来说)。也许你开始认为你会花一些时间放松，但是在沙发上或床上(或任何你想放松的地方)一两个小时后，一种负罪感就会产生。
 
@@ -12,6 +12,6 @@ Watch
 
 如果你问社会心理学家德文·普莱斯博士关于懒惰的问题，他会告诉你懒惰不存在。(如果他说的是别的，他可能需要重新思考他的书名 [*懒惰不存在*](https://www.simonandschuster.com/books/Laziness-Does-Not-Exist/Devon-Price/9781982140106)T5】。)这听起来可能有些极端——尤其是在一个赞美生产率、给所有人贴上“懒惰”标签的文化中——但这正是问题所在。
 
-在2021年9月的一次采访中， [普莱斯告诉NPR](https://www.npr.org/2021/09/24/1039676445/laziness-does-not-exist-devon-price) “懒惰通常是我们身体和大脑的一个警告信号，表明某些东西不起作用了。”。“当人体需要某样东西时，它发出信号的能力令人难以置信。但我们都学会了尽可能忽略这些信号，因为它们威胁着我们的工作效率和注意力。”
+在 2021 年 9 月的一次采访中， [普莱斯告诉 NPR](https://www.npr.org/2021/09/24/1039676445/laziness-does-not-exist-devon-price) “懒惰通常是我们身体和大脑的一个警告信号，表明某些东西不起作用了。”。“当人体需要某样东西时，它发出信号的能力令人难以置信。但我们都学会了尽可能忽略这些信号，因为它们威胁着我们的工作效率和注意力。”
 
 换句话说，不要把懒惰视为一种性格缺陷和/或我们需要纠正的东西， [普莱斯建议](https://www.npr.org/2021/09/24/1039676445/laziness-does-not-exist-devon-price) 把它视为你的身体和大脑让你知道它需要休息——而不是做更多的工作。

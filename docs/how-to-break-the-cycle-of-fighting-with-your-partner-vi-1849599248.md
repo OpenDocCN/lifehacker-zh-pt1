@@ -1,6 +1,6 @@
 # 如何通过短信打破与伴侣争吵的循环
 
-> 原文:[https://life hacker . com/how-to-break ' s the cycle of-fighting-your-partner-VI-1849599248](https://lifehacker.com/how-to-break-the-cycle-of-fighting-with-your-partner-vi-1849599248)
+> 原文：<https://lifehacker.com/how-to-break-the-cycle-of-fighting-with-your-partner-vi-1849599248>
 
 交流是稳固关系的关键，但如何交流很重要吗？虽然通过短信与你的伴侣分享你的想法和情绪可能比完全不表达要好，但许多关系专家 和 [治疗师](https://psychcentral.com/blog/why-you-shouldnt-text-your-argument) 认为严肃的争论最好留给面对面的讨论。
 

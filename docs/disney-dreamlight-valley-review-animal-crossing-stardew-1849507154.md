@@ -1,12 +1,12 @@
-# 11个小时后，梦幻光谷不仅仅是一个迪斯尼动物穿越山寨版
+# 11 个小时后，梦幻光谷不仅仅是一个迪斯尼动物穿越山寨版
 
-> 原文:[https://kotaku . com/Disney-dream light-valley-review-animal-crossing-stardew-1849507154](https://kotaku.com/disney-dreamlight-valley-review-animal-crossing-stardew-1849507154)
+> 原文：<https://kotaku.com/disney-dreamlight-valley-review-animal-crossing-stardew-1849507154>
 
-几乎令人惊讶的是，像 [*迪士尼梦幻光谷*](https://kotaku.com/disney-dreamlight-valley-gameloft-ps5-pc-xbox-switch-ip-1848851631) 这样的游戏花了这么长时间才最终制作出来。新游戏 [现在在早期版本](https://www.amazon.com/xbox-game-pass/s?asc_campaign=InlineText&asc_refurl=https://kotaku.com/disney-dreamlight-valley-review-animal-crossing-stardew-1849507154&asc_source=&k=xbox game pass&tag=kinjakotakulink-20) 中推出，结合了*动物穿越*和*星谷*的生活模拟游戏，除了与著名的迪士尼人物、电影和世界的致命结合。最终的结果可能会完全消耗掉一些人。而且，作为一个不太喜欢《动物穿越》的人,《梦之光谷》更注重叙事的世界以一种任天堂的流行生活方式吸引了我——sim从来没有。
+几乎令人惊讶的是，像 [*迪士尼梦幻光谷*](https://kotaku.com/disney-dreamlight-valley-gameloft-ps5-pc-xbox-switch-ip-1848851631) 这样的游戏花了这么长时间才最终制作出来。新游戏 [现在在早期版本](https://www.amazon.com/xbox-game-pass/s?asc_campaign=InlineText&asc_refurl=https://kotaku.com/disney-dreamlight-valley-review-animal-crossing-stardew-1849507154&asc_source=&k=xbox game pass&tag=kinjakotakulink-20) 中推出，结合了*动物穿越*和*星谷*的生活模拟游戏，除了与著名的迪士尼人物、电影和世界的致命结合。最终的结果可能会完全消耗掉一些人。而且，作为一个不太喜欢《动物穿越》的人,《梦之光谷》更注重叙事的世界以一种任天堂的流行生活方式吸引了我——sim 从来没有。
 
 Watch
 
-由Gameloft开发的 [迪士尼的*梦幻光谷*](https://disneydreamlightvalley.com/) 是一款第三人称生命模拟游戏，它遵循了与最近其他迪士尼主题视频游戏类似的剧本，如 [*扭曲仙境*](https://kotaku.com/disney-twisted-wonderland-villains-black-butler-hogwart-1848402075) 或 [*王国之心*](https://kotaku.com/kingdom-hearts-sora-super-smash-bros-ultimate-tetsuya-n-1849065582) ，所有迪士尼标志性和心爱的角色在一个巨大的IP wonderland中共存。但是也像那些其他游戏一样，在*梦幻光谷*中，一些可怕的东西已经感染了世界，并引发了各种只有你能解决的问题。在这种情况下，它是一种叫做“遗忘”的东西，表现为黑暗的卷须和遍布山谷的多刺藤蔓。清理这些东西有助于像米奇和史高治·麦克老鸭这样的角色记住他们是谁，他们在哪里，以及自从令人毛骨悚然的藤蔓出现并接管以来所有失踪的朋友。
+由 Gameloft 开发的 [迪士尼的*梦幻光谷*](https://disneydreamlightvalley.com/) 是一款第三人称生命模拟游戏，它遵循了与最近其他迪士尼主题视频游戏类似的剧本，如 [*扭曲仙境*](https://kotaku.com/disney-twisted-wonderland-villains-black-butler-hogwart-1848402075) 或 [*王国之心*](https://kotaku.com/kingdom-hearts-sora-super-smash-bros-ultimate-tetsuya-n-1849065582) ，所有迪士尼标志性和心爱的角色在一个巨大的 IP wonderland 中共存。但是也像那些其他游戏一样，在*梦幻光谷*中，一些可怕的东西已经感染了世界，并引发了各种只有你能解决的问题。在这种情况下，它是一种叫做“遗忘”的东西，表现为黑暗的卷须和遍布山谷的多刺藤蔓。清理这些东西有助于像米奇和史高治·麦克老鸭这样的角色记住他们是谁，他们在哪里，以及自从令人毛骨悚然的藤蔓出现并接管以来所有失踪的朋友。
 
 一开始，这款游戏与《动物穿越》[](https://kotaku.com/animal-crossing-new-horizons-the-kotaku-review-1842321314)*的最大区别在于，与任天堂的《模拟人生》相比，迪士尼的游戏在结构和叙事上更具特色。任务有多个步骤，当你在这些步骤之间与角色对话时，甚至有基本的对话选项。人物似乎会根据你说的话做出不同的反应，这意味着你也可能会错过对话选项。这里当然没有什么惊天动地的东西，但是和任天堂的超基础写作相去甚远。最终，你也会解锁支线任务。所有这些都可以很容易地组织到你的任务日志中，并帮助我保持参与。每次登录总觉得有事可做。* 
 
@@ -26,10 +26,10 @@ Watch
 
 *谢天谢地，并不是游戏中的所有东西都是迪士尼主题的。事实上，你可以很容易地建造一个时尚现代的家，或者给你的角色穿上时尚的衣服，没有一件是用米老鼠的耳朵或*冰冻的*角色覆盖的。但是如果你想在迪士尼的内容中完全装饰你的家和角色，不要担心，那里也有很多。此外，这些物品不仅来自许多不同的电影和酒店，而且设计精良，这意味着即使你不是世界上最大的*美女与野兽*粉丝或其他人，你也可以享受它们。* 
 
-*我在梦光谷只呆了大约11个小时，我觉得我只是触及了表面。每隔几个小时，我就会不断发现新的角色或迪斯尼地点来探索，而围绕神秘的“遗忘”的叙事继续展开，让我着迷并对接下来发生的事情感兴趣。* 
+*我在梦光谷只呆了大约 11 个小时，我觉得我只是触及了表面。每隔几个小时，我就会不断发现新的角色或迪斯尼地点来探索，而围绕神秘的“遗忘”的叙事继续展开，让我着迷并对接下来发生的事情感兴趣。* 
 
 *人们可能很容易将*梦幻谷*视为仅仅是*动物穿越*的仿制品，但事实并非如此。相反，这个新的迪士尼游戏感觉更深入，更有趣的探索。然而，它确实抓住了最初让*动物穿越*如此成功的关键方面:令人痛苦的感觉是，你只剩下*一件事*可以快速完成，很快就变成了两件事，突然间你完全忘记了时间。这很有帮助，就像*动物穿越*一样，角色们有他们自己的惯例，而且总是有不同的事情发生，取决于你何时何地在看。* 
 
 *我现在真正的问题是:梦想之光谷将如何发展壮大？考虑到迪士尼拥有的大量内容库，这可能会成为未来*非常大的*游戏，无论迪士尼粉丝在什么平台上玩，这款游戏都会完全吸引他们。* 
 
-**迪士尼的梦幻光谷*是 [现已在PC、Xbox One、Xbox系列X/S、PS4、PS5、任天堂Switch](https://www.amazon.com/xbox-game-pass/s?asc_campaign=InlineText&asc_refurl=https://kotaku.com/disney-dreamlight-valley-review-animal-crossing-stardew-1849507154&asc_source=&k=xbox game pass&tag=kinjakotakulink-20)T5上发售。目前，玩这个游戏的唯一方法是 [购买一个创始人包](https://disneydreamlightvalley.com/founders-pack) 或者 [成为一个游戏通行证订户](https://www.amazon.com/xbox-game-pass/s?asc_campaign=InlineText&asc_refurl=https://kotaku.com/disney-dreamlight-valley-review-animal-crossing-stardew-1849507154&asc_source=&k=xbox game pass&tag=kinjakotakulink-20) 。*
+**迪士尼的梦幻光谷*是 [现已在 PC、Xbox One、Xbox 系列 X/S、PS4、PS5、任天堂 Switch](https://www.amazon.com/xbox-game-pass/s?asc_campaign=InlineText&asc_refurl=https://kotaku.com/disney-dreamlight-valley-review-animal-crossing-stardew-1849507154&asc_source=&k=xbox game pass&tag=kinjakotakulink-20)T5 上发售。目前，玩这个游戏的唯一方法是 [购买一个创始人包](https://disneydreamlightvalley.com/founders-pack) 或者 [成为一个游戏通行证订户](https://www.amazon.com/xbox-game-pass/s?asc_campaign=InlineText&asc_refurl=https://kotaku.com/disney-dreamlight-valley-review-animal-crossing-stardew-1849507154&asc_source=&k=xbox game pass&tag=kinjakotakulink-20) 。*

@@ -1,12 +1,12 @@
 # 买方垄断和垄断的区别(以及为什么它对你最喜欢的电视节目很重要)
 
-> 原文:[https://life hacker . com/the-difference-a-monopony-and-a-monopony-and-1849553851](https://lifehacker.com/the-difference-between-a-monopsony-and-a-monopoly-and-1849553851)
+> 原文：<https://lifehacker.com/the-difference-between-a-monopsony-and-a-monopoly-and-1849553851>
 
-你可能已经注意到你最喜欢的流媒体巨头，如网飞、Hulu和HBO Max——曾经是创作者的天堂，他们被制作永远不会在广播电视上播出的节目的自由所吸引——越来越多地诉诸于诸如提高订阅价格和转向更便宜、更公式化(又名“安全”)的内容等策略。有些甚至在广告中加入了。为什么会这样？根本原因可以说是买方垄断在起作用。
+你可能已经注意到你最喜欢的流媒体巨头，如网飞、Hulu 和 HBO Max——曾经是创作者的天堂，他们被制作永远不会在广播电视上播出的节目的自由所吸引——越来越多地诉诸于诸如提高订阅价格和转向更便宜、更公式化(又名“安全”)的内容等策略。有些甚至在广告中加入了。为什么会这样？根本原因可以说是买方垄断在起作用。
 
 Watch
 
-这不是一个打字错误——买方垄断是一个不同于传统垄断的经济概念，它有助于解释2022年流媒体服务将会发生什么。这里有一些关于买方垄断如何运作的知识，以及它对你如何观看你最喜欢的电视节目意味着什么。
+这不是一个打字错误——买方垄断是一个不同于传统垄断的经济概念，它有助于解释 2022 年流媒体服务将会发生什么。这里有一些关于买方垄断如何运作的知识，以及它对你如何观看你最喜欢的电视节目意味着什么。
 
 ## 买方垄断和垄断的区别
 
@@ -16,7 +16,7 @@ Watch
 
 ## 流媒体电视的垄断意味着什么
 
-理解买方垄断是如何运作的，有助于我们理解一个一直在影响观众的趋势:随着企业继续整合——从亚马逊收购米高梅，到迪士尼收购20世纪福克斯，再到探索和华纳兄弟最近的合并——越来越少的人更多地决定制作什么节目。与此同时，流媒体服务感受到了 [股价暴跌](https://www.barrons.com/articles/netflix-stock-keeps-falling-51657638512) 和 [巨额债务](https://www.nytimes.com/2022/09/13/business/media/warner-bros-discovery-layoffs.html) 的压力，正在撤退，更快地取消节目，更少下大赌注。突然间，“卖家”(制作节目的人)面临着一个买家越来越少、越来越不情愿的市场。正如为有线电视和流媒体服务创作节目的喜剧演员亚当·科诺弗向《华盛顿邮报》解释的那样，“唯一会从中获利的人是少数几个促成交易的高层首席执行官，但其他人都是输家。”创作者得到的报酬越来越少，服务于不同受众的雄心勃勃的项目越来越少。与此同时，购买者——流媒体服务——[似乎越来越倾向于更便宜、无脚本的内容](https://adage.com/article/special-report-tv-upfront/warner-bros-discovery-heavily-plugs-unscripted-its-first-upfront/2417661) ，进一步缩小了创作者的选择范围。
+理解买方垄断是如何运作的，有助于我们理解一个一直在影响观众的趋势:随着企业继续整合——从亚马逊收购米高梅，到迪士尼收购 20 世纪福克斯，再到探索和华纳兄弟最近的合并——越来越少的人更多地决定制作什么节目。与此同时，流媒体服务感受到了 [股价暴跌](https://www.barrons.com/articles/netflix-stock-keeps-falling-51657638512) 和 [巨额债务](https://www.nytimes.com/2022/09/13/business/media/warner-bros-discovery-layoffs.html) 的压力，正在撤退，更快地取消节目，更少下大赌注。突然间，“卖家”(制作节目的人)面临着一个买家越来越少、越来越不情愿的市场。正如为有线电视和流媒体服务创作节目的喜剧演员亚当·科诺弗向《华盛顿邮报》解释的那样，“唯一会从中获利的人是少数几个促成交易的高层首席执行官，但其他人都是输家。”创作者得到的报酬越来越少，服务于不同受众的雄心勃勃的项目越来越少。与此同时，购买者——流媒体服务——[似乎越来越倾向于更便宜、无脚本的内容](https://adage.com/article/special-report-tv-upfront/warner-bros-discovery-heavily-plugs-unscripted-its-first-upfront/2417661) ，进一步缩小了创作者的选择范围。
 
 你可能不太关心电视 [创作者的报酬更少](https://www.washingtonpost.com/arts-entertainment/2022/09/07/streaming-tv-changes-crisis/?pwapi_token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWJpZCI6IjM0MDUzODYiLCJyZWFzb24iOiJnaWZ0IiwibmJmIjoxNjYyNTc5MTgzLCJpc3MiOiJzdWJzY3JpcHRpb25zIiwiZXhwIjoxNjYzNzg4NzgzLCJpYXQiOjE2NjI1NzkxODMsImp0aSI6ImViZjUzMDA3LTgyMzMtNGZmOC05MmFiLTkwZTcxYzAyODQwZSIsInVybCI6Imh0dHBzOi8vd3d3Lndhc2hpbmd0b25wb3N0LmNvbS9hcnRzLWVudGVydGFpbm1lbnQvMjAyMi8wOS8wNy9zdHJlYW1pbmctdHYtY2hhbmdlcy1jcmlzaXMvIn0.VeQUy_LowuujoWxH3pF17hzx8qJSRm_I1f_b2Z8_gjE) ，但影响不止于此。当少数高管拥有流媒体内容的全部购买力时，他们就可以决定他们认为观众想要什么样的内容，控制价格，并设定条款。据《华盛顿邮报》报道，其结果是:在没有任何警告的情况下取消了旧目录，降低了节目的风险，提高了订户的价格。简而言之，一个买方垄断者既不能培养创造力，也不能提供制造突破性电视所需的资源。
 

@@ -1,6 +1,6 @@
 # 在客人到达前最懒惰、最有效的清洁方式
 
-> 原文:[https://life hacker . com/the-lazy-most-efficient-way-to-clean-just-before-gu-1848117221](https://lifehacker.com/the-laziest-most-efficient-way-to-clean-just-before-gu-1848117221)
+> 原文：<https://lifehacker.com/the-laziest-most-efficient-way-to-clean-just-before-gu-1848117221>
 
 邀请别人来家里总是比你想象的要多。即使你打算保持随意，通常在客人到达前半个小时，你会意识到你的家——你最初并不认为有那么糟糕——看起来相当邋遢。
 
@@ -32,4 +32,4 @@ Watch
 
 没什么大不了的——只是叠好毯子，确保沙发垫和枕头被拉直( [班尼特建议](https://www.bhg.com/homekeeping/house-cleaning/tips/quick-cleaning-guests/) 从中间给抱枕来个“空手道斩”，让它们看起来更好)，如果有时间，用吸尘器清理沙发上的碎屑。
 
-Bennett还建议给家里的公共表面除尘。如果有任何物品被厚厚的一层灰尘覆盖，尽一切办法将它们擦掉。否则，不要太过分(除非你发现自己有多余的时间。)
+Bennett 还建议给家里的公共表面除尘。如果有任何物品被厚厚的一层灰尘覆盖，尽一切办法将它们擦掉。否则，不要太过分(除非你发现自己有多余的时间。)

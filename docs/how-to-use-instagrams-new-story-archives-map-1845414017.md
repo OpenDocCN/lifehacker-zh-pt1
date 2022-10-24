@@ -1,14 +1,14 @@
-# 如何使用Instagram的新故事档案图
+# 如何使用 Instagram 的新故事档案图
 
-> 原文:[https://life hacker . com/how-to-use-instagrams-new-story-archives-map-1845414017](https://lifehacker.com/how-to-use-instagrams-new-story-archives-map-1845414017)
+> 原文：<https://lifehacker.com/how-to-use-instagrams-new-story-archives-map-1845414017>
 
-Instagram上的故事只有可怜的24小时寿命——至少在公开场合是这样。但这款应用实际上保存了你所有旧故事的私人档案，你可以随时访问，并将其作为个人资料“亮点”复活在你的整个故事帖子档案中挖掘亮点可能是一件痛苦的事情，但Instagram有一个新的基于位置的过滤器，可以在一个地图屏幕上显示你过去所有的位置标记的帖子。
+Instagram 上的故事只有可怜的 24 小时寿命——至少在公开场合是这样。但这款应用实际上保存了你所有旧故事的私人档案，你可以随时访问，并将其作为个人资料“亮点”复活在你的整个故事帖子档案中挖掘亮点可能是一件痛苦的事情，但 Instagram 有一个新的基于位置的过滤器，可以在一个地图屏幕上显示你过去所有的位置标记的帖子。
 
 Watch
 
-Instagram的新故事地图是最新应用更新的一部分，可在iOS和Android上使用。应用程序更新后，以下是查找故事地图的方法:
+Instagram 的新故事地图是最新应用更新的一部分，可在 iOS 和 Android 上使用。应用程序更新后，以下是查找故事地图的方法:
 
-1.  打开Instagram，进入你的个人资料。
+1.  打开 Instagram，进入你的个人资料。
 2.  点击三线汉堡菜单图标。
 3.  选择**“存档”**查看您的文章历史。此菜单有三个选项卡:所有帖子(按时间顺序排列)、日历视图(允许您按特定日期查看帖子)和位置选项卡。
 4.  点击位置选项卡，查看您发布故事的地图。(锁定的位置是您标记照片或视频的位置，而不是 [原始照片的元数据](https://lifehacker.com/what-is-exif-data-and-how-to-remove-it-from-your-photo-1845292669) 。)

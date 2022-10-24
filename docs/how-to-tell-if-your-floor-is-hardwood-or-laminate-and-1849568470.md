@@ -1,20 +1,20 @@
 # 如何辨别你的地板是硬木还是层压板(以及为什么这很重要)
 
-> 原文:[https://life hacker . com/how-to-tell-if your ' s floor ' s hardwood-or-laminate-and-1849568470](https://lifehacker.com/how-to-tell-if-your-floor-is-hardwood-or-laminate-and-1849568470)
+> 原文：<https://lifehacker.com/how-to-tell-if-your-floor-is-hardwood-or-laminate-and-1849568470>
 
 E 即使你从来没有考虑过你走在 的 [地板上，买房子也会改变得那么快。每个在*找房子的人*都会问他们参观的每栋房子是哪种地板，这是有原因的:因为硬木地板和强化地板是两种非常不同的东西，但也很难区分它们。不过，确切了解你的地板类型是个好主意，因为硬木地板和强化地板对你家的价值、舒适度和维护有非常不同的影响。以下是如何辨别你的地板是硬木还是层压板——以及为什么这很重要。](https://lifehacker.com/how-to-quiet-creaky-floors-in-an-older-house-1847959921) 
 
 Watch
 
-## h ardwood和层压板有什么区别？
+## h ardwood 和层压板有什么区别？
 
 硬木地板和强化地板的根本区别在于它的制作方式:硬木是从树上采集的，而强化地板是一种加工产品。硬木是从各种各样的树木上砍下，磨成一定的尺寸，打磨，抛光。层压板是一种由四层组成的复合产品:由防潮材料制成的基层，由高密度或中密度纤维板制成的芯层，使其具有耐用性和稳定性，装饰层或“摄影”层，在其上印有地板的图案和颜色-基本上是层压板模仿的任何材料的非常高分辨率的照片-最后是具有透明涂层的耐磨层，以保护地板。
 
 虽然您可以安装各种木材类型的硬木，以获得各种颜色和外观，但层压板的颜色和图案范围更广。它可以非常令人信服地模仿硬木的外观，但也可以有不同的图案和颜色，这些是用天然木材无法获得的。大多数层压板被设计成看起来像硬木，虽然。
 
-硬木可能是一种比层压板更耐用的地板材料。另一方面，强化地板不能重新磨光，通常有一个有限的寿命，在正常磨损的情况下，更高质量的材料可以持续10-20年。然而，安装层压板要便宜得多，[costi](https://money.com/wood-laminate-flooring-home-value/)[n](https://money.com/wood-laminate-flooring-home-value/)[g每平方英尺5到8美元](https://money.com/wood-laminate-flooring-home-value/) ，相比之下硬木每平方英尺9到12美元。
+硬木可能是一种比层压板更耐用的地板材料。另一方面，强化地板不能重新磨光，通常有一个有限的寿命，在正常磨损的情况下，更高质量的材料可以持续 10-20 年。然而，安装层压板要便宜得多，[costi](https://money.com/wood-laminate-flooring-home-value/)[n](https://money.com/wood-laminate-flooring-home-value/)[g 每平方英尺 5 到 8 美元](https://money.com/wood-laminate-flooring-home-value/) ，相比之下硬木每平方英尺 9 到 12 美元。
 
-还有一种叫做 [的工程硬木](https://www.thespruce.com/engineered-hardwood-vs-solid-flooring-1821677) 。这基本上是高质量的胶合板，上面覆盖一层真正的硬木贴面。主要的区别是成本，安装成本可以低至每平方英尺3美元，还有耐用性:虽然硬木的顶层几乎和真的一样耐磨，但它只能整修一次，最多两次。工程硬木不会像真正的硬木一样经久耐用，但它们会比层压板耐用得多——长达30年。
+还有一种叫做 [的工程硬木](https://www.thespruce.com/engineered-hardwood-vs-solid-flooring-1821677) 。这基本上是高质量的胶合板，上面覆盖一层真正的硬木贴面。主要的区别是成本，安装成本可以低至每平方英尺 3 美元，还有耐用性:虽然硬木的顶层几乎和真的一样耐磨，但它只能整修一次，最多两次。工程硬木不会像真正的硬木一样经久耐用，但它们会比层压板耐用得多——长达 30 年。
 
 ## 如何辨别
 

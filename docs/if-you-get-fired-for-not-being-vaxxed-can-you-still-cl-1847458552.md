@@ -1,14 +1,14 @@
 # 如果你因为没有被解雇，你还能申请失业救济金吗？
 
-> 原文:[https://life hacker . com/if-you-get-fired-for-not-be-VAX xed-can-you-still-cl-1847458552](https://lifehacker.com/if-you-get-fired-for-not-being-vaxxed-can-you-still-cl-1847458552)
+> 原文：<https://lifehacker.com/if-you-get-fired-for-not-being-vaxxed-can-you-still-cl-1847458552>
 
-随着Delta COVID变体的传播，越来越多的雇主要求员工接种疫苗。正如我们在一些引人注目的例子中所看到的，不合规导致员工要么 [被解雇](https://www.bbc.com/news/world-us-canada-58112125) 要么 [辞职](https://www.espn.com/nfl/story/_/id/31869652/rick-dennison-minnesota-vikings-assistant-refusing-covid-19-vaccine-sources-say) 以逃避指责。但这是否意味着他们仍然有权享受失业救济？简短的回答是否定的，因为法律在疫苗方面对雇主有利。以下是你需要知道的。
+随着 Delta COVID 变体的传播，越来越多的雇主要求员工接种疫苗。正如我们在一些引人注目的例子中所看到的，不合规导致员工要么 [被解雇](https://www.bbc.com/news/world-us-canada-58112125) 要么 [辞职](https://www.espn.com/nfl/story/_/id/31869652/rick-dennison-minnesota-vikings-assistant-refusing-covid-19-vaccine-sources-say) 以逃避指责。但这是否意味着他们仍然有权享受失业救济？简短的回答是否定的，因为法律在疫苗方面对雇主有利。以下是你需要知道的。
 
 Watch
 
 ## **拒绝接种疫苗是终止接种的理由**
 
-[据《今日美国》](https://www.usatoday.com/story/news/factcheck/2021/08/09/fact-check-workers-fired-over-vaccination-can-denied-unemployment/5518818001/) 报道，美国司法部 [最近的一份法律意见书](https://www.justice.gov/olc/file/1415446/download) 确认，私人公司拥有授权COVID疫苗的合法权利，前提是它们不违反现有的州和联邦法律，你可以在这里查看。这意味着如果你公司的政策现在要求接种疫苗，而你没有接种，你可能会被解雇，并且没有资格领取失业救济金。如果你仅仅因为不想接种疫苗而辞职，你也没有资格。
+[据《今日美国》](https://www.usatoday.com/story/news/factcheck/2021/08/09/fact-check-workers-fired-over-vaccination-can-denied-unemployment/5518818001/) 报道，美国司法部 [最近的一份法律意见书](https://www.justice.gov/olc/file/1415446/download) 确认，私人公司拥有授权 COVID 疫苗的合法权利，前提是它们不违反现有的州和联邦法律，你可以在这里查看。这意味着如果你公司的政策现在要求接种疫苗，而你没有接种，你可能会被解雇，并且没有资格领取失业救济金。如果你仅仅因为不想接种疫苗而辞职，你也没有资格。
 
 ## 你需要一个好的理由来收集失业数据
 

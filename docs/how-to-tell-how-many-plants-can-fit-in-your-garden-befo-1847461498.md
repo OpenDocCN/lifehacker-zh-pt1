@@ -1,6 +1,6 @@
 # 如何在花钱之前知道你的花园里能种多少植物
 
-> 原文:[https://life hacker . com/how-to-tell-how-much-much-many-plants-can-fit in your ' s garden-befo-1847461498](https://lifehacker.com/how-to-tell-how-many-plants-can-fit-in-your-garden-befo-1847461498)
+> 原文：<https://lifehacker.com/how-to-tell-how-many-plants-can-fit-in-your-garden-befo-1847461498>
 
 给你的植物留出空间对于它们的种子发芽和根生长很重要，但是 d 取决于你有多少空间和你想要生长的植物，很难说出它们需要相距多远。谢天谢地，在你开始下一个园艺项目之前，有一些工具可以帮你解决所有问题。以下是如何为你的一排新植物计算最佳间距的方法。
 
@@ -10,7 +10,7 @@ Watch
 
 "生长空间"是一个常见的说法是有原因的:不仅根需要空间来伸展，而且植物周围的气流对防止植物疾病和真菌传播至关重要。
 
-特别是在潮湿多雨的月份，间隔是至关重要的，就像在T2的秋天，真菌喜欢在那里传播。 [火箭花园](https://www.rocketgardens.co.uk/spacing-important-planting/) 解释了气流对于“孢子携带的疾病，如枯萎病和霉菌，以及蚕豆上的巧克力斑等疾病”是多么重要适当的间距还能让叶子生长并尽可能多地吸收阳光。
+特别是在潮湿多雨的月份，间隔是至关重要的，就像在 T2 的秋天，真菌喜欢在那里传播。 [火箭花园](https://www.rocketgardens.co.uk/spacing-important-planting/) 解释了气流对于“孢子携带的疾病，如枯萎病和霉菌，以及蚕豆上的巧克力斑等疾病”是多么重要适当的间距还能让叶子生长并尽可能多地吸收阳光。
 
 ## 如何为你的花园找到合适的间距
 
@@ -18,10 +18,10 @@ Watch
 
 例如，正如 [爱知](https://garden.lovetoknow.com/landscaping/guide-landscape-plant-spacing) 所解释的:
 
-> 一棵预计长40英尺宽的树将被种植在距离下一棵相同品种的树40英尺的地方。
+> 一棵预计长 40 英尺宽的树将被种植在距离下一棵相同品种的树 40 英尺的地方。
 
 如果你将不同的品种混合在一起，情况会变得更加复杂，你需要分割每种植物半径的差异，但是园艺专家为蔬菜提供了间距指南，更好的家园和花园有很好的间距指南。在你算出合适的间距后，你可以更好地决定你想要买多少株植物。
 
 ## 如何计算你的地块的植物数量
 
-网站 [Omni](https://www.omnicalculator.com/) 提供了1940个计算器功能，其中一个非常有助于帮助你找到花园的最佳间距。 [植物间距计算器](https://www.omnicalculator.com/biology/plants) 适应你想要的任何配置，无论你是按三角形种植，按行播种，还是在盒子里种花——你只需要在使用它之前知道你在植物床周围的尺寸边界，长度和宽度。一旦你通过输入数据，计算器就会给你需要获得完美间距的准确植株数量。
+网站 [Omni](https://www.omnicalculator.com/) 提供了 1940 个计算器功能，其中一个非常有助于帮助你找到花园的最佳间距。 [植物间距计算器](https://www.omnicalculator.com/biology/plants) 适应你想要的任何配置，无论你是按三角形种植，按行播种，还是在盒子里种花——你只需要在使用它之前知道你在植物床周围的尺寸边界，长度和宽度。一旦你通过输入数据，计算器就会给你需要获得完美间距的准确植株数量。

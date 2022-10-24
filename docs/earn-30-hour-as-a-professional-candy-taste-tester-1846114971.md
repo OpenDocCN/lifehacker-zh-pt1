@@ -1,6 +1,6 @@
-# 作为一名专业的糖果品尝师，每小时挣30美元
+# 作为一名专业的糖果品尝师，每小时挣 30 美元
 
-> 原文:[https://life hacker . com/earn-30 hour-as-a-professional-candy-taste-tester-1846114971](https://lifehacker.com/earn-30-hour-as-a-professional-candy-taste-tester-1846114971)
+> 原文：<https://lifehacker.com/earn-30-hour-as-a-professional-candy-taste-tester-1846114971>
 
 你喜欢糖果吗？你对此有意见吗？你在找工作吗？如果你对这三个问题的回答都是肯定的，你可能会有兴趣了解更多关于一个职位的信息，这个职位会给你现金去品尝糖果。不，这不是那种“梦想工作”竞赛——这是一个糖果公司的真实角色。以下是你需要知道的。
 
@@ -8,7 +8,7 @@ Watch
 
 ### 地位
 
-可供选择的工作不仅仅只有一个: [糖果游乐园](https://candyfunhouse.ca/) 正在招聘10个人品尝糖果。其中两个职位是全职的(8小时轮班制)，另外八个是兼职的(每周15小时)。都是30美元/小时。
+可供选择的工作不仅仅只有一个: [糖果游乐园](https://candyfunhouse.ca/) 正在招聘 10 个人品尝糖果。其中两个职位是全职的(8 小时轮班制)，另外八个是兼职的(每周 15 小时)。都是 30 美元/小时。
 
 虽然这两个广告都表明这些职位可以远程完成，但他们也表示全职职位需要亲自品尝糖果——这可能会在该公司总部所在地安大略省的米西索加。这有点令人困惑，但我想，当你到了那座桥时，就要过桥了吧？
 
@@ -38,10 +38,10 @@ Watch
 *   对糖果充满热情
 *   成为美国或加拿大公民
 *   没有任何食物过敏
-*   至少年满18岁
+*   至少年满 18 岁
 
 不需要糖果方面的经验。
 
 ### 如何申请
 
-填写 [全职](https://ca.indeed.com/job/candyologist-candy-and-chocolate-taste-tester-e5e3c95be1a8c1cb) 或 [兼职](https://ca.indeed.com/viewjob?t=candyologist+candy+and+chocolate+taste+tester&jk=c8f343a3a5f55e5a&_ga=2.72055123.1959247949.1610828015-288066048.1610572275) 职位的申请表。申请最后一天是2021年2月15日。
+填写 [全职](https://ca.indeed.com/job/candyologist-candy-and-chocolate-taste-tester-e5e3c95be1a8c1cb) 或 [兼职](https://ca.indeed.com/viewjob?t=candyologist+candy+and+chocolate+taste+tester&jk=c8f343a3a5f55e5a&_ga=2.72055123.1959247949.1610828015-288066048.1610572275) 职位的申请表。申请最后一天是 2021 年 2 月 15 日。

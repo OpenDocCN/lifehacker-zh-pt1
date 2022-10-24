@@ -1,6 +1,6 @@
 # 每个人都应该知道的最基本的法律术语
 
-> 原文:[https://life hacker . com/the-bare-minimum-legal-terms-the-every one-should-know-1849184696](https://lifehacker.com/the-bare-minimum-legal-terms-that-everyone-should-know-1849184696)
+> 原文：<https://lifehacker.com/the-bare-minimum-legal-terms-that-everyone-should-know-1849184696>
 
 律师赚了一大笔钱，因为 [法律的东西是*复杂的*](https://lifehacker.com/how-to-find-legal-advice-if-you-can-t-afford-a-lawyer-1846104848) 。他们学习我们的法律体系，这样我们就不用学习了。尽管如此，还是有一些关键术语是每个人都应该知道的——不需要有昂贵的学位来学习——因为当你不可避免地要操纵我们混乱的法律体系时。
 
@@ -48,7 +48,7 @@ Watch
 
 ## 什么是“公益”工作？
 
-这个术语指的是律师免费为客户服务。虽然并不要求律师在任何地方都要提供服务，但美国律师协会 鼓励律师每年至少提供50个小时的无偿服务 [。](https://www.americanbar.org/groups/legal_education/resources/pro_bono/)
+这个术语指的是律师免费为客户服务。虽然并不要求律师在任何地方都要提供服务，但美国律师协会 鼓励律师每年至少提供 50 个小时的无偿服务 [。](https://www.americanbar.org/groups/legal_education/resources/pro_bono/)
 
 ## **什么是“pro se”？**
 
@@ -66,4 +66,4 @@ Watch
 
 逮捕证是法院签发的文件，授予警察逮捕某人或搜查其财产的必要许可。在你服从警官之前，一定要确保他们有搜查令。如果你能证明他们没有搜查令，他们发现的任何东西都将在法庭上被驳回。
 
-这篇报道于7月18日星期一更新，以纠正大陪审团的定义。
+这篇报道于 7 月 18 日星期一更新，以纠正大陪审团的定义。

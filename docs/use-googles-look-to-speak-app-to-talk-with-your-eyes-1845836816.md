@@ -1,35 +1,35 @@
 # 使用谷歌的“看着说话”应用程序用你的眼睛说话
 
-> 原文:[https://life hacker . com/use-Google-look-to-speak-app-to-talk-with-your-eyes-1845836816](https://lifehacker.com/use-googles-look-to-speak-app-to-talk-with-your-eyes-1845836816)
+> 原文：<https://lifehacker.com/use-googles-look-to-speak-app-to-talk-with-your-eyes-1845836816>
 
 许多人需要借助专门的语音设备与家人、朋友和护理人员交流。这些机器中的一些是通过眼球追踪来操作的，这使得用户可以在没有触摸或语音控制的情况下快速“键入”句子或选择短语——但并不是每个人都可以使用这种设备。
 
 Watch
 
-谷歌和s 皮奇和语言治疗师理查德·凯夫已经 联手试图改变这一点，推出了一款名为 [的免费安卓应用](https://blog.google/outreach-initiatives/accessibility/look-to-speak) 来说话。它旨在提高不会说话的人使用几乎每个人都有的设备:智能手机的交流能力。
+谷歌和 s 皮奇和语言治疗师理查德·凯夫已经 联手试图改变这一点，推出了一款名为 [的免费安卓应用](https://blog.google/outreach-initiatives/accessibility/look-to-speak) 来说话。它旨在提高不会说话的人使用几乎每个人都有的设备:智能手机的交流能力。
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-c3oNaq2Cugs&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-c3oNaq2Cugs&start=0) 
 
-和其他眼球追踪交流软件一样，用户可以通过向左或向右看屏幕外的来控制Look to Speak，以过滤预定短语的菜单，并选择他们想要的一个。典型的情况是 it 只需要动几下眼睛就能选择想要的句子。
+和其他眼球追踪交流软件一样，用户可以通过向左或向右看屏幕外的来控制 Look to Speak，以过滤预定短语的菜单，并选择他们想要的一个。典型的情况是 it 只需要动几下眼睛就能选择想要的句子。
 
-Google Play中的 [Look to Speak](https://play.google.com/store/apps/details?id=com.androidexperiments.looktospeak&hl=en_US&gl=US) 应用适用于所有运行Android 9.0或更高版本的Android智能手机和平板电脑，以及Android One设备。正在使用的设备还必须有一个前置摄像头。
+Google Play 中的 [Look to Speak](https://play.google.com/store/apps/details?id=com.androidexperiments.looktospeak&hl=en_US&gl=US) 应用适用于所有运行 Android 9.0 或更高版本的 Android 智能手机和平板电脑，以及 Android One 设备。正在使用的设备还必须有一个前置摄像头。
 
-### 如何在Android上设置Look to Speak
+### 如何在 Android 上设置 Look to Speak
 
 “看起来说话”的设置和使用都很简单。第一次打开应用程序时，你会看到一个教程屏幕，会带你完成整个过程，包括 找到正确的安装位置和视角，校准眼球追踪设置，并进行一些测试来感受应用程序的工作原理。设置助手使用触摸屏，尽管你已经在使用的其他界面设备也应该可以帮助你完成这个过程。
 
 你也可以在设置菜单中重复设置过程或调整应用程序的行为，我们将在下面的章节中讨论这些。
 
-我在Pixel 3a XL上试用了这款应用，它立即做出了响应。我从来没有仅仅通过眼球运动来控制一项技术，所以在我习惯它之前需要一些时间(和摆弄应用程序的设置)。但是，效果很好。我在不同照明的多个房间里尝试了一下，每次都成功了——我找到了正确的角度。令人惊讶的是，尽管我的自拍相机有一条裂缝，通常会使照片模糊，但该应用程序正确地记录了每一次眼球运动。
+我在 Pixel 3a XL 上试用了这款应用，它立即做出了响应。我从来没有仅仅通过眼球运动来控制一项技术，所以在我习惯它之前需要一些时间(和摆弄应用程序的设置)。但是，效果很好。我在不同照明的多个房间里尝试了一下，每次都成功了——我找到了正确的角度。令人惊讶的是，尽管我的自拍相机有一条裂缝，通常会使照片模糊，但该应用程序正确地记录了每一次眼球运动。
 
 ### 调整“外观到说话”的设置
 
-访问应用右上角的三行“汉堡”按钮，打开Look to Speak的侧菜单。在这里，您可以重放设置助手、视频教程或练习屏幕。
+访问应用右上角的三行“汉堡”按钮，打开 Look to Speak 的侧菜单。在这里，您可以重放设置助手、视频教程或练习屏幕。
 
 您还可以点击**编辑短语手册**来添加、删除和修改短语及其屏幕布局。
 
 轻触**设置**来调整你的眼睛必须看离屏幕多远，以及在应用程序记录动作之前你需要凝视多长时间。您还可以使用该屏幕来调整贪睡和视觉反馈行为。
 
-如果你觉得卡住了，谷歌提供了一个 [在线帮助小册子](https://storage.googleapis.com/experiments-uploads/LTS_GUIDE.pdf) ，它更详细地涵盖了Look to Speak的众多设置一个并且包括提示和一些 基本故障排除。
+如果你觉得卡住了，谷歌提供了一个 [在线帮助小册子](https://storage.googleapis.com/experiments-uploads/LTS_GUIDE.pdf) ，它更详细地涵盖了 Look to Speak 的众多设置一个并且包括提示和一些 基本故障排除。
 
 “看起来说话”可能没有专用辅助通信技术提供的那么广泛的选择， 和所有的非通信操作都需要触摸控制，但它至少给了用户一个与他人互动的潜在途径。由于这是一个智能手机应用程序，它非常容易在许多设备上部署，许多 已经有了。

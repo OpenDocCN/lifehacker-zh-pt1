@@ -1,8 +1,8 @@
 # 用蜂蜜烤花生制作高级花生酱
 
-> 原文:[https://life hacker . com/make-a-superior-花生酱加蜂蜜-烤花生-1846067645](https://lifehacker.com/make-a-superior-peanut-butter-with-honey-roasted-peanut-1846067645)
+> 原文：<https://lifehacker.com/make-a-superior-peanut-butter-with-honey-roasted-peanut-1846067645>
 
-“自己制作”任何东西的吸引力通常在于该东西的DIY版本的可定制程度，但ase也发挥了作用。从T2的两个标准来看，自制花生酱都非常有吸引力。你拿一些花生，把它们放入食品加工机(或高功率搅拌机)，然后让刀片做它们的事情。几分钟后，你就有了花生酱。
+“自己制作”任何东西的吸引力通常在于该东西的 DIY 版本的可定制程度，但 ase 也发挥了作用。从 T2 的两个标准来看，自制花生酱都非常有吸引力。你拿一些花生，把它们放入食品加工机(或高功率搅拌机)，然后让刀片做它们的事情。几分钟后，你就有了花生酱。
 
 Watch
 

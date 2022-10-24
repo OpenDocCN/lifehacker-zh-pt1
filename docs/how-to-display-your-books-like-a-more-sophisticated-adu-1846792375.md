@@ -1,6 +1,6 @@
 # 如何像一个更成熟的成年人一样展示你的书
 
-> 原文:[https://life hacker . com/how-to-display-your-books-like-a-more-老道-adu-1846792375](https://lifehacker.com/how-to-display-your-books-like-a-more-sophisticated-adu-1846792375)
+> 原文：<https://lifehacker.com/how-to-display-your-books-like-a-more-sophisticated-adu-1846792375>
 
 书架已经成为缩放演示的官方非官方背景。我数不清有多少次会议上，我看到演讲者坐在一堵书墙前，所有的书都摆放得很有策略，这很有意义:好看的书柜看起来很专业。甚至是优雅。他们展示了一种别人会注意到的成熟感。
 
@@ -10,7 +10,7 @@ Watch
 
 ### 考虑按颜色排列你的书
 
-来自家庭组织网站 [柠檬水](https://makinglemonadeblog.com/organize-books-by-color-15-minute-decorating/#:~:text=And%20when%20you%20organize%20books,didn't%20know%20was%20there!&text=I%20prefer%20the%20colors%20scattered,the%20perfect%20pop%20of%20color.) 的凯莉喜欢拿掉书的袖子，露出书的自然外观和颜色。移除封套后，您可以根据特定的颜色对每本书进行分类。你所有的蓝皮书应该放在一起，红皮书，黄皮书等等。Carrie解释说，她喜欢按颜色将书分类，但不一定要按彩虹顺序，将一些书堆在一边，作为一个焦点，也是让房间变得流行的一种方式。
+来自家庭组织网站 [柠檬水](https://makinglemonadeblog.com/organize-books-by-color-15-minute-decorating/#:~:text=And%20when%20you%20organize%20books,didn't%20know%20was%20there!&text=I%20prefer%20the%20colors%20scattered,the%20perfect%20pop%20of%20color.) 的凯莉喜欢拿掉书的袖子，露出书的自然外观和颜色。移除封套后，您可以根据特定的颜色对每本书进行分类。你所有的蓝皮书应该放在一起，红皮书，黄皮书等等。Carrie 解释说，她喜欢按颜色将书分类，但不一定要按彩虹顺序，将一些书堆在一边，作为一个焦点，也是让房间变得流行的一种方式。
 
 组织者如的克莉·希勒和乔安娜·泰普林喜欢忠实地坚持彩虹顺序，他们称之为[【ROYGBIV】](https://www.thehomeedit.com/roygbiv-gift-guide/)方法。“我们的大脑天生就能识别这种模式，知道把东西放在哪里，”两人解释道。你可以按大小来组织书籍，以帮助流动。
 
@@ -20,7 +20,7 @@ Watch
 
 ### 使用悬挂式书架发表声明
 
-一种独特的展示书籍的方式是 [悬挂式书架](https://www.pinterest.co.uk/pin/61502351137308043/) 。这款定制展示会让你成为人们谈论的焦点，木制挂杆挂在墙上，带有别致的衣夹，绳子缠绕在书籍封面内，这样书籍就可以悬挂下来。(不用担心，这种挂法不会损坏你的书。)你可以在Etsy 上找到这个定制的 [悬挂系统，但据我所知，这是独一无二的，运行最低160美元。](https://www.etsy.com/listing/113841771/mini-custom-made-wooden-book-rack?gpla=1&gao=1&&utm_source=google&utm_medium=cpc&utm_campaign=shopping_us_a-home_and_living-storage_and_organization-shelving&utm_custom1=_k_Cj0KCQjwsqmEBhDiARIsANV8H3Y7j6IdixZDguemB3S2CiyjlDtcir-IP7KiG7bx7dXZwUKeR62yHxIaAraLEALw_wcB_k_&utm_content=go_12574416432_120844863538_507851954794_pla-302897469776_c__113841771_13858361&utm_custom2=12574416432&gclid=Cj0KCQjwsqmEBhDiARIsANV8H3Y7j6IdixZDguemB3S2CiyjlDtcir-IP7KiG7bx7dXZwUKeR62yHxIaAraLEALw_wcB)
+一种独特的展示书籍的方式是 [悬挂式书架](https://www.pinterest.co.uk/pin/61502351137308043/) 。这款定制展示会让你成为人们谈论的焦点，木制挂杆挂在墙上，带有别致的衣夹，绳子缠绕在书籍封面内，这样书籍就可以悬挂下来。(不用担心，这种挂法不会损坏你的书。)你可以在 Etsy 上找到这个定制的 [悬挂系统，但据我所知，这是独一无二的，运行最低 160 美元。](https://www.etsy.com/listing/113841771/mini-custom-made-wooden-book-rack?gpla=1&gao=1&&utm_source=google&utm_medium=cpc&utm_campaign=shopping_us_a-home_and_living-storage_and_organization-shelving&utm_custom1=_k_Cj0KCQjwsqmEBhDiARIsANV8H3Y7j6IdixZDguemB3S2CiyjlDtcir-IP7KiG7bx7dXZwUKeR62yHxIaAraLEALw_wcB_k_&utm_content=go_12574416432_120844863538_507851954794_pla-302897469776_c__113841771_13858361&utm_custom2=12574416432&gclid=Cj0KCQjwsqmEBhDiARIsANV8H3Y7j6IdixZDguemB3S2CiyjlDtcir-IP7KiG7bx7dXZwUKeR62yHxIaAraLEALw_wcB)
 
 ### 用较大的书制作茶几和床头柜
 

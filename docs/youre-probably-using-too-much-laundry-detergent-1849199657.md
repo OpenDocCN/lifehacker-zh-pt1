@@ -1,6 +1,6 @@
 # 你可能用了太多的洗衣粉
 
-> 原文:[https://life hacker . com/you-probably-use-more-doing-洗衣液-1849199657](https://lifehacker.com/youre-probably-using-too-much-laundry-detergent-1849199657)
+> 原文：<https://lifehacker.com/youre-probably-using-too-much-laundry-detergent-1849199657>
 
 当你把一堆特别脏、有汗或有臭味的衣物放进洗衣机时，你可能会禁不住诱惑，加入比推荐量多一点(或很多)的洗涤剂。理论上，这是有道理的:比平常更脏的衣物可能需要额外的洗涤剂来促进洗涤，对吗？
 

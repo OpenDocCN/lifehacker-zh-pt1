@@ -1,6 +1,6 @@
 # 为什么你不应该过度道歉，应该说些什么
 
-> 原文:[https://life hacker . com/why-you-should-not-over-sorry-and-the-say-instea-1847405197](https://lifehacker.com/why-you-shouldnt-over-apologize-and-what-to-say-instea-1847405197)
+> 原文：<https://lifehacker.com/why-you-shouldnt-over-apologize-and-what-to-say-instea-1847405197>
 
 对一些人来说，很容易对任何感觉到的不便过度道歉——或者近乎卑躬屈膝。如果你去电影院见朋友迟到了，你可能会气喘吁吁地说，“我是*所以*很抱歉，”好像给你留一个完美的座位是从开始就非常重要。
 
@@ -12,11 +12,11 @@ Watch
 
 道歉看起来像是减轻责备或承认做错了事的责任的一种简单方式，不管这件事有多小。但是那些为每一件小事道歉的人，无论是午餐约会迟到五分钟，还是在电梯里按错了楼层，或者是不小心撞到了别人，实际上似乎缺乏自尊。
 
-这是心理学家凯利·亨德里克斯在2019年 告诉 [Psych Central的话，他解释说:“那些过度道歉的人经常觉得自己是别人的负担，好像他们的想要和需要不重要。”](https://psychcentral.com/lib/why-you-cant-stop-apologizing-even-when-youre-clearly-not-at-fault#1) [小说家卡罗琳·莱维特](https://www.psychologytoday.com/us/blog/runs-in-the-family/202107/i-apologize-over-apologizing) 最近描述了她过度道歉的倾向是一种心理盔甲，用来抵挡她经常感受到的责备感:
+这是心理学家凯利·亨德里克斯在 2019 年 告诉 [Psych Central 的话，他解释说:“那些过度道歉的人经常觉得自己是别人的负担，好像他们的想要和需要不重要。”](https://psychcentral.com/lib/why-you-cant-stop-apologizing-even-when-youre-clearly-not-at-fault#1) [小说家卡罗琳·莱维特](https://www.psychologytoday.com/us/blog/runs-in-the-family/202107/i-apologize-over-apologizing) 最近描述了她过度道歉的倾向是一种心理盔甲，用来抵挡她经常感受到的责备感:
 
 > 对我来说，我总是觉得任何时候都会有人对我大喊大叫，责备我或嘲笑我，提前道歉可以减轻打击，甚至像一个停止信号。
 
-亨德里克斯指出，有时，一种需要看起来像个好人的感觉——或对可能不是好人的不安全感——可能会促使一个人不必要地道歉。尽管如此，有各种各样的原因可能迫使一个人在loop上道歉，所以这种行为不能对每个人都归结为一个问题。尽管如此，缺乏自信和低自尊是一个普遍的主题。
+亨德里克斯指出，有时，一种需要看起来像个好人的感觉——或对可能不是好人的不安全感——可能会促使一个人不必要地道歉。尽管如此，有各种各样的原因可能迫使一个人在 loop 上道歉，所以这种行为不能对每个人都归结为一个问题。尽管如此，缺乏自信和低自尊是一个普遍的主题。
 
 ## 说什么来代替“对不起”
 

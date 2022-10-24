@@ -1,6 +1,6 @@
 # 为什么比特犬不能很好地游泳，以及在带你的狗下水之前需要知道的其他事情
 
-> 原文:[https://life hacker . com/why-pitball-cant-swim-and-other-things-to-know-before-1847018624](https://lifehacker.com/why-pitbulls-cant-swim-and-other-things-to-know-before-1847018624)
+> 原文：<https://lifehacker.com/why-pitbulls-cant-swim-and-other-things-to-know-before-1847018624>
 
 每个人都喜欢泳池里的狗。看着一只小狗戏水，鼻子露出水面，这是一种如此受欢迎的消遣，我们甚至以它的名字命名了一种泳姿。然而，这并不意味着你应该假设你可以不穿救生衣就把任何一只狗扔进游泳池，认为本能会占上风——事实证明，并不是所有的狗都容易游泳，在你带着你的狗狗在游泳池边闲逛、在海滩上编排一个夏天的照片或在河里嬉戏之前，你必须考虑许多事情。
 
@@ -10,7 +10,7 @@ Watch
 
 有些狗是天生的运动员，会喜欢上一片水域，就好像水中散落着漂浮的熏肉一样。其他人...没有那么多，这是你带它们去游泳之前要注意的事情。许多最优秀的游泳运动员都是纯种的，专门为水中狩猎而培育(你不能告诉我新斯科舍鸭毛猎犬、奥达猎犬或葡萄牙水犬的存在是出于任何原因，除了它们名字中所描述的明确目的)。
 
-一旦你偏离了在水中自然舒适的狗的名单，记住你的小狗在游泳时可能需要一些帮助。正如Michele Godlevski， [职业训犬师告诉美国养犬俱乐部](https://www.akc.org/expert-advice/health/can-all-dogs-swim-safety-and-training-tips-for-dog-swimming/) 的那样，你的狗的游泳能力取决于它的体型。“有吗...有些品种的体重分布使得它们在没有救生衣的情况下无法游得很好，”戈德莱夫斯基说。例如
+一旦你偏离了在水中自然舒适的狗的名单，记住你的小狗在游泳时可能需要一些帮助。正如 Michele Godlevski， [职业训犬师告诉美国养犬俱乐部](https://www.akc.org/expert-advice/health/can-all-dogs-swim-safety-and-training-tips-for-dog-swimming/) 的那样，你的狗的游泳能力取决于它的体型。“有吗...有些品种的体重分布使得它们在没有救生衣的情况下无法游得很好，”戈德莱夫斯基说。例如
 
 [斗牛犬是优秀的滑板运动员](https://www.youtube.com/watch?v=EVnzXA9b7Ww) ，但是它们的重心低使得游泳困难， [它们扁平的脸、敦实的身材、短腿](https://www.hillspet.com/dog-care/play-exercise/dog-breeds-that-cant-swim) 也是如此。同样的生物因素意味着许多比特犬(也就是美国比特犬)在游 时会有困难，即使它们喜欢这样做，因为它们的尾部在水中的位置会比它们的头部高，这造成了一个明显的问题，特别是当它们开始疲惫时，[PitBullTribe.com](https://pitbulltribe.com/swim)指出。根据狗粮制造商希尔公司的说法，哈巴狗也不能游得很好，因为它们的脸型使它们很难将水挡在鼻子外面，而短腿品种如柯基犬和大型犬将很难呆在水面上。(希尔思已经集合了一长串在陆地上生活更好的狗。)
 
@@ -22,7 +22,7 @@ Watch
 
 如果你的狗不自然地兴致勃勃地跳进游泳池，你必须通过一个渐进的过程让它们适应水。因为有些狗似乎发现水是一个奇怪的环境，你必须，呃，小心行事。
 
-[Puppyleaks建议](https://www.puppyleaks.com/swimming-safety-tips/) 从浅水区开始，用他们最喜欢的玩具温柔地哄着你的狗游得更远——但前提是它们看起来足够舒适，可以自己继续前进:
+[Puppyleaks 建议](https://www.puppyleaks.com/swimming-safety-tips/) 从浅水区开始，用他们最喜欢的玩具温柔地哄着你的狗游得更远——但前提是它们看起来足够舒适，可以自己继续前进:
 
 > 鼓励你的狗跟着你进入浅水区。当他跟随你时赞美他，并不断鼓励他跟随你。一旦你的狗在浅水中看起来很舒服，你可以试着用它最喜欢的玩具哄它出去一点。
 
@@ -30,7 +30,7 @@ Watch
 
 ## 带你的狗去游泳之前，先了解水的情况
 
-注意水温，因为过冷会导致肌肉拉伤，称为 [冷尾或柔软尾。](https://www.aaha.org/your-pet/pet-owner-education/ask-aaha/Limber-Tail-in-Dogs/) 根据Godlevski的说法，一个很好的经验法则是确保水和空气的温度结合起来至少达到100华氏度。
+注意水温，因为过冷会导致肌肉拉伤，称为 [冷尾或柔软尾。](https://www.aaha.org/your-pet/pet-owner-education/ask-aaha/Limber-Tail-in-Dogs/) 根据 Godlevski 的说法，一个很好的经验法则是确保水和空气的温度结合起来至少达到 100 华氏度。
 
 让你的狗在外出游泳时喝水似乎无害，但它们真的不应该喝大多数水体中的水——尤其是湖泊、池塘或海洋中的水。如果水中特别富含蓝色或绿色藻类，这是另一个迹象，表明你可能想把你的狗留在陆地上。如果你在一条干净得足够人类饮用的淡水溪(或类似的地方)，只要确保你的狗不要过度饮水，因为这可能会导致它们开始呕吐。并时刻监视该地区可能存在危险的其他动物和野生动物。
 

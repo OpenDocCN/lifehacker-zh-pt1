@@ -1,6 +1,6 @@
 # 有一件事你应该永远和熟食拼盘一起吃
 
-> 原文:[https://life hacker . com/the-one-thing-you-should-always-serve-with charcuterie-1849440911](https://lifehacker.com/the-one-thing-you-should-always-serve-with-charcuterie-1849440911)
+> 原文：<https://lifehacker.com/the-one-thing-you-should-always-serve-with-charcuterie-1849440911>
 
 作为派对主持人，你处于游戏的顶端，这意味着你知道如何让大画面变得生动，并且每个细节都被整理出来。无论是食物、衣帽间，还是备用冰块，你的客人都应该能够玩得开心，本能地按照你的计划做每一件事。这就是为什么你应该用一个空碗来盛你的肉和奶酪。
 

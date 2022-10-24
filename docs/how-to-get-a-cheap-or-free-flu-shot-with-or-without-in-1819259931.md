@@ -1,8 +1,8 @@
 # 如何免费注射流感疫苗，有无保险
 
-> 原文:[https://life hacker . com/how-to-get-a cheap-or-free-flu-shot with-or-not-in-1819259931](https://lifehacker.com/how-to-get-a-cheap-or-free-flu-shot-with-or-without-in-1819259931)
+> 原文：<https://lifehacker.com/how-to-get-a-cheap-or-free-flu-shot-with-or-without-in-1819259931>
 
-流感季节即将来临，今年注射流感疫苗比以往任何时候都更重要。尽管 [任何时候都比不做](https://vitals.lifehacker.com/is-there-an-optimal-time-to-get-your-flu-shot-this-year-1844907774) 好，但理想情况下你会在10月底之前搞定一个。因此，我们为您提供了最便宜、最简单的疫苗接种方法——无论有无保险——外加一些额外奖励。
+流感季节即将来临，今年注射流感疫苗比以往任何时候都更重要。尽管 [任何时候都比不做](https://vitals.lifehacker.com/is-there-an-optimal-time-to-get-your-flu-shot-this-year-1844907774) 好，但理想情况下你会在 10 月底之前搞定一个。因此，我们为您提供了最便宜、最简单的疫苗接种方法——无论有无保险——外加一些额外奖励。
 
 ### 流感疫苗通常是免费的
 
@@ -16,19 +16,19 @@
 
 也就是说，药店是最容易和最普遍的接种流感疫苗的地方，尽管有些药店不会给儿童接种疫苗——所以你可能想提前打电话问问。药店流感疫苗通常由保险 覆盖 [，如果你觉得有必要或者自己支付更方便，它们通常也是最便宜的选择。](https://lifehacker.com/why-everybody-wants-to-give-you-a-free-flu-shot-1839946782)
 
-如果你是自掏腰包，我们找到的最便宜的药房流感疫苗仍然是在 [好市多](https://www.costco.com/Pharmacy/adult-immunization-program.html) ，那里预防四种流感的四价疫苗售价19.99美元。没有批量折扣，哈哈，但是没有好事多的会员资格你也可以打针——让门口的服务员知道你在药店，他们会让你进去的。
+如果你是自掏腰包，我们找到的最便宜的药房流感疫苗仍然是在 [好市多](https://www.costco.com/Pharmacy/adult-immunization-program.html) ，那里预防四种流感的四价疫苗售价 19.99 美元。没有批量折扣，哈哈，但是没有好事多的会员资格你也可以打针——让门口的服务员知道你在药店，他们会让你进去的。
 
-否则，一针流感疫苗通常要自掏腰包30-40美元；GoodRx有一张 的图表，显示了今年热门连锁药店的价格。如果你超过65岁，一剂 [高剂量(有时被称为“高级剂量”)流感疫苗可能会给你更好的保护](https://lifehacker.com/do-you-need-a-high-dose-flu-shot-1845169504) ，但那些往往价格更高，在50-70美元之间。
+否则，一针流感疫苗通常要自掏腰包 30-40 美元；GoodRx 有一张 的图表，显示了今年热门连锁药店的价格。如果你超过 65 岁，一剂 [高剂量(有时被称为“高级剂量”)流感疫苗可能会给你更好的保护](https://lifehacker.com/do-you-need-a-high-dose-flu-shot-1845169504) ，但那些往往价格更高，在 50-70 美元之间。
 
 许多药房在注射流感疫苗的同时提供额外折扣。其中一些仅限于商业(非政府)保险计划覆盖的疫苗。
 
-*   [塔吉特的](https://www.cvs.com/immunizations/flu?target=true) 店内药店由CVS经营，在那里打针时提供5美元塔吉特优惠券。
-*   当你注射流感疫苗时，CVS提供了一张5-20美元的优惠券 。
-*   [西夫韦](http://www.safeway.com/ShopStores/Immunizations.page) 和 [其他拥有艾伯森药房的商店](https://clark.com/health-health-care/best-flu-shot-deals) 在您接种流感疫苗时，为您的下一次食品订单提供10%的折扣。
+*   [塔吉特的](https://www.cvs.com/immunizations/flu?target=true) 店内药店由 CVS 经营，在那里打针时提供 5 美元塔吉特优惠券。
+*   当你注射流感疫苗时，CVS 提供了一张 5-20 美元的优惠券 。
+*   [西夫韦](http://www.safeway.com/ShopStores/Immunizations.page) 和 [其他拥有艾伯森药房的商店](https://clark.com/health-health-care/best-flu-shot-deals) 在您接种流感疫苗时，为您的下一次食品订单提供 10%的折扣。
 
-*   Publix为你的流感疫苗提供一张价值10美元的礼品卡。
+*   Publix 为你的流感疫苗提供一张价值 10 美元的礼品卡。
 *   沃尔格林 不提供折扣，但是他们有 [注射疫苗项目](https://www.walgreens.com/pharmacy/immunization/shot_at_life.jsp) ，在那里你购买的疫苗可以资助世界各地有需要的儿童接种疫苗。如果你填好这张表格，他们还会为加入退伍军人管理局的退伍军人提供免费注射。
 
 在你开始评论“我从未得过流感，所以我为什么要注射流感疫苗？”或者“嗯，流感没那么严重——只是下班回家几天！”或者“我已经戴着面具了！”或任何其他反疫苗的废话，请记住，能够接种疫苗的健康人绝对应该接种疫苗，因为你的免疫力保护了你周围不能接种疫苗的人，而对他们来说，流感可能是致命的。
 
-本帖最初发表于2017年，并于2020年9月更新了更多最新信息。
+本帖最初发表于 2017 年，并于 2020 年 9 月更新了更多最新信息。

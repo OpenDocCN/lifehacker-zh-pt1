@@ -1,6 +1,6 @@
 # 你可以用健康有效的方式发泄你的愤怒
 
-> 原文:[https://life hacker . com/you-can-let-out-you-rage-in-healthy-productive-ways-1849619494](https://lifehacker.com/you-can-let-out-your-rage-in-healthy-productive-ways-1849619494)
+> 原文：<https://lifehacker.com/you-can-let-out-your-rage-in-healthy-productive-ways-1849619494>
 
 应对愤怒没有唯一正确的方式，但肯定有错误的方式。讽刺、被动侵犯、公然侵犯——有更健康的方法来释放一些压力。
 

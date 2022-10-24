@@ -1,12 +1,12 @@
-# 删除所有旧iPhone截图的最简单方法
+# 删除所有旧 iPhone 截图的最简单方法
 
-> 原文:[https://life hacker . com/the-easy-way-to-delete-all-your-old-iphone-screensho-1849523788](https://lifehacker.com/the-easiest-way-to-delete-all-your-old-iphone-screensho-1849523788)
+> 原文：<https://lifehacker.com/the-easiest-way-to-delete-all-your-old-iphone-screensho-1849523788>
 
-你大概每天都会截图，不管是你想记住的地点，你想保存的图片，还是你想分享的文字线程。Y 我们的照片应用很可能充斥着过去几个月的截图，如果不是几年的话，挤占了你的照片库，占用了你iPhone上的存储空间和 iCloud 。
+你大概每天都会截图，不管是你想记住的地点，你想保存的图片，还是你想分享的文字线程。Y 我们的照片应用很可能充斥着过去几个月的截图，如果不是几年的话，挤占了你的照片库，占用了你 iPhone 上的存储空间和 iCloud 。
 
 Watch
 
-很明显为什么那些截图还在:去掉它们很乏味。但是 [t 他的来自Gadget Hacks](https://ios.gadgethacks.com/how-to/make-your-iphone-auto-delete-old-screenshots-so-your-photos-app-doesnt-become-hot-mess-0384935/) 的iOS快捷方式旨在解决这个问题，让你只需轻轻一点就可以删除你所有的截图(不包括最近的截图、隐藏的照片和收藏夹)。
+很明显为什么那些截图还在:去掉它们很乏味。但是 [t 他的来自 Gadget Hacks](https://ios.gadgethacks.com/how-to/make-your-iphone-auto-delete-old-screenshots-so-your-photos-app-doesnt-become-hot-mess-0384935/) 的 iOS 快捷方式旨在解决这个问题，让你只需轻轻一点就可以删除你所有的截图(不包括最近的截图、隐藏的照片和收藏夹)。
 
 ## 如何同时删除你所有的旧截图
 

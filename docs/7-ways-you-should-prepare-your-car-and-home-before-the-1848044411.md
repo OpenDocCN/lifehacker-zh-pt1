@@ -1,6 +1,6 @@
-# 下雪前你应该准备好汽车和家的7种方法
+# 下雪前你应该准备好汽车和家的 7 种方法
 
-> 原文:[https://life hacker . com/7-ways-you-should-prepare-your-car-and-home 1848044411](https://lifehacker.com/7-ways-you-should-prepare-your-car-and-home-before-the-1848044411)
+> 原文：<https://lifehacker.com/7-ways-you-should-prepare-your-car-and-home-before-the-1848044411>
 
 随着冬季天气的临近，为清除冰雪做准备是一项必要的准备工作。挖出你的车，清理路径和人行道可能会令人沮丧和耗时，更不用说对你的下背部的艰难，但如果你提前一点考虑，你可以在这个季节为自己节省一些时间和麻烦。
 
@@ -10,7 +10,7 @@
 
 为了增加一些额外的牵引力，让车辆离开停车位，一些人使用沙子，但如果你没有这些东西，猫砂或锯屑会很有帮助。在冰雪季节，在你的车里准备一些牵引材料，连同你的雪刷和刮刀，是一个好主意。你也可以使用这种方法在你需要行走的光滑表面上获得临时牵引力，但是记住一旦雪或冰覆盖了它，牵引力就会消失。
 
-如果你有结冰的人行道或台阶，你可以自己制作除冰器。将一茶匙洗洁精、一汤匙外用酒精和一加仑水混合在一起，就能制成一种不会毁坏你的混凝土或掏空你钱包的除冰剂。这个食谱也可以用来给你的挡风玻璃和门锁除冰。将一杯酒精和一杯水混合，并在喷雾瓶中加入一茶匙洗洁精，效果最佳。如果你没有外用酒精，3份白醋和1份水的混合物是不错的替代品。
+如果你有结冰的人行道或台阶，你可以自己制作除冰器。将一茶匙洗洁精、一汤匙外用酒精和一加仑水混合在一起，就能制成一种不会毁坏你的混凝土或掏空你钱包的除冰剂。这个食谱也可以用来给你的挡风玻璃和门锁除冰。将一杯酒精和一杯水混合，并在喷雾瓶中加入一茶匙洗洁精，效果最佳。如果你没有外用酒精，3 份白醋和 1 份水的混合物是不错的替代品。
 
 通过给自己更好的杠杆，你可以让铲雪不那么累。你可以在你的铲子上再加一个 [可拆卸手柄](https://www.acehardware.com/departments/lawn-and-garden/snow-removal-and-equipment/snow-shovels-and-pushers/7465958?store=17570&gclid=CjwKCAiAm7OMBhAQEiwArvGi3EWTGNXRN5-JLg8cCANNuo91ASKgI-3cK6ayRosNXTzlsoBcmLxfnRoCqrwQAvD_BwE&gclsrc=aw.ds) 以获得更好的抓地力。还有 [雪铲](https://www.lowes.com/pd/True-Temper-23-5-in-Poly-Snow-Shovel-with-55-in-Steel-Handle/50288463?irclickid=StMyDgwVOxyIWfQSfeyDyzh9UkGxSc1FRxtMwo0&irgwc=1&cm_mmc=aff-_-c-_-prd-_-mdv-_-gdy-_-all-_-0-_-197432-_-0) 被设计成背上更轻松。根据你需要移动的雪量，最好买一台扫雪机。近年来，随着市场上电动甚至电池驱动的模型的出现，这些已经走了很长的路。要考虑的重要事情是你的机器的容量限制。检查制造商标签的最大容量，选择一个适合您的需求。
 

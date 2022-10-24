@@ -1,8 +1,8 @@
 # 那些无聊的太阳能灯可以被做成漂亮的东西
 
-> 原文:[https://life hacker . com/thes-boring-solar-pathway-lights-can-make-to-some-1849176580](https://lifehacker.com/those-boring-solar-pathway-lights-can-be-made-into-some-1849176580)
+> 原文：<https://lifehacker.com/those-boring-solar-pathway-lights-can-be-made-into-some-1849176580>
 
-一个友好的太阳能驱动的光柱是任何门廊或露台的受欢迎的附加物——和 s 由于太阳能led的组件已经变得相对便宜，不难找到负担得起的太阳能走道灯、灯串或其他小型太阳能灯具。它们通常没有太多的种类，但是，除了通常的那种千篇一律的风格，所以，如果你想要更有趣或者更时髦的东西，你可能会想要DIY。幸运的是，通过一些简单的工具和材料，将普通的太阳能灯变成更令人兴奋的焦点并不困难。以下是如何解决你自己的太阳能灯升级项目。
+一个友好的太阳能驱动的光柱是任何门廊或露台的受欢迎的附加物——和 s 由于太阳能 led 的组件已经变得相对便宜，不难找到负担得起的太阳能走道灯、灯串或其他小型太阳能灯具。它们通常没有太多的种类，但是，除了通常的那种千篇一律的风格，所以，如果你想要更有趣或者更时髦的东西，你可能会想要 DIY。幸运的是，通过一些简单的工具和材料，将普通的太阳能灯变成更令人兴奋的焦点并不困难。以下是如何解决你自己的太阳能灯升级项目。
 
 Watch
 
@@ -24,4 +24,4 @@ Watch
 
 ### 可能性是无限的
 
-一旦你开始将这些路径灯用于其他事情，你将开始看到它们在每个普通物体中的新用途。你可以在装满海玻璃或彩色玻璃球的罐子顶部使用太阳能灯来制作灯笼。你把一些 [太阳能灯](https://www.walmart.com/ip/Upgraded-Version-Solar-String-Lights-Outdoor-Waterproof-72Ft-200-LEDs-Powered-Fairy-Decoration-Copper-Wire-8-Modes-Patio-Yard-Valentine-s-Day-Christm/113775672?wmlspartner=wlpa&selectedSellerId=2521)放在灯柱 [的球形灯](https://www.lamppostglobes.com/8-Inch-Frosted-Acrylic-Lamp-Post-Globe-with-391-Inch-Solid-Flange_p_605.html?gclid=CjwKCAjw2rmWBhB4EiwAiJ0mtdPAiVL5uBZ2AFPXJr5PLpTC5kaeW7qArAjfZmviX4l2E6rtVK0_mxoCVScQAvD_BwE) 里，为你的花园创造一个发光的球体。你甚至可以在你的南瓜灯顶部放置一盏太阳能灯，作为万圣节的安全、低成本、太阳能照明的南瓜。升级太阳能LED灯唯一需要的两个因素是阳光和想象力。
+一旦你开始将这些路径灯用于其他事情，你将开始看到它们在每个普通物体中的新用途。你可以在装满海玻璃或彩色玻璃球的罐子顶部使用太阳能灯来制作灯笼。你把一些 [太阳能灯](https://www.walmart.com/ip/Upgraded-Version-Solar-String-Lights-Outdoor-Waterproof-72Ft-200-LEDs-Powered-Fairy-Decoration-Copper-Wire-8-Modes-Patio-Yard-Valentine-s-Day-Christm/113775672?wmlspartner=wlpa&selectedSellerId=2521)放在灯柱 [的球形灯](https://www.lamppostglobes.com/8-Inch-Frosted-Acrylic-Lamp-Post-Globe-with-391-Inch-Solid-Flange_p_605.html?gclid=CjwKCAjw2rmWBhB4EiwAiJ0mtdPAiVL5uBZ2AFPXJr5PLpTC5kaeW7qArAjfZmviX4l2E6rtVK0_mxoCVScQAvD_BwE) 里，为你的花园创造一个发光的球体。你甚至可以在你的南瓜灯顶部放置一盏太阳能灯，作为万圣节的安全、低成本、太阳能照明的南瓜。升级太阳能 LED 灯唯一需要的两个因素是阳光和想象力。

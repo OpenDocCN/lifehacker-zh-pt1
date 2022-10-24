@@ -1,14 +1,14 @@
-# 电影史上最震撼人心的42个特效镜头
+# 电影史上最震撼人心的 42 个特效镜头
 
-> 原文:[https://life hacker . com/42-of-the-most-mind-blowing-effects-sequences-I-1847572517](https://lifehacker.com/42-of-the-most-mind-blowing-special-effects-sequences-i-1847572517)
+> 原文：<https://lifehacker.com/42-of-the-most-mind-blowing-special-effects-sequences-i-1847572517>
 
-诚然，我们已经有点厌倦了。数字效果在我们的大片中无处不在，以至于我们开始期待电影中的不可能。我们的敬畏感可能已经有点迟钝了，即使我们很容易失望(尽管我没有看到 [*猫*](https://lifehacker.com/35-box-office-flops-that-are-actually-worth-watching-1846981349)*中的 [人猫CGI怪物取悦任何时代的任何人)。我们看电影是为了追求精彩构建的瞬间——追逐我们在喜爱的电影中看到的最酷的东西。](https://lifehacker.com/35-box-office-flops-that-are-actually-worth-watching-1846981349)*
+诚然，我们已经有点厌倦了。数字效果在我们的大片中无处不在，以至于我们开始期待电影中的不可能。我们的敬畏感可能已经有点迟钝了，即使我们很容易失望(尽管我没有看到 [*猫*](https://lifehacker.com/35-box-office-flops-that-are-actually-worth-watching-1846981349)*中的 [人猫 CGI 怪物取悦任何时代的任何人)。我们看电影是为了追求精彩构建的瞬间——追逐我们在喜爱的电影中看到的最酷的东西。](https://lifehacker.com/35-box-office-flops-that-are-actually-worth-watching-1846981349)*
 
 *在真正的艺术家和工匠手中，这些时刻仍然会发生。震撼我们心灵的场景，也常常让我们思考:“他们到底是怎么做到的？”这些是过去和现在的一些时刻，希望有更多令人敬畏的特效出现。*
 
  *[https://lifehacker.com/embed/inset/iframe?id=youtube-list-73ytL_HAwt8%2FPLZbXA4lyCtqrZkxzhgxIeFB-n0qObJAZV&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-list-73ytL_HAwt8%2FPLZbXA4lyCtqrZkxzhgxIeFB-n0qObJAZV&start=0) 
 
-子弹时间(bullet time)是古老的延时摄影技术的(彻底)改造，它允许电影制作人放慢时间，并以以前不可能的方式从每个角度跟踪动作。这种效果已经变得无处不在，但它始于沃卓斯基夫妇和Manex视觉特效公司的向导。
+子弹时间(bullet time)是古老的延时摄影技术的(彻底)改造，它允许电影制作人放慢时间，并以以前不可能的方式从每个角度跟踪动作。这种效果已经变得无处不在，但它始于沃卓斯基夫妇和 Manex 视觉特效公司的向导。
 
 **流媒体播放地点:** HBO Max
 
@@ -20,7 +20,7 @@
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-Q16SaZgExz8&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-Q16SaZgExz8&start=0) 
 
-瑞恩·库格勒的电影获得了几项VFX奖，部分原因是其令人印象深刻的打斗场景(其中一些场景的 [比其他](https://www.youtube.com/watch?v=taj3bVZ6tdM&ab_channel=blacktreetv) 更成功)。然而，从田园乡村到瓦坎达本土的最初过渡尤其令人惊叹。
+瑞恩·库格勒的电影获得了几项 VFX 奖，部分原因是其令人印象深刻的打斗场景(其中一些场景的 [比其他](https://www.youtube.com/watch?v=taj3bVZ6tdM&ab_channel=blacktreetv) 更成功)。然而，从田园乡村到瓦坎达本土的最初过渡尤其令人惊叹。
 
 **在哪里流媒体:**迪士尼+
 
@@ -32,13 +32,13 @@
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-tcjmJavrOvI&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-tcjmJavrOvI&start=0) 
 
-突破性的和仍然有效的，相对较少的 *T2* 的屏幕时间给了3D数字效果。不过，变形罗伯特·帕特里克的那几分钟令人难以置信地难忘。
+突破性的和仍然有效的，相对较少的 *T2* 的屏幕时间给了 3D 数字效果。不过，变形罗伯特·帕特里克的那几分钟令人难以置信地难忘。
 
 **流向哪里:**网飞
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-PJlmYh27MHg&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-PJlmYh27MHg&start=0) 
 
-我们已经花了几十年来追踪与恐龙相关的CGI的进展，但最初的*侏罗纪公园*仍然令人拍案叫绝。
+我们已经花了几十年来追踪与恐龙相关的 CGI 的进展，但最初的*侏罗纪公园*仍然令人拍案叫绝。
 
 **流媒体播放地点:** HBO Max，黄金视频
 
@@ -50,7 +50,7 @@
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-QL0YGCgCEnc&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-QL0YGCgCEnc&start=0) 
 
-第一部《星球大战》前传，不管是好是坏，都是技术的胜利，使用了专为将乔治·卢卡斯头脑中的图像搬上银幕而设计的计算机系统。由超过300个特效镜头组成的飞梭比赛是一个亮点——也许是这部电影中大多数人都同意值得一看的唯一部分。
+第一部《星球大战》前传，不管是好是坏，都是技术的胜利，使用了专为将乔治·卢卡斯头脑中的图像搬上银幕而设计的计算机系统。由超过 300 个特效镜头组成的飞梭比赛是一个亮点——也许是这部电影中大多数人都同意值得一看的唯一部分。
 
 **在哪里流媒体:**迪士尼+
 
@@ -62,19 +62,19 @@
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-X-KDt-G1pJ0&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-X-KDt-G1pJ0&start=0) 
 
-正如《盗梦空间》中有很棒的CGI一样，也有一些令人印象深刻的实际工作——包括这个令人难忘的打斗场景，大部分是在一个旋转室和演员穿着吊带的情况下完成的。
+正如《盗梦空间》中有很棒的 CGI 一样，也有一些令人印象深刻的实际工作——包括这个令人难忘的打斗场景，大部分是在一个旋转室和演员穿着吊带的情况下完成的。
 
 **流媒体播放地点:**网飞，HBO Max
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-apgutiIifJQ&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-apgutiIifJQ&start=0) 
 
-作为近年来拍摄得最好的电影之一的一部分，这个来自 *The Green Knight* 的片段不一定是一个创新的技术胜利，但它是惊人的，证明了CGI在使用得当的情况下仍然可以让我们惊叹。
+作为近年来拍摄得最好的电影之一的一部分，这个来自 *The Green Knight* 的片段不一定是一个创新的技术胜利，但它是惊人的，证明了 CGI 在使用得当的情况下仍然可以让我们惊叹。
 
 **流向何处:**数字租赁(目前价格较高)
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-avRdYf78kLk&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-avRdYf78kLk&start=0) 
 
-在一部充满大特效的电影中，这似乎是一件小事，但这一序列，即我们意识到我们刚刚看到的一切都(不可能)反映在浴室的镜子中，在当时受到了FX粉丝的热烈讨论。不知何故，反复观看只会让它变得更加令人费解。
+在一部充满大特效的电影中，这似乎是一件小事，但这一序列，即我们意识到我们刚刚看到的一切都(不可能)反映在浴室的镜子中，在当时受到了 FX 粉丝的热烈讨论。不知何故，反复观看只会让它变得更加令人费解。
 
 **在哪里流媒体:** Prime Video，Hulu，Sling TV
 
@@ -122,7 +122,7 @@
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-uuYyfHeWYTI&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-uuYyfHeWYTI&start=0) 
 
-1981年是狼人喜剧的好年景。罗伯·博汀也为《那件事》做了生物特效，他帮助导演乔·丹堤把年轻的罗伯特·皮卡多变成了一只真正可怕的野兽。
+1981 年是狼人喜剧的好年景。罗伯·博汀也为《那件事》做了生物特效，他帮助导演乔·丹堤把年轻的罗伯特·皮卡多变成了一只真正可怕的野兽。
 
 **在哪里流媒体:** Prime Video，Pluto TV
 
@@ -176,37 +176,37 @@
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-list-uOsxXi-tu_U%2FPLZbXA4lyCtqprAFCLg5-3dDc-pSVdfLxb&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-list-uOsxXi-tu_U%2FPLZbXA4lyCtqprAFCLg5-3dDc-pSVdfLxb&start=0) 
 
-现在看起来可能不太像，但这是电影中第一个计算机生成的真实感角色，由ilm创作。
+现在看起来可能不太像，但这是电影中第一个计算机生成的真实感角色，由 ilm 创作。
 
 **在哪里流媒体:** Hulu，派拉蒙+，Prime Video，Sling TV
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-52XlyMbxxh8&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-52XlyMbxxh8&start=0) 
 
-同样，ILM和(皮克斯联合创始人)罗兰·卡彭特创作了《可汗之怒》的《创世纪》系列，这是一部长篇电影中第一个完全由计算机生成的动画系列。
+同样，ILM 和(皮克斯联合创始人)罗兰·卡彭特创作了《可汗之怒》的《创世纪》系列，这是一部长篇电影中第一个完全由计算机生成的动画系列。
 
 **在哪里流媒体:**黄金视频，吊索电视
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-RbNrkazI-AY&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-RbNrkazI-AY&start=0) 
 
-我们再一次谈论由ILM公司创造的效果序列，并且，再一次，这是一个在今天不那么令人印象深刻但在20世纪80年代具有开创性的效果:那是一个计算机生成的动物，这在以前的故事片中从未实现过。
+我们再一次谈论由 ILM 公司创造的效果序列，并且，再一次，这是一个在今天不那么令人印象深刻但在 20 世纪 80 年代具有开创性的效果:那是一个计算机生成的动物，这在以前的故事片中从未实现过。
 
 **流媒体播放地点:** HBO Max
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-ePzOShBS9uU&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-ePzOShBS9uU&start=0) 
 
-关于咕鲁的个性在多大程度上是安迪·席克斯表演的产物，而不是Weta Digital的艺术家们努力的结果，还有一些争论，但不管这条线在哪里，他都是一个非凡的创造——一个真实表演的CGI角色。
+关于咕鲁的个性在多大程度上是安迪·席克斯表演的产物，而不是 Weta Digital 的艺术家们努力的结果，还有一些争论，但不管这条线在哪里，他都是一个非凡的创造——一个真实表演的 CGI 角色。
 
 **流媒体播放地点:** HBO Max
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-SLD9xzJ4oeU&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-SLD9xzJ4oeU&start=0) 
 
-和咕噜一样，浩克是一个需要显著数字增强的主要角色(模拟的，皮肤彩绘的健美运动员，路线在2012年已经过时)。浩克之前已经尝试过几次，结果不一，但是在这里他们成功地创造了一个令人信服的马克·鲁弗洛式的人妖。
+和咕噜一样，浩克是一个需要显著数字增强的主要角色(模拟的，皮肤彩绘的健美运动员，路线在 2012 年已经过时)。浩克之前已经尝试过几次，结果不一，但是在这里他们成功地创造了一个令人信服的马克·鲁弗洛式的人妖。
 
 **在哪里流媒体:**迪士尼+
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-sDte-axR9l8&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-sDte-axR9l8&start=0) 
 
-这两部Tollywood *Baahubali* 电影有一种包括厨房水槽在内的一切的能量，让人很难不喜欢。它们充满了疯狂的动作场面，但也许没有比这更疯狂的了，来自第二部电影中的高潮围攻。
+这两部 Tollywood *Baahubali* 电影有一种包括厨房水槽在内的一切的能量，让人很难不喜欢。它们充满了疯狂的动作场面，但也许没有比这更疯狂的了，来自第二部电影中的高潮围攻。
 
 **流向哪里:**网飞
 
@@ -224,13 +224,13 @@
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-W9Tdw5nG4dQ&start=76](https://lifehacker.com/embed/inset/iframe?id=youtube-video-W9Tdw5nG4dQ&start=76) 
 
-ILM必须创造全新的、定制的算法来生成预想标题风暴所需的复杂流体动力学，营销人员迅速(尽管可能很明智)在预告片中给出了这些算法。
+ILM 必须创造全新的、定制的算法来生成预想标题风暴所需的复杂流体动力学，营销人员迅速(尽管可能很明智)在预告片中给出了这些算法。
 
 **流向哪里:**数码租赁
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-GmjAp2eRDH0&start=28](https://lifehacker.com/embed/inset/iframe?id=youtube-video-GmjAp2eRDH0&start=28) 
 
-就在《完美风暴》的几年后，小特效公司Tweak Films进一步完善了流体动力学技术，这次将一场更大的风暴与即将毁灭的城市联系起来。
+就在《完美风暴》的几年后，小特效公司 Tweak Films 进一步完善了流体动力学技术，这次将一场更大的风暴与即将毁灭的城市联系起来。
 
 **流向哪里:**数码租赁
 

@@ -1,6 +1,6 @@
 # 如何在这个冬天最大限度地减少盐对汽车的损害
 
-> 原文:[https://life hacker . com/how-to-minimize-salt-damage-to-your car-this-winter-1846266041](https://lifehacker.com/how-to-minimize-salt-damage-to-your-car-this-winter-1846266041)
+> 原文：<https://lifehacker.com/how-to-minimize-salt-damage-to-your-car-this-winter-1846266041>
 
 冬天开车会很棘手，原因有很多。没有人喜欢刷掉车窗上的雪或刮去车窗上的冰， [挡风玻璃起雾](https://lifehacker.com/use-this-method-from-a-former-nasa-engineer-to-defog-yo-1845817132) 或 [破裂](https://lifehacker.com/how-to-prevent-your-windshield-from-cracking-this-winte-1846213476)——这都是在赛季开始前花时间给你的车做好防寒准备之后。
 
@@ -12,13 +12,13 @@ Watch
 
 有三种不同类型的道路盐(真空盐、岩石盐和海水盐)，它们通常是道路上使用的四种不同配方的一种成分:氯化钠、氯化镁、氯化钙和氯化钾。(你可以在这里了解更多关于 [的信息。](https://koyuncusalt.com/en/salt-library/are-there-different-types-of-road-salt) )
 
-此外，在一些地区，冬天来临之前，一种盐水就被放在路上了:这对安全很好，但对你的车尤其不好。如果你想了解更多关于为什么冬天道路上撒盐的科学知识，请阅读这篇来自Jalopnik 的 [文章。](https://jalopnik.com/this-is-why-salt-eats-your-car-1792692576)
+此外，在一些地区，冬天来临之前，一种盐水就被放在路上了:这对安全很好，但对你的车尤其不好。如果你想了解更多关于为什么冬天道路上撒盐的科学知识，请阅读这篇来自 Jalopnik 的 [文章。](https://jalopnik.com/this-is-why-salt-eats-your-car-1792692576)
 
 ### 盐对汽车有什么影响？
 
-为了简要概述道路盐分可能如何损害您的车辆，我们将把它交给康涅狄格州格拉斯顿伯里石油和服务公司的机械师克里斯·杰纳克，他最近接受了新闻8 关于这个话题的采访:
+为了简要概述道路盐分可能如何损害您的车辆，我们将把它交给康涅狄格州格拉斯顿伯里石油和服务公司的机械师克里斯·杰纳克，他最近接受了新闻 8 关于这个话题的采访:
 
-> “过去，当我们使用盐和沙子时，会生锈和腐蚀，但在过去的10多年里，有了氯化钙，车辆上的所有东西都在腐烂……腐烂的刹车线，腐烂的燃油管……燃油泵……一些框架腐烂了。任何有金属复合物的东西，这种化学物质都会进入，腐蚀它，把它腐蚀掉。”
+> “过去，当我们使用盐和沙子时，会生锈和腐蚀，但在过去的 10 多年里，有了氯化钙，车辆上的所有东西都在腐烂……腐烂的刹车线，腐烂的燃油管……燃油泵……一些框架腐烂了。任何有金属复合物的东西，这种化学物质都会进入，腐蚀它，把它腐蚀掉。”
 
 这个 [包括类似于](https://www.dmv.org/how-to-guides/road-salt.php) 的部分:
 
@@ -34,7 +34,7 @@ Watch
 
 ### 如何保护你的车免受盐害
 
-虽然不同的盐配方可能会比其他配方更快地造成损害，但不管你所在地区使用的是什么类型的，这些来自DMV.org的 [一般提示都是你的最佳选择:](https://www.dmv.org/how-to-guides/road-salt.php)
+虽然不同的盐配方可能会比其他配方更快地造成损害，但不管你所在地区使用的是什么类型的，这些来自 DMV.org 的 [一般提示都是你的最佳选择:](https://www.dmv.org/how-to-guides/road-salt.php)
 
 1.  每年冬天来临之前，给你的车打蜡。
 2.  开完车后，尽快把车上的盐弄掉。(即使你喜欢自己洗车，这也是去洗车的好借口。)

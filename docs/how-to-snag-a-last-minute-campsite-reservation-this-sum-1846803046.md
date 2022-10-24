@@ -1,8 +1,8 @@
 # 如何在这个夏天抢到最后一分钟的露营地预订
 
-> 原文:[https://life hacker . com/how-to-snag-a-last-minute-campus-reservation-this-sum-1846803046](https://lifehacker.com/how-to-snag-a-last-minute-campsite-reservation-this-sum-1846803046)
+> 原文：<https://lifehacker.com/how-to-snag-a-last-minute-campsite-reservation-this-sum-1846803046>
 
-虽然总是有人喜欢露营，但新冠肺炎疫情期间有限的旅行选择让人们睡在星空下(或帐篷里)，这些人以前不会考虑到这一点。尽管疫苗推出已经有几个月了，但是全国只有大约30%的人口接种了疫苗，所以并不是一切都恢复了“正常”，包括我们的旅行方式。
+虽然总是有人喜欢露营，但新冠肺炎疫情期间有限的旅行选择让人们睡在星空下(或帐篷里)，这些人以前不会考虑到这一点。尽管疫苗推出已经有几个月了，但是全国只有大约 30%的人口接种了疫苗，所以并不是一切都恢复了“正常”，包括我们的旅行方式。
 
 Watch
 

@@ -1,6 +1,6 @@
 # 和你的孩子一起尝试“行走的水”实验
 
-> 原文:[https://life hacker . com/try-the-walking-water-experience-with-your-kids-1846380142](https://lifehacker.com/try-the-walking-water-experiment-with-your-kids-1846380142)
+> 原文：<https://lifehacker.com/try-the-walking-water-experiment-with-your-kids-1846380142>
 
 很少有孩子能够拒绝一个好的科学实验，我总是发现最好的实验是那些容易建立的实验，使用你家里已经有的材料，对你来说就像对他们来说一样有趣。这也是我忍不住尝试这个来自 [PBS Kids](https://www.pbs.org/parents/crafts-and-experiments/experiment-with-walking-water) 的“走水”实验的原因——果然没有让人失望。
 
@@ -30,7 +30,7 @@ Watch
 
 **我和儿子在午饭前就把我们的设置好了，所以我们可以边吃边看结果。他为一个罐子选择黄色食用色素，为另一个罐子选择氖蓝色 。结果是一个可爱的黄色，绿色和蓝色的彩虹效果，颜色慢慢混合在一起。**
 
-**你可能考虑的其他颜色组合是黄色和红色，或者红色和蓝色。一旦你完成了，PBS Kids有更多 [的实验、手工艺和活动供这里](https://www.pbs.org/parents/activity-finder/ages-all/topics-all/shows-all/types-craft-and-experiment) 的家庭使用。**
+**你可能考虑的其他颜色组合是黄色和红色，或者红色和蓝色。一旦你完成了，PBS Kids 有更多 [的实验、手工艺和活动供这里](https://www.pbs.org/parents/activity-finder/ages-all/topics-all/shows-all/types-craft-and-experiment) 的家庭使用。**
 
 * * *
 

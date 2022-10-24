@@ -1,6 +1,6 @@
 # 把这些家庭维护项目交给你的孩子
 
-> 原文:[https://life hacker . com/hand-these-home-maintenance-projects-over-to-your-kids-1848243494](https://lifehacker.com/hand-these-home-maintenance-projects-over-to-your-kids-1848243494)
+> 原文：<https://lifehacker.com/hand-these-home-maintenance-projects-over-to-your-kids-1848243494>
 
 孩子是天生的帮手。如果家里有工作要做，他们很有可能会主动帮忙。我们有一个按年龄分类的孩子家务指南，但是他们也喜欢偶尔帮助自己动手做家庭装修项目。这里有几个适合孩子的家庭维护项目，你可以交给你的孩子，只需要最少的监督。
 

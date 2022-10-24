@@ -1,6 +1,6 @@
 # 干渴草坪的最佳抗旱替代品
 
-> 原文:[https://life hacker . com/the-best-抗旱-干渴替代品-gr-1848975951](https://lifehacker.com/the-best-drought-resistant-alternatives-to-a-thirsty-gr-1848975951)
+> 原文：<https://lifehacker.com/the-best-drought-resistant-alternatives-to-a-thirsty-gr-1848975951>
 
 随着许多地方的气温上升，草坪护理季节正式开始，防止草坪在炎热的夏天变成褐色的斗争迫在眉睫。随着许多地区以某种形式的干旱限制用水，我们的院子通常会受到影响，节省水用于更重要的事情。但是人们对抗旱或耐干旱的草坪替代品越来越感兴趣，这样你就可以不用所有的水来建造一个院子。
 
@@ -12,7 +12,7 @@ Watch
 
 根据你的喜好，你也可以选择一个露台区，把植物放在边缘——用豌豆砾石、石板或碎花岗岩建造一个露台区根本不需要用水。
 
-请记住，耐旱植物适应干旱条件，并在干旱条件下茁壮成长；耐旱耐T2的植物会比耐旱品种长得更好，但是它们确实需要一些水。根据你居住的地方和你的生长条件，你应该决定哪些品种最适合你。
+请记住，耐旱植物适应干旱条件，并在干旱条件下茁壮成长；耐旱耐 T2 的植物会比耐旱品种长得更好，但是它们确实需要一些水。根据你居住的地方和你的生长条件，你应该决定哪些品种最适合你。
 
 ## 耐旱草坪替代品
 
@@ -24,7 +24,7 @@ Watch
 
 一种受欢迎的抗旱、适于步行的地被植物是三叶草，它有各种各样的颜色和叶子大小。三叶草可以像草一样修剪，或者你也可以找到一些低到地面的品种。
 
-另一种简单实惠的常青草坪替代品是罗马洋甘菊T2 T3。它抗旱，不需要太多的水，离地面很低，可以修剪和分离。对于一种顽强、生长缓慢的藤蔓来说， [匍匐丝藤](https://www.rareroots.com/products/muehlenbeckia-axillaris-nana?variant=18611925549145&currency=USD&utm_medium=product_sync&utm_source=google&utm_content=sag_organic&utm_campaign=sag_organic) 可以用于高脚交通区域，即使在干燥的条件下也能保持绿色。
+另一种简单实惠的常青草坪替代品是罗马洋甘菊 T2 T3。它抗旱，不需要太多的水，离地面很低，可以修剪和分离。对于一种顽强、生长缓慢的藤蔓来说， [匍匐丝藤](https://www.rareroots.com/products/muehlenbeckia-axillaris-nana?variant=18611925549145&currency=USD&utm_medium=product_sync&utm_source=google&utm_content=sag_organic&utm_campaign=sag_organic) 可以用于高脚交通区域，即使在干燥的条件下也能保持绿色。
 
 ## 其他需要考虑的顽强植物
 

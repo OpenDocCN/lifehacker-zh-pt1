@@ -1,6 +1,6 @@
 # 煮鸡蛋的“5-5-5”即煮法是一种令人厌恶的烹饪方法
 
-> 原文:[https://life hacker . com/the-5-5-5-5-instant-pot-method-for-hidden-eggs-is-a-1847676087](https://lifehacker.com/the-5-5-5-instant-pot-method-for-hard-boiled-eggs-is-a-1847676087)
+> 原文：<https://lifehacker.com/the-5-5-5-instant-pot-method-for-hard-boiled-eggs-is-a-1847676087>
 
 我没有做过正式的研究，但我猜我写的关于鸡蛋的东西比我写的其他任何东西都多(除了我自己)。鸡蛋是一个奇迹。它们非常多才多艺，能填饱肚子，有营养，而且它们能以各种令人兴奋的方式对热和化学处理做出反应。我喜欢它们——尤其是金蛋黄——这就是为什么“5-5-5”即食锅法的流行总是让我感到厌烦。
 

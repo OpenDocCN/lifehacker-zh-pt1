@@ -1,6 +1,6 @@
 # 如何让你的免费狗在家工作
 
-> 原文:[https://life hacker . com/how-to-put-your-free loading-dog-to-work-home-1849599357](https://lifehacker.com/how-to-put-your-freeloading-dog-to-work-at-home-1849599357)
+> 原文：<https://lifehacker.com/how-to-put-your-freeloading-dog-to-work-at-home-1849599357>
 
 虽然今天许多狗享受着相当轻松的生活，充满了揉肚子、白天小睡和大量的款待，但他们家族的前几代人却不一定如此，他们可能被安排去打猎、在农场或在家里工作。
 

@@ -1,8 +1,8 @@
 # 如何做一个真正好吃的火鸡汉堡
 
-> 原文:[https://life hacker . com/how-to-make-a-turkey-burger-the-actually-taste-good-1847149730](https://lifehacker.com/how-to-make-a-turkey-burger-that-actually-tastes-good-1847149730)
+> 原文：<https://lifehacker.com/how-to-make-a-turkey-burger-that-actually-tastes-good-1847149730>
 
-我经常认为火鸡汉堡是90年代的遗物，是脂肪是头号敌人、Snackwells统治(这是一个人工甜味恐怖统治)的时代的残留物。但是有些人就是不喜欢红肉，有些人有医学上的原因想避免吃红肉。有些人可能只是喜欢火鸡汉堡的想法，但从来没有能够做出真正美味的火鸡汉堡。
+我经常认为火鸡汉堡是 90 年代的遗物，是脂肪是头号敌人、Snackwells 统治(这是一个人工甜味恐怖统治)的时代的残留物。但是有些人就是不喜欢红肉，有些人有医学上的原因想避免吃红肉。有些人可能只是喜欢火鸡汉堡的想法，但从来没有能够做出真正美味的火鸡汉堡。
 
 Watch
 
@@ -12,13 +12,13 @@ Watch
 
 人们在吃这些特殊的鸟汉堡时遇到的最大问题之一是，它们在烹饪时容易变干。添加湿材料会使汉堡难以保持完整，这意味着你必须加入粘合剂(如面包屑和鸡蛋)，而我根本没有时间做这些。
 
-一点点脂肪会让你的火鸡汉堡不至于变成火鸡馅饼。磨碎的黑火鸡已经足够了，所以问问你的肉店柜台后面有没有。如果他们没有，就买脂肪百分比最高(通常为85/15)的预包装接地火鸡。如果你能找到的都是超级瘦的东西，你可以自己掺点脂肪进去。每磅肉中加入一汤匙的黄油、猪油或培根油，可以保持湿润，让汉堡更有味道，尤其是如果你使用未经过滤的培根油的话。
+一点点脂肪会让你的火鸡汉堡不至于变成火鸡馅饼。磨碎的黑火鸡已经足够了，所以问问你的肉店柜台后面有没有。如果他们没有，就买脂肪百分比最高(通常为 85/15)的预包装接地火鸡。如果你能找到的都是超级瘦的东西，你可以自己掺点脂肪进去。每磅肉中加入一汤匙的黄油、猪油或培根油，可以保持湿润，让汉堡更有味道，尤其是如果你使用未经过滤的培根油的话。
 
 ## 用味精(和盐)给你的火鸡汉堡调味
 
 谷氨酸一钠是最简单的方法来给东西一种多肉、美味的鲜味，这是磨碎的白肉火鸡绝对需要的东西。它也需要盐，因为一切都需要盐。
 
-你不需要很多味精——只要摇几下就行了。首先把你的火鸡分成4盎司的球，但是不要把它们压成肉饼。用三到四把盐和四杯味精摇匀的味精给每个火鸡球的外面调味。(没有味精摇瓶？给自己买只小熊猫。亚马逊 上有卖 [的，但是你会在亚洲的杂货店里找到便宜得多的，有时在沃尔玛也有。)现在是粉碎时间。](https://www.amazon.com/Ajinomoto-Ajipanda-bottle-70g/dp/B014Y85TYA?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-make-a-turkey-burger-that-actually-tastes-good-1847149730&asc_source=&tag=kinjalifehackerlink-20)
+你不需要很多味精——只要摇几下就行了。首先把你的火鸡分成 4 盎司的球，但是不要把它们压成肉饼。用三到四把盐和四杯味精摇匀的味精给每个火鸡球的外面调味。(没有味精摇瓶？给自己买只小熊猫。亚马逊 上有卖 [的，但是你会在亚洲的杂货店里找到便宜得多的，有时在沃尔玛也有。)现在是粉碎时间。](https://www.amazon.com/Ajinomoto-Ajipanda-bottle-70g/dp/B014Y85TYA?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-make-a-turkey-burger-that-actually-tastes-good-1847149730&asc_source=&tag=kinjalifehackerlink-20)
 
 ## 你应该打碎你的火鸡汉堡
 

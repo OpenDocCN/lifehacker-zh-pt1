@@ -1,14 +1,14 @@
 # 如果你已经投票了，如何帮助今天的选举
 
-> 原文:[https://life hacker . com/how-to-help-to-the-election-today-if-you-ve-have-always-VO-1845555074](https://lifehacker.com/how-to-help-with-the-election-today-if-youve-already-vo-1845555074)
+> 原文：<https://lifehacker.com/how-to-help-with-the-election-today-if-youve-already-vo-1845555074>
 
-今天就是这一天。在令人难以置信的漫长的四年后，我们终于有了另一个在总统选举中投票的机会。但是如果你参加了某种形式的提前投票，今天可能会感觉有点虎头蛇尾。如果你不是在排队为投票，你紧张的精力应该用来做什么？如果你今天正好有时间，这里有四种方法可以帮助你，比每30秒刷新一次Twitter和/或撕掉你的角质层更有效。
+今天就是这一天。在令人难以置信的漫长的四年后，我们终于有了另一个在总统选举中投票的机会。但是如果你参加了某种形式的提前投票，今天可能会感觉有点虎头蛇尾。如果你不是在排队为投票，你紧张的精力应该用来做什么？如果你今天正好有时间，这里有四种方法可以帮助你，比每 30 秒刷新一次 Twitter 和/或撕掉你的角质层更有效。
 
 Watch
 
 ### 志愿者
 
-如果你一直想自愿参加投票，但从未成功，今天是你最后的机会。如果你正在寻找一个项目，公民行动组织 [【朋友一起投票】](https://www.friendsvotetogether.org/) 已经制作了一个 [电子表格，不断更新](https://docs.google.com/spreadsheets/d/1P79Wd1bbTQkx635uP5MkusA9I4wa5pcJf8Bv4gcH0c8/edit#gid=0) 有机会志愿参加电话银行、短信银行、拉票、和选票固化。您还可以在Instagram上关注该组织，他们将继续分享参与方式，回答问题，并帮助您采取行动。此外， [投票拯救美国](https://votesaveamerica.com/volunteer/) 还提供了如何参与的信息。
+如果你一直想自愿参加投票，但从未成功，今天是你最后的机会。如果你正在寻找一个项目，公民行动组织 [【朋友一起投票】](https://www.friendsvotetogether.org/) 已经制作了一个 [电子表格，不断更新](https://docs.google.com/spreadsheets/d/1P79Wd1bbTQkx635uP5MkusA9I4wa5pcJf8Bv4gcH0c8/edit#gid=0) 有机会志愿参加电话银行、短信银行、拉票、和选票固化。您还可以在 Instagram 上关注该组织，他们将继续分享参与方式，回答问题，并帮助您采取行动。此外， [投票拯救美国](https://votesaveamerica.com/volunteer/) 还提供了如何参与的信息。
 
 ### 联系朋友和家人
 
@@ -24,4 +24,4 @@ Watch
 
 ### 支持排队等候的人
 
-仅仅因为你今天没有排队投票，这并不意味着你不能去那里为你的选民朋友们提供方便。如果你住在费城、迈阿密、丹佛、或凤凰城，你仍然可以 [报名成为](https://www.feedthepolls.org/volunteer) [Feed the Polls](https://www.feedthepolls.org/) 的志愿者 ，该组织计划向15个州的 60个投票点提供 4万份餐点。 [披萨到民调](https://polls.pizza/) 是另一种选择。只要拍一张排着特别长的队伍的投票站的照片，要求比萨饼，然后在比萨饼到达后方便分发。
+仅仅因为你今天没有排队投票，这并不意味着你不能去那里为你的选民朋友们提供方便。如果你住在费城、迈阿密、丹佛、或凤凰城，你仍然可以 [报名成为](https://www.feedthepolls.org/volunteer) [Feed the Polls](https://www.feedthepolls.org/) 的志愿者 ，该组织计划向 15 个州的 60 个投票点提供 4 万份餐点。 [披萨到民调](https://polls.pizza/) 是另一种选择。只要拍一张排着特别长的队伍的投票站的照片，要求比萨饼，然后在比萨饼到达后方便分发。

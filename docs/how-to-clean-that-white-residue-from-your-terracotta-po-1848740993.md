@@ -1,6 +1,6 @@
 # 如何清除陶罐上的白色残留物
 
-> 原文:[https://life hacker . com/how-to-clean the white-residue from your-terra cotta-po-1848740993](https://lifehacker.com/how-to-clean-that-white-residue-from-your-terracotta-po-1848740993)
+> 原文：<https://lifehacker.com/how-to-clean-that-white-residue-from-your-terracotta-po-1848740993>
 
 当决定哪种容器最适合种植植物时，你可能至少会考虑传统的无釉陶罐。它们长期以来一直是家庭园艺的主要材料，这是有充分理由的:它们相对便宜，可以重复使用，而且多孔，允许空气和水的交换。
 
@@ -22,7 +22,7 @@ Watch
 
 ### 醋
 
-用1份醋和20份水配制成溶液。将陶罐浸泡在溶液中约30分钟，然后 [擦洗掉任何白斑和残留物](https://www.mrhouseplant.com/blog/how-to-remove-white-residue-from-terracotta-pots/) 。用清水彻底冲洗，然后晾干。
+用 1 份醋和 20 份水配制成溶液。将陶罐浸泡在溶液中约 30 分钟，然后 [擦洗掉任何白斑和残留物](https://www.mrhouseplant.com/blog/how-to-remove-white-residue-from-terracotta-pots/) 。用清水彻底冲洗，然后晾干。
 
 ### 漂白剂
 

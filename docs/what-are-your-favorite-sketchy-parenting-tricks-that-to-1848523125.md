@@ -1,6 +1,6 @@
 # 你最喜欢的完全有效的粗略育儿技巧是什么？
 
-> 原文:[https://life hacker . com/what-is-you-favorite-sketchy-parenting-tricks-that-to-1848523125](https://lifehacker.com/what-are-your-favorite-sketchy-parenting-tricks-that-to-1848523125)
+> 原文：<https://lifehacker.com/what-are-your-favorite-sketchy-parenting-tricks-that-to-1848523125>
 
 当你考虑要孩子时，你可能会想象出某个画面:乖孩子在后院玩得很好，轮流荡秋千，或者家庭电影之夜，每个人都同意看电影，或者家庭晚餐，每个人都毫无怨言地吃你提供的食物。然而，一旦你真的有了孩子，你会意识到抚养(争吵)孩子看起来会有很大的不同——尤其是当他们到了意识到自己既有意愿*又有一些策略来发挥意愿的年龄。* 
 

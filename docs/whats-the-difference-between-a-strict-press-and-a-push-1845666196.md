@@ -1,6 +1,6 @@
 # 严按和推按有什么区别？
 
-> 原文:[https://life hacker . com/a-strict-press-and-a-push-1845666196](https://lifehacker.com/whats-the-difference-between-a-strict-press-and-a-push-1845666196)
+> 原文：<https://lifehacker.com/whats-the-difference-between-a-strict-press-and-a-push-1845666196>
 
 随着我们继续 [为期一个月的头顶按压](https://lifehacker.com/this-november-lets-work-on-our-overhead-press-1845598024) 训练，是时候解决你可能作弊的方式了——或者不是，取决于你如何看待它。按压真的是两种不同的托举，就看你是否屈膝去做了。
 
@@ -24,7 +24,7 @@ Watch
 
 这里有一个关于在媒体中使用你的腿的不同观点:如果一点点腿驱动能帮助你举得更多，为什么不呢？
 
-这就是按压的概念。你开始的姿势和按压的姿势一样，但是就在你开始按压重量之前，你弯曲你的膝盖到几乎四分之一蹲的姿势。然后你爆发性地站起来，当你用胳膊压它的时候，用你的腿部力量提升重量。这样你肯定可以移动更多的铁。为了比较，我最近测试了我95磅的严格按压和118磅的推压。
+这就是按压的概念。你开始的姿势和按压的姿势一样，但是就在你开始按压重量之前，你弯曲你的膝盖到几乎四分之一蹲的姿势。然后你爆发性地站起来，当你用胳膊压它的时候，用你的腿部力量提升重量。这样你肯定可以移动更多的铁。为了比较，我最近测试了我 95 磅的严格按压和 118 磅的推压。
 
  [https://lifehacker.com/embed/inset/iframe?id=instagram-CGp4ZdClIRL&autosize=1](https://lifehacker.com/embed/inset/iframe?id=instagram-CGp4ZdClIRL&autosize=1) 
 
@@ -36,6 +36,6 @@ Watch
 
 还有另一种在机械上更有利的方法:你用腿推，就像在推压机中一样，但是一旦重量开始获得一些动量，你就再次弯曲你的腿*这样你就可以在重量下下降，并用直臂抓住它，即使它还没有变得很高。*
 
-这叫混蛋。如果你用你的脚在大致相同的地方开始，你只弯曲你的腿一点点，这是一个力量挺举。(这往往是强人比赛中的一个选项。奥运举重运动员通常做劈叉式挺举，一只脚向前，另一只脚向后。相对于我95斤的严格按压和118的推压，我最好的挺举是143。我最好的力量挺举可能介于这两者之间。
+这叫混蛋。如果你用你的脚在大致相同的地方开始，你只弯曲你的腿一点点，这是一个力量挺举。(这往往是强人比赛中的一个选项。奥运举重运动员通常做劈叉式挺举，一只脚向前，另一只脚向后。相对于我 95 斤的严格按压和 118 的推压，我最好的挺举是 143。我最好的力量挺举可能介于这两者之间。
 
-每种类型的混蛋都有优点和缺点，这超出了本文的范围，但是如果你好奇的话， [Catalyst在这里有一篇关于它们的好文章](https://www.catalystathletics.com/article/2194/Split-Jerk-Power-Jerk-Squat-Jerk-Why-Who/) 。
+每种类型的混蛋都有优点和缺点，这超出了本文的范围，但是如果你好奇的话， [Catalyst 在这里有一篇关于它们的好文章](https://www.catalystathletics.com/article/2194/Split-Jerk-Power-Jerk-Squat-Jerk-Why-Who/) 。

@@ -1,6 +1,6 @@
 # 如何让去海滩不那么糟糕
 
-> 原文:[https://life hacker . com/how-to-make-to-the-beach-not-suck-1848944545](https://lifehacker.com/how-to-make-going-to-the-beach-not-suck-1848944545)
+> 原文：<https://lifehacker.com/how-to-make-going-to-the-beach-not-suck-1848944545>
 
 不是每个人都喜欢太阳。不是每个人都喜欢沙子。不是每个人都喜欢游泳。有很多方法可以让一个人把自己打扮成“不喜欢海滩的人”但是也许 [他们只是做得不对](https://lifehacker.com/15-of-the-best-nudist-beaches-to-flaunt-it-this-year-1848714163) 。如果准备得当，海滩是夏日放松和享受大自然的绝佳方式——即使你认为它不适合你。
 
@@ -26,7 +26,7 @@ Watch
 
 ## **带上一个气球**
 
-只是不要膨胀它。这里的想法是，如果你的耳朵在游泳时堵塞了，你可以用气球作为疏通的方法。你用来扩张气球的压力有助于将空气向上推到你的咽鼓管。这允许空气进入你的耳朵中间，促使液体排出。只要你准备好了这个latex工具，你就永远不会有理由去阅读 [你从未想过你需要知道的关于成人耳部感染的一切。](https://lifehacker.com/everything-you-never-thought-you-d-need-to-know-about-a-1848917104)T3】
+只是不要膨胀它。这里的想法是，如果你的耳朵在游泳时堵塞了，你可以用气球作为疏通的方法。你用来扩张气球的压力有助于将空气向上推到你的咽鼓管。这允许空气进入你的耳朵中间，促使液体排出。只要你准备好了这个 latex 工具，你就永远不会有理由去阅读 [你从未想过你需要知道的关于成人耳部感染的一切。](https://lifehacker.com/everything-you-never-thought-you-d-need-to-know-about-a-1848917104)T3】
 
 ## 选择你最便宜的太阳镜
 

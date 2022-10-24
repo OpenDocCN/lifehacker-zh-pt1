@@ -1,8 +1,8 @@
 # 如何隐藏你的猫在你家的盒子里拉屎的事实
 
-> 原文:[https://life hacker . com/how-to-hide-the-fact-of-you-1848344666](https://lifehacker.com/how-to-hide-the-fact-that-your-cat-poops-in-a-box-in-yo-1848344666)
+> 原文：<https://lifehacker.com/how-to-hide-the-fact-that-your-cat-poops-in-a-box-in-yo-1848344666>
 
-猫让每个家都变得更好——这是不可否认的事实。但是每只猫都有一个难看的猫砂盒(或两个)，以及存放猫砂盒的古老习俗。当然，你可以买一件家具， [，就像这个【储物长凳】](https://www.petco.com/shop/en/petcostore/product/unipaws-cat-washroom-storage-bench-white-29l-x-21w-x-20h-3073117)那是专门用来藏猫砂盒的，为你最喜欢的猫咪提供一点隐私——或者你可以省钱，用这些简单聪明的 DIY方法中的一种来代替。
+猫让每个家都变得更好——这是不可否认的事实。但是每只猫都有一个难看的猫砂盒(或两个)，以及存放猫砂盒的古老习俗。当然，你可以买一件家具， [，就像这个【储物长凳】](https://www.petco.com/shop/en/petcostore/product/unipaws-cat-washroom-storage-bench-white-29l-x-21w-x-20h-3073117)那是专门用来藏猫砂盒的，为你最喜欢的猫咪提供一点隐私——或者你可以省钱，用这些简单聪明的 DIY 方法中的一种来代替。
 
 Watch
 
@@ -18,7 +18,7 @@ Y 你也可以在旧衣柜、抽屉柜或任何其他空间安装一个猫门，
 
 ## **用塑料储物盒制作一个高墙垃圾盒**
 
-来自 [的克里斯蒂·里瑙尔热衷于装饰](https://www.addicted2decorating.com/yes-this-really-is-a-post-about-a-cat-litter-box.html) 用一个塑料储物盒和一把拼图创造了她自己的临时制作的高围墙垃圾箱。她为她的猫切了一个通道门，打磨了边缘，然后藏在柜子里。这种DIY猫砂盒的高墙提供了额外的好处，即当猫照顾它们的生意时，扔的垃圾更少。
+来自 [的克里斯蒂·里瑙尔热衷于装饰](https://www.addicted2decorating.com/yes-this-really-is-a-post-about-a-cat-litter-box.html) 用一个塑料储物盒和一把拼图创造了她自己的临时制作的高围墙垃圾箱。她为她的猫切了一个通道门，打磨了边缘，然后藏在柜子里。这种 DIY 猫砂盒的高墙提供了额外的好处，即当猫照顾它们的生意时，扔的垃圾更少。
 
 ## **重新利用藤箱**
 

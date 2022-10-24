@@ -1,6 +1,6 @@
 # 如何忘记不想记起的事情
 
-> 原文:[https://life hacker . com/how-to-forget-something-you-don ' t-want-to-remember-1846832805](https://lifehacker.com/how-to-forget-something-you-dont-want-to-remember-1846832805)
+> 原文：<https://lifehacker.com/how-to-forget-something-you-dont-want-to-remember-1846832805>
 
 不管我们是否意识到这一点，我们都在不断努力影响我们未来的记忆。它可以是简单的事情，比如给自己留个便条或明天要做的事情清单，或者花时间拿出手机捕捉一个特别生动的日落。
 

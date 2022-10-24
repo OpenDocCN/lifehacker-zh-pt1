@@ -1,6 +1,6 @@
 # 如何让你的圣诞红活到圣诞节
 
-> 原文:[https://life hacker . com/how-to-keep-your ' s poinset as-alive-to-Christmas-1848133974](https://lifehacker.com/how-to-keep-your-poinsettias-alive-until-christmas-1848133974)
+> 原文：<https://lifehacker.com/how-to-keep-your-poinsettias-alive-until-christmas-1848133974>
 
 鲜红色的猩猩木是受欢迎的节日装饰，像许多植物一样，在家里摆放时有特别的偏好。为了帮助你的花在整个季节存活并茁壮成长，特别是如果植物护理不是你的难题，确保你知道你的猩猩木需要多少水、阳光和热量。
 
@@ -10,7 +10,7 @@ Watch
 
 首先也是最重要的，不要把你的猩猩木放在你的窗台上或者你的前廊 上，不管你多么想让路人看到它们。原产于墨西哥，猩猩木在更热带的环境中茁壮成长，但在寒冷和通风的空间中表现不佳。
 
-相反，把你的猩猩木放在白天温度在华氏65到70度之间，晚上温度在华氏60到65度之间的地区[—](https://www.lowes.com/n/buying-guide/selecting-caring-poinsettia)——绝对不会低于55度。避开任何极端温度，让它们远离暖气口和电器、以及通向外面的门。该空间还应该每天获得至少六小时明亮的间接阳光。
+相反，把你的猩猩木放在白天温度在华氏 65 到 70 度之间，晚上温度在华氏 60 到 65 度之间的地区[—](https://www.lowes.com/n/buying-guide/selecting-caring-poinsettia)——绝对不会低于 55 度。避开任何极端温度，让它们远离暖气口和电器、以及通向外面的门。该空间还应该每天获得至少六小时明亮的间接阳光。
 
 宠物摄入猩猩木不利于健康，所以如果你的动物倾向于吃植物，找一个它们够不到的地方。
 

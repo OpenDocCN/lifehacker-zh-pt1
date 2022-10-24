@@ -1,12 +1,12 @@
 # 为什么你需要在水槽下一直放一个空的植物油瓶
 
-> 原文:[https://life hacker . com/why-you-need-to-keep a-empty-a-植物油瓶子-under-1847319808](https://lifehacker.com/why-you-need-to-keep-an-empty-vegetable-oil-bottle-unde-1847319808)
+> 原文：<https://lifehacker.com/why-you-need-to-keep-an-empty-vegetable-oil-bottle-unde-1847319808>
 
 将任何种类的烹饪脂肪——无论是液体还是固体——倒入下水道都是不可接受的。这样做不仅会导致个人管道问题，还会导致整个社区的堵塞，在极端的情况下还会导致满是污水的地下室。
 
 Watch
 
-许多食用油，甚至是廉价的蔬菜，都可以被过滤、清洗，并储存起来以备后用，但我并不总是喜欢做所有这些事情，尤其是当我在使用一种T4杂货店品牌的菜籽油时。
+许多食用油，甚至是廉价的蔬菜，都可以被过滤、清洗，并储存起来以备后用，但我并不总是喜欢做所有这些事情，尤其是当我在使用一种 T4 杂货店品牌的菜籽油时。
 
 要清除你不想清理的油污，你所要做的就是把它倒进一个容器里，然后把那个容器扔进垃圾桶(或者把它带到一个 [油回收项目](https://choosesq.com/used-cooking-oil-recycling/home-cooking-oil/) )，但是我很少有多余的一次性容器——比如牛奶盒或咖啡罐——随便放着。
 

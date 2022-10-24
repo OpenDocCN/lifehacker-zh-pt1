@@ -1,6 +1,6 @@
 # 硬水和软水的区别(及其重要性)
 
-> 原文:[https://life hacker . com/the-difference-between-hard-water和-soft-water-and-w-1848122651](https://lifehacker.com/the-difference-between-hard-water-and-soft-water-and-w-1848122651)
+> 原文：<https://lifehacker.com/the-difference-between-hard-water-and-soft-water-and-w-1848122651>
 
 当一切都按照预期的方式运行时，你可能会认为自来水在成分、以及它如何影响你的家庭和身体方面都是非常一致的。但现实中，事实并非如此。根据社区的不同，自来水有多种不同的方式，但今天我们将特别关注其中一种:硬水与软水。
 
@@ -14,10 +14,10 @@ Watch
 
 如果你想从技术上了解一下， [这里是硬水与软水的细分](https://www.usgs.gov/special-topic/water-science-school/science/hardness-water?qt-science_center_objects=0#qt-science_center_objects) ，基于其碳酸钙含量:
 
-*   **软** : 0到60毫克/升(毫克每升)
-*   **中等硬度** : 61至120毫克/升
-*   **硬** : 121至180毫克/升
-*   **非常硬** : > 180毫克/升
+*   **软** : 0 到 60 毫克/升(毫克每升)
+*   **中等硬度** : 61 至 120 毫克/升
+*   **硬** : 121 至 180 毫克/升
+*   **非常硬** : > 180 毫克/升
 
 使用地下水作为水源的地区往往有更硬的水， [美国地质调查局解释说](https://www.usgs.gov/special-topic/water-science-school/science/hardness-water?qt-science_center_objects=0#qt-science_center_objects) ，因为当水穿过岩石和土壤时，它会溶解沿途少量自然产生的化学物质，并将它们带走。在某些情况下，硬水用户会选择在家里安装软水系统，，降低水中矿物质的浓度。
 

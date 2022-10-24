@@ -1,6 +1,6 @@
 # 什么时候你真的需要预热你的烤箱？(以及如何做得更快)
 
-> 原文:[https://life hacker . com/when-do-you-really-need-to-how-1847715322](https://lifehacker.com/when-do-you-really-need-to-preheat-your-oven-and-how-1847715322)
+> 原文：<https://lifehacker.com/when-do-you-really-need-to-preheat-your-oven-and-how-1847715322>
 
 大多数使用烤箱的食谱要求预热到一定的温度，这可能需要一点时间。如果你像我一样，是一个心不在焉的厨师，不可避免地会有这样的时候，当你准备好你的菜，准备放进烤箱时，才意识到你忘了提前加热。
 
@@ -24,4 +24,4 @@ Watch
 
 ## **如果你忘记预热烤箱，你可以加快速度**
 
-如果你正在做一道需要预热烤箱的菜，而你在开始做之前忘记了打开烤箱，你可以加快这个过程。为此，、、、[打开烤箱3-5分钟](https://www.cookinglight.com/cooking-101/how-to-preheat-your-oven-faster)、快速加热烤箱。然后，烤箱加热几分钟后，关闭烤箱，将烤箱设置到所需的温度。这将大大减少预热时间，帮助你更快地把菜放进烤箱。
+如果你正在做一道需要预热烤箱的菜，而你在开始做之前忘记了打开烤箱，你可以加快这个过程。为此，、、、[打开烤箱 3-5 分钟](https://www.cookinglight.com/cooking-101/how-to-preheat-your-oven-faster)、快速加热烤箱。然后，烤箱加热几分钟后，关闭烤箱，将烤箱设置到所需的温度。这将大大减少预热时间，帮助你更快地把菜放进烤箱。

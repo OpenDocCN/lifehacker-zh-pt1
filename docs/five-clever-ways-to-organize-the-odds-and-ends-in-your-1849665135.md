@@ -1,6 +1,6 @@
 # 整理厨房杂物的五种巧妙方法
 
-> 原文:[https://life hacker . com/five-smart-ways-organize-the-odds-and-ends-in-your-1849665135](https://lifehacker.com/five-clever-ways-to-organize-the-odds-and-ends-in-your-1849665135)
+> 原文：<https://lifehacker.com/five-clever-ways-to-organize-the-odds-and-ends-in-your-1849665135>
 
 众所周知，保持你的厨房井井有条是很困难的——房间里除了零碎的东西什么都没有，所有这些东西都需要在任何时候都很容易拿到。如果你正在努力整理所有的杂物，这里有几种方法可以让你用普通的物品来整理杂物，清理空间。
 

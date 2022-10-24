@@ -1,8 +1,8 @@
 # 你一直洗错毛巾了吗？
 
-> 原文:[https://life hacker . com/have-you-washing-you-when-this-whole-time-1847819035](https://lifehacker.com/have-you-been-washing-your-towels-wrong-this-whole-time-1847819035)
+> 原文：<https://lifehacker.com/have-you-been-washing-your-towels-wrong-this-whole-time-1847819035>
 
-嗯，我很抱歉。我是不是刚刚读到过 [我们每分钟大约失去3万到4万个死皮细胞](https://kidshealth.org/en/kids/skin.html)*？每年大约有9磅的死皮细胞？令我沮丧的是，是的。请告诉我，在我洗了一个灼热无比的淋浴之后，这些死皮细胞会落在哪里？当然是在我的毛巾上。* 
+嗯，我很抱歉。我是不是刚刚读到过 [我们每分钟大约失去 3 万到 4 万个死皮细胞](https://kidshealth.org/en/kids/skin.html)*？每年大约有 9 磅的死皮细胞？令我沮丧的是，是的。请告诉我，在我洗了一个灼热无比的淋浴之后，这些死皮细胞会落在哪里？当然是在我的毛巾上。* 
 
 *Watch*
 
@@ -14,7 +14,7 @@
 
 *大多数专家，包括清洁研究所 的 [都建议，每使用三到五次后清洗你的毛巾，以去除那些微生物(或者在有气味的第一个迹象时，因为这是菌落繁殖的强烈迹象)。我们希望这是不言而喻的，但是含有汗水的健身毛巾(T6)和一种过于私密的方式——你的健身包里面的知识需要在每次使用后清洗。同样的道理也适用于任何被体液污染的毛巾，或者那些在两次使用之间没有完全干燥的毛巾。(在将毛巾扔进洗衣篮之前，最好让它们风干*，以防止它们进一步腐烂。)*](https://www.cleaninginstitute.org/cleaning-tips/clothes/laundry-basics/do-i-need-wash)*
 
-*用最热的温度设置(最好至少140华氏度)洗涤毛巾，并在高温下甩干。*
+*用最热的温度设置(最好至少 140 华氏度)洗涤毛巾，并在高温下甩干。*
 
 ## *你能把毛巾和衣服一起洗吗？*
 
@@ -28,6 +28,6 @@
 
 *你能猜到我要说什么吗？不幸的是不。你的厨房毛巾和洗碗布每天都会接触各种脏东西。肮脏的柜台、生肉汁、地板、人们的嘴巴——仅举几例。(如果你有孩子，老实说，谁也猜不到这些毛巾在任何一天都有多么恶心。) [研究人员发现，大肠杆菌和*金黄色葡萄球菌*](https://www.healthline.com/health-news/your-kitchen-towels-are-probably-full-of-bacteria#Whats-contributing-to-the-bacterial-growth?) 潜伏在厨房毛巾上，它们会导致食物中毒和其他食源性疾病——这可不是你想和用来擦干脸的卷须混合在一起的东西。*
 
-*因此，为了达到最佳卫生效果，建议每使用3-5次后清洗浴巾，并在清洗时将它们与你的衣服、床单、*和*厨房毛巾分开。这样很烦吗？当然了。我想让装饰过我丈夫底盘的毛巾和我的茶巾混在一起吗？没有可能。*
+*因此，为了达到最佳卫生效果，建议每使用 3-5 次后清洗浴巾，并在清洗时将它们与你的衣服、床单、*和*厨房毛巾分开。这样很烦吗？当然了。我想让装饰过我丈夫底盘的毛巾和我的茶巾混在一起吗？没有可能。*
 
 *(附言:超细纤维毛巾完全是另一回事 [你可以在这里阅读](https://lifehacker.com/how-to-wash-microfiber-towels-without-ruining-them-1847616896) 。)*

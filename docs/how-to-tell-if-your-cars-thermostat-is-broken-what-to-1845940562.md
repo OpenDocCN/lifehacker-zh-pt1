@@ -1,6 +1,6 @@
 # 如何判断你汽车的恒温器是否坏了&如何修理它
 
-> 原文:[https://life hacker . com/how-to-tell-if-your-cars-thermostat-is-break-to-1845940562](https://lifehacker.com/how-to-tell-if-your-cars-thermostat-is-broken-what-to-1845940562)
+> 原文：<https://lifehacker.com/how-to-tell-if-your-cars-thermostat-is-broken-what-to-1845940562>
 
 当汽车的热量发挥作用时，它在寒冷的日子里会感觉很棒——如此有效地解冻你，以至于你可能不得不脱下外套来防止过热。(只要确保你在开车的时候不那么做就行了。)如果你足够幸运有加热座椅呢？基本上是一次温泉之旅。(尽管它不是喝黄瓜泡水，而是一个半空的水瓶，已经在你的车里放了不知道多久了。)
 
@@ -14,7 +14,7 @@ Watch
 
 除了整体热量不足之外，这里还有一些其他线索表明你的恒温器可能坏了，感谢你的机械师 :
 
-*   在启动车辆的前15分钟内，温度计读数非常高(红色)。
+*   在启动车辆的前 15 分钟内，温度计读数非常高(红色)。
 *   发动机已经停了一段时间，不热。
 *   车辆的温度变化无常。
 *   节温器壳体周围或车辆下方有冷却液泄漏。

@@ -1,6 +1,6 @@
 # 你一直在错误地使用过氧化氢
 
-> 原文:[https://life hacker . com/you-ve-use-hydrogen-peroxide-all-wrong-1846477318](https://lifehacker.com/youve-been-using-hydrogen-peroxide-all-wrong-1846477318)
+> 原文：<https://lifehacker.com/youve-been-using-hydrogen-peroxide-all-wrong-1846477318>
 
 双氧水是一种家用消毒剂 [由](https://pubchem.ncbi.nlm.nih.gov/compound/Hydrogen-peroxide) 两份氢气和两份氧气组成。 [高含氧量](https://www.webmd.com/drugs/2/drug-76035/hydrogen-peroxide/details) 在倒上时会产生泡沫，震动松散的细菌，更深入渗透多孔表面，帮助清洁它们。当倒在皮肤上时，所有的泡沫让我们相信这种溶液对我们的伤口和瘀伤也有好处——但它杀死了皮肤的好的和坏的部分，并且实际上可以阻止伤口愈合。
 
@@ -16,11 +16,11 @@ Watch
 
 使用后，将牙刷 [浸泡三到五分钟](https://www.mollymaid.com/practically-spotless/2016/january/how-to-disinfect-a-toothbrush/#:~:text=Soak%20your%20toothbrush%20in%20hydrogen,out%20thoroughly%20with%20hot%20water.&text=Same%20as%20the%20peroxide%20tip,for%20roughly%203%2D5%20minutes.) 在一杯过氧化氢中，以杀死任何细菌或病毒。当你可能生病时，特别推荐这种清洁方法。 [将等量的水和过氧化氢混合在一个浅碗中给海绵消毒](https://www.onegoodthingbyjillee.com/30-uses-for-hydrogen-peroxide-youll-want-to-know-about/) 。将海绵放入碗中浸泡十分钟，然后冲洗干净。你也可以使用 [未稀释的过氧化氢](https://www.instructables.com/Disinfect-a-Sponge/)——只是要确保彻底冲洗你的海绵。
 
-北卡罗来纳大学(UNC)发布了一张 [有用的信息图](https://research.unc.edu/covid-19/how-to-disinfect/) ，介绍你家中可以用来对抗新冠肺炎病毒的家居用品。过氧化氢被列为软性材料的消毒剂。当与等量的水混合时，家用过氧化氢可以喷洒在物品上，以杀死新冠肺炎病毒和其他病毒。UNC提到，在使用前让这些物品静置20分钟可以提高病毒杀灭效果。
+北卡罗来纳大学(UNC)发布了一张 [有用的信息图](https://research.unc.edu/covid-19/how-to-disinfect/) ，介绍你家中可以用来对抗新冠肺炎病毒的家居用品。过氧化氢被列为软性材料的消毒剂。当与等量的水混合时，家用过氧化氢可以喷洒在物品上，以杀死新冠肺炎病毒和其他病毒。UNC 提到，在使用前让这些物品静置 20 分钟可以提高病毒杀灭效果。
 
 #### 清洁浴室中的霉菌
 
-抗菌剂可以对抗浴室中的霉菌堆积。在喷雾瓶中使用过氧化氢(直接从瓶子中取出；不需要稀释)，静置30分钟，然后擦掉。细菌会被烤熟，这样你就可以自由地清洁该区域，去除霉菌可能造成的任何污渍。
+抗菌剂可以对抗浴室中的霉菌堆积。在喷雾瓶中使用过氧化氢(直接从瓶子中取出；不需要稀释)，静置 30 分钟，然后擦掉。细菌会被烤熟，这样你就可以自由地清洁该区域，去除霉菌可能造成的任何污渍。
 
 #### 保持室内植物没有真菌和疾病
 
@@ -34,21 +34,21 @@ Watch
 
 #### 去除炊具上的污渍
 
-随着时间的推移，锅碗瓢盆往往会堆积起来，形成黑色的结块污垢。 [用由过氧化氢和小苏打制成的糊状物](https://themodestcottage.com/2018/02/01/clean-pots-pans-hydrogen-peroxide/) 覆盖你的锅或平底锅。让锅静置20 - 30分钟，然后冲洗。这可能需要一点擦洗，但残余物最终会被剥离，你的锅会看起来更接近新的。
+随着时间的推移，锅碗瓢盆往往会堆积起来，形成黑色的结块污垢。 [用由过氧化氢和小苏打制成的糊状物](https://themodestcottage.com/2018/02/01/clean-pots-pans-hydrogen-peroxide/) 覆盖你的锅或平底锅。让锅静置 20 - 30 分钟，然后冲洗。这可能需要一点擦洗，但残余物最终会被剥离，你的锅会看起来更接近新的。
 
 #### 水泥浆清洁和增白
 
-[用未稀释的家用双氧水喷灌浆](https://www.onegoodthingbyjillee.com/30-uses-for-hydrogen-peroxide-youll-want-to-know-about/) 。等待10 -20分钟，然后用粗糙的海绵擦洗——或者，更好的是， [一把旧牙刷](https://lifehacker.com/clean-these-items-when-its-time-to-throw-out-your-tooth-1846432569)——去除污垢和尘垢。根据需要重复多次，以获得想要的结果。
+[用未稀释的家用双氧水喷灌浆](https://www.onegoodthingbyjillee.com/30-uses-for-hydrogen-peroxide-youll-want-to-know-about/) 。等待 10 -20 分钟，然后用粗糙的海绵擦洗——或者，更好的是， [一把旧牙刷](https://lifehacker.com/clean-these-items-when-its-time-to-throw-out-your-tooth-1846432569)——去除污垢和尘垢。根据需要重复多次，以获得想要的结果。
 
 <aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled You&#39;ve Been Using Hydrogen Peroxide Wrong](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/the-best-ways-to-clean-grout-1845863047)</aside>
 
 ### 身体和宠物健康
 
-普通家用过氧化氢每瓶含有3%的化合物。这个量的过氧化氢是 [一般家庭和身体使用的安全](https://www.chemicalsafetyfacts.org/hydrogen-peroxide/#safety-information) 。
+普通家用过氧化氢每瓶含有 3%的化合物。这个量的过氧化氢是 [一般家庭和身体使用的安全](https://www.chemicalsafetyfacts.org/hydrogen-peroxide/#safety-information) 。
 
 #### 用于口腔卫生的漱口液
 
-[FDA批准](https://www.accessdata.fda.gov/scripts/cdrh/cfdocs/cfcfr/CFRSearch.cfm?fr=310.534) 少量过氧化氢用于清洁口腔伤口，明确了过氧化氢作为杀菌漱口水的用途。 [唰](https://www.farmersalmanac.com/20-natural-bad-breath-cures-24517#:~:text=Hydrogen%20peroxide%20is%20a%20miracle,off%20bacteria%20in%20your%20mouth.) 一汤匙双氧水浸泡10分钟，有助于缓解口腔溃疡，清新口气。不要吞咽——尽管少量无害，但大量摄入可能有毒。
+[FDA 批准](https://www.accessdata.fda.gov/scripts/cdrh/cfdocs/cfcfr/CFRSearch.cfm?fr=310.534) 少量过氧化氢用于清洁口腔伤口，明确了过氧化氢作为杀菌漱口水的用途。 [唰](https://www.farmersalmanac.com/20-natural-bad-breath-cures-24517#:~:text=Hydrogen%20peroxide%20is%20a%20miracle,off%20bacteria%20in%20your%20mouth.) 一汤匙双氧水浸泡 10 分钟，有助于缓解口腔溃疡，清新口气。不要吞咽——尽管少量无害，但大量摄入可能有毒。
 
 #### 耳垢清除
 

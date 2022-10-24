@@ -1,6 +1,6 @@
 # 如果你在公共场合丢失了你的孩子，就这样做
 
-> 原文:[https://life hacker . com/do-this-if-you-lost-you-child-in-public-1846158806](https://lifehacker.com/do-this-if-you-lose-your-child-in-public-1846158806)
+> 原文：<https://lifehacker.com/do-this-if-you-lose-your-child-in-public-1846158806>
 
 每个父母都经历过(如果你还没有经历过，给它时间):你的注意力只转移了一会儿。你在商店里，想给你妹妹挑一张合适的生日贺卡。或者你从钱包里掏钱去集市买玉米热狗。你的背只转了几秒钟，但是你转回来...等等，他们去哪了？你的孩子刚才还在，现在他们不见了。
 
@@ -12,7 +12,7 @@ Watch
 
  *[https://lifehacker.com/embed/inset/iframe?id=tiktok-6914099791723056389&autosize=1](https://lifehacker.com/embed/inset/iframe?id=tiktok-6914099791723056389&autosize=1)* 
 
-*她说，大声的搜索听起来像这样:“我在找一个男孩，五岁，棕色短发，棕色眼睛，白种人，红色耐克t恤，黑色短裤！”不断重复这个基本的物理描述，直到找到它们。* 
+*她说，大声的搜索听起来像这样:“我在找一个男孩，五岁，棕色短发，棕色眼睛，白种人，红色耐克 t 恤，黑色短裤！”不断重复这个基本的物理描述，直到找到它们。* 
 
 *这比默默的在人群中梳理你的路要好，但也比简单的喊出孩子的名字要好。如果你喊出孩子的名字，你周围的成年人会意识到你在找一个孩子，但如果你大声说出他们的描述，这些成年人也会自动开始寻找他们。*
 

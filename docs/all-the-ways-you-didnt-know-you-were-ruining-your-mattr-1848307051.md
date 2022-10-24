@@ -1,12 +1,12 @@
 # 你不知道的所有方式都在毁坏你的床垫
 
-> 原文:[https://life hacker . com/all-the-ways-you-not-know-you-was-ruing-you-mattr-1848307051](https://lifehacker.com/all-the-ways-you-didnt-know-you-were-ruining-your-mattr-1848307051)
+> 原文：<https://lifehacker.com/all-the-ways-you-didnt-know-you-were-ruining-your-mattr-1848307051>
 
 考虑到普通人一生中大约有 [26 *年*用于睡眠](https://www.dreams.co.uk/sleep-matters-club/your-life-in-numbers-infographic/) ，我们如何护理我们的床垫至关重要。但是床垫很容易被遗忘。大多数时候是看不见的，被床单和太多抱枕遮住了。只要它能完成它的工作，我们可能甚至不会想到它，直到它被取代的时候。
 
 Watch
 
-鉴于我们通常会花费450到2500美元 来享受升级睡眠的特权，它就像我们家中的每一件大件商品一样，需要适当的护理和清洁。但是我们中的许多人无意中对我们的床垫做了一些加速其使用寿命结束的事情。如果你想让它持续更长时间，这里有一些要避免的。
+鉴于我们通常会花费 450 到 2500 美元 来享受升级睡眠的特权，它就像我们家中的每一件大件商品一样，需要适当的护理和清洁。但是我们中的许多人无意中对我们的床垫做了一些加速其使用寿命结束的事情。如果你想让它持续更长时间，这里有一些要避免的。
 
 ## 没有使用床垫保护套
 
@@ -16,7 +16,7 @@ Watch
 
 根据 [睡眠基金会](https://www.sleepfoundation.org/mattress-information/should-you-flip-or-rotate-your-mattress) 的说法，“床垫暴露在重压下的区域(尤其是臀部和肩部周围)往往会过早下垂”，定期轮换的床垫会比不轮换的床垫“潜在地”持续一年或更长时间
 
-您的用户手册将提供关于更换频率的明确说明，但一个好的经验法则是记忆泡沫、乳胶和较新的内置弹簧床垫每年更换1-2次。许多现代床垫都是单面的，在这种情况下，跳过老式的翻转，只需将床垫顶部向下旋转到床脚。(唯一不应该旋转的床垫是那些设计有“分区舒适系统”的床垫，该系统为身体的特定区域提供额外的支撑。)
+您的用户手册将提供关于更换频率的明确说明，但一个好的经验法则是记忆泡沫、乳胶和较新的内置弹簧床垫每年更换 1-2 次。许多现代床垫都是单面的，在这种情况下，跳过老式的翻转，只需将床垫顶部向下旋转到床脚。(唯一不应该旋转的床垫是那些设计有“分区舒适系统”的床垫，该系统为身体的特定区域提供额外的支撑。)
 
 ## 从不清理你的床垫
 
@@ -42,11 +42,11 @@ Watch
 
 如果你想把床垫藏起来以备将来使用，不要把它拖到一个未完工的地下室里永远挂着。彻底抽真空后，用保护性床垫套包裹，平放在气候可控的环境中。将其直立放置在车库或潮湿的地下室会使其易受湿度、霉菌生长、虫害以及内部填充物和线圈迁移的影响，从而永久损坏垫子并使其无法入睡。(相信我，我做过这个实验。)
 
-*关于G/O Media合作伙伴床垫的更多信息:*
+*关于 G/O Media 合作伙伴床垫的更多信息:*
 
-*-*[*2022年最佳床垫*](https://lifehacker.com/advisor/best-mattresses/)
+*-*[*2022 年最佳床垫*](https://lifehacker.com/advisor/best-mattresses/)
 *-*[*B*](https://lifehacker.com/advisor/best-mattress-for-back-sleepers/)[*最适合仰卧者的床垫*](https://lifehacker.com/advisor/best-mattress-for-back-sleepers/)
 *-*[*最适合侧卧者的床垫*](https://lifehacker.com/advisor/best-mattress-for-side-sleepers/)
 *-*
 
-Lifehacker并不参与这些文章的创作，但可能会从购买其内容中获得佣金。
+Lifehacker 并不参与这些文章的创作，但可能会从购买其内容中获得佣金。

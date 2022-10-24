@@ -1,8 +1,8 @@
 # 如何处理孩子对打针的恐惧
 
-> 原文:[https://life hacker . com/how-to-hand-your-kids-fear-shots-1846231465](https://lifehacker.com/how-to-handle-your-kids-fear-of-shots-1846231465)
+> 原文：<https://lifehacker.com/how-to-handle-your-kids-fear-of-shots-1846231465>
 
-冠状病毒疫苗何时被认为安全并可用于16岁以下的儿童还没有时间表。然而， [你仍然应该让](https://offspring.lifehacker.com/should-you-postpone-your-childs-well-visit-during-the-p-1843268744) 保持常规健康检查和免疫计划，即使我们继续努力度过这个疫情。
+冠状病毒疫苗何时被认为安全并可用于 16 岁以下的儿童还没有时间表。然而， [你仍然应该让](https://offspring.lifehacker.com/should-you-postpone-your-childs-well-visit-during-the-p-1843268744) 保持常规健康检查和免疫计划，即使我们继续努力度过这个疫情。
 
 Watch
 

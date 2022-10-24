@@ -1,6 +1,6 @@
 # 天气预报中“雨”和“阵雨”的区别
 
-> 原文:[https://life hacker . com/the-difference-in-your-weather-1848976806](https://lifehacker.com/the-difference-between-rain-and-showers-in-your-weather-1848976806)
+> 原文：<https://lifehacker.com/the-difference-between-rain-and-showers-in-your-weather-1848976806>
 
 随着漫长的阵亡将士纪念日周末的开始，你可能会发现自己在查看未来几天的天气预报——尤其是如果你的计划涉及到户外活动的话。
 

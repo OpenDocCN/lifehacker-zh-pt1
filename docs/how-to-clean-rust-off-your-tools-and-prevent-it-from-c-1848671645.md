@@ -1,6 +1,6 @@
 # 如何清除工具上的锈迹(并防止它再次出现)
 
-> 原文:[https://life hacker . com/how-to-clean-rust-off-your-tools-and-prevent-it-c-1848671645](https://lifehacker.com/how-to-clean-rust-off-your-tools-and-prevent-it-from-c-1848671645)
+> 原文：<https://lifehacker.com/how-to-clean-rust-off-your-tools-and-prevent-it-from-c-1848671645>
 
 无论你是从父母或祖父母那里继承来的，还是在旧货市场或跳蚤市场以高价得到的，现在你的家里、地下室或车库里可能都有一些生锈的工具。也许有一天，你需要一把扳手，或者锤子，或者花园镘刀，拿起这些生锈的工具，意识到是时候让它们恢复正常工作了。
 
@@ -20,14 +20,14 @@ Watch
 
 同样，先用温肥皂水清洗你的工具，去除油脂和松散的污垢和碎片。然后，准备一个足够大的桶或盆来放你的工具。将工具放入桶中，然后倒入足够多的 ***一*** 这些液体，直到它们完全淹没。
 
-*   **白醋**:让工具 [浸泡过夜](https://www.hgtv.com/lifestyle/clean-and-organize/how-to-clean-rust) 或长达24小时。您可能需要使用钢丝刷或砂纸来去除最后残留的铁锈，但它应该相对容易脱落。
-*   **柠檬酸**:桶内每一加仑热水，T3】加入1/3杯柠檬酸T5】。充分混合溶液，然后添加工具，并确保它们被完全覆盖。一些工具将在几个小时内准备好；其他人将不得不浸泡一夜。
-*   **草酸**:每加仑水加入 [三汤匙草酸](https://www.bobvila.com/articles/how-to-remove-rust-from-tools/) 。添加和隐藏工具。20分钟后检查它们。如果他们还没到，就把他们留在那里。
+*   **白醋**:让工具 [浸泡过夜](https://www.hgtv.com/lifestyle/clean-and-organize/how-to-clean-rust) 或长达 24 小时。您可能需要使用钢丝刷或砂纸来去除最后残留的铁锈，但它应该相对容易脱落。
+*   **柠檬酸**:桶内每一加仑热水，T3】加入 1/3 杯柠檬酸 T5】。充分混合溶液，然后添加工具，并确保它们被完全覆盖。一些工具将在几个小时内准备好；其他人将不得不浸泡一夜。
+*   **草酸**:每加仑水加入 [三汤匙草酸](https://www.bobvila.com/articles/how-to-remove-rust-from-tools/) 。添加和隐藏工具。20 分钟后检查它们。如果他们还没到，就把他们留在那里。
 
 工具完成酸洗后，用清水冲洗干净，并彻底擦干。
 
 ## 如何防止新锈形成
 
-一旦你的工具无锈(或接近无锈)，再次检查它们是否完全干燥。然后喷上或擦上少量多用途油，如WD-40、矿物油、煮沸亚麻籽油等，以密封工具。为了额外的保护，喷上一层 [漆或透明涂层](https://www.hawk-hill.com/removing-rust-no-scrubbing/) 。
+一旦你的工具无锈(或接近无锈)，再次检查它们是否完全干燥。然后喷上或擦上少量多用途油，如 WD-40、矿物油、煮沸亚麻籽油等，以密封工具。为了额外的保护，喷上一层 [漆或透明涂层](https://www.hawk-hill.com/removing-rust-no-scrubbing/) 。
 
 继续前进，一定要把你的工具存放在尽可能干燥的地方。保持清洁:灰尘会吸收水分。

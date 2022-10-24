@@ -1,6 +1,6 @@
 # 据一位人力资源专家称，管理高层的注意事项
 
-> 原文:[https://life hacker . com/the-dos-and-donts-of-managing-up-by-an-HR-ex-1849488606](https://lifehacker.com/the-dos-and-donts-of-managing-up-according-to-an-hr-ex-1849488606)
+> 原文：<https://lifehacker.com/the-dos-and-donts-of-managing-up-according-to-an-hr-ex-1849488606>
 
 你与老板的关系可以决定你工作的方方面面，比如，包括你的工作量、工作满意度、和整体职业前景。考虑到力量的差异，这些事情中的大部分似乎都超出了你的控制。这就是[向上管理](https://hr.ucmerced.edu/content/managing-what-it-and-why-do-it)发挥作用的地方:向上管理是主动管理你与你的上司的关系和职责的过程。
 

@@ -1,6 +1,6 @@
 # 如何停止醒来尿尿
 
-> 原文:[https://life hacker . com/how-to-stop-wake-up-to-pee-1846242731](https://lifehacker.com/how-to-stop-waking-up-to-pee-1846242731)
+> 原文：<https://lifehacker.com/how-to-stop-waking-up-to-pee-1846242731>
 
 我们都有过这样的经历:昏昏沉沉，半夜意识到，啊，又到了撒尿的时候了。虽然有时这是医疗条件的结果，但通常这只是一个不方便的例行公事。在这种情况下，有一些简单的方法可以让夜间上厕所变得不那么常见。
 

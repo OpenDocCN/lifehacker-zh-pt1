@@ -1,22 +1,22 @@
 # 不要成为学生贷款豁免骗局的牺牲品
 
-> 原文:[https://life hacker . com/don-t-fall-prey-to-a-student-loan-religation-scam-1849474707](https://lifehacker.com/don-t-fall-prey-to-a-student-loan-forgiveness-scam-1849474707)
+> 原文：<https://lifehacker.com/don-t-fall-prey-to-a-student-loan-forgiveness-scam-1849474707>
 
-由于总统乔·拜登上周的一项声明，数百万美国人可能有资格获得高达1万美元的联邦贷款豁免(如果他们收到佩尔·G的话，最高可获得2万美元 [)。正如大多数重大政治举措一样，这条新闻让一些人庆祝，也让另一些人愤怒，但它也为骗子创造了一个绝对完美的环境。以下是如何避免任何与贷款- 宽恕相关的骗局。](https://lifehacker.com/how-to-find-out-if-you-have-a-pell-grant-1849453465) 
+由于总统乔·拜登上周的一项声明，数百万美国人可能有资格获得高达 1 万美元的联邦贷款豁免(如果他们收到佩尔·G 的话，最高可获得 2 万美元 [)。正如大多数重大政治举措一样，这条新闻让一些人庆祝，也让另一些人愤怒，但它也为骗子创造了一个绝对完美的环境。以下是如何避免任何与贷款- 宽恕相关的骗局。](https://lifehacker.com/how-to-find-out-if-you-have-a-pell-grant-1849453465) 
 
 Watch
 
 ## 如果你有资格，确切地知道如何得到你的原谅
 
-避免诈骗的第一步是 [知道你是否有资格获得学生贷款豁免](https://lifehacker.com/how-to-tell-if-youre-eligible-for-student-loan-forgiven-1849458572) 。根据拜登政府的计划，年收入不超过12.5万美元的个人贷款借款人和年收入不超过25万美元的已婚夫妇或户主可能有资格获得不超过1万美元的豁免。如果你得到了一个T4式的慷慨陈词，而你的收入低于这些准则，你可能有资格获得2万美元的减免。如果你现在是一名学生，而你的父母仍然声称你是一个依赖者，你的原谅是基于他们的收入。
+避免诈骗的第一步是 [知道你是否有资格获得学生贷款豁免](https://lifehacker.com/how-to-tell-if-youre-eligible-for-student-loan-forgiven-1849458572) 。根据拜登政府的计划，年收入不超过 12.5 万美元的个人贷款借款人和年收入不超过 25 万美元的已婚夫妇或户主可能有资格获得不超过 1 万美元的豁免。如果你得到了一个 T4 式的慷慨陈词，而你的收入低于这些准则，你可能有资格获得 2 万美元的减免。如果你现在是一名学生，而你的父母仍然声称你是一个依赖者，你的原谅是基于他们的收入。
 
-对于大约800万人来说，原谅将是自动的，因为教育部已经有了他们的信息。对于其他人来说，能源部正在准备一份可以填写的申请表。在该部门的网站上注册来自能源部 的 [警报，这样当应用程序打开时你会马上知道。](https://www.ed.gov/subscriptions)
+对于大约 800 万人来说，原谅将是自动的，因为教育部已经有了他们的信息。对于其他人来说，能源部正在准备一份可以填写的申请表。在该部门的网站上注册来自能源部 的 [警报，这样当应用程序打开时你会马上知道。](https://www.ed.gov/subscriptions)
 
 为此，警惕你收到的所有关于学生贷款的电子邮件。检查以确保它们来自真正的政府机构，并谨慎地将任何个人信息输入到您不完全信任的网站。
 
 ## **避开骗局**
 
-[更好的商务局](https://www.bbb.org/article/news-releases/27471-bbb-tip-student-loan-forgiveness-is-here-heres-how-to-avoid-scams) 和 [能源部](https://studentaid.gov/resources/scams) 都明确表示，学生贷款世界中的骗局很多，BBB正在积极警告这个新的宽恕计划可能鼓励的任何新的骗局。BBB建议采用以下方法来避免诈骗:
+[更好的商务局](https://www.bbb.org/article/news-releases/27471-bbb-tip-student-loan-forgiveness-is-here-heres-how-to-avoid-scams) 和 [能源部](https://studentaid.gov/resources/scams) 都明确表示，学生贷款世界中的骗局很多，BBB 正在积极警告这个新的宽恕计划可能鼓励的任何新的骗局。BBB 建议采用以下方法来避免诈骗:
 
 *   如上所述，了解你的贷款条款和救济计划。
 *   直接上政府网站，只用那些。

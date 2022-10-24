@@ -1,45 +1,45 @@
 # 劳动节周末哪里有免费(又便宜)的食物
 
-> 原文:[https://life hacker . com/where-to-get-free-and-cheap-food-on-labor-day-weekend-1849462153](https://lifehacker.com/where-to-get-free-and-cheap-food-on-labor-day-weekend-1849462153)
+> 原文：<https://lifehacker.com/where-to-get-free-and-cheap-food-on-labor-day-weekend-1849462153>
 
 夏天即将结束，但在我们转向秋季的舒适食物之前，我们还有时间在劳动节周末最后一次欢呼。无论你的计划是参加野炊、旅行，还是呆在家里叫外卖，吃肯定会发挥作用。幸运的是，这个劳动节周末有很多食物交易和免费赠品。这里有几个要考虑的。
 
 Watch
 
-## BJ餐厅和酿酒厂
+## BJ 餐厅和酿酒厂
 
-从美国东部时间8月29日下午3点开始，BJ餐厅和酿酒厂将出售200张[](http://www.PizookiePass.com)*通票，每张10美元，让店主在9月份每天都能享用一份他们的招牌甜点。*
+从美国东部时间 8 月 29 日下午 3 点开始，BJ 餐厅和酿酒厂将出售 200 张[](http://www.PizookiePass.com)*通票，每张 10 美元，让店主在 9 月份每天都能享用一份他们的招牌甜点。*
 
 ## ***每个盘子***
 
-*从现在起到劳动节(9月5日，星期一)，使用代码LABORDAY2022以1.49美元/餐的价格获得第一盒，再加上另外两盒的20%折扣(在每周五餐计划中，每盒四份)，从 [每盘](https://www.everyplate.com/) 购买。*
+*从现在起到劳动节(9 月 5 日，星期一)，使用代码 LABORDAY2022 以 1.49 美元/餐的价格获得第一盒，再加上另外两盒的 20%折扣(在每周五餐计划中，每盒四份)，从 [每盘](https://www.everyplate.com/) 购买。*
 
 ## ***因子***
 
-*从现在起到劳动节(9月5日，星期一)，使用代码FACTORLDW从 [Factor](https://go.factor75.com/) 的前六个箱子中获得130美元的折扣。*
+*从现在起到劳动节(9 月 5 日，星期一)，使用代码 FACTORLDW 从 [Factor](https://go.factor75.com/) 的前六个箱子中获得 130 美元的折扣。*
 
 ## *绿色化学*
 
-*从现在起到劳动节(9月5日，星期一)，使用代码GCLDW2022购买五个盒子可以获得135美元的优惠，第一个盒子从 [绿色厨师](https://www.greenchef.com/) 开始免费送货。*
+*从现在起到劳动节(9 月 5 日，星期一)，使用代码 GCLDW2022 购买五个盒子可以获得 135 美元的优惠，第一个盒子从 [绿色厨师](https://www.greenchef.com/) 开始免费送货。*
 
 ## ***HelloFresh***
 
-*从现在起到劳动节(9月5日，星期一)，使用代码HFLDW2022获得八个盒子中的17份免费餐，三份惊喜礼物，以及从 [HelloFresh](https://www.hellofresh.com/) 开始的第一个盒子的免费送货。*
+*从现在起到劳动节(9 月 5 日，星期一)，使用代码 HFLDW2022 获得八个盒子中的 17 份免费餐，三份惊喜礼物，以及从 [HelloFresh](https://www.hellofresh.com/) 开始的第一个盒子的免费送货。*
 
 ## *吉米·约翰的*
 
-*从现在起至9月25日， [在结账时使用促销代码提货20](https://www.jimmyjohns.com/promos/) ，在线或通过Jimmy John的应用程序下单提货可享受八折优惠。*
+*从现在起至 9 月 25 日， [在结账时使用促销代码提货 20](https://www.jimmyjohns.com/promos/) ，在线或通过 Jimmy John 的应用程序下单提货可享受八折优惠。*
 
 ## *麦康奈尔的精品冰淇淋* 
 
-*从9月2日星期五到9月5日星期一，购买五品脱冰淇淋，可免费获得一 [，代码为LDW22](https://mcconnells.com/) 。*
+*从 9 月 2 日星期五到 9 月 5 日星期一，购买五品脱冰淇淋，可免费获得一 [，代码为 LDW22](https://mcconnells.com/) 。*
 
 ## *塔可钟*
 
-*从9月2日星期五到9月5日星期一，通过该应用程序订购18美元或以上的最低订单可享受3美元的优惠。或者，您可以获得20%的至少20美元的交货订单， [Thrillist reports。](https://www.thrillist.com/news/nation/taco-bell-food-deals-fall)T3】*
+*从 9 月 2 日星期五到 9 月 5 日星期一，通过该应用程序订购 18 美元或以上的最低订单可享受 3 美元的优惠。或者，您可以获得 20%的至少 20 美元的交货订单， [Thrillist reports。](https://www.thrillist.com/news/nation/taco-bell-food-deals-fall)T3】*
 
 ## *泰特烘焙店*
 
-*从美国东部时间9月2日星期五上午12点至美国东部时间9月5日星期一晚上11点59分，在代码劳动节享受全网站八折优惠。*
+*从美国东部时间 9 月 2 日星期五上午 12 点至美国东部时间 9 月 5 日星期一晚上 11 点 59 分，在代码劳动节享受全网站八折优惠。*
 
 *当然，这只是下周末 ( 提供的食物交易和赠品中的一小部分，包括一些涉及免费送货的，但不包括打折食物 ) 。有你想分享的吗？请在下面的评论中提供详细信息。*

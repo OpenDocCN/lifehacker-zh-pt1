@@ -1,6 +1,6 @@
 # 在淋浴间安装转角搁板的最简单方法
 
-> 原文:[https://life hacker . com/the-easy-the-easy-ways-to-install-a-corner-shelf-in-your-show-1848824161](https://lifehacker.com/the-easiest-ways-to-install-a-corner-shelf-in-your-show-1848824161)
+> 原文：<https://lifehacker.com/the-easiest-ways-to-install-a-corner-shelf-in-your-show-1848824161>
 
 你翻新了你的浴室，却发现你没有考虑足够的浴室储物空间，这已经太晚了。或者你继承了一个现有的淋浴间，它只有一个尺寸适中的壁龛，永远也不会大到足以存放你所有必需的瓶子。你可能认为你注定要和那些笨重的金属“球童”一起生活，但你真正需要的是更多的架子。你可以采用两种非常简单的方法，不需要太多的专业知识或太多的工作。以下是如何给现有淋浴间添加转角搁板的方法。
 
@@ -8,7 +8,7 @@ Watch
 
 ## Schluter **SHELF-E**
 
-如果你曾经研究过浴室翻新，你可能会遇到Schluter公司，该公司生产一系列与淋浴相关的防水系统和配件。他们还为淋浴间提供高质量的不锈钢搁板。虽然这些架子中的一些被设计成在翻新期间安装(通常具有隐藏在瓷砖后面的支撑件)，但是它们的 [架子-E系列拐角架子](https://www.schluter.com/schluter-us/en_US/Shower-System/Accessories/Shelves/Schluter%C2%AE-SHELF-E/p/SHELF_E) 被设计成具有插入灌浆线的凸片。这意味着它们很容易改装成现有的淋浴器。这是你需要的:
+如果你曾经研究过浴室翻新，你可能会遇到 Schluter 公司，该公司生产一系列与淋浴相关的防水系统和配件。他们还为淋浴间提供高质量的不锈钢搁板。虽然这些架子中的一些被设计成在翻新期间安装(通常具有隐藏在瓷砖后面的支撑件)，但是它们的 [架子-E 系列拐角架子](https://www.schluter.com/schluter-us/en_US/Shower-System/Accessories/Shelves/Schluter%C2%AE-SHELF-E/p/SHELF_E) 被设计成具有插入灌浆线的凸片。这意味着它们很容易改装成现有的淋浴器。这是你需要的:
 
 *   您需要多少搁板就有多少(它们有各种各样的风格和形状)
 *   灌浆锯 [手动](https://www.homedepot.com/p/QEP-Professional-Handheld-Grout-Saw-with-Blade-Storage-and-2-Blades-for-Cleaning-Stripping-and-Removing-Grout-10093/311174909) 或 [多刀头](https://www.amazon.com/DEWALT-Dwa4219-Oscillating-Carbide-Removal/dp/B00FRMZVJQ/ref=asc_df_B00FRMZVJQ/?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/the-easiest-ways-to-install-a-corner-shelf-in-your-show-1848824161&asc_source=&hvadid=309807921328&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=9003488&hvnetw=g&hvpone=&hvpos=&hvptwo=&hvqmt=&hvrand=16731804271635434027&hvtargid=pla-479580027324&linkCode=df0&psc=1&tag=kinjalifehackerlink-20)
@@ -28,7 +28,7 @@ Watch
 
 ## 胶水工作
 
-如果你不喜欢切割Schluter搁板的灌浆线，你可以在大约半小时内将转角淋浴搁板粘合到位，而不会损害灌浆或瓷砖的完整性。这里有一个警告是*不要*买一个声称开箱后就能贴在墙上的“不干胶”架子。虽然这可能是一个不错的短期解决方案，但它最终可能会从墙上掉下来。以下是你获得一份更合适的工作所需要的:
+如果你不喜欢切割 Schluter 搁板的灌浆线，你可以在大约半小时内将转角淋浴搁板粘合到位，而不会损害灌浆或瓷砖的完整性。这里有一个警告是*不要*买一个声称开箱后就能贴在墙上的“不干胶”架子。虽然这可能是一个不错的短期解决方案，但它最终可能会从墙上掉下来。以下是你获得一份更合适的工作所需要的:
 
 *   一个 [【平背】陶瓷转角搁板](https://www.tileshop.com/products/bright-white-flatback-corner-shelf-223400) ，适合你淋浴的风格和颜色。买一个“平背”搁板很重要，这样你就可以很容易地把它固定在墙上。
 *   有的 [双面防水安装胶带](https://www.lowes.com/pl/Water-resistant--Double-sided-mounting-tape-Tapes-Glues-tapes/4294417407?refinement=4294746963)

@@ -1,6 +1,6 @@
 # 如何阻止自己呕吐
 
-> 原文:[https://life hacker . com/how-to-stop you-from-through-1848893119](https://lifehacker.com/how-to-stop-yourself-from-throwing-up-1848893119)
+> 原文：<https://lifehacker.com/how-to-stop-yourself-from-throwing-up-1848893119>
 
 啊，它来了。你会觉得又热又粘。你的胃在翻腾。你的嘴尝起来很奇怪。你知道你马上就要吐了。你能在事情发生前阻止它吗？或者至少让它不那么可怕？无论你是否正在与晨吐、食物中毒或胃部病毒作斗争，下面是下次感到呕吐即将来临时应该做的事情。
 
@@ -16,12 +16,12 @@ Watch
 
 先试着深呼吸。有科学研究做了关于如何用它来阻止你呕吐。大脑称之为“受控横膈膜呼吸”,并推荐它用于对抗晕动病，但它对你的意义是:通过鼻子慢慢地呼吸，让空气深入你的下腹部。收紧腹部肌肉，然后通过撅起的嘴唇将空气推出。一遍又一遍地重复这个动作。
 
-你也可以试试腕部指压， [根据Healthline](https://www.healthline.com/health/how-to-stop-vomiting-remedies#eat-crackers) :你要找的按压点 [内关(P-6)](https://www.healthline.com/health/pressure-points-for-nausea#pc-6-or-p-6) ，在你小臂靠近手腕的掌侧。将三个手指交叉放在手腕上，拇指放在食指下，然后在交换手腕前以坚定的圆周运动摩擦该点大约两三分钟。我们不能保证它会起作用，但如果深呼吸不起作用，它可能值得一试。
+你也可以试试腕部指压， [根据 Healthline](https://www.healthline.com/health/how-to-stop-vomiting-remedies#eat-crackers) :你要找的按压点 [内关(P-6)](https://www.healthline.com/health/pressure-points-for-nausea#pc-6-or-p-6) ，在你小臂靠近手腕的掌侧。将三个手指交叉放在手腕上，拇指放在食指下，然后在交换手腕前以坚定的圆周运动摩擦该点大约两三分钟。我们不能保证它会起作用，但如果深呼吸不起作用，它可能值得一试。
 
 [根据*内部人士*](https://www.insider.com/how-to-stop-vomiting#:~:text=You%20can%20stop%20vomiting%20by,%2C%20pregnancy%2C%20and%20motion%20sickness.) 的说法，一旦这一时刻足够过去，新鲜空气、食用生姜和吃普通饼干也可以帮助稳定你的胃，如果这些东西对你来说是现成的话。
 
 ## **瞬间过后该做什么**
 
-你可能无法深呼吸或加压走出第一轮，但你可以试着阻止它继续。喝液体来补充你已经失去的，但不要太快。如果你咕噜咕噜地喝，你可能会再次呕吐。每隔5到10分钟间歇啜饮一口。特别是，水或含电解质的饮料很好，姜汁汽水、薄荷茶或柠檬水可能会帮助你减轻恶心感。
+你可能无法深呼吸或加压走出第一轮，但你可以试着阻止它继续。喝液体来补充你已经失去的，但不要太快。如果你咕噜咕噜地喝，你可能会再次呕吐。每隔 5 到 10 分钟间歇啜饮一口。特别是，水或含电解质的饮料很好，姜汁汽水、薄荷茶或柠檬水可能会帮助你减轻恶心感。
 
-呕吐后至少15到20分钟内不要吃或喝任何东西。事实上， [根据VeryWell Health](https://www.verywellhealth.com/how-to-stop-throwing-up-tips-and-treatments-770364) 的说法，你会想确保你能在尝试吃东西之前保持8到12个小时的流质——但如果你试图偷偷吃一些我们谈到的那些淡而无味的饼干，那也是情有可原的。直到你的身体准备好了，你才会停止呕吐，但如果你试图马上大吃一顿或喝太多液体，你肯定会让情况变得更糟。
+呕吐后至少 15 到 20 分钟内不要吃或喝任何东西。事实上， [根据 VeryWell Health](https://www.verywellhealth.com/how-to-stop-throwing-up-tips-and-treatments-770364) 的说法，你会想确保你能在尝试吃东西之前保持 8 到 12 个小时的流质——但如果你试图偷偷吃一些我们谈到的那些淡而无味的饼干，那也是情有可原的。直到你的身体准备好了，你才会停止呕吐，但如果你试图马上大吃一顿或喝太多液体，你肯定会让情况变得更糟。

@@ -1,6 +1,6 @@
 # 如何和你的孩子开始写日记
 
-> 原文:[https://life hacker . com/how-to-start-a-journaling-practice-with-your-kids-1846017402](https://lifehacker.com/how-to-start-a-journaling-practice-with-your-kids-1846017402)
+> 原文：<https://lifehacker.com/how-to-start-a-journaling-practice-with-your-kids-1846017402>
 
 当我们进入新的一年——尽管仍在艰难地穿越毁灭性的疫情——你可能正在寻找新的习惯，帮助你和你的孩子提高你的正念，并帮助处理我们正在经历的时代。如果是这样的话，现在是时候开始和你的孩子一起定期写日记了。
 

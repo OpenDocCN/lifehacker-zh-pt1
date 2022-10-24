@@ -1,6 +1,6 @@
 # 这些免费的模板将帮助你雕刻社区里最好的南瓜灯
 
-> 原文:[https://life hacker . com/these-free-stencils-will-help-you-carve-the-neighborhoo-1849643981](https://lifehacker.com/these-free-stencils-will-help-you-carve-the-neighborhoo-1849643981)
+> 原文：<https://lifehacker.com/these-free-stencils-will-help-you-carve-the-neighborhoo-1849643981>
 
 即使你讨厌秋天的基本活动，更喜欢在秋天做些[更独特的事情](https://lifehacker.com/the-best-fall-trips-and-activities-in-each-of-the-50-st-1849512201) ，你可能会在这个月的某个时候发现自己在南瓜地里。毕竟现在是鬼火季节。虽然猎奇可能是最基本的，但你的雕刻不需要如此。互联网上到处都有很酷的、意想不到的图案，而且是免费的。这里有一些我们最喜欢的资源。
 
@@ -14,13 +14,13 @@ Watch
 
 ## **如果你喜欢流行文化…**
 
-南瓜夫人也有一部分，其中包括像 [【安吉丽娜·朱莉】](https://www.pumpkinlady.com/product/angelina-jolie/)[丹妮尔·拉德克利夫](https://www.pumpkinlady.com/product/daniel-radcliffe/)[埃德加·爱伦·坡](https://www.pumpkinlady.com/product/edgar-allan-poe/) 这样的名人，但是如果你在其他地方寻找流行文化模板，你还有很多选择。对 [神奇女侠](https://images.halloweencostumes.com/pdfs/2017-Pumpkin-Stencil-Wonder-Woman.pdf) 还是 [宝贝格鲁特](https://images.halloweencostumes.com/pdfs/2017-Pumpkin_Stencil-Baby-Groot.pdf) 感兴趣？Halloweencostumes.com免费提供这些——而且它们非常容易雕刻。
+南瓜夫人也有一部分，其中包括像 [【安吉丽娜·朱莉】](https://www.pumpkinlady.com/product/angelina-jolie/)[丹妮尔·拉德克利夫](https://www.pumpkinlady.com/product/daniel-radcliffe/)[埃德加·爱伦·坡](https://www.pumpkinlady.com/product/edgar-allan-poe/) 这样的名人，但是如果你在其他地方寻找流行文化模板，你还有很多选择。对 [神奇女侠](https://images.halloweencostumes.com/pdfs/2017-Pumpkin-Stencil-Wonder-Woman.pdf) 还是 [宝贝格鲁特](https://images.halloweencostumes.com/pdfs/2017-Pumpkin_Stencil-Baby-Groot.pdf) 感兴趣？Halloweencostumes.com 免费提供这些——而且它们非常容易雕刻。
 
 ## 如果你喜欢运动…
 
 热爱万圣节的体育迷们会非常喜欢一些体育主题的南瓜灯图案。如果你更关心大学橄榄球赛而不是“不给糖就捣蛋”，那么刻上你的南瓜，为你最喜欢的队加油。 [神出鬼没的高手](http://www.spookmaster.com/pumpkin-carving-patterns-browse-sports.htm) 有花样的有 [阿拉巴马](http://www.spookmaster.com/pumpkin-carving-patterns-pdf-files/pumpkin-carving-patterns-alabama-crimson-tide.pdf)[佛罗里达鳄鱼](http://www.spookmaster.com/pumpkin-carving-patterns-pdf-files/pumpkin-carving-patterns-florida-gators.pdf)[肯塔基野猫](http://www.spookmaster.com/pumpkin-carving-patterns-pdf-files/pumpkin-carving-patterns-kentucky-wildcats.pdf) ，还有更多花样。
 
-如果职业体育更符合你的速度，有NFL球队(以及[NFL标志本身](http://www.pumpkinpile.com/assets/nfl.pdf) )和MLB球队，如 [勇士](https://www.mlb.com/braves/fans/pumpkin-stencils) 和 [双胞胎](https://www.mlb.com/twins/fans/pumpkin-stencils) 甚至在他们的官方网站上有免费的模板可供下载。
+如果职业体育更符合你的速度，有 NFL 球队(以及[NFL 标志本身](http://www.pumpkinpile.com/assets/nfl.pdf) )和 MLB 球队，如 [勇士](https://www.mlb.com/braves/fans/pumpkin-stencils) 和 [双胞胎](https://www.mlb.com/twins/fans/pumpkin-stencils) 甚至在他们的官方网站上有免费的模板可供下载。
 
 ## **如果你想自己动手做……**
 

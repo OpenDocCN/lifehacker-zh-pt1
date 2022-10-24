@@ -1,6 +1,6 @@
 # 如何保护你的花园过冬
 
-> 原文:[https://life hacker . com/how-to-protect-your ' s garden for the winter-1847597525](https://lifehacker.com/how-to-protect-your-garden-for-the-winter-1847597525)
+> 原文：<https://lifehacker.com/how-to-protect-your-garden-for-the-winter-1847597525>
 
 有些植物不适合寒冷的天气，但是数量惊人的多年生植物完全有能力熬过寒冷的冬天——至少有正确的保护。随着气温开始下降，重要的是采取一些简单的措施来使你的植物和土壤免受即将到来的寒冷季节的影响。以下是方法。
 

@@ -1,6 +1,6 @@
 # 使用这些策略来控制你分散的大脑
 
-> 原文:[https://life hacker . com/use-these-strategies-domine-your-scattered-brain-1848969564](https://lifehacker.com/use-these-strategies-to-dominate-your-scattered-brain-1848969564)
+> 原文：<https://lifehacker.com/use-these-strategies-to-dominate-your-scattered-brain-1848969564>
 
 有时候你满脑子想的都是这个地方，而你似乎无法找出原因。你已经尝试了各种各样的 [生产力黑客](https://lifehacker.com/you-don-t-need-adhd-to-use-these-adhd-productivity-hack-1848964773) 。你已经尝试将 [放松作为一种需要练习](https://lifehacker.com/why-you-should-think-of-relaxing-as-a-skill-not-a-rewa-1848320119) 的技能。尽管如此，你仍在努力保持在一个令人讨厌的漫不经心的疯狂的情况下。
 
@@ -24,7 +24,7 @@ Watch
 
 ### **自由写和删除**
 
-你不需要写日记一样的日志。如果你很难写出你的想法，那么释放你的压力，写一些“可读”的东西。我喜欢打开一个被设计删除的Word文档。我自由写作，不用担心拼写、语法或任何形式的连贯性。这意味着我的文档经常看起来像一个疯狂的、无意义的列表，就像这样:
+你不需要写日记一样的日志。如果你很难写出你的想法，那么释放你的压力，写一些“可读”的东西。我喜欢打开一个被设计删除的 Word 文档。我自由写作，不用担心拼写、语法或任何形式的连贯性。这意味着我的文档经常看起来像一个疯狂的、无意义的列表，就像这样:
 
 *   *强调*
 *   *给爸爸回电话*
@@ -38,7 +38,7 @@ Watch
 
 这可能意味着在每日计划中写下事情，填写一个选择 的 [笔记应用程序，或者对便利贴进行颜色编码——只要你找到一个适合你的系统。不同的工具有助于完成大量抽象的任务，并使它们看起来具体可行。](https://lifehacker.com/which-note-taking-app-should-i-use-for-apple-devices-1844166294)
 
-对于数字笔记工具，我的首选是[Evernote](https://evernote.com/)[微软的OneNote](https://products.office.com/en-us/onenote/digital-note-taking-app) 和 [Zoho笔记本](https://www.zoho.com/notebook/) 。
+对于数字笔记工具，我的首选是[Evernote](https://evernote.com/)[微软的 OneNote](https://products.office.com/en-us/onenote/digital-note-taking-app) 和 [Zoho 笔记本](https://www.zoho.com/notebook/) 。
 
 ### **创建迷你待办事项列表**
 

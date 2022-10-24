@@ -1,6 +1,6 @@
 # 如何制作自己的蜂鸟食物(以及为什么你应该这样做)
 
-> 原文:[https://life hacker . com/how-to-make-you-own-hummingbird-food-and-why-you-shou-1847187900](https://lifehacker.com/how-to-make-your-own-hummingbird-food-and-why-you-shou-1847187900)
+> 原文：<https://lifehacker.com/how-to-make-your-own-hummingbird-food-and-why-you-shou-1847187900>
 
 我挂在门廊上的蜂鸟喂食器是 [我生命中意想不到的快乐之一](https://lifehacker.com/get-a-bird-feeder-and-dont-overthink-it-1844596947) 。我最初挂它是因为蜂鸟一直在某个地方觅食——我确信我房子的前主人在那里挂了一个喂食器——每年夏天它们都会再次出现，要求我喂它们。所以我有。
 
@@ -14,8 +14,8 @@ Watch
 
 你可以这样做:
 
-1.  向一品脱大小的梅森罐或类似的容器中加入1/4杯糖。
-2.  加入1杯冷水或室温水。
+1.  向一品脱大小的梅森罐或类似的容器中加入 1/4 杯糖。
+2.  加入 1 杯冷水或室温水。
 3.  拧上盖子并摇动。
 
 就是这样——不需要加热，也不需要添加任何其他成分。只要稍微摇晃或搅拌一下，糖就会溶解。(如果你熟悉制作简单糖浆的，相对于水来说，它使用了更多的糖，需要更多的帮助才能溶解。)

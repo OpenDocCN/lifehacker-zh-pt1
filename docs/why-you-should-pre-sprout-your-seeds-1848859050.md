@@ -1,6 +1,6 @@
 # 为什么你应该预先发芽你的种子
 
-> 原文:[https://life hacker . com/why-you-should-pre-sprout-your-seeds-1848859050](https://lifehacker.com/why-you-should-pre-sprout-your-seeds-1848859050)
+> 原文：<https://lifehacker.com/why-you-should-pre-sprout-your-seeds-1848859050>
 
 经过数周的等待，看着你的小苗破土而出的满足感是园艺最棒的部分之一——除非你的种子发芽不像你希望的那样均匀。你的一些种子可能根本就没有发芽，或者多管闲事的松鼠可能在它们有机会之前就把它们带走了。但是有一个方法可以帮助你预测种子的发芽率*和*缩短它们发芽所需的时间:室内发芽。
 

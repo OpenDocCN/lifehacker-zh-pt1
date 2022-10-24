@@ -1,6 +1,6 @@
 # 所有道德(和道德相邻)的方式击败你的汽车的排放测试[更新]
 
-> 原文:[https://life hacker . com/all-the-ethical-and-ethical-neighbour-ways-to-beat you-1847690749](https://lifehacker.com/all-the-ethical-and-ethical-adjacent-ways-to-beat-you-1847690749)
+> 原文：<https://lifehacker.com/all-the-ethical-and-ethical-adjacent-ways-to-beat-you-1847690749>
 
 驾驶一辆保养良好、定期维修的汽车是通过排放检查的最好方法，但你是什么，某种方吗？如果你没有更新的车，看看下面的提示，试着把你的搅拌器挤到烟雾检查线下。如果这不起作用，不要在文章结尾使用不道德的，可能是非法的烟雾测试作弊手段。
 
@@ -14,11 +14,11 @@ Watch
 
 ### **尝试一种燃料添加剂**
 
-燃料添加剂旨在通过清除汽车发动机和排气道中的碳残留物来提高效率——更高效的发动机意味着更低的排放，并有望通过烟雾测试。在进行烟雾测试之前，请遵循包装上的说明。一种“通用”的气体添加剂，像 [雪佛龙的Techron](https://www.chevronlubricants.com/en_us/home/products/by_brand/techron.html?gclid=Cj0KCQjw1ouKBhC5ARIsAHXNMI_LMm_uW69Zm5c9Lp_hK8Wc6eoO4IAKi_vFy0UHl0XYDwbthSGvRmgaArVTEALw_wcB&gclsrc=aw.ds) 应该会有帮助，或者你可以用一些特定的东西，像 [CRC保证排放公式](https://www.amazon.com/CRC-05063-Guaranteed-Emissions-Formula/dp/B000CIPUR8?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/all-the-ethical-and-ethical-adjacent-ways-to-beat-you-1847690749&asc_source=&tag=kinjalifehackerlink-20) 。
+燃料添加剂旨在通过清除汽车发动机和排气道中的碳残留物来提高效率——更高效的发动机意味着更低的排放，并有望通过烟雾测试。在进行烟雾测试之前，请遵循包装上的说明。一种“通用”的气体添加剂，像 [雪佛龙的 Techron](https://www.chevronlubricants.com/en_us/home/products/by_brand/techron.html?gclid=Cj0KCQjw1ouKBhC5ARIsAHXNMI_LMm_uW69Zm5c9Lp_hK8Wc6eoO4IAKi_vFy0UHl0XYDwbthSGvRmgaArVTEALw_wcB&gclsrc=aw.ds) 应该会有帮助，或者你可以用一些特定的东西，像 [CRC 保证排放公式](https://www.amazon.com/CRC-05063-Guaranteed-Emissions-Formula/dp/B000CIPUR8?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/all-the-ethical-and-ethical-adjacent-ways-to-beat-you-1847690749&asc_source=&tag=kinjalifehackerlink-20) 。
 
 ### **使用低辛烷值燃料**
 
-在你的烟雾测试之前不要加满特级汽油。去买那些我们都放在 Kias里的更便宜、低辛烷值的东西。它比高辛烷值燃料燃烧得更快，因此产生的排放也更少——无论如何，根据AxleAddict.comT5T7的说法。
+在你的烟雾测试之前不要加满特级汽油。去买那些我们都放在 Kias 里的更便宜、低辛烷值的东西。它比高辛烷值燃料燃烧得更快，因此产生的排放也更少——无论如何，根据 AxleAddict.comT5T7 的说法。
 
 ### **确保你的油是新鲜的**
 
@@ -26,26 +26,26 @@ Watch
 
 ### **确保你的轮胎充气正常**
 
-轮胎压力低或轮胎充气不均匀会对发动机的运行产生负面影响，从而影响其排放。[据edmunds.com](https://www.edmunds.com/how-to/how-to-pass-a-smog-check.html)介绍，很多州都要求进行测功机测试，轮胎充气不足会导致你的发动机更加努力的工作，以达到测试所需的转数。
+轮胎压力低或轮胎充气不均匀会对发动机的运行产生负面影响，从而影响其排放。[据 edmunds.com](https://www.edmunds.com/how-to/how-to-pass-a-smog-check.html)介绍，很多州都要求进行测功机测试，轮胎充气不足会导致你的发动机更加努力的工作，以达到测试所需的转数。
 
 ### **关闭发动机检查灯**
 
 虽然点亮的“检查发动机”指示灯是排放检查的自动失败，但经常重复的想法是，你可以在测试前关闭它，并希望“擦肩而过”，这是有争议的。(一些消息来源说 [它可以工作](https://axleaddict.com/auto-repair/Tricks-to-Passing-a-Smog-Test) 。 [有人说不会](https://www.cars.com/articles/emissions-testing-101-what-you-need-to-know-1420696641293/) 。相反，采用可靠的方法:如果你的检查引擎灯亮着，把你的车拿到机械师那里修理。
 
-如果你已经尝试了所有这些技巧，而你心爱的1998款克莱斯勒Sebring *仍然没有通过测试，下面这些不道德的技巧可能会让你崩溃(但是请不要真的尝试这些东西——它们是非法和危险的。)*
+如果你已经尝试了所有这些技巧，而你心爱的 1998 款克莱斯勒 Sebring *仍然没有通过测试，下面这些不道德的技巧可能会让你崩溃(但是请不要真的尝试这些东西——它们是非法和危险的。)*
 
 ## **不道德的雾霾小贴士**
 
 ### **往你的油箱里灌满酒精**
 
-根据美国能源部 的说法，酒精比汽油燃烧得更完全，所以理论上，你可以在烟雾测试前排空油箱，并倒入一加仑纯酒精，从而获得更清洁的测试结果。关于这是否合法众说纷纭，但不管怎样，这都是*可能*一个坏主意:[根据汽车工业贸易组织](https://www.edmunds.com/fuel-economy/controversial-e15-fuel-blend-is-on-the-way.html) 的说法，即使是酒精含量只有15%的汽油也没有经过足够的测试来了解它是否会以及如何损坏你的汽车。
+根据美国能源部 的说法，酒精比汽油燃烧得更完全，所以理论上，你可以在烟雾测试前排空油箱，并倒入一加仑纯酒精，从而获得更清洁的测试结果。关于这是否合法众说纷纭，但不管怎样，这都是*可能*一个坏主意:[根据汽车工业贸易组织](https://www.edmunds.com/fuel-economy/controversial-e15-fuel-blend-is-on-the-way.html) 的说法，即使是酒精含量只有 15%的汽油也没有经过足够的测试来了解它是否会以及如何损坏你的汽车。
 
 ### **找犯罪雾霾中心**
 
-可悲的是，因为捏造一些数字而塞给一个可疑的技术人员100美元的日子已经过去了。直接连接到车管所的电脑让防雾霾变得更加复杂，但这仍然是可能的。可疑的检测中心可以在将数据传输给国家之前，用一辆“干净”的汽车尾气来代替你的尾气，或者使用一个“转速模拟器”来欺骗烟雾机器，让它认为一辆汽车正在以合适的合格转速运行。
+可悲的是，因为捏造一些数字而塞给一个可疑的技术人员 100 美元的日子已经过去了。直接连接到车管所的电脑让防雾霾变得更加复杂，但这仍然是可能的。可疑的检测中心可以在将数据传输给国家之前，用一辆“干净”的汽车尾气来代替你的尾气，或者使用一个“转速模拟器”来欺骗烟雾机器，让它认为一辆汽车正在以合适的合格转速运行。
 
-(但真的，你不应该和不道德的雾霾中心做生意。毫无疑问，它比普通的烟雾中心更贵，被发现可能会导致消费者受到150至1000美元的民事罚款，加油站所有者受到5000至25万美元的罚款，甚至会被判入狱。)
+(但真的，你不应该和不道德的雾霾中心做生意。毫无疑问，它比普通的烟雾中心更贵，被发现可能会导致消费者受到 150 至 1000 美元的民事罚款，加油站所有者受到 5000 至 25 万美元的罚款，甚至会被判入狱。)
 
-*本文最初发表于2021年9月16日，并于2021年9月19日更新，以更正事实错误。*
+*本文最初发表于 2021 年 9 月 16 日，并于 2021 年 9 月 19 日更新，以更正事实错误。*
 
 *T2】*

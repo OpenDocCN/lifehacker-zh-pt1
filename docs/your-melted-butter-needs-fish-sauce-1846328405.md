@@ -1,6 +1,6 @@
 # 你融化的黄油需要鱼露
 
-> 原文:[https://life hacker . com/your-melted-butter-needs-fish-sauce-1846328405](https://lifehacker.com/your-melted-butter-needs-fish-sauce-1846328405)
+> 原文：<https://lifehacker.com/your-melted-butter-needs-fish-sauce-1846328405>
 
 在鱼腥味增强剂方面，发酵东南亚鱼露是我绝对的最爱。我喜欢罐装凤尾鱼，尤其是当它与一堆慢煮的大蒜混合在一起时，但是鱼酱有一种更深、更香、几乎焦糖化的味道，让我的嘴保持兴趣，并参与到我放的任何东西中。另外，它已经是一种方便的液体形式，很容易溅到醋油沙司、卤汁、 [面酱、](https://skillet.lifehacker.com/heres-what-your-tomato-sauce-is-missing-1824287735) 、 [辣椒、](https://skillet.lifehacker.com/you-should-definitely-put-fish-sauce-in-your-chili-1845596159) 、 和融化的黄油中。
 

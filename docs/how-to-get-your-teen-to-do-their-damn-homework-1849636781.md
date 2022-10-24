@@ -1,6 +1,6 @@
 # 如何让你的孩子做他们该死的作业
 
-> 原文:[https://life hacker . com/how-to-get-your-teen-do-then-该死的家庭作业-1849636781](https://lifehacker.com/how-to-get-your-teen-to-do-their-damn-homework-1849636781)
+> 原文：<https://lifehacker.com/how-to-get-your-teen-to-do-their-damn-homework-1849636781>
 
 抚养青少年是艰难的。他们的日常需求仍然依赖于你，但他们也有自己的想法——因此，尽管你可以在某些方面推动他们，但如果他们拒绝做一些事情，你也只能做这么多。谈到学业，你可以告诉他们努力工作的重要性，并树立履行义务的榜样，但如果他们拒绝学习或做作业，你的选择就有限了。当然，你可以拿走他们的手机，或者禁止他们见朋友，但他们仍有可能固执己见(同时破坏你们的关系)。如果一个青少年拒绝做作业，你能做什么？
 

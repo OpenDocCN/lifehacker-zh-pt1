@@ -1,6 +1,6 @@
 # 奖金房和卧室的区别(以及它的重要性)
 
-> 原文:[https://life hacker . com/the-difference-a bonus-room-and-a-bedroom-1849563375](https://lifehacker.com/the-difference-between-a-bonus-room-and-a-bedroom-and-1849563375)
+> 原文：<https://lifehacker.com/the-difference-between-a-bonus-room-and-a-bedroom-and-1849563375>
 
 就像任何专业团体一样，房地产经纪人经常通过一套密集的行话进行交流，这些行话通常用于掩盖房产的缺点并强调其特点。这可以包括使用“舒适和迷人”这样的短语，当你指的是小而分散的时候，也可以扩展“卧室”这个词的定义，使其包括一个仅够放一个睡袋的房间。然而，房地产经纪人会向你抛出的最神秘的词语之一是“奖金房”
 

@@ -1,6 +1,6 @@
 # 孩子们不需要总是分享
 
-> 原文:[https://life hacker . com/kids-dont-always-have-to-share-1847378137](https://lifehacker.com/kids-dont-always-have-to-share-1847378137)
+> 原文：<https://lifehacker.com/kids-dont-always-have-to-share-1847378137>
 
 在我大儿子打开生日礼物几分钟后，我两岁的儿子开始哭了起来。他想在哥哥的新玩具一从盒子里拿出来就玩，但他的弟弟坚决拒绝了他的要求。虽然我对我最大的孩子不想分享感到失望，但我也不能责怪他。对于一个孩子来说，没有什么比在收到你的玩具后几分钟就被迫把它们送给别人更让人恼火的了。
 

@@ -1,6 +1,6 @@
 # 我们向你展示了一些使用旧袜子的荒谬方法(除了那一种，你这个变态)
 
-> 原文:[https://life hacker . com/we-present-to-you-a-monrally-number-of-way-to-use-ol-1848207919](https://lifehacker.com/we-present-to-you-a-ridiculous-number-of-ways-to-use-ol-1848207919)
+> 原文：<https://lifehacker.com/we-present-to-you-a-ridiculous-number-of-ways-to-use-ol-1848207919>
 
 袜子可能是成双成对的来到这个世界，但它们几乎总是独自离开这个世界。幸运的是，你不一定需要扔掉那些没有完美搭配的袜子，或拉伸的，或破旧的，或有洞的袜子。从清洁你的家到为你的孩子制作用品，有很多巧妙的方法来重新利用旧袜子。你不仅可以获得全新的用途，还可以避免不必要的纺织品浪费。如果你的袜子抽屉已经变成了一个袜子炼狱，这里有一些可笑的方法可以让你的旧袜子重获新生。
 
@@ -12,7 +12,7 @@ Watch
 
 除尘手套:把一只袜子套在手上，用它作为除尘手套，进入你家周围所有难以触及的表面。这款对清洁百叶窗和百叶窗特别有用。
 
-[**DIY Swiffer**](https://www.reddit.com/r/Frugal/comments/k3ywzs/ways_to_repurpose_your_old_socks/)**:**如果你有一个Swiffer，你可以在Swiffer pads通常放的地方塞一只袜子。如果你没有洗碗机，你可以在标尺上套一只袜子来清洁冰箱或沙发下面。
+[**DIY Swiffer**](https://www.reddit.com/r/Frugal/comments/k3ywzs/ways_to_repurpose_your_old_socks/)**:**如果你有一个 Swiffer，你可以在 Swiffer pads 通常放的地方塞一只袜子。如果你没有洗碗机，你可以在标尺上套一只袜子来清洁冰箱或沙发下面。
 
 **干擦:**如果你有粉笔或白板，就不要浪费纸巾擦下来。相反，袜子是一种可持续且有效的重新开始的方式。
 
@@ -56,13 +56,13 @@ Watch
 
 **防风塞:**在门窗下塞袜子，以控制气流。你可以用一只长筒袜、旧枕头或旧毛衣的填充物，以及一些可以压住塞子的小东西(比如爆米花粒或珠子)来做草稿塞。 [此处阅读完整说明](https://gardentherapy.ca/draft-stoppers-how-to-make-diy-door-socks/) 。
 
-挡风玻璃雨刷罩:你可以用袜子罩住雨刮片，防止它们在夜间结冰。Reddit上到处都是这个，你可以在 [这里](https://www.mentalfloss.com/article/73504/15-simple-cold-weather-car-hacks#:~:text=PUT%20OLD%20SOCKS%20ON%20YOUR,to%20prevent%20ice%20build%20up.) 阅读更多关于如何让它为你工作的信息。
+挡风玻璃雨刷罩:你可以用袜子罩住雨刮片，防止它们在夜间结冰。Reddit 上到处都是这个，你可以在 [这里](https://www.mentalfloss.com/article/73504/15-simple-cold-weather-car-hacks#:~:text=PUT%20OLD%20SOCKS%20ON%20YOUR,to%20prevent%20ice%20build%20up.) 阅读更多关于如何让它为你工作的信息。
 
 **抢救丢失的小物品:**在你的真空软管上套一只袜子，从难以够到的地方召唤珠宝等小物品。真空应该会把物品吸向你，但是袜子会防止它被完全吸走。
 
 [**覆盖冰袋**](https://www.insider.com/what-to-do-with-old-socks-2017-2#cover-ice-packs-so-they-dont-rest-against-your-skin-13) **:** 你应该始终在冰袋和皮肤之间使用一块布，一只旧袜子应该是你完成这项工作的最佳选择。尽管毛巾可能会滑落或太薄而不能让寒气通过，你可以将冰袋直接放入袜子中，然后安全地敷在伤口上。
 
-**微波加热垫:**需要热量，不需要冰？在袜子里装满大米，然后打个结。一次放入微波炉30秒，直到变暖(不要太热)。
+**微波加热垫:**需要热量，不需要冰？在袜子里装满大米，然后打个结。一次放入微波炉 30 秒，直到变暖(不要太热)。
 
 **鞋子除臭剂:**得了臭鞋子？你并不孤单。将两到三汤匙的烘焙食品倒入袜子中，然后用绳结或橡皮筋系紧。将填充好的袜子塞入鞋头，放置一夜，吸收难闻的气味。
 
@@ -84,7 +84,7 @@ Watch
 
 给你的宠物买玩具:你可以给你的猫买最漂亮的玩具，但是我们的宠物总是会回到你的旧袜子里(当然还有纸箱)。 [对于一只猫玩具](https://www.reddit.com/r/Frugal/comments/k3ywzs/ways_to_repurpose_your_old_socks/) ，用某种填充物(像聚脂填充物或旧枕头的内部)和一小撮猫薄荷填充袜子的脚趾，然后牢牢地绑好。对于狗拉玩具，将多只袜子尽可能紧地绑在一起(这样可以承受你的狗的猛烈拉扯)。
 
-制作毛绒玩具袜子:袜子不仅仅是*给*你的宠物的；他们可以*成为*你的宠物。觉得我疯了？让我把你转到Pinterest上，看看有什么创造性的方法可以把袜子变成各种各样的毛绒玩具。
+制作毛绒玩具袜子:袜子不仅仅是*给*你的宠物的；他们可以*成为*你的宠物。觉得我疯了？让我把你转到 Pinterest 上，看看有什么创造性的方法可以把袜子变成各种各样的毛绒玩具。
 
 当然，还有袜子木偶:永不过时。优雅。好玩。袜子木偶制作简单，易于个性化。拿一些纱线、管道清洁器、记号笔和任何你的工艺品用品，把你的袜子变成一个好朋友。我把最好的留到了最后，伙计们。
 

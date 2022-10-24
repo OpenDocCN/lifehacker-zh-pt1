@@ -1,10 +1,10 @@
-# 用培根及其油脂烹饪的11种美味方法
+# 用培根及其油脂烹饪的 11 种美味方法
 
-> 原文:[https://life hacker . com/11-delicious-ways-to-cook with the bacon-and-its-grease-1847027941](https://lifehacker.com/11-delicious-ways-to-cook-with-bacon-and-its-grease-1847027941)
+> 原文：<https://lifehacker.com/11-delicious-ways-to-cook-with-bacon-and-its-grease-1847027941>
 
 当你买熏肉时，你真的得到了两种极好的产品——美味的早餐肉和极好的烹饪脂肪。很难说我更看重哪个。
 
-将五花肉放入灼热的平底锅中，会导致它在任何脂肪有机会呈现出来之前就卡住并燃烧，从而产生耐嚼、烹饪不均匀的条状或lardon。但是在一个冷平底锅 中开始熏肉 [并用小火烹饪它会让脂肪慢慢完全融化，给你的熏肉是均匀烹饪的，脆脆的而不是烧焦的粘性的。](https://lifehacker.com/the-secret-to-great-bacon-is-a-cold-pan-1829171657)
+将五花肉放入灼热的平底锅中，会导致它在任何脂肪有机会呈现出来之前就卡住并燃烧，从而产生耐嚼、烹饪不均匀的条状或 lardon。但是在一个冷平底锅 中开始熏肉 [并用小火烹饪它会让脂肪慢慢完全融化，给你的熏肉是均匀烹饪的，脆脆的而不是烧焦的粘性的。](https://lifehacker.com/the-secret-to-great-bacon-is-a-cold-pan-1829171657)
 
 [培根不需要空间。](https://lifehacker.com/go-ahead-and-crowd-your-bacon-1846665283) 锅里放的越多，那锅里积累的油脂就越多，油脂是个好东西。肉会萎缩，让每个人都有足够的空间用自己的脂肪浅炸。一旦它们收缩，你可能不得不调整一些带子，以确保没有重叠，但你不必翻转它们那么多，这是一个公平的交易关闭，我认为。(你还会有一吨剩余的油脂——用它来做 [油炸面包和脏鸡蛋](https://lifehacker.com/bacon-is-the-key-to-this-one-pan-breakfast-1846766825) 。)
 

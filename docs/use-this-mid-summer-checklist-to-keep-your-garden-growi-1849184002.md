@@ -1,6 +1,6 @@
 # 使用这个仲夏清单来保持你的花园生长
 
-> 原文:[https://life hacker . com/use-this-mid-summer-check list-to-keep-your-garden-grow I-1849184002](https://lifehacker.com/use-this-mid-summer-checklist-to-keep-your-garden-growi-1849184002)
+> 原文：<https://lifehacker.com/use-this-mid-summer-checklist-to-keep-your-garden-growi-1849184002>
 
 你可能在春天完成了种植，但这并不意味着你花园里的工作已经完成。事实上，现在是仲夏保养的时候了。为了使事情尽可能简单，这里有一个清单，带你完成一些重要的赛季中期任务。
 

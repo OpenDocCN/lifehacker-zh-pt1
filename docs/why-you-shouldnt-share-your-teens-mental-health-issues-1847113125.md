@@ -1,6 +1,6 @@
 # 为什么你不应该在网上公开分享你孩子的心理健康问题
 
-> 原文:[https://life hacker . com/why-you-should-share-you-tens-mental-health-issues-1847113125](https://lifehacker.com/why-you-shouldnt-share-your-teens-mental-health-issues-1847113125)
+> 原文：<https://lifehacker.com/why-you-shouldnt-share-your-teens-mental-health-issues-1847113125>
 
 我们过去曾说过，父母需要对我们在网上发布的关于孩子的信息更加深思熟虑或谨慎，特别是一旦他们长大到对你发布到数字世界的信息和图像有发言权。但是有一个领域你可能透露了太多你没有想到的信息，特别是当我们已经驶过疫情的时候:他们的精神健康。
 

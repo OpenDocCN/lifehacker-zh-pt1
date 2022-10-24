@@ -1,6 +1,6 @@
-# 结婚前要问伴侣的10个问题
+# 结婚前要问伴侣的 10 个问题
 
-> 原文:[https://life hacker . com/10-婚前问伴侣的问题-1847468514](https://lifehacker.com/10-questions-to-ask-your-partner-before-getting-married-1847468514)
+> 原文：<https://lifehacker.com/10-questions-to-ask-your-partner-before-getting-married-1847468514>
 
 当你和你的伴侣在一起足够长的时间，以至于婚姻已经摆在了桌面上，你可能会认为你知道关于他们的一切。不过，很有可能你不会。你可能知道他们喜欢的音乐和政治观点，但你知道他们对家务分工的感受吗？什么样的*算是不忠？他们是否会自愿在半夜起床喂一个哭泣的婴儿，或者他们是否会存下——或者立即花掉——一张奖金支票？* 
 

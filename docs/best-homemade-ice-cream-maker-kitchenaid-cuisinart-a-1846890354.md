@@ -1,8 +1,8 @@
 # 如何找到最适合你的冰淇淋机
 
-> 原文:[https://the take out . com/best-自制冰淇淋制造商-kitchenaid-cuisinart-a-1846890354](https://thetakeout.com/best-homemade-ice-cream-maker-kitchenaid-cuisinart-a-1846890354)
+> 原文：<https://thetakeout.com/best-homemade-ice-cream-maker-kitchenaid-cuisinart-a-1846890354>
 
-[***我与你融为一体***](https://thetakeout.com/cooking-school/i-melt-with-you) *是来自*外卖*的新冰淇淋栏目。整个夏天我都会带着新的冰淇淋食谱、独特的配料、设备建议和让你的家庭冰淇淋体验尽可能简单有趣的方法来这里。我总是乐于接受挑战，所以请随时向**hello@thetakeout.com发送口味请求。*** *如果你想看看我为你开发的一些口味，请随意访问我的IG **@stacey.ballis** 并返回一些严肃的冰淇淋内容。*
+[***我与你融为一体***](https://thetakeout.com/cooking-school/i-melt-with-you) *是来自*外卖*的新冰淇淋栏目。整个夏天我都会带着新的冰淇淋食谱、独特的配料、设备建议和让你的家庭冰淇淋体验尽可能简单有趣的方法来这里。我总是乐于接受挑战，所以请随时向**hello@thetakeout.com 发送口味请求。*** *如果你想看看我为你开发的一些口味，请随意访问我的 IG **@stacey.ballis** 并返回一些严肃的冰淇淋内容。*
 
 Watch
 
@@ -10,7 +10,7 @@ Watch
 
 欢迎回到冰淇淋之乡！在这一期节目中，我们将谈论能让你自制冰淇淋达到冷冻完美境界的设备。因为虽然没有特殊设备 你也可以做出非常美味的冰淇淋，但拥有合适的工具可以让它变得更好。
 
-在自制冰淇淋和所有烹饪中，第一件事是一个好的数字厨房秤。按重量测量成分可确保一致性和精确性。仅仅用一个碗而不是弄脏一堆量杯和勺子来制作食谱也容易得多。我用这个 [OXO厨房秤](https://www.amazon.com/OXO-Grips-Stainless-Pull-Out-Display/dp/B079D9B82W/ref=sr_1_5?asc_campaign=InlineText&asc_refurl=https://thetakeout.com/best-homemade-ice-cream-maker-kitchenaid-cuisinart-a-1846890354&asc_source=&crid=2WM0H775J2LKI&dchild=1&keywords=oxo kitchen scale 11 lb&qid=1620928731&sprefix=oxo kitchen scale,aps,171&sr=8-5&tag=kinjatakeoutlink-20) 做从冰淇淋到面包面团的所有东西，我喜欢它的工作方式。
+在自制冰淇淋和所有烹饪中，第一件事是一个好的数字厨房秤。按重量测量成分可确保一致性和精确性。仅仅用一个碗而不是弄脏一堆量杯和勺子来制作食谱也容易得多。我用这个 [OXO 厨房秤](https://www.amazon.com/OXO-Grips-Stainless-Pull-Out-Display/dp/B079D9B82W/ref=sr_1_5?asc_campaign=InlineText&asc_refurl=https://thetakeout.com/best-homemade-ice-cream-maker-kitchenaid-cuisinart-a-1846890354&asc_source=&crid=2WM0H775J2LKI&dchild=1&keywords=oxo kitchen scale 11 lb&qid=1620928731&sprefix=oxo kitchen scale,aps,171&sr=8-5&tag=kinjatakeoutlink-20) 做从冰淇淋到面包面团的所有东西，我喜欢它的工作方式。
 
 如果你打算投资一家冰淇淋机——我强烈建议你这么做——市场上有各种各样的选择来满足每一种可能的需求或偏好。我有机会测试了一些我真心推荐的产品；这份名单上的每个人都应该有所收获。当然，随着本专栏的继续，我将测试其他设备，并分享相关的发现。
 
@@ -18,19 +18,19 @@ Watch
 
 ## **冰柜碗冰淇淋机**
 
-这些是学习使用最简单的冰淇淋机，对孩子非常友好，除了冰箱里放碗的空间之外，不会占用太多的存储空间，这是它们的特色。在搅拌之前，你需要将插入物放入冰箱冷冻24小时。由于大多数冰淇淋基料在搅拌前在冰箱里放置24小时味道更好，质地更好，这个时间安排得很好。所有这些机器都会把冰淇淋搅成非常柔软的质地；然后，它需要在冰箱里“固化”6-12个小时，以完成固化。为了获得最佳的质地，建议你在上菜的前一天搅拌。
+这些是学习使用最简单的冰淇淋机，对孩子非常友好，除了冰箱里放碗的空间之外，不会占用太多的存储空间，这是它们的特色。在搅拌之前，你需要将插入物放入冰箱冷冻 24 小时。由于大多数冰淇淋基料在搅拌前在冰箱里放置 24 小时味道更好，质地更好，这个时间安排得很好。所有这些机器都会把冰淇淋搅成非常柔软的质地；然后，它需要在冰箱里“固化”6-12 个小时，以完成固化。为了获得最佳的质地，建议你在上菜的前一天搅拌。
 
 ### 如果你有一台凯膳怡搅拌机
 
-留给你最喜欢的站搅拌机拿出一个天才 [冰淇淋机附件](https://www.kitchenaid.com/countertop-appliances/stand-mixers/attachments/see-all.html?plp=%253Arelevance%253Acategory%253ACountertopAppliancesStandMixersAttachments%253Afeatures%253ASweets%2520and%2520Dessert%2520Attachments&plpView=grid) ！更好的是，它可以和倾斜式和碗式搅拌机一起使用。使用起来非常简单:将碗冷冻24小时或更长时间，将其连接到搅拌器上，插入搅拌器并将其连接到电机上，添加底座，然后就可以开始了！冰淇淋搅拌大概20-30分钟，整体质量和速度与同类电机几乎一致。这是为你的生活添加冰淇淋的完美方式，而不必购买第二个设备，也是为你的军火库添加冰淇淋机最便宜的方式。
+留给你最喜欢的站搅拌机拿出一个天才 [冰淇淋机附件](https://www.kitchenaid.com/countertop-appliances/stand-mixers/attachments/see-all.html?plp=%253Arelevance%253Acategory%253ACountertopAppliancesStandMixersAttachments%253Afeatures%253ASweets%2520and%2520Dessert%2520Attachments&plpView=grid) ！更好的是，它可以和倾斜式和碗式搅拌机一起使用。使用起来非常简单:将碗冷冻 24 小时或更长时间，将其连接到搅拌器上，插入搅拌器并将其连接到电机上，添加底座，然后就可以开始了！冰淇淋搅拌大概 20-30 分钟，整体质量和速度与同类电机几乎一致。这是为你的生活添加冰淇淋的完美方式，而不必购买第二个设备，也是为你的军火库添加冰淇淋机最便宜的方式。
 
 ### 如果你不确定是否要一直搅拌冰淇淋
 
-不是每个人都会经常自制冰淇淋，所以在机器上投资很多是有意义的。如果你是一个新手，希望能够在自己喜欢的时候制作出优质的冷冻甜点，那么Cuisinart型号绝对不会错。有两款我强烈推荐。如果你一次只需要制作一夸脱半，或者如果你只是想以一个非常实惠的价格得到一个优质的制作机，那么就买一个一夸脱半 [冷冻酸奶-冰淇淋&冰糕制作机](https://www.cuisinart.com/shopping/appliances/ice_cream/ice-21p1/) 。如果你正在为一个家庭制作冰淇淋，并且想一次增加到两夸脱，那么选择 [纯放纵](https://www.cuisinart.com/shopping/appliances/ice_cream/ice-30bcp1/) 型号。这是我将近20年的冰淇淋机，今天它仍然像我第一次买它时一样好用。
+不是每个人都会经常自制冰淇淋，所以在机器上投资很多是有意义的。如果你是一个新手，希望能够在自己喜欢的时候制作出优质的冷冻甜点，那么 Cuisinart 型号绝对不会错。有两款我强烈推荐。如果你一次只需要制作一夸脱半，或者如果你只是想以一个非常实惠的价格得到一个优质的制作机，那么就买一个一夸脱半 [冷冻酸奶-冰淇淋&冰糕制作机](https://www.cuisinart.com/shopping/appliances/ice_cream/ice-21p1/) 。如果你正在为一个家庭制作冰淇淋，并且想一次增加到两夸脱，那么选择 [纯放纵](https://www.cuisinart.com/shopping/appliances/ice_cream/ice-30bcp1/) 型号。这是我将近 20 年的冰淇淋机，今天它仍然像我第一次买它时一样好用。
 
 ### 如果你想真正提升你的冰淇淋游戏
 
-最后，如果你想将多功能性最大化一点，再次选择Cuisinart(该品牌刚刚做冰淇淋机足够长的时间，以真正做好它)。这款 [Cool Creations](https://www.cuisinart.com/shopping/appliances/ice_cream/ice-70p1/) 2夸脱制作器有三种不同的速度，以及更快的处理时间和改进的桨，所有这些都使它成为一个很好的升级，如果你想探索冰淇淋、冰淇淋和冰糕的奇妙世界的话。
+最后，如果你想将多功能性最大化一点，再次选择 Cuisinart(该品牌刚刚做冰淇淋机足够长的时间，以真正做好它)。这款 [Cool Creations](https://www.cuisinart.com/shopping/appliances/ice_cream/ice-70p1/) 2 夸脱制作器有三种不同的速度，以及更快的处理时间和改进的桨，所有这些都使它成为一个很好的升级，如果你想探索冰淇淋、冰淇淋和冰糕的奇妙世界的话。
 
 ## **内置压缩机冰淇淋机**
 
@@ -38,14 +38,14 @@ Watch
 
 ### 如果你想要最大的压缩机爆炸
 
-Cuisinart冰淇淋和意式冰淇淋制造商 的价格略高于最高价格冷冻碗的两倍，只是不需要预冷冻。盖子上的窗口还有额外的好处，这样你就可以在搅拌时添加混合料，还有一个保持凉爽的功能，让你在从机器中转移冰淇淋时有一点喘息的空间。它还有两个不同的桨，一个用于冰淇淋，一个用于冰淇淋，所以你可以定制搅拌的质地，这是一个非常好的功能。它一次能生产一夸脱半。
+Cuisinart 冰淇淋和意式冰淇淋制造商 的价格略高于最高价格冷冻碗的两倍，只是不需要预冷冻。盖子上的窗口还有额外的好处，这样你就可以在搅拌时添加混合料，还有一个保持凉爽的功能，让你在从机器中转移冰淇淋时有一点喘息的空间。它还有两个不同的桨，一个用于冰淇淋，一个用于冰淇淋，所以你可以定制搅拌的质地，这是一个非常好的功能。它一次能生产一夸脱半。
 
 ### 如果你准备好成为手工艺人
 
-[Breville Smart Scoop](https://www.breville.com/us/en/products/ice-cream/bci600.html)是真正让我明白压缩机组好处的机器。它有四个不同类别(冰糕、冰淇淋、冷冻酸奶和冰淇淋)的12种不同硬度设置，使用这台机器越多，您就越能定制您的食谱。我的游戏改变者？预冷功能使机器在冷冻过程中领先一步，这意味着您的冰淇淋搅拌速度越来越快，质地越来越好。提醒声让你知道通过盖子上方便的门添加混音的最佳时间。保持凉爽功能意味着，如果冰淇淋在我的下一次Zoom会议开始时搅拌完毕，我不必担心:它会保持在理想的温度，直到我可以回到它，最多三个小时。这个装置，像Cuisinart一样，可以制作一夸脱半的冰淇淋，并配有一个刮铲来清除碗里的冰淇淋，还有一个特殊的清洁刷，确保你可以从桨的中心管中清除任何飞溅物。对于你的冰淇淋冒险来说，这是一笔不小的金融投资，但是仅仅因为一些东西很贵并不意味着它不划算。对我来说，我认为这个单位是非常值得的价格。现在，高级冰淇淋的价格高达每品脱8-12美元，即使算上配料的成本，你也只需购买25-35批就够了。
+[Breville Smart Scoop](https://www.breville.com/us/en/products/ice-cream/bci600.html)是真正让我明白压缩机组好处的机器。它有四个不同类别(冰糕、冰淇淋、冷冻酸奶和冰淇淋)的 12 种不同硬度设置，使用这台机器越多，您就越能定制您的食谱。我的游戏改变者？预冷功能使机器在冷冻过程中领先一步，这意味着您的冰淇淋搅拌速度越来越快，质地越来越好。提醒声让你知道通过盖子上方便的门添加混音的最佳时间。保持凉爽功能意味着，如果冰淇淋在我的下一次 Zoom 会议开始时搅拌完毕，我不必担心:它会保持在理想的温度，直到我可以回到它，最多三个小时。这个装置，像 Cuisinart 一样，可以制作一夸脱半的冰淇淋，并配有一个刮铲来清除碗里的冰淇淋，还有一个特殊的清洁刷，确保你可以从桨的中心管中清除任何飞溅物。对于你的冰淇淋冒险来说，这是一笔不小的金融投资，但是仅仅因为一些东西很贵并不意味着它不划算。对我来说，我认为这个单位是非常值得的价格。现在，高级冰淇淋的价格高达每品脱 8-12 美元，即使算上配料的成本，你也只需购买 25-35 批就够了。
 
 ### 如果你想服务人群或需要一个超级耐用的单位
 
-如果你需要增加你的搅拌能力，或者如果你觉得一个商业质量单位对你来说更有意义，看看这两个来自韦林商业的选项。虽然它们是为餐馆使用而开发的，但它们对家庭爱好者来说很好，无论是 [2夸脱](https://www.waringcommercialproducts.com/p/1q2mb/2-qt-compressor-ice-cream-maker) 还是 [2.5夸脱](https://www.waringcommercialproducts.com/p/1r4n1/25-quart-compression-ice-cream-maker-) 单元都可以轻松地为您制作更大批量的产品。它们比Breville或Cuisinart型号的花里胡哨更少，但它们会让你能够一批又一批地制作出美味的冷冻甜点，中间没有休息时间。
+如果你需要增加你的搅拌能力，或者如果你觉得一个商业质量单位对你来说更有意义，看看这两个来自韦林商业的选项。虽然它们是为餐馆使用而开发的，但它们对家庭爱好者来说很好，无论是 [2 夸脱](https://www.waringcommercialproducts.com/p/1q2mb/2-qt-compressor-ice-cream-maker) 还是 [2.5 夸脱](https://www.waringcommercialproducts.com/p/1r4n1/25-quart-compression-ice-cream-maker-) 单元都可以轻松地为您制作更大批量的产品。它们比 Breville 或 Cuisinart 型号的花里胡哨更少，但它们会让你能够一批又一批地制作出美味的冷冻甜点，中间没有休息时间。
 
 如果你已经有一个冰淇淋机，或者选择购买一个新的，最好从你的单位提供的食谱开始。这些都是使用该设备专门测试过的，随着您逐渐了解您的机器，它们将为您最初的几次搅拌提供最稳定的良好结果。但是一旦你掌握了基础知识，整个冰淇淋世界都在等着你。几周后我会带着有趣的季节性食谱回来给你！

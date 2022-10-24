@@ -1,6 +1,6 @@
 # 买新床垫时如何砍价
 
-> 原文:[https://life hacker . com/how-to-hacker-when-you-buying-a-new-matrix-1849546757](https://lifehacker.com/how-to-haggle-when-youre-buying-a-new-mattress-1849546757)
+> 原文：<https://lifehacker.com/how-to-haggle-when-youre-buying-a-new-mattress-1849546757>
 
 在我们购买的所有商品中，很少有讨价还价以获得更好价格的商品是可以接受的——大多数都是在跳蚤市场、古董展和房地产销售的范围内。
 
@@ -30,7 +30,7 @@ Watch
 
 这几乎太简单了，无法提及，但它确实有效。《消费者报告》 的 [床垫研究员马丁·拉克特说:“即使一个顾客除了要求降价之外什么都不做，也往往会成功。](https://www.consumerreports.org/home-garden/mattresses/haggling-for-a-mattress-could-help-you-save-a2352446856/)
 
-提醒自己，床垫上有 [至少40-50%的加价](https://www.psychologytoday.com/us/blog/the-science-behind-behavior/201509/why-are-there-so-many-mattress-stores-in-america) ，所以有很大的折扣空间。
+提醒自己，床垫上有 [至少 40-50%的加价](https://www.psychologytoday.com/us/blog/the-science-behind-behavior/201509/why-are-there-so-many-mattress-stores-in-america) ，所以有很大的折扣空间。
 
 ### 提及竞争
 

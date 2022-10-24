@@ -1,6 +1,6 @@
 # 埃尔登戒指工具简化了选择最佳魔术投掷齿轮的噩梦
 
-> 原文:[https://kotaku . com/elden-ring-from software-magic-incatation-spell-tool-ca-1848881054](https://kotaku.com/elden-ring-fromsoftware-magic-incantation-spell-tool-ca-1848881054)
+> 原文：<https://kotaku.com/elden-ring-fromsoftware-magic-incantation-spell-tool-ca-1848881054>
 
 一个新的，玩家创造的 [*埃尔登戒指*](https://kotaku.com/elden-ring-fromsoftware-review-hidetaka-miyazaki-dark-s-1848694257) 计算器允许你 [轻松地计算出](https://jerp.tv/eldenring/spelltools/) 你应该使用哪个封印或权杖来施展魔法，通过简化游戏中最令人生畏的数学问题之一，为你的咒语和魔法提供最佳催化剂。
 
@@ -10,8 +10,8 @@ Watch
 
 以我为例。我知道我最想在*埃尔登戒指*中使用咒语，它的功能很像*黑暗灵魂*系列中的奇迹，所以我一开始是作为一个预言家，因为它有很强的基本信仰统计。这个游戏让我沉浸在魔法和施展魔法所需的封印中，但是我的财富很快让我陷入了犹豫不决的状态。我从来都不太相信我正在为我的身材挥舞着最好的催化剂。结果是，我没有。
 
-使用由Twitch streamer[Jerp](https://jerp.tv/eldenring/spelltools/)开发的网站 [*Elden Ring* 铸造工具比较器](https://jerp.tv/eldenring/spelltools/) ，我能够比较游戏中的每个封印，而不需要花费资源将它们提高到相同的水平。在输入我的统计数据后，我发现我可以通过使用厄德特里圣印来从我的基于信仰的玷污中挤出更多的伤害，而不是我的大部分*埃尔登戒指*游戏的首选催化剂——龙神圣印。
+使用由 Twitch streamer[Jerp](https://jerp.tv/eldenring/spelltools/)开发的网站 [*Elden Ring* 铸造工具比较器](https://jerp.tv/eldenring/spelltools/) ，我能够比较游戏中的每个封印，而不需要花费资源将它们提高到相同的水平。在输入我的统计数据后，我发现我可以通过使用厄德特里圣印来从我的基于信仰的玷污中挤出更多的伤害，而不是我的大部分*埃尔登戒指*游戏的首选催化剂——龙神圣印。
 
 当我调整计算器来计算闪电矛时，事情变得有趣了，闪电矛是我的主要咒语(是的，我是一个基本的婊子)。因为闪电矛是一个龙的祭礼咒语——如果我多注意魔法的味道文本的话，我可以自己学会的——它与砾石石头封印的比例要好得多。总的来说，我并没有错过很多伤害，但是提前知道这些细节会让一些战斗变得容易一些。
 
-当然，更聪明的埃尔登戒指玩家可能只需要使用游戏和社区维基就能完成这项工作，比如T2 T3 T4 Fextralife T5 T6 T7。但是如果你像我一样有点傻，看看Jerp的工具。这让我更加兴奋地跳回到游戏中，尝试新的魔法建造。
+当然，更聪明的埃尔登戒指玩家可能只需要使用游戏和社区维基就能完成这项工作，比如 T2 T3 T4 Fextralife T5 T6 T7。但是如果你像我一样有点傻，看看 Jerp 的工具。这让我更加兴奋地跳回到游戏中，尝试新的魔法建造。

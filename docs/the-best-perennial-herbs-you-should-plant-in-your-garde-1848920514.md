@@ -1,6 +1,6 @@
 # 你应该在你的花园里种植最好的多年生草本植物
 
-> 原文:[https://life hacker . com/the-best-perennial-herbers-you-should-plant-in-your-garde-1848920514](https://lifehacker.com/the-best-perennial-herbs-you-should-plant-in-your-garde-1848920514)
+> 原文：<https://lifehacker.com/the-best-perennial-herbs-you-should-plant-in-your-garde-1848920514>
 
 对于那些喜欢烹饪的人来说，拥有自己的药草园是一个游戏改变者。不仅在家门口就有这些新鲜的口味非常方便，而且如果你经常使用它们，自己种植比经常在超市购买更经济。
 
@@ -10,7 +10,7 @@ Watch
 
 ## 最好的多年生草本植物生长在你的花园里
 
-虽然多年生草本植物不能保证生长一定的时间，但许多能持续10年左右。但是一定要记住，你应该选择在你的 [美国农业部耐寒区](https://planthardiness.ars.usda.gov/PHZMWeb/) 能熬过冬天的草药。
+虽然多年生草本植物不能保证生长一定的时间，但许多能持续 10 年左右。但是一定要记住，你应该选择在你的 [美国农业部耐寒区](https://planthardiness.ars.usda.gov/PHZMWeb/) 能熬过冬天的草药。
 
 这里有一些考虑种植在你自己的花园，容器，或窗台花盆。虽然它们不全是供人类食用的，但它们都有一个用途——包括一些可以用来控制害虫。
 

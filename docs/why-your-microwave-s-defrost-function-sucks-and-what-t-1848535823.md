@@ -1,6 +1,6 @@
 # 为什么你的微波炉除霜功能很糟糕(以及该怎么做)
 
-> 原文:[https://life hacker . com/why-your-microwave-s-defrost-function-sucks-and-what-t-1848535823](https://lifehacker.com/why-your-microwave-s-defrost-function-sucks-and-what-t-1848535823)
+> 原文：<https://lifehacker.com/why-your-microwave-s-defrost-function-sucks-and-what-t-1848535823>
 
 我喜欢有微波炉。我用我的搅打 [土豆泥](https://lifehacker.com/how-to-make-perfect-mashed-potatoes-in-the-microwave-1846629900)[肉酱做秋葵](https://lifehacker.com/how-to-make-an-easy-roux-in-the-microwave-and-oven-1848187134) ，甚至 [柠檬酱](https://lifehacker.com/how-to-make-perfect-lemon-curd-in-the-microwave-1826812427) 。这是一个多功能的电器，我认为每个人都应该有一个。然而，我并不喜欢它的除霜功能。
 
@@ -14,7 +14,7 @@ Watch
 
 > 这里有一个问题:在大多数微波炉中，因为磁控管被设计成发射单一波长，辐射的强度不能被改变。然而，它可以被打开和关闭，这正是功率水平所做的。当你降低微波炉的功率时，磁控管工作的时间就会减少。
 
-库克的插图继续解释说，微波“只能穿透食物外面1英寸的地方”，这“可以迅速使这些区域过热。”关闭和打开辐射使热量有机会分散到食物的中心，逐渐加热你的冷冻炖肉块，而不烹饪外层(希望如此)。但即使有这些波动，微波解冻也有一些问题。
+库克的插图继续解释说，微波“只能穿透食物外面 1 英寸的地方”，这“可以迅速使这些区域过热。”关闭和打开辐射使热量有机会分散到食物的中心，逐渐加热你的冷冻炖肉块，而不烹饪外层(希望如此)。但即使有这些波动，微波解冻也有一些问题。
 
 ## 微波不擅长融化冰
 

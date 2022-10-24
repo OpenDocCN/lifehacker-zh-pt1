@@ -1,8 +1,8 @@
 # 通过在独立零售商购物来庆祝星期六的小生意
 
-> 原文:[https://life hacker . com/prairie-small-business-Saturday-by-shopping-in dep-1845766882](https://lifehacker.com/celebrate-small-business-saturday-by-shopping-at-indepe-1845766882)
+> 原文：<https://lifehacker.com/celebrate-small-business-saturday-by-shopping-at-indepe-1845766882>
 
-像其他事情一样，今年的假日购物季看起来有点不同。当然，昨天早上6点仍有人在购物中心进行黑色星期五的销售，但与往年相比没有什么了。今天是小企业星期六，也是支持独立零售商的绝佳机会。小企业在疫情期间受到的打击尤其严重，比以往任何时候都更需要我们的资助。
+像其他事情一样，今年的假日购物季看起来有点不同。当然，昨天早上 6 点仍有人在购物中心进行黑色星期五的销售，但与往年相比没有什么了。今天是小企业星期六，也是支持独立零售商的绝佳机会。小企业在疫情期间受到的打击尤其严重，比以往任何时候都更需要我们的资助。
 
 Watch
 
@@ -14,17 +14,17 @@ Watch
 
 ### 廉价公寓博物馆
 
-位于纽约下东区的廉价公寓博物馆不仅为游客提供了一瞥过去的机会，而且在 附近还有最好的礼品店之一 [。他们目前在11月30日之前提供全网站30%的折扣，代码GIVETHANKS。另外，所有小计200美元+的订单将免费获得2021 TM挂历；优惠有效期至12月31日，代码为2021。](https://shop.tenement.org/)
+位于纽约下东区的廉价公寓博物馆不仅为游客提供了一瞥过去的机会，而且在 附近还有最好的礼品店之一 [。他们目前在 11 月 30 日之前提供全网站 30%的折扣，代码 GIVETHANKS。另外，所有小计 200 美元+的订单将免费获得 2021 TM 挂历；优惠有效期至 12 月 31 日，代码为 2021。](https://shop.tenement.org/)
 
 ### 最近的叔叔
 
-以[Nathan“Nearest”Green](https://unclenearest.com/history)命名，第一位已知的非裔酿酒大师， [大叔Nearest](https://unclenearest.com/) 共同创立 [小鹿织女，](http://www.amtrakthenational.com/fawn-weaver) 第一位女性和第一位非裔领导一个主要烈酒品牌，2017年。但这不仅仅是一段不可思议的历史:最近的叔叔生产屡获殊荣的威士忌。
+以[Nathan“Nearest”Green](https://unclenearest.com/history)命名，第一位已知的非裔酿酒大师， [大叔 Nearest](https://unclenearest.com/) 共同创立 [小鹿织女，](http://www.amtrakthenational.com/fawn-weaver) 第一位女性和第一位非裔领导一个主要烈酒品牌，2017 年。但这不仅仅是一段不可思议的历史:最近的叔叔生产屡获殊荣的威士忌。
 
 <aside data-commerce-source="inset" class="sc-16a0mhj-2 gAjHzr">[![Image for article titled Celebrate Small Business Saturday by Shopping at Independent Retailers](../Images/aef335eb562a1da6957ce25a574b4aa1.png)](https://lifehacker.com/how-to-help-small-businesses-survive-the-pandemic-1844231262)</aside>
 
 ### 拱廊
 
-与其说这是一个小企业，不如说是同一华丽屋顶下的几个企业。克利夫兰拱廊 于1890年5月开业，是美国第一家室内购物中心，如今是各种当地商店的所在地(其中许多商店出售商品)。
+与其说这是一个小企业，不如说是同一华丽屋顶下的几个企业。克利夫兰拱廊 于 1890 年 5 月开业，是美国第一家室内购物中心，如今是各种当地商店的所在地(其中许多商店出售商品)。
 
 ### 阿拉巴马书店
 

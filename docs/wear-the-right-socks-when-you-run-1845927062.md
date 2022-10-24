@@ -1,6 +1,6 @@
 # 跑步时穿合适的袜子
 
-> 原文:[https://life hacker . com/wear-the-right-socks-when-you-run-1845927062](https://lifehacker.com/wear-the-right-socks-when-you-run-1845927062)
+> 原文：<https://lifehacker.com/wear-the-right-socks-when-you-run-1845927062>
 
 你大概在 [选择跑鞋](https://vitals.lifehacker.com/how-i-found-the-perfect-running-shoes-1784386202) 上花了不少心思，但是你的袜子呢？它们和更显眼的鞋底(ha)伙伴走过同样多的里程和脚步，它们可以让你在跑步中感到舒适，也可以让你感到不适。
 
@@ -32,4 +32,4 @@ Watch
 
 一旦你找到你的完美的跑步袜，买几双。如果你喜欢羊毛袜，它的好处在于可以穿几次 [而不会让](https://vitals.lifehacker.com/wool-socks-and-workout-clothes-aren-t-antibacterial-the-1788963270) 发臭。
 
-如果你认为羊毛不舒服，又刺痒，一定要看看像 [Smartwool的博士](https://www.smartwool.com/shop/womens-running-socks-1/womens-phd-run-ultra-light-striped-micro-socks-sw001410?variationId=052) 系列的袜子。我穿这双袜子跑了很多年，后来对羊毛过敏，不得不改用合成纤维。适合跑步的羊毛袜是市面上最好的袜子之一，所以如果你还没有穿过，试试吧。如果你在寻找一双 非羊毛袜子的推荐，我最喜欢的是一双类似于这些 的Asics [。](https://www.asics.com/us/en-us/nimbus-single-tab/p/ANA_ZK2653-0779.html?)
+如果你认为羊毛不舒服，又刺痒，一定要看看像 [Smartwool 的博士](https://www.smartwool.com/shop/womens-running-socks-1/womens-phd-run-ultra-light-striped-micro-socks-sw001410?variationId=052) 系列的袜子。我穿这双袜子跑了很多年，后来对羊毛过敏，不得不改用合成纤维。适合跑步的羊毛袜是市面上最好的袜子之一，所以如果你还没有穿过，试试吧。如果你在寻找一双 非羊毛袜子的推荐，我最喜欢的是一双类似于这些 的 Asics [。](https://www.asics.com/us/en-us/nimbus-single-tab/p/ANA_ZK2653-0779.html?)

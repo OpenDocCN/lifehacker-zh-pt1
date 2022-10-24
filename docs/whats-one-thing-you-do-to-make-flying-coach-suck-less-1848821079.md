@@ -1,8 +1,8 @@
 # 你会做什么让蔻驰飞行不那么糟糕？
 
-> 原文:[https://life hacker . com/whats-one-thing-you-do-to-make-flying-coach-suck-less-1848821079](https://lifehacker.com/whats-one-thing-you-do-to-make-flying-coach-suck-less-1848821079)
+> 原文：<https://lifehacker.com/whats-one-thing-you-do-to-make-flying-coach-suck-less-1848821079>
 
-自2020年3月以来，我最近第二次登上飞机，我在这里告诉你:飞行并没有变得更愉快。座位一样狭窄，机舱一样嘈杂，航班感觉一样满。 [航空旅行，总的来说，是一个大烂摊子](https://www.cnn.com/travel/article/travel-summer-chaos-mask-mandate-pilot-shortages/index.html) ，感谢员工短缺、超额预订、延误、取消，以及对掩蔽要求的困惑。
+自 2020 年 3 月以来，我最近第二次登上飞机，我在这里告诉你:飞行并没有变得更愉快。座位一样狭窄，机舱一样嘈杂，航班感觉一样满。 [航空旅行，总的来说，是一个大烂摊子](https://www.cnn.com/travel/article/travel-summer-chaos-mask-mandate-pilot-shortages/index.html) ，感谢员工短缺、超额预订、延误、取消，以及对掩蔽要求的困惑。
 
 Watch
 

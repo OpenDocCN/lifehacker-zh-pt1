@@ -1,8 +1,8 @@
 # 如何像一个成熟的成年人一样组织你的家庭酒吧
 
-> 原文:[https://life hacker . com/how-to-organize-your-home-bar-like-a-composite-adul-1847083595](https://lifehacker.com/how-to-organize-your-home-bar-like-a-sophisticated-adul-1847083595)
+> 原文：<https://lifehacker.com/how-to-organize-your-home-bar-like-a-sophisticated-adul-1847083595>
 
-夏天是举办鸡尾酒会和晚宴的时候，既然我们 [又可以举办更多的聚会](https://www.cdc.gov/coronavirus/2019-ncov/vaccines/fully-vaccinated-guidance.html#anchor_1619526673330) ，把你家的 酒吧打理得井井有条是必不可少的。如果你和我一样，在疫情期间，你的家庭酒吧一直是一个重要的资源，在你15个月的社交中断期间，你的家庭酒吧变得有点笨拙。现在是时候整理、重新定位、重新组织你的酒了。以下是如何为你的下次家庭聚会准备好你的家庭酒吧。
+夏天是举办鸡尾酒会和晚宴的时候，既然我们 [又可以举办更多的聚会](https://www.cdc.gov/coronavirus/2019-ncov/vaccines/fully-vaccinated-guidance.html#anchor_1619526673330) ，把你家的 酒吧打理得井井有条是必不可少的。如果你和我一样，在疫情期间，你的家庭酒吧一直是一个重要的资源，在你 15 个月的社交中断期间，你的家庭酒吧变得有点笨拙。现在是时候整理、重新定位、重新组织你的酒了。以下是如何为你的下次家庭聚会准备好你的家庭酒吧。
 
 Watch
 
@@ -24,6 +24,6 @@ Watch
 
 ## 调整你的酒吧位置，以保证适当的流量
 
-你的酒吧将决定你与客人的互动。如果你把它放在一个角落，它就不会成为焦点，但发球也不会是理想的。如果你对你的酒吧风格很有创意，那就把它建在人们经常聚集的厨房岛上。House Beautiful为各种独特的家庭酒吧提供了建议，包括一个可以放在任何地方的独立橱柜。如果你的酒吧放在便携的地方，比如柜子里，那就把它放在中心区域，游客在这里会感觉最舒服。
+你的酒吧将决定你与客人的互动。如果你把它放在一个角落，它就不会成为焦点，但发球也不会是理想的。如果你对你的酒吧风格很有创意，那就把它建在人们经常聚集的厨房岛上。House Beautiful 为各种独特的家庭酒吧提供了建议，包括一个可以放在任何地方的独立橱柜。如果你的酒吧放在便携的地方，比如柜子里，那就把它放在中心区域，游客在这里会感觉最舒服。
 
-如果你有空间开一家更传统的酒吧，考虑一家岛屿式的开放式酒吧，而不是俱乐部式的L形酒吧。饮食网站 [严肃饮食](https://www.seriouseats.com/how-to-organize-your-home-bar-design-ergonomics-supplies-mise-en-place) 解释了L形酒吧会使难以同时混合饮料和社交。i sland酒吧允许从酒吧的任何一侧轻松进入，使与客人的互动达到最佳状态。
+如果你有空间开一家更传统的酒吧，考虑一家岛屿式的开放式酒吧，而不是俱乐部式的 L 形酒吧。饮食网站 [严肃饮食](https://www.seriouseats.com/how-to-organize-your-home-bar-design-ergonomics-supplies-mise-en-place) 解释了 L 形酒吧会使难以同时混合饮料和社交。i sland 酒吧允许从酒吧的任何一侧轻松进入，使与客人的互动达到最佳状态。

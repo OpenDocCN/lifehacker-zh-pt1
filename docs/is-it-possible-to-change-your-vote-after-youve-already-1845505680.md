@@ -1,12 +1,12 @@
 # 你真的能改变你的投票吗？
 
-> 原文:[https://life hacker . com/is-may-to-change-you-been-you ve-has-1845505680](https://lifehacker.com/is-it-possible-to-change-your-vote-after-youve-already-1845505680)
+> 原文：<https://lifehacker.com/is-it-possible-to-change-your-vote-after-youve-already-1845505680>
 
-自2016年11月9日周三以来，一些人已经知道他们将如何在下周的选举中投票，特别是总统竞选。其他人不知何故仍未决定，甚至在离选举日不到一周的时候。还有一些人已经通过邮件投票，但后来又改变了主意。
+自 2016 年 11 月 9 日周三以来，一些人已经知道他们将如何在下周的选举中投票，特别是总统竞选。其他人不知何故仍未决定，甚至在离选举日不到一周的时候。还有一些人已经通过邮件投票，但后来又改变了主意。
 
 Watch
 
-当然，不仅仅是总统竞选会促使选民改变主意——人们也可能会对州或地方官员的投票产生第二种想法。但它*是*某事tT5】何总统昨天发了一条关于 的推文，完全是他的错误信息和流氓大写的混合签名:
+当然，不仅仅是总统竞选会促使选民改变主意——人们也可能会对州或地方官员的投票产生第二种想法。但它*是*某事 tT5】何总统昨天发了一条关于 的推文，完全是他的错误信息和流氓大写的混合签名:
 
  [https://lifehacker.com/embed/inset/iframe?id=twitter-1321042229838909441&autosize=1](https://lifehacker.com/embed/inset/iframe?id=twitter-1321042229838909441&autosize=1) 
 
@@ -30,11 +30,11 @@ Watch
 
 #### 明尼苏达州
 
-该州还允许你重新投票——他们称之为“收回”——但要求重新投票的最后一天是10月20日 ，所以船已经起航了。
+该州还允许你重新投票——他们称之为“收回”——但要求重新投票的最后一天是 10 月 20 日 ，所以船已经起航了。
 
 #### 新罕布什尔州
 
-新罕布什尔州国务卿办公室告诉CBS波士顿T3，已经投了缺席票的选民可以在选举日出现，如果他们的选票尚未处理，可以使用亲自投票代替。如果你打算尝试这样做， [尽可能早地](https://abcnews.go.com/Politics/change-vote-trump-thinks-people/story?id=73854468) 去投票。
+新罕布什尔州国务卿办公室告诉 CBS 波士顿 T3，已经投了缺席票的选民可以在选举日出现，如果他们的选票尚未处理，可以使用亲自投票代替。如果你打算尝试这样做， [尽可能早地](https://abcnews.go.com/Politics/change-vote-trump-thinks-people/story?id=73854468) 去投票。
 
 #### 纽约
 
@@ -50,6 +50,6 @@ Watch
 
 #### ***威斯康辛州***
 
-*选民有 [的机会“更正”他们已经提交的缺席选票](https://www.wisconsinvote.org/wisconsin-voter-faqs/#correct-ballot) 。要得到新的选票，请尽快联系 [你的市政办事员](https://myvote.wi.gov/en-US/MyMunicipalClerk) 。如果有足够的时间，你的秘书可以取消你原来的选票，给你一张新的。明天(10月29日)恰好是通过邮件申请缺席投票的法定截止日期，所以你最好亲自去领取新的选票。*
+*选民有 [的机会“更正”他们已经提交的缺席选票](https://www.wisconsinvote.org/wisconsin-voter-faqs/#correct-ballot) 。要得到新的选票，请尽快联系 [你的市政办事员](https://myvote.wi.gov/en-US/MyMunicipalClerk) 。如果有足够的时间，你的秘书可以取消你原来的选票，给你一张新的。明天(10 月 29 日)恰好是通过邮件申请缺席投票的法定截止日期，所以你最好亲自去领取新的选票。*
 
-*其他几个州——包括阿肯色州、特拉华州、爱达荷州、伊利诺伊州、印第安纳州、密西西比州和新墨西哥州——也允许选民破坏选票，但仅限于原始选票尚未被退回和处理的情况。这篇来自ABC新闻 的 [文章提供了一些额外的信息和背景。](https://abcnews.go.com/Politics/change-vote-trump-thinks-people/story?id=73854468)*
+*其他几个州——包括阿肯色州、特拉华州、爱达荷州、伊利诺伊州、印第安纳州、密西西比州和新墨西哥州——也允许选民破坏选票，但仅限于原始选票尚未被退回和处理的情况。这篇来自 ABC 新闻 的 [文章提供了一些额外的信息和背景。](https://abcnews.go.com/Politics/change-vote-trump-thinks-people/story?id=73854468)*

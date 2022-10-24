@@ -1,6 +1,6 @@
-# 鹿不会马上吃掉的10种花
+# 鹿不会马上吃掉的 10 种花
 
-> 原文:[https://life hacker . com/10-flowers-that-deer-wont-immediately-gobble-up-1848814279](https://lifehacker.com/10-flowers-that-deer-wont-immediately-gobble-up-1848814279)
+> 原文：<https://lifehacker.com/10-flowers-that-deer-wont-immediately-gobble-up-1848814279>
 
 鹿:优雅、美丽，就在你的门外，是自然的标志，也是许多园丁生存的克星。没有郁金香能逃脱它们的魔爪...b 但是*有*一些开花的植物比其他植物更抗鹿，所以在你进入园艺季节之前，让我们来看看 [罗格斯大学列出的](https://njaes.rutgers.edu/deer-resistant-plants/) 植物中最漂亮的一些花，它们“很少”被鹿破坏。
 
@@ -10,7 +10,7 @@
 
 滴血之心是一种多年生植物 ，每年都会死去，春天又会重新生长。它们在春天开花，喜欢阴凉或部分阴凉的地方。鹿不喜欢它们。
 
-据报道，鹿会避开几种不同种类的罂粟。罂粟是众所周知的罂粟，种植罂粟并不总是合法的(查看当地法规)，但其他罂粟，如东方罂粟和T4罂粟，同样美丽，同样抗鹿。罂粟更喜欢阳光充足的地方，在初夏会开出巨大、艳丽但短命的花朵。
+据报道，鹿会避开几种不同种类的罂粟。罂粟是众所周知的罂粟，种植罂粟并不总是合法的(查看当地法规)，但其他罂粟，如东方罂粟和 T4 罂粟，同样美丽，同样抗鹿。罂粟更喜欢阳光充足的地方，在初夏会开出巨大、艳丽但短命的花朵。
 
 俄罗斯鼠尾草看起来像一个超大版本的薰衣草，紫色花朵达到腰部高度。将它种植在阳光充足的地方，记住 [它喜欢排水良好的土壤，在干燥的气候](https://www.gardeningknowhow.com/ornamental/flowers/russian-sage-flowers/russian-sage-care.htm) 下生长良好——这使它成为 [干旱的绝佳选择](https://en.wikipedia.org/wiki/Xeriscaping) 。
 

@@ -1,6 +1,6 @@
 # 用你的橄榄碗做一个小窝
 
-> 原文:[https://life hacker . com/set-out-a single-pit-with your ' s bowl-1845347654](https://lifehacker.com/set-out-a-single-pit-with-your-bowl-of-olives-1845347654)
+> 原文：<https://lifehacker.com/set-out-a-single-pit-with-your-bowl-of-olives-1845347654>
 
 在一碗废弃的橄榄核旁边放一个小南瓜已经很久了，但是一个空的南瓜需要一个解释。与其告诉餐桌上的每个人或者(你直系亲属的)一个很小的聚会，这个小碗是“放橄榄核的”，不如简单地吃一个橄榄，然后把橄榄核放在空的橄榄核容器中，不需要言语就能表明它的用途。
 

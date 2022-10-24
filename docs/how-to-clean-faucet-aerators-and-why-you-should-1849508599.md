@@ -1,6 +1,6 @@
 # 如何清洁水龙头通气器(以及为什么你应该)
 
-> 原文:[https://life hacker . com/how-to-clean-水龙头通气器-and-why-you-should-1849508599](https://lifehacker.com/how-to-clean-faucet-aerators-and-why-you-should-1849508599)
+> 原文：<https://lifehacker.com/how-to-clean-faucet-aerators-and-why-you-should-1849508599>
 
 看一看大多数现代厨房和浴室水槽上的水龙头底部，你可能会看到一个小而圆的屏幕，称为曝气器。这种薄金属片通过增加空气来控制水从水龙头中流出，从而减少飞溅和用水量。
 

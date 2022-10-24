@@ -1,14 +1,14 @@
 # 我可以取消我的富豪无限订阅吗？
 
-> 原文:[https://life hacker . com/can-I-cancel-my-regal-unlimited-subscription-1845301221](https://lifehacker.com/can-i-cancel-my-regal-unlimited-subscription-1845301221)
+> 原文：<https://lifehacker.com/can-i-cancel-my-regal-unlimited-subscription-1845301221>
 
-富豪 [宣布](https://www.prnewswire.com/news-releases/regal-to-close-all-theatres-301025100.html) 无限期关闭他们在美国的电影院几天后，我们 [现在知道](https://www.regmovies.com/static/en/us/unlimited/subscriber-message) 他们的无限订阅计划会发生什么， [于去年7月推出](https://lifehacker.com/should-you-get-a-regal-unlimited-movie-subscription-1836730697) 。好消息是，如果你是订户，你将不会为你看不到的电影付费(或失去你无法兑换的奖励)——但看起来你也不能提前取消这些合同。
+富豪 [宣布](https://www.prnewswire.com/news-releases/regal-to-close-all-theatres-301025100.html) 无限期关闭他们在美国的电影院几天后，我们 [现在知道](https://www.regmovies.com/static/en/us/unlimited/subscriber-message) 他们的无限订阅计划会发生什么， [于去年 7 月推出](https://lifehacker.com/should-you-get-a-regal-unlimited-movie-subscription-1836730697) 。好消息是，如果你是订户，你将不会为你看不到的电影付费(或失去你无法兑换的奖励)——但看起来你也不能提前取消这些合同。
 
 Watch
 
 ### **包月费**
 
-根据该公司的网站，立即生效没有支付每月无限用户。10月8日周四，无限量会员仍然可以使用，之后所有的Regal剧院都将关闭。每月合同将根据影院关闭的天数延长，并在重新开放时自动激活。订阅者保持一整年的签约——“每月”订阅只有在作为原始合同一部分的一年预付承诺到期后才成为真正的每月订阅。
+根据该公司的网站，立即生效没有支付每月无限用户。10 月 8 日周四，无限量会员仍然可以使用，之后所有的 Regal 剧院都将关闭。每月合同将根据影院关闭的天数延长，并在重新开放时自动激活。订阅者保持一整年的签约——“每月”订阅只有在作为原始合同一部分的一年预付承诺到期后才成为真正的每月订阅。
 
 ### **年费**
 
@@ -16,11 +16,11 @@ Watch
 
 ### **富豪皇冠俱乐部积分、奖励和宝石状态**
 
-订户可能已经收到了Regal应用程序上奖励的到期通知，但该公司表示，在影院关闭期间到期的任何RCC积分、奖励或GEM状态都将在重新开放之前返还给客户。未来的信用到期日将根据影院关闭的时间延长30天。
+订户可能已经收到了 Regal 应用程序上奖励的到期通知，但该公司表示，在影院关闭期间到期的任何 RCC 积分、奖励或 GEM 状态都将在重新开放之前返还给客户。未来的信用到期日将根据影院关闭的时间延长 30 天。
 
 ### **生日奖励**
 
-关闭期间到期的任何生日奖励将在影院重新开放时恢复。此外，如果您的生日在这段时间内，您的生日奖励将在影院重新开放前直接加载到您的Regal Unlimited订阅中。
+关闭期间到期的任何生日奖励将在影院重新开放时恢复。此外，如果您的生日在这段时间内，您的生日奖励将在影院重新开放前直接加载到您的 Regal Unlimited 订阅中。
 
 ### 我能不能取消？
 
@@ -28,6 +28,6 @@ Watch
 
 ### 君威会活下来吗？
 
-当然，如果Regal申请破产，所有这些订阅和奖励都可能被取消，这是一个真实的可能性。富豪的所有者Cineworld负债累累，自4月1日以来已亏损16亿美元，并声称其未来“不确定”。不幸的是，对于订阅者来说，除了等着看会发生什么之外，现在没什么可做的。
+当然，如果 Regal 申请破产，所有这些订阅和奖励都可能被取消，这是一个真实的可能性。富豪的所有者 Cineworld 负债累累，自 4 月 1 日以来已亏损 16 亿美元，并声称其未来“不确定”。不幸的是，对于订阅者来说，除了等着看会发生什么之外，现在没什么可做的。
 
 *本帖已更新，包含更多关于富豪无限取消政策的信息。*

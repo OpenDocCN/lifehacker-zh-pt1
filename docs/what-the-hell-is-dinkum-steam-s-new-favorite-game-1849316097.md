@@ -1,12 +1,12 @@
-# Steam的新宠游戏Dinkum到底是什么？
+# Steam 的新宠游戏 Dinkum 到底是什么？
 
-> 原文:[https://kotaku . com/what-the-hell-is-dinkum-steam-s-new-favorite-game-1849316097](https://kotaku.com/what-the-hell-is-dinkum-steam-s-new-favorite-game-1849316097)
+> 原文：<https://kotaku.com/what-the-hell-is-dinkum-steam-s-new-favorite-game-1849316097>
 
-除非你是澳洲Kotaku 的持卡会员，否则看到独立 [模拟游戏 *Dinkum*](https://store.steampowered.com/app/1062520/Dinkum/) 游上Steam新发行排行榜可能会显得很奇怪。但是不要把 *Dinkum* (它的名字来源于澳大利亚俚语“fair dinkum”，意思是真实的(或多或少)，和你的破旧匡威或我的破烂Macbook Air混为一谈。*丁库姆*是一个可爱而紧凑的*动物杂交*重现，如果它是由*《我的世界》*百万像素组成的，则强调了澳大利亚内陆的硬核威严。
+除非你是澳洲 Kotaku 的持卡会员，否则看到独立 [模拟游戏 *Dinkum*](https://store.steampowered.com/app/1062520/Dinkum/) 游上 Steam 新发行排行榜可能会显得很奇怪。但是不要把 *Dinkum* (它的名字来源于澳大利亚俚语“fair dinkum”，意思是真实的(或多或少)，和你的破旧匡威或我的破烂 Macbook Air 混为一谈。*丁库姆*是一个可爱而紧凑的*动物杂交*重现，如果它是由*《我的世界》*百万像素组成的，则强调了澳大利亚内陆的硬核威严。
 
 Watch
 
-这款游戏于7月14日发布，并在Steam上越来越火，可能是因为它接近舒适的模拟和沙盒经典，如*星谷*和*模拟人生*。但是如果你仍然不确定这是不是适合你的sim，这里有一个关于*纯粹* :
+这款游戏于 7 月 14 日发布，并在 Steam 上越来越火，可能是因为它接近舒适的模拟和沙盒经典，如*星谷*和*模拟人生*。但是如果你仍然不确定这是不是适合你的 sim，这里有一个关于*纯粹* :
 初期的简单介绍
 
  [https://kotaku.com/embed/inset/iframe?id=youtube-video-FrzryxM30bM&start=0](https://kotaku.com/embed/inset/iframe?id=youtube-video-FrzryxM30bM&start=0) 
@@ -23,7 +23,7 @@ Watch
 
 它看起来像什么？
 
-辣椒粉、阿多宝和辣椒粉的颜色。许多日落被玻璃般的蓝色海水切割。它看起来更像一个光滑的《我的世界》，一个由橡皮泥制成的，或者像一个不那么可爱但同样摇头晃脑的T2动物。就像它的游戏一样，模拟游戏老手会发现*纯粹的视觉效果平平无奇。* 
+辣椒粉、阿多宝和辣椒粉的颜色。许多日落被玻璃般的蓝色海水切割。它看起来更像一个光滑的《我的世界》，一个由橡皮泥制成的，或者像一个不那么可爱但同样摇头晃脑的 T2 动物。就像它的游戏一样，模拟游戏老手会发现*纯粹的视觉效果平平无奇。* 
 
 我会被鳄鱼吃掉吗？
 
@@ -31,7 +31,7 @@ Watch
 
 在哪里可以玩？
 
-早期访问游戏目前在Steam上面向PC提供，售价为19.99美元。根据 [游戏的新闻单](https://docs.google.com/document/d/1vfY-qAxy8kpaSO7ERsN9LpOOAjaIb0mlrWPSlT260fw/edit) 显示，其他兼容平台将在稍后公布。
+早期访问游戏目前在 Steam 上面向 PC 提供，售价为 19.99 美元。根据 [游戏的新闻单](https://docs.google.com/document/d/1vfY-qAxy8kpaSO7ERsN9LpOOAjaIb0mlrWPSlT260fw/edit) 显示，其他兼容平台将在稍后公布。
 
 * * *
 

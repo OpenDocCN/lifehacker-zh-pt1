@@ -1,14 +1,14 @@
-# Microsoft Edge的效率模式是什么(以及如何启用它)？
+# Microsoft Edge 的效率模式是什么(以及如何启用它)？
 
-> 原文:[https://life hacker . com/what-is-Microsoft-edges-efficiency-mode-and-how-can-yo-1848666190](https://lifehacker.com/what-is-microsoft-edges-efficiency-mode-and-how-can-yo-1848666190)
+> 原文：<https://lifehacker.com/what-is-microsoft-edges-efficiency-mode-and-how-can-yo-1848666190>
 
-微软Edge是一款相当不错的默认浏览器。现在它和Chrome在同一个平台上制作，速度快，功能多，效率高；与Chrome相比，微软已经付出了很多努力来降低Edge的资源密集度。但对于一些硬件较旧的电脑来说，Edge仍然很难使用。如果Edge降低了电脑的速度，或者消耗了过多的电池电量，您可以尝试切换到“高效”模式。
+微软 Edge 是一款相当不错的默认浏览器。现在它和 Chrome 在同一个平台上制作，速度快，功能多，效率高；与 Chrome 相比，微软已经付出了很多努力来降低 Edge 的资源密集度。但对于一些硬件较旧的电脑来说，Edge 仍然很难使用。如果 Edge 降低了电脑的速度，或者消耗了过多的电池电量，您可以尝试切换到“高效”模式。
 
 Watch
 
-## Edge上的效率模式(或性能模式)是如何工作的？
+## Edge 上的效率模式(或性能模式)是如何工作的？
 
-本质上，当您启用效率模式时，Microsoft Edge会人为减少CPU和GPU的使用。当您的设备电池电量低时，这将自动触发，但您也可以随时从“设置”中启用它。一旦启用，Edge将打开其睡眠标签功能。任何在过去五分钟内没有被使用的打开的标签都会立即进入睡眠状态，所以它不会使用任何资源。
+本质上，当您启用效率模式时，Microsoft Edge 会人为减少 CPU 和 GPU 的使用。当您的设备电池电量低时，这将自动触发，但您也可以随时从“设置”中启用它。一旦启用，Edge 将打开其睡眠标签功能。任何在过去五分钟内没有被使用的打开的标签都会立即进入睡眠状态，所以它不会使用任何资源。
 
 ## 如何启用和自定义效率模式
 

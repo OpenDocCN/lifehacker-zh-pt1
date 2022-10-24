@@ -1,6 +1,6 @@
 # 如何弄清楚你的脸型(以及为什么你应该这样做)
 
-> 原文:[https://life hacker . com/how-to-figure-your face-shape and why-you-should-1847264877](https://lifehacker.com/how-to-figure-out-your-face-shape-and-why-you-should-1847264877)
+> 原文：<https://lifehacker.com/how-to-figure-out-your-face-shape-and-why-you-should-1847264877>
 
 如果你遇到了脸型的参考，很可能是在买眼镜或查找发型时——这两者都是基于一个人的脸型来推荐的。但是如果你的脸型不明显呢？如果它不完全属于一个特定的类别呢？以下是你需要知道的关于如何弄清楚你的脸型，以及为什么它很重要。
 

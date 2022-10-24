@@ -1,6 +1,6 @@
-# 做更好的炒鸡蛋的8种方法
+# 做更好的炒鸡蛋的 8 种方法
 
-> 原文:[https://life hacker . com/8-ways-to-make-better-scrambled-eggs-1846859812](https://lifehacker.com/8-ways-to-make-better-scrambled-eggs-1846859812)
+> 原文：<https://lifehacker.com/8-ways-to-make-better-scrambled-eggs-1846859812>
 
 炒鸡蛋，作为一个概念，非常简单，但你有无数种方法可以调整它们来控制它们的味道和一致性。我不敢说我全都知道(我刚刚说过，它们是无穷无尽的)，但是我确实有几个我经常翻来翻去的最爱——蓬松的和奶油状的炒菜——我现在很想和你分享它们。
 
@@ -10,9 +10,9 @@
 
 蛋黄是鸡蛋最好的部分。蛋黄带来脂肪、味道和水分，添加额外的让你可以用高温烹饪它们，而不会弄干你的炒鸡蛋。如果你不知道如何处理剩下的白葡萄酒，我建议你把它们搅拌成鸡尾酒。
 
-Mirin是日本酒曲发酵的酒,这种甜味、咸味、完全令人愉快的味道可以在各种各样的日本菜肴中找到,包括tomagoyaki(美妙的卷状煎蛋卷)。如果你有心情感受一下但没有时间卷好你的蛋卷，你可以 [在你的碎鸡蛋里撒一点点米林](https://skillet.lifehacker.com/you-should-definitely-add-mirin-to-your-scrambled-eggs-1838015440) 来赋予那种甜甜的、略带臭味的味道，然后像平常一样搅拌它们。
+Mirin 是日本酒曲发酵的酒,这种甜味、咸味、完全令人愉快的味道可以在各种各样的日本菜肴中找到,包括 tomagoyaki(美妙的卷状煎蛋卷)。如果你有心情感受一下但没有时间卷好你的蛋卷，你可以 [在你的碎鸡蛋里撒一点点米林](https://skillet.lifehacker.com/you-should-definitely-add-mirin-to-your-scrambled-eggs-1838015440) 来赋予那种甜甜的、略带臭味的味道，然后像平常一样搅拌它们。
 
-说到乳化，我发现摇动比搅拌效果更好。把东西放在一个罐子里——或者一个带盖的塑料容器中——然后使劲摇晃它，不仅会给你一份超级光滑乳化的调味汁，还会给你一份 [颜色和质地](https://skillet.lifehacker.com/you-should-scramble-eggs-in-a-jar-1844164046)都完全均匀的调味汁——所有这一切都在大约10秒钟内完成。
+说到乳化，我发现摇动比搅拌效果更好。把东西放在一个罐子里——或者一个带盖的塑料容器中——然后使劲摇晃它，不仅会给你一份超级光滑乳化的调味汁，还会给你一份 [颜色和质地](https://skillet.lifehacker.com/you-should-scramble-eggs-in-a-jar-1844164046)都完全均匀的调味汁——所有这一切都在大约 10 秒钟内完成。
 
 如果你是一个超级奶油炒鸡蛋的粉丝，我有 [食谱给你](https://skillet.lifehacker.com/how-to-make-perfect-scrambled-eggs-no-matter-how-you-l-1819089160) 。它们需要一段时间，但是在尽可能低的温度下烹饪会让蛋白质慢慢凝结成一堆鸡蛋，它们是如此的黄，鲜艳的橙色，丰富得令人震惊，你会发誓那里有一些奶酪。
 

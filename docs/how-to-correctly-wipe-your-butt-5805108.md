@@ -1,8 +1,8 @@
 # 如何正确擦屁股
 
-> 原文:[https://life hacker . com/how-to-correct-wipe-your-butt-5805108](https://lifehacker.com/how-to-correctly-wipe-your-butt-5805108)
+> 原文：<https://lifehacker.com/how-to-correctly-wipe-your-butt-5805108>
 
-上完厕所后擦屁股是我们大多数人不会经常想到的事情之一——我们只是这样做，然后继续我们的一天。但是你擦的*对吗？*这有关系吗？Lifehacker采访了几位医生，以弄清事情的真相。
+上完厕所后擦屁股是我们大多数人不会经常想到的事情之一——我们只是这样做，然后继续我们的一天。但是你擦的*对吗？*这有关系吗？Lifehacker 采访了几位医生，以弄清事情的真相。
 
 Watch
 
@@ -14,30 +14,30 @@ Watch
 
 擦屁股的方法取决于你所在区域有什么样的设备。如果你有阴茎，皮肤科医生柯蒂斯·阿斯伯里说“做任何感觉正确的事”。没什么区别。见鬼，如果你愿意，你可以从一边走到另一边！”
 
-但另一方面，有阴道和阴户的人肯定会想从前到后擦。内科医生Brian Bowes博士解释了为什么方向对这部分人如此重要:
+但另一方面，有阴道和阴户的人肯定会想从前到后擦。内科医生 Brian Bowes 博士解释了为什么方向对这部分人如此重要:
 
-> 大多数膀胱炎或尿道炎病例来自大肠杆菌，即生活在胃肠道中的正常菌群。这有助于你消化你的食物，但是如果你从后向前擦拭，你有可能会把食物弄脏你的尿道口(尿道口)。然后细菌进入无菌环境[你的小便洞]并导致UTI。这在医学院传统上被称为“蜜月膀胱炎”，因为许多女性在度过充满活力的蜜月周末后会患上尿路感染，并带着这种正常的感染回来。
+> 大多数膀胱炎或尿道炎病例来自大肠杆菌，即生活在胃肠道中的正常菌群。这有助于你消化你的食物，但是如果你从后向前擦拭，你有可能会把食物弄脏你的尿道口(尿道口)。然后细菌进入无菌环境[你的小便洞]并导致 UTI。这在医学院传统上被称为“蜜月膀胱炎”，因为许多女性在度过充满活力的蜜月周末后会患上尿路感染，并带着这种正常的感染回来。
 
 对于有阴茎的人，鲍斯也有一些想法:
 
-> ...大多数人的肛门和尿道口(阴茎末端的开口)之间至少有6英寸(希望如此)...这保护他们免受尿路感染。因此，任何有阴茎的人(不排除任何性别)都不会感染大肠杆菌，并且可以随意用自己喜欢的方式擦拭(并不是说这应该是愉快的)。
+> ...大多数人的肛门和尿道口(阴茎末端的开口)之间至少有 6 英寸(希望如此)...这保护他们免受尿路感染。因此，任何有阴茎的人(不排除任何性别)都不会感染大肠杆菌，并且可以随意用自己喜欢的方式擦拭(并不是说这应该是愉快的)。
 
-那么科学呢？2009年的一项关于小便后擦拭的研究 显示，从后向前擦拭时，感染会有小幅增加。然而， [另一项针对患有UTIs](https://journals.lww.com/jpelvicsurgery/Citation/2008/02000/Urinary_Tract_Infection_in_the_Adult_Female_.1.aspx) 的大学年龄女性的研究显示，并没有增加。虽然没有大量的研究专门针对不同擦拭方法的效果，但专业医学共识是明确的:有阴道的人绝对应该从前到后擦拭。事实上， [【梅奥诊所】](https://www.mayoclinic.org/diseases-conditions/urinary-tract-infection/symptoms-causes/syc-20353447)[布莱根妇女医院](https://www.brighamandwomens.org/obgyn/urogynecology/urinary-tract-infections)[克里夫兰诊所](https://my.clevelandclinic.org/health/diseases/9135-urinary-tract-infections/prevention) 和 [加州大学旧金山分校](https://www.ucsfhealth.org/conditions/urinary_tract_infections/) 都在其网站上注明建议阴道前后擦拭，以防止尿路感染。
+那么科学呢？2009 年的一项关于小便后擦拭的研究 显示，从后向前擦拭时，感染会有小幅增加。然而， [另一项针对患有 UTIs](https://journals.lww.com/jpelvicsurgery/Citation/2008/02000/Urinary_Tract_Infection_in_the_Adult_Female_.1.aspx) 的大学年龄女性的研究显示，并没有增加。虽然没有大量的研究专门针对不同擦拭方法的效果，但专业医学共识是明确的:有阴道的人绝对应该从前到后擦拭。事实上， [【梅奥诊所】](https://www.mayoclinic.org/diseases-conditions/urinary-tract-infection/symptoms-causes/syc-20353447)[布莱根妇女医院](https://www.brighamandwomens.org/obgyn/urogynecology/urinary-tract-infections)[克里夫兰诊所](https://my.clevelandclinic.org/health/diseases/9135-urinary-tract-infections/prevention) 和 [加州大学旧金山分校](https://www.ucsfhealth.org/conditions/urinary_tract_infections/) 都在其网站上注明建议阴道前后擦拭，以防止尿路感染。
 
 当我们谈到擦拭的话题时，那些受欢迎但对环境有害的湿巾怎么办？阿斯伯里说，你不仅不需要它们，它们还会引起过敏反应:
 
-> 最近对超清洁度的尝试导致了使用湿抹布而不是干卫生纸来擦拭的趋势。这样做的主要问题是对湿巾中的化学物质越来越敏感。对这些化学物质过敏会导致疼痛、刺激和发红，这通常会导致人们更多地使用擦拭巾，从而使问题永久化。与湿巾过敏相关的主要化学物质是 [甲基氯异噻唑啉酮/甲基异噻唑啉酮](https://www.ewg.org/skindeep/ingredient/703935/methylisothiazolinone/) (MCI/MI或Kathon CG)，尽管湿巾中的其他常见过敏原包括 [quaternium-15](https://www.ewg.org/skindeep/ingredient/705478/QUATERNIUM-15_(FORMALDEHYDE_RELEASER)/) 、 [碘丙炔基丁基氨基甲酸酯](https://www.ewg.org/skindeep/ingredient/703111/IODOPROPYNYL_BUTYLCARBAMATE/) 、 [DMDM乙内酰脲](https://www.ewg.org/skindeep/ingredient/702196/DMDM_HYDANTOIN_(FORMALDEHYDE_RELEASER)/) 和香料。使用湿巾风险自担，最起码要看标签！
+> 最近对超清洁度的尝试导致了使用湿抹布而不是干卫生纸来擦拭的趋势。这样做的主要问题是对湿巾中的化学物质越来越敏感。对这些化学物质过敏会导致疼痛、刺激和发红，这通常会导致人们更多地使用擦拭巾，从而使问题永久化。与湿巾过敏相关的主要化学物质是 [甲基氯异噻唑啉酮/甲基异噻唑啉酮](https://www.ewg.org/skindeep/ingredient/703935/methylisothiazolinone/) (MCI/MI 或 Kathon CG)，尽管湿巾中的其他常见过敏原包括 [quaternium-15](https://www.ewg.org/skindeep/ingredient/705478/QUATERNIUM-15_(FORMALDEHYDE_RELEASER)/) 、 [碘丙炔基丁基氨基甲酸酯](https://www.ewg.org/skindeep/ingredient/703111/IODOPROPYNYL_BUTYLCARBAMATE/) 、 [DMDM 乙内酰脲](https://www.ewg.org/skindeep/ingredient/702196/DMDM_HYDANTOIN_(FORMALDEHYDE_RELEASER)/) 和香料。使用湿巾风险自担，最起码要看标签！
 
 ## **擦拭的替代品**
 
-所以，如果没有理由使用潮湿的化学湿巾，有什么比传统的双层湿巾更好的吗？如果你猜的是，那你就猜对了，你可能以前用过一个。但是克里斯·洛瑞，医学博士，MedRevise.co.ukT5的主任，指出了一些我以前从未听说过的关于长期使用的有趣的事情。
+所以，如果没有理由使用潮湿的化学湿巾，有什么比传统的双层湿巾更好的吗？如果你猜的是，那你就猜对了，你可能以前用过一个。但是克里斯·洛瑞，医学博士，MedRevise.co.ukT5 的主任，指出了一些我以前从未听说过的关于长期使用的有趣的事情。
 
-> 日本的厕所通常有一个喷水器和吹风机，可以帮你清洁肛门。显然，一些日本医生现在声称正在治疗[【wash let综合征】](https://www.wired.com/2006/11/washlet-syndrom/) 病例，在这些病例中，清洁过于有效会导致括约肌无力、皮肤干燥和肛门溃疡等问题。
+> 日本的厕所通常有一个喷水器和吹风机，可以帮你清洁肛门。显然，一些日本医生现在声称正在治疗[【wash let 综合征】](https://www.wired.com/2006/11/washlet-syndrom/) 病例，在这些病例中，清洁过于有效会导致括约肌无力、皮肤干燥和肛门溃疡等问题。
 
-如果你是一个DIY者，你可能会想知道还有什么其他的东西可以用来擦拭。洛瑞回忆起一个男人的故事，他用干玉米棒、石头、报纸、树叶和海绵上的醋等物品在自己身上做实验。最终，他发现虽然这些方法在紧急情况下确实有效，但现代卫生纸绝对是你的最佳选择。
+如果你是一个 DIY 者，你可能会想知道还有什么其他的东西可以用来擦拭。洛瑞回忆起一个男人的故事，他用干玉米棒、石头、报纸、树叶和海绵上的醋等物品在自己身上做实验。最终，他发现虽然这些方法在紧急情况下确实有效，但现代卫生纸绝对是你的最佳选择。
 
 ## **传统厕所的替代品**
 
-Lowry指出，从擦拭的角度来看，蹲式厕所——你在一些亚洲国家看到的那种，可能是更健康的。但这也可能归因于高纤维饮食，而不是排泄的方法。另外， [正如我们在上一篇文章](https://lifehacker.com/no-you-dont-have-to-squat-when-you-poop-1785317166) 中指出的，蹲坐可能有助于身体健康，但没有证据表明它真的能改善你的整体健康。不管你是坐着还是蹲着，你还是要擦，所以这不会改变什么。
+Lowry 指出，从擦拭的角度来看，蹲式厕所——你在一些亚洲国家看到的那种，可能是更健康的。但这也可能归因于高纤维饮食，而不是排泄的方法。另外， [正如我们在上一篇文章](https://lifehacker.com/no-you-dont-have-to-squat-when-you-poop-1785317166) 中指出的，蹲坐可能有助于身体健康，但没有证据表明它真的能改善你的整体健康。不管你是坐着还是蹲着，你还是要擦，所以这不会改变什么。
 
-这个故事最初发表于2011年，并于2020年12月3日更新，以符合Lifehacker风格指南。
+这个故事最初发表于 2011 年，并于 2020 年 12 月 3 日更新，以符合 Lifehacker 风格指南。

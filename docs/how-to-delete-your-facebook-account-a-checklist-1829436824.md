@@ -1,6 +1,6 @@
 # 如何删除你的脸书账户:清单
 
-> 原文:[https://life hacker . com/how-to-delete-your-Facebook-account-a-check list-1829436824](https://lifehacker.com/how-to-delete-your-facebook-account-a-checklist-1829436824)
+> 原文：<https://lifehacker.com/how-to-delete-your-facebook-account-a-checklist-1829436824>
 
 回到过去的美好时光，我们鼓励你考虑删除你的脸书帐户，因为隐私泄露会使你的个人信息容易被全世界邪恶的坏人窃取。我们都同意这不是很好吗。但过去的几年给了我们更多的理由，让我们想对互联网上最无处不在的社交网络撒手不管，尤其是一名举报者最近指控公司 [明显鼓励在其平台上传播错误信息，因为这样做更有利可图](https://fortune.com/2021/10/04/facebook-whistleblower-social-media-misinformation-hate-algorithm/) 。数据黑客是不好的，但助长仇恨和偏见的火焰——并在疫情期间促进对循证科学的不信任——可以说更糟糕。
 
@@ -18,13 +18,13 @@ Watch
 > 
 > 你添加的个人资料、照片、帖子、视频和其他所有内容都将被永久删除。您将无法检索您添加的任何内容。
 
-> 您将无法再使用Facebook Messenger。
+> 您将无法再使用 Facebook Messenger。
 > 
-> 你将无法使用脸书登录你用脸书帐户注册的其他应用程序，如Spotify或Pinterest。您可能需要联系应用程序和网站来恢复这些帐户。
+> 你将无法使用脸书登录你用脸书帐户注册的其他应用程序，如 Spotify 或 Pinterest。您可能需要联系应用程序和网站来恢复这些帐户。
 > 
 > 删除帐户后，有些信息，如您发送给朋友的消息，他们可能仍会看到。您发送的邮件副本存储在您朋友的收件箱中。"
 
-要开始，你所要做的就是 [点击这个链接](https://www.facebook.com/deactivate_delete_account) ，选择“删除账号”选项，然后让' er rip。当脸书从其服务器上移除你的所有数据时，不要登录你的账户，这可能需要 [长达90天](https://www.facebook.com/help/224562897555674) 脸书才能完成。在那之后，你的账户就永远消失了——你所有的数据也是，希望如此。
+要开始，你所要做的就是 [点击这个链接](https://www.facebook.com/deactivate_delete_account) ，选择“删除账号”选项，然后让' er rip。当脸书从其服务器上移除你的所有数据时，不要登录你的账户，这可能需要 [长达 90 天](https://www.facebook.com/help/224562897555674) 脸书才能完成。在那之后，你的账户就永远消失了——你所有的数据也是，希望如此。
 
 ### 我如何确定我的脸书账户真的被删除了？
 
@@ -46,6 +46,6 @@ Watch
 
 唷。就这样。我遗漏了什么吗？我们感觉好点了吗？
 
-*本文最初发布于2018年10月2日，更新于2021年10月14日，以向lede添加最新上下文，并更新在此期间更改的链接位置。*
+*本文最初发布于 2018 年 10 月 2 日，更新于 2021 年 10 月 14 日，以向 lede 添加最新上下文，并更新在此期间更改的链接位置。*
 
  *T3】*

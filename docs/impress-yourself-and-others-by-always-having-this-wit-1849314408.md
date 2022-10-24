@@ -1,6 +1,6 @@
 # 热浪来袭时，随身携带这个，给自己(和他人)留下深刻印象
 
-> 原文:[https://life hacker . com/impress-yourself-others-by-always-have this-wit-1849314408](https://lifehacker.com/impress-yourself-and-others-by-always-having-this-wit-1849314408)
+> 原文：<https://lifehacker.com/impress-yourself-and-others-by-always-having-this-wit-1849314408>
 
 我上过一次植物学课，其中包括一次实地考察:在炎热的夏天，绕着一片野花草地走上几个小时。没有树荫，没有微风，只有闷热的痛苦。但是当我和我的拼车伙伴回到车上时，我有一个惊喜:我已经用冰袋打包了一个保温饭盒，还有几瓶水。即使在炎热的车里呆了一下午，水还是冰冷的。这可能是我一生中喝过的最提神的饮料，我的伴侣也同样高兴。我觉得自己非常非常聪明。
 

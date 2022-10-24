@@ -1,6 +1,6 @@
 # 让我们恢复餐厅预订
 
-> 原文:[https://life hacker . com/let-s-bring-back-the-restaurant-reservation-1848886970](https://lifehacker.com/let-s-bring-back-the-restaurant-reservation-1848886970)
+> 原文：<https://lifehacker.com/let-s-bring-back-the-restaurant-reservation-1848886970>
 
 对你来说，预订晚餐似乎已经过时了——这是你的长辈在特殊场合才会做的事情。但是除了一个显而易见的事实，即你不会饿着肚子站在门厅里闻别人的美食，还有一些很好的理由这样做。这不仅仅是为了您的方便(尽管*是*的一个相当大的部分)——以下是您应该尽可能预订的其他原因，尤其是现在这样做比以往任何时候都容易。
 

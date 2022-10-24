@@ -1,14 +1,14 @@
-# 吐酸的陆地龙虾和其他12种可怕、怪异、神奇的生物
+# 吐酸的陆地龙虾和其他 12 种可怕、怪异、神奇的生物
 
-> 原文:[https://life hacker . com/acid-spitting-land-lobsters-and-12-other-terrorist-we-1847197783](https://lifehacker.com/acid-spitting-land-lobsters-and-12-other-terrifying-we-1847197783)
+> 原文：<https://lifehacker.com/acid-spitting-land-lobsters-and-12-other-terrifying-we-1847197783>
 
-我相信我不需要提醒你2020年 的 [谋杀大黄蜂传奇，但你应该知道](https://lifehacker.com/murder-hornets-are-unlikely-to-murder-you-personally-1843264533) [2021年正试图超越](https://twitter.com/dallastexastv/status/1417501235553443845?s=21) 看似的东西——通过给我们(或至少是德克萨斯)一种蛛形纲动物的出现一些人亲切地称之为 “吐酸的‘陆地龙虾”“公平地说，这并不是对这种生物的完全准确的描述...嗯，除了酸的事情。
+我相信我不需要提醒你 2020 年 的 [谋杀大黄蜂传奇，但你应该知道](https://lifehacker.com/murder-hornets-are-unlikely-to-murder-you-personally-1843264533) [2021 年正试图超越](https://twitter.com/dallastexastv/status/1417501235553443845?s=21) 看似的东西——通过给我们(或至少是德克萨斯)一种蛛形纲动物的出现一些人亲切地称之为 “吐酸的‘陆地龙虾”“公平地说，这并不是对这种生物的完全准确的描述...嗯，除了酸的事情。
 
 正如 [大弯国家公园解释的](https://www.facebook.com/BigBendNPS/posts/4432161480135470) :
 
-> 夏雨把葡萄园从洞穴中带出来寻找食物和爱情。醋龙大约3英寸长，相对来说是良性的，除非你碰巧惹恼了它们。它们可以用沉重的口器(足肢)捏东西，并从“鞭子”底部射出85%的醋酸(醋)来保护自己。
+> 夏雨把葡萄园从洞穴中带出来寻找食物和爱情。醋龙大约 3 英寸长，相对来说是良性的，除非你碰巧惹恼了它们。它们可以用沉重的口器(足肢)捏东西，并从“鞭子”底部射出 85%的醋酸(醋)来保护自己。
 
-无论如何，这些时髦的家伙让我想到了一种我特别喜欢的动物，叫做 [的动物，我不知道它们存在过](https://www.reddit.com/r/AIDKE/) 。在这里， redditors贴出了各种各样怪异、令人毛骨悚然、或者令人惊奇的生物，这些生物我们绝对*不知道*存在。我们来看看几个，好吗？
+无论如何，这些时髦的家伙让我想到了一种我特别喜欢的动物，叫做 [的动物，我不知道它们存在过](https://www.reddit.com/r/AIDKE/) 。在这里， redditors 贴出了各种各样怪异、令人毛骨悚然、或者令人惊奇的生物，这些生物我们绝对*不知道*存在。我们来看看几个，好吗？
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-QJcXMPJ9XN8&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-QJcXMPJ9XN8&start=0) 
 
@@ -24,13 +24,13 @@
 
 这些北方幽灵蝙蝠是相当孤独的生物，因其异常苍白的颜色而得名。正如 [密歇根大学动物博物馆](https://animaldiversity.org/accounts/Diclidurus_albus/) 报道:
 
-> 北冥蝙蝠个体每晚吃大约1000只昆虫。这可能会影响昆虫数量。这些蝙蝠很罕见，所以它们对生态系统的影响可能很小，只能根据该地区其他蝙蝠的影响进行假设。此外，蝙蝠粪对植物非常重要，是极好的肥料。
+> 北冥蝙蝠个体每晚吃大约 1000 只昆虫。这可能会影响昆虫数量。这些蝙蝠很罕见，所以它们对生态系统的影响可能很小，只能根据该地区其他蝙蝠的影响进行假设。此外，蝙蝠粪对植物非常重要，是极好的肥料。
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-67QpPvu13Rk&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-67QpPvu13Rk&start=0) 
 
-由于这种生活在中国长江并以其顽皮笑容而闻名的江豚的现存标本可能只有大约1000只，它被认为是极度濒危物种。正如Nature.com报道的:
+由于这种生活在中国长江并以其顽皮笑容而闻名的江豚的现存标本可能只有大约 1000 只，它被认为是极度濒危物种。正如 Nature.com 报道的:
 
-> 长江江豚是世界上仅存的几种淡水鲸类之一。它只存在于长江以及邻近的鄱阳湖和洞庭湖。科学家们希望江豚能够避免与长江海豚或白暨豚相同的命运，后者在2006年的调查后被宣布实际上已经灭绝。
+> 长江江豚是世界上仅存的几种淡水鲸类之一。它只存在于长江以及邻近的鄱阳湖和洞庭湖。科学家们希望江豚能够避免与长江海豚或白暨豚相同的命运，后者在 2006 年的调查后被宣布实际上已经灭绝。
 
 来见见我新喜欢的鸟，玫瑰色琵鹭，它长着雄伟的粉红色翅膀，脖子伸出来，这个姿势看起来很不舒服，但肯定很适合它。正如 [所有关于鸟类的](https://www.allaboutbirds.org/guide/Roseate_Spoonbill/overview) 所描述的:
 
@@ -38,13 +38,13 @@
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-7RQfz3VmXtU&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-7RQfz3VmXtU&start=0) 
 
-Reddit用户u/el_pablo与我们分享了这只巨大的蝉，翼展约为6或7英寸，他说他们“认为这是一个新的科技玩具”，老实说，也是一样的。正如 [蝉躁](https://www.cicadamania.com/cicadas/tacua-speciosa/) 所描述的:
+Reddit 用户 u/el_pablo 与我们分享了这只巨大的蝉，翼展约为 6 或 7 英寸，他说他们“认为这是一个新的科技玩具”，老实说，也是一样的。正如 [蝉躁](https://www.cicadamania.com/cicadas/tacua-speciosa/) 所描述的:
 
 > 这种美丽的蝉原产于马来西亚和印度尼西亚，婆罗洲和苏门答腊岛，以及该地区的其他岛屿和国家。众所周知，它的体型很大，翅膀不透明，身体为黑色，突出的黄色/黄绿色颈毛，红色十字形突起，青色或黄色羽状突起。
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-jHnrogEABNQ&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-jHnrogEABNQ&start=0) 
 
-不要担心！这只蝎蛉实际上并不是一只*飞行蝎蛉*——那将是野生的，并不伟大。相反，它是一种昆虫，因“腹部和生殖器增大，类似蝎子的尾巴和毒刺”而得名，根据奥尔金T5的说法是[。它们不会咬人或蜇人，它们只是看起来像会咬人或蜇人的东西。](https://www.orkin.com/other/scorpion-flies)
+不要担心！这只蝎蛉实际上并不是一只*飞行蝎蛉*——那将是野生的，并不伟大。相反，它是一种昆虫，因“腹部和生殖器增大，类似蝎子的尾巴和毒刺”而得名，根据奥尔金 T5 的说法是[。它们不会咬人或蜇人，它们只是看起来像会咬人或蜇人的东西。](https://www.orkin.com/other/scorpion-flies)
 
 它们有两对翅膀和强壮的后腿用于捕捉猎物，但即便如此， [奥尔金说](https://www.orkin.com/other/scorpion-flies) “蝎蛉一般飞得很慢，而且模式飘忽不定。”
 
@@ -68,7 +68,7 @@ Reddit用户u/el_pablo与我们分享了这只巨大的蝉，翼展约为6或7�
 
 我在想这是我见过的最恐怖的事情还是有点可爱之间来回摇摆。但当我意识到它是一种微生物，而不是像熊一样大——正如它的昵称“”可能意味着的那样——我决定我们可以选择可爱。此外，它们可以(并且已经)在太空中不受保护地生存，这是我们不能声称的事情。正如 [现场科学解释的](https://www.livescience.com/57985-tardigrade-facts.html) :
 
-> 据史密森尼杂志 报道，研究发现缓步动物可以承受零下328华氏度(零下200摄氏度)的低温或超过300华氏度(148.9摄氏度)的高温。它们还能在辐射、沸腾的液体、高达 [六倍于海洋最深处](http://serc.carleton.edu/microbelife/topics/tardigrade/index.html) 压力的海量压力甚至没有任何保护的真空空间中生存。2008年发表在杂志 [当代生物学](http://www.cell.com/current-biology/fulltext/S0960-9822(08)00805-1) 上的一项研究发现，当暴露在太空真空和辐射中时，一些缓步动物物种可以在低地球轨道上存活10天。
+> 据史密森尼杂志 报道，研究发现缓步动物可以承受零下 328 华氏度(零下 200 摄氏度)的低温或超过 300 华氏度(148.9 摄氏度)的高温。它们还能在辐射、沸腾的液体、高达 [六倍于海洋最深处](http://serc.carleton.edu/microbelife/topics/tardigrade/index.html) 压力的海量压力甚至没有任何保护的真空空间中生存。2008 年发表在杂志 [当代生物学](http://www.cell.com/current-biology/fulltext/S0960-9822(08)00805-1) 上的一项研究发现，当暴露在太空真空和辐射中时，一些缓步动物物种可以在低地球轨道上存活 10 天。
 
 这个开朗的家伙是一个很好的地方来总结我们的未知之旅。 [国家地理](https://www.nationalgeographic.com/animals/mammals/facts/bald-uakari) 这样描述他(或者她，我不知道):
 

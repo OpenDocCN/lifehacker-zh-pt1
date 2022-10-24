@@ -1,6 +1,6 @@
 # 如何让你的车在极热的天气下保持运转
 
-> 原文:[https://life hacker . com/how-to-keep-your car-run-in-extreme-heat-1849214753](https://lifehacker.com/how-to-keep-your-car-running-in-extreme-heat-1849214753)
+> 原文：<https://lifehacker.com/how-to-keep-your-car-running-in-extreme-heat-1849214753>
 
 那些住在冬天寒冷的 [地方](https://lifehacker.com/winterize-your-car-for-safe-and-repair-free-winter-driv-5692218) 的人知道天气会对你的车造成损害。事实上，仅温度一项就影响了从轮胎气压到电池续航时间的方方面面——是的，包括炎热的天气。下面是美国汽车协会(AAA)专家提供的几种让你的车在极端高温下保持运转的方法。
 
@@ -8,13 +8,13 @@ Watch
 
 ## 如何让您的车辆为极端高温做好准备
 
-据美国汽车协会汽车服务副总裁Scott VerBracken称:汽车俱乐部集团 ，酷热是每年这个时候美国汽车协会接到大量滞留司机电话的主要原因。“司机将面临的两个最常见的问题是轮胎漏气和电池没电，”他在AAA的一份声明中说。
+据美国汽车协会汽车服务副总裁 Scott VerBracken 称:汽车俱乐部集团 ，酷热是每年这个时候美国汽车协会接到大量滞留司机电话的主要原因。“司机将面临的两个最常见的问题是轮胎漏气和电池没电，”他在 AAA 的一份声明中说。
 
 以下是避免轮胎漏气、电池没电以及其他路边事故的方法:
 
 ### 测试你的电池
 
-大多数汽车电池的寿命在三到五年之间，根据AAA 的说法 [。如果你已经有一段时间没有测试你的电池了，现在是时候测试了——特别是因为极热会导致电池更快地失去电量。](https://media.acg.aaa.com/aaas-tips-to-prepare-motorists-for-extreme-heat.htm)
+大多数汽车电池的寿命在三到五年之间，根据 AAA 的说法 [。如果你已经有一段时间没有测试你的电池了，现在是时候测试了——特别是因为极热会导致电池更快地失去电量。](https://media.acg.aaa.com/aaas-tips-to-prepare-motorists-for-extreme-heat.htm)
 
 ### 检查你的轮胎压力
 

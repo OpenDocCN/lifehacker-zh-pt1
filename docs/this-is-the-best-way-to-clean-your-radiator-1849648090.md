@@ -1,6 +1,6 @@
 # 这是清洁散热器的最好方法
 
-> 原文:[https://life hacker . com/this-is-the-best-way to-clean-your ' s radiator-1849648090](https://lifehacker.com/this-is-the-best-way-to-clean-your-radiator-1849648090)
+> 原文：<https://lifehacker.com/this-is-the-best-way-to-clean-your-radiator-1849648090>
 
 如果你今年还没有第一次打开你的暖气，你可能很快就要这样做了。在这之前，你应该好好清洗一下你的散热器——最简单的方法就是用吹风机。
 

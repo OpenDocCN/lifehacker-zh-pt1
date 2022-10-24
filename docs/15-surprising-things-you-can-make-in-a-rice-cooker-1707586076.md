@@ -1,6 +1,6 @@
 # 你可以用电饭锅做出令人惊讶的美味食物
 
-> 原文:[https://life hacker . com/15-在电饭煲里做令人惊讶的东西-1707586076](https://lifehacker.com/15-surprising-things-you-can-make-in-a-rice-cooker-1707586076)
+> 原文：<https://lifehacker.com/15-surprising-things-you-can-make-in-a-rice-cooker-1707586076>
 
 在过去的几年里， [速溶锅](https://lifehacker.com/tag/instant-pot) 一直是一锅烹饪界的宠儿。但在它成为每个人的注册热门商品之前，还有一个不起眼的电饭煲。但是不要让这个名字欺骗了你:电饭煲煮的不仅仅是米饭。
 
@@ -18,11 +18,11 @@ Watch
 
 **煮鸡蛋:**有 [约](https://skillet.lifehacker.com/how-to-make-hard-boiled-eggs-that-will-peel-damn-it-1798396346) [十亿](http://lifehacker.com/boil-eggs-with-a-towel-to-keep-them-from-cracking-in-th-1647134284) [技法](http://lifehacker.com/how-to-hard-boil-an-egg-perfectly-every-time-5831336) [为](http://lifehacker.com/boil-eggs-in-a-coffee-cup-and-other-office-friendly-fo-1573465159) [制作](http://skillet.lifehacker.com/how-to-make-the-perfect-hard-boiled-egg-1699544159#_ga=1.99487709.276801834.1432860399) [完美的](http://lifehacker.com/the-best-way-to-make-easy-to-peel-boiled-eggs-give-the-1575216656) [煮鸡蛋](http://lifehacker.com/two-tricks-for-making-easy-to-peel-foolproof-boiled-eg-1506259273)。电饭煲是另一个。虽然我更喜欢 [用高压锅](http://lifehacker.com/cook-eggs-in-a-pressure-cooker-for-easy-peel-hard-cooke-5885712) ，但是电饭煲也有类似的好处:一次煮很多鸡蛋，还能做出容易剥皮的鸡蛋。不可否认，电饭煲不会比在炉子上做节省任何时间，但它是相当不需要手动的。此外，从技术上讲，鸡蛋不是煮的，而是蒸的，但鸡蛋在电饭锅里会像软、中或硬的煮鸡蛋一样。
 
-**煎蛋饼:**也许你 [更喜欢煎蛋饼](https://lifehacker.com/make-a-frittata-in-your-slow-cooker-for-a-more-flavorfu-1702308648) 而不是煮鸡蛋？预煮一些蔬菜或任何你想在煎蛋饼中加入的配料(你可以用微波炉加热蔬菜)，然后在电饭锅碗中搅拌一些鸡蛋，将你的配料加入鸡蛋混合物中。在常规的米饭设置上烹饪，当它完成时，你已经得到了至少两个人的快速早餐(或晚餐)，这取决于你的电饭锅大小。这里有一份来自 [Just便当](http://justbento.com/handbook/recipe-collection-mains/rice-cooker-frittata-summer-vegetables) 的食谱。
+**煎蛋饼:**也许你 [更喜欢煎蛋饼](https://lifehacker.com/make-a-frittata-in-your-slow-cooker-for-a-more-flavorfu-1702308648) 而不是煮鸡蛋？预煮一些蔬菜或任何你想在煎蛋饼中加入的配料(你可以用微波炉加热蔬菜)，然后在电饭锅碗中搅拌一些鸡蛋，将你的配料加入鸡蛋混合物中。在常规的米饭设置上烹饪，当它完成时，你已经得到了至少两个人的快速早餐(或晚餐)，这取决于你的电饭锅大小。这里有一份来自 [Just 便当](http://justbento.com/handbook/recipe-collection-mains/rice-cooker-frittata-summer-vegetables) 的食谱。
 
 **燕麦片等热早餐麦片:**就像你可以 [在瓦罐里煮一夜燕麦片](https://skillet.lifehacker.com/slow-cook-your-breakfast-to-make-mornings-more-relaxing-1818663393) 一样，你可以在电饭锅里做燕麦片。让燕麦在电饭锅里浸泡一夜，然后在早上打开电饭锅，大约半小时后吃一顿热腾腾的早餐(或者设置定时器，如果有的话，让燕麦片在你从床上爬起来的时候煮好)。与瓦罐相比，不粘锅更容易清洗，你可以制作少量的燕麦片，而不用担心底部的燕麦片结壳。
 
-[厨房](http://www.thekitchn.com/oatmeal-made-in-a-rice-cooker-is-awesome-tips-from-the-kitchn-208451) 建议用1杯普通老式燕麦兑1又3/4杯液体，或1杯钢切燕麦兑2又1/2杯液体(例如水和牛奶)，然后在低温粥设置下烹饪。(抱歉那些有基本开/关电饭煲的人，这顿饭似乎需要粥的设置。)你可以用这种方法制作其他热早餐谷物——比如早餐大麦、早餐粗燕麦粉和早餐大米布丁——和/或混合新鲜水果、肉桂和其他调味品。
+[厨房](http://www.thekitchn.com/oatmeal-made-in-a-rice-cooker-is-awesome-tips-from-the-kitchn-208451) 建议用 1 杯普通老式燕麦兑 1 又 3/4 杯液体，或 1 杯钢切燕麦兑 2 又 1/2 杯液体(例如水和牛奶)，然后在低温粥设置下烹饪。(抱歉那些有基本开/关电饭煲的人，这顿饭似乎需要粥的设置。)你可以用这种方法制作其他热早餐谷物——比如早餐大麦、早餐粗燕麦粉和早餐大米布丁——和/或混合新鲜水果、肉桂和其他调味品。
 
 **巨型煎饼:**然后是 [史诗级电饭锅煎饼](http://lifehacker.com/make-a-giant-pancake-in-your-rice-cooker-1592047844)——一种巨大的煎饼蛋糕，适合作为丰盛的早餐或甜点。
 
@@ -34,7 +34,7 @@ Watch
 
 先煮米饭，然后在快结束时将装有蔬菜/肉类的蒸盘放入。如果你没有蒸盘或蒸架，你可以从亚马逊或者直接从电饭煲制造商那里买一个。
 
-你甚至可以在蒸笼里蒸一整条鱼，里面放满了蔬菜，做一顿完整的一锅饭。或者尝试在泡菜和土豆上蒸完全煮熟的香肠(30-40分钟的烹饪时间)。
+你甚至可以在蒸笼里蒸一整条鱼，里面放满了蔬菜，做一顿完整的一锅饭。或者尝试在泡菜和土豆上蒸完全煮熟的香肠(30-40 分钟的烹饪时间)。
 
 **烤猪肉**:代替慢炖锅， [公寓疗法](http://www.apartmenttherapy.com/using-a-rice-cooker-as-a-slow-132616) 实验用电饭锅慢炖烤猪肉:
 
@@ -44,13 +44,13 @@ Watch
 
 **通心粉和奶酪:**奶油通心粉和奶酪，轻松搞定。无尽的适应性和易于清理。电饭煲是 [自制芝士通心粉](http://skillet.lifehacker.com/step-away-from-the-kitchen-while-your-rice-cooker-makes-1687771063#_ga=1.171951331.276801834.1432860399) 的理想载体。顺便说一下，你可以在电饭煲里煮其他面食，要么是 [原味面食](https://www.kroger.com/r/rice-cooker-pasta-recipe/210669) 要么是 [一整份面食和肉酱餐](https://www.leaf.tv/articles/how-to-cook-pasta-in-a-rice-cooker/) 。
 
-**豆子:**你还需要 [泡你的豆子](http://lifehacker.com/this-cheat-sheet-shows-you-the-right-soaking-times-for-1614599749) (或者 [你](https://skillet.lifehacker.com/you-dont-have-to-soak-dried-beans-overnight-1818565255) ...)，烹饪时间在30分钟到4个小时之间(大豆最长)，但有了电饭锅，你就不必看着锅煮扁豆、大豆、芸豆和其他豆类。如果你的电饭煲有定时器，你可以浸泡豆子，并设置它在你想要豆子熟的时候开始烹饪。见 [本烹饪时间图](https://books.google.com/books?id=q3E_PwDx5J4C&pg=PA209&lpg=PA209&dq=rice+cooker+beans+cooking+time&source=bl&ots=TA3ou1n-Vn&sig=TvOiuKKQZaFnumUMhb1HS7Ir6HI&hl=en&sa=X&ei=rDNnVdPnOLiHsQSv4IPoBw&ved=0CDAQ6AEwAzgK#v=onepage&q&f=false) 来自 [*终极电饭煲食谱*](http://www.amazon.com/The-Ultimate-Rice-Cooker-Cookbook/dp/1558326677?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/15-surprising-things-you-can-make-in-a-rice-cooker-1707586076&asc_source=&tag=kinjalifehackerlink-20) ，一本我极力推荐给每一个电饭煲主人的书。
+**豆子:**你还需要 [泡你的豆子](http://lifehacker.com/this-cheat-sheet-shows-you-the-right-soaking-times-for-1614599749) (或者 [你](https://skillet.lifehacker.com/you-dont-have-to-soak-dried-beans-overnight-1818565255) ...)，烹饪时间在 30 分钟到 4 个小时之间(大豆最长)，但有了电饭锅，你就不必看着锅煮扁豆、大豆、芸豆和其他豆类。如果你的电饭煲有定时器，你可以浸泡豆子，并设置它在你想要豆子熟的时候开始烹饪。见 [本烹饪时间图](https://books.google.com/books?id=q3E_PwDx5J4C&pg=PA209&lpg=PA209&dq=rice+cooker+beans+cooking+time&source=bl&ots=TA3ou1n-Vn&sig=TvOiuKKQZaFnumUMhb1HS7Ir6HI&hl=en&sa=X&ei=rDNnVdPnOLiHsQSv4IPoBw&ved=0CDAQ6AEwAzgK#v=onepage&q&f=false) 来自 [*终极电饭煲食谱*](http://www.amazon.com/The-Ultimate-Rice-Cooker-Cookbook/dp/1558326677?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/15-surprising-things-you-can-make-in-a-rice-cooker-1707586076&asc_source=&tag=kinjalifehackerlink-20) ，一本我极力推荐给每一个电饭煲主人的书。
 
 **豆腐和蔬菜:**往电饭锅里扔一些 [豆腐和蔬菜](https://www.cookinghawaiianstyle.com/index.php/hawaiian-recipes/recipes/detail/1077/rice-cooker-steamed-tofu-asparagus) 加上一些酱料调味，很快你就有了美味的一锅饭或配菜。
 
 **汤、炖菜、辣椒:**基本上就是把所有东西都扔进锅里，看看会发生什么。正如影评人兼电饭煲专家罗杰·伊伯特 [对](http://www.rogerebert.com/rogers-journal/the-pot-and-how-to-use-it) 的建议:
 
-> 让我们做些汤吧。准备好你的食材。把它们扔进锅里。加入足够的水做成汤。众所周知，我从一罐健康谷或Pritkin汤开始，然后加入新鲜的配料。我也知道从健康谷辣椒开始，在当天晚些时候加入碎牛肉、香料和一小块切碎的洋葱，砰地盖上盖子。这看着锅沸腾了。当汤看起来差不多时，点击加热。如果看起来没熟，再加点水继续。你还将学习按照你认为烹饪所需时间的相反顺序将配料加入混合物中。比如先干豆。甚至让它们坐在水里暖和一会儿。如果你很着急，把它们扔进去煮。他们见鬼去吧。不要这么快就放入肉和鸡肉，否则会煮过头。没有规则。你是玛丽阿姨。最后放入锅中的原料应该是你喜欢的仍然有点松脆的东西，比如冷冻豌豆和玉米。
+> 让我们做些汤吧。准备好你的食材。把它们扔进锅里。加入足够的水做成汤。众所周知，我从一罐健康谷或 Pritkin 汤开始，然后加入新鲜的配料。我也知道从健康谷辣椒开始，在当天晚些时候加入碎牛肉、香料和一小块切碎的洋葱，砰地盖上盖子。这看着锅沸腾了。当汤看起来差不多时，点击加热。如果看起来没熟，再加点水继续。你还将学习按照你认为烹饪所需时间的相反顺序将配料加入混合物中。比如先干豆。甚至让它们坐在水里暖和一会儿。如果你很着急，把它们扔进去煮。他们见鬼去吧。不要这么快就放入肉和鸡肉，否则会煮过头。没有规则。你是玛丽阿姨。最后放入锅中的原料应该是你喜欢的仍然有点松脆的东西，比如冷冻豌豆和玉米。
 > 
 > **炖菜。**喜欢只加少量水的汤，阿尔伯特·爱因斯坦。
 
@@ -82,4 +82,4 @@ Watch
 
 **用电饭锅做一锅饭或不同的菜需要一些时间和设置的实验，但是，很有可能，你可以用它做任何你想做的菜。也许电饭煲应该在你的柜台上有一个永久的位置。**
 
-**这个故事最初发表于2015年5月，并于2020年11月6日更新，删除了几张带有知识共享许可的照片，并使内容符合当前的Lifehacker风格。**
+**这个故事最初发表于 2015 年 5 月，并于 2020 年 11 月 6 日更新，删除了几张带有知识共享许可的照片，并使内容符合当前的 Lifehacker 风格。**

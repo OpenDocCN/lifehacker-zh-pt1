@@ -1,16 +1,16 @@
 # 为什么你不应该按月支付你暂停的学生贷款(即使你可以)
 
-> 原文:[https://life hacker . com/why-you-should-not-make-monthly-payments-on-you-paused-s-1844675821](https://lifehacker.com/why-you-shouldnt-make-monthly-payments-on-your-paused-s-1844675821)
+> 原文：<https://lifehacker.com/why-you-shouldnt-make-monthly-payments-on-your-paused-s-1844675821>
 
-如果你生活在学生贷款中，你可能会密切关注我们政府正在进行的关于颁布公共学生贷款豁免的辩论——大约5万美元、1万美元，或者根本没有。背景是熟悉的:普通美国学生贷款债务 [徘徊在3万美元](https://studentloanhero.com/student-loan-debt-statistics/) 左右，甚至在新冠肺炎·疫情 [让许多年轻的美国人陷入金融混乱](https://tcf.org/content/commentary/young-people-will-bear-brunt-covid-19s-economic-consequences/?session=1) 之前，还款危机就已经隐约出现。
+如果你生活在学生贷款中，你可能会密切关注我们政府正在进行的关于颁布公共学生贷款豁免的辩论——大约 5 万美元、1 万美元，或者根本没有。背景是熟悉的:普通美国学生贷款债务 [徘徊在 3 万美元](https://studentloanhero.com/student-loan-debt-statistics/) 左右，甚至在新冠肺炎·疫情 [让许多年轻的美国人陷入金融混乱](https://tcf.org/content/commentary/young-people-will-bear-brunt-covid-19s-economic-consequences/?session=1) 之前，还款危机就已经隐约出现。
 
-眼下，联邦学生贷款的利息是 [暂停到9月30日](https://twocents.lifehacker.com/make-a-plan-for-the-return-of-federal-student-loan-paym-1844537532) 以应对疫情。你应该继续定期支付联邦贷款来减少你的本金吗？除非你现金充裕，否则答案是“不”
+眼下，联邦学生贷款的利息是 [暂停到 9 月 30 日](https://twocents.lifehacker.com/make-a-plan-for-the-return-of-federal-student-loan-paym-1844537532) 以应对疫情。你应该继续定期支付联邦贷款来减少你的本金吗？除非你现金充裕，否则答案是“不”
 
 Watch
 
 ### 兴趣才是最重要的
 
-背负沉重的学生债务通常意味着你要熟悉关于还款选择的流行建议。我自己大约11.5万美元的初始余额意味着研究每一个选项，从[到破产](https://twocents.lifehacker.com/filing-for-bankruptcy-you-may-also-get-out-of-paying-y-1841773948) ，探索如果我离开这个国家会发生什么。我经历了悲伤的每一个阶段，直到最终确定了一个积极的还款计划——一个基于尽可能支付本金的计划——然而，自从2020年3月CARES act暂停联邦学生贷款利息以来，我还没有支付过一美元，因为当我不被收取利息时，定期支付没有任何好处。
+背负沉重的学生债务通常意味着你要熟悉关于还款选择的流行建议。我自己大约 11.5 万美元的初始余额意味着研究每一个选项，从[到破产](https://twocents.lifehacker.com/filing-for-bankruptcy-you-may-also-get-out-of-paying-y-1841773948) ，探索如果我离开这个国家会发生什么。我经历了悲伤的每一个阶段，直到最终确定了一个积极的还款计划——一个基于尽可能支付本金的计划——然而，自从 2020 年 3 月 CARES act 暂停联邦学生贷款利息以来，我还没有支付过一美元，因为当我不被收取利息时，定期支付没有任何好处。
 
 这里的关键词是“常规”定期还款意味着削减你的本金，通过削减你要支付的利息，最终减少你要偿还的总额。对于我们这些负债的人来说，这是一个伟大的目标，但只有当利息积极累积时，它才是时间敏感的。虽然未来几个月会暂停支付利息，但每月定期还款和完全取消还款的效果没有什么区别，把钱存入首选储蓄账户，并在利息计划继续支付之前一次性付清。能够负担得起的人最好在利息重新开始的前一天支付学生贷款，而不是每月定期支付相同的金额。
 
@@ -22,4 +22,4 @@ Watch
 
 ### 我会积累更多的储蓄
 
-虽然你没有被收取利息，但定期付款并没有任何好处，如果你开始失去财务优势，你可能会需要一笔储蓄。考虑把这笔钱存起来，如果可能的话，为自己建立一个超大的安全网。然后，如果你不需要它，你可以在9月29日或任何利息最终恢复的日子一次性付清。这是你在不确定时期帮助建立内心平静的一小步。
+虽然你没有被收取利息，但定期付款并没有任何好处，如果你开始失去财务优势，你可能会需要一笔储蓄。考虑把这笔钱存起来，如果可能的话，为自己建立一个超大的安全网。然后，如果你不需要它，你可以在 9 月 29 日或任何利息最终恢复的日子一次性付清。这是你在不确定时期帮助建立内心平静的一小步。

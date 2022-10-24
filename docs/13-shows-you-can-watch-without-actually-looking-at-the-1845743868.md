@@ -1,6 +1,6 @@
-# 13个不用看电视就能看的节目
+# 13 个不用看电视就能看的节目
 
-> 原文:[https://life hacker . com/13-shows-you-shows-can-watch-without-in-the-1845743868](https://lifehacker.com/13-shows-you-can-watch-without-actually-looking-at-the-1845743868)
+> 原文：<https://lifehacker.com/13-shows-you-can-watch-without-actually-looking-at-the-1845743868>
 
 我们使用音频应用程序来集中注意力，使用音乐来轻松收听——是时候添加电视和电影来进行环境观看了。有许多电视节目，你可以在后台播放，它们遵循一种流派模式，需要最少的关注，并且几乎总是有画外音告诉你你需要知道的一切。
 
@@ -8,11 +8,11 @@
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-hxaaAoI57fk&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-hxaaAoI57fk&start=0) 
 
-一位年轻的工作狂女性感到来自家庭的压力，要找到那个特别的人，独自出席节日聚会只会让情况变得更糟。Holidate提供了补救办法:带一个伴侣来参加节日聚会，以避免对她单身身份的关注和质疑。盯着 [艾玛·罗伯茨](https://www.imdb.com/name/nm0731075/?ref_=tt_cl_t1) 和 [卢克·布雷西](https://www.imdb.com/name/nm3478396/?ref_=tt_cl_t2) ，两个角色约定互相陪伴，没有实际寻找爱情的压力。你可以猜测这对柏拉图式的情侣最后会发生什么，这种可预测性让它非常适合分心观看。
+一位年轻的工作狂女性感到来自家庭的压力，要找到那个特别的人，独自出席节日聚会只会让情况变得更糟。Holidate 提供了补救办法:带一个伴侣来参加节日聚会，以避免对她单身身份的关注和质疑。盯着 [艾玛·罗伯茨](https://www.imdb.com/name/nm0731075/?ref_=tt_cl_t1) 和 [卢克·布雷西](https://www.imdb.com/name/nm3478396/?ref_=tt_cl_t2) ，两个角色约定互相陪伴，没有实际寻找爱情的压力。你可以猜测这对柏拉图式的情侣最后会发生什么，这种可预测性让它非常适合分心观看。
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-wgLRwFN1r40&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-wgLRwFN1r40&start=0) 
 
-翻新和找房子节目在HGTV播出，由 [希拉里·法尔](https://www.imdb.com/name/nm0479640/?ref_=tt_ov_st_sm) 和 [大卫·维森廷](https://www.imdb.com/name/nm4171743/?ref_=tt_ov_st_sm) 主持。它有14个季节来安排你的工作日，每隔一段时间，你可以从你正在做的事情中抬起头来，注意到一个家的变化，或者捕捉一个特色夫妇可能的新家的漫游。在最后检查一下，看看他们是否最终喜欢他们新装修的家，或者把它列为新住所。
+翻新和找房子节目在 HGTV 播出，由 [希拉里·法尔](https://www.imdb.com/name/nm0479640/?ref_=tt_ov_st_sm) 和 [大卫·维森廷](https://www.imdb.com/name/nm4171743/?ref_=tt_ov_st_sm) 主持。它有 14 个季节来安排你的工作日，每隔一段时间，你可以从你正在做的事情中抬起头来，注意到一个家的变化，或者捕捉一个特色夫妇可能的新家的漫游。在最后检查一下，看看他们是否最终喜欢他们新装修的家，或者把它列为新住所。
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-lptctjAT-Mk&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-lptctjAT-Mk&start=0) 
 
@@ -20,7 +20,7 @@
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-WechPJGpqS8&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-WechPJGpqS8&start=0) 
 
-Fab五人组给由他们的爱人提名的优秀的人化妆。 [五位主持人](https://www.eonline.com/news/1187576/how-queer-eye-struck-gold-with-its-fab-five) 可爱机智的性格让人着迷，可教的时刻既温馨又满足。作为一个公平的警告，它可能会比这个列表中的其他人占用你更多的注意力，但你可以在做饭或整理衣柜时，一只眼睛盯着这个节目，另一只眼睛盯着你的晚餐。
+Fab 五人组给由他们的爱人提名的优秀的人化妆。 [五位主持人](https://www.eonline.com/news/1187576/how-queer-eye-struck-gold-with-its-fab-five) 可爱机智的性格让人着迷，可教的时刻既温馨又满足。作为一个公平的警告，它可能会比这个列表中的其他人占用你更多的注意力，但你可以在做饭或整理衣柜时，一只眼睛盯着这个节目，另一只眼睛盯着你的晚餐。
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-LtRWldtxuiI&start=1](https://lifehacker.com/embed/inset/iframe?id=youtube-video-LtRWldtxuiI&start=1) 
 
@@ -28,11 +28,11 @@ Fab五人组给由他们的爱人提名的优秀的人化妆。 [五位主持人
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-pr4cPaDS8jY&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-pr4cPaDS8jY&start=0) 
 
-工作时看《办公室》是元的，这部剧愚蠢的职场滑稽动作为你在家工作时面临的任何与工作有关的烦恼提供了证明。重新观看节目会降低保持专注的欲望，但偶尔你会听到一句你记得的搞笑台词，并发出真诚的笑声。*办公室*将在 [网飞进行流媒体](https://www.netflix.com/title/70136120) 直到2021年1月，届时它将转移到 [NBC的平台孔雀](https://www.peacocktv.com/?cid=20200715takeflightpaidsearch326&utm_source=google&utm_medium=paid_search&utm_campaign=20200715takeflight&utm_content=44700030835775408_44700030835775408&gclid=CjwKCAiA-_L9BRBQEiwA-bm5fh6NcfLXVzFYhz-E9Cnt0nhNbgvMzYKqS7PZM19mYgxO2IAnCZdP6BoC_9UQAvD_BwE&gclsrc=aw.ds) 。
+工作时看《办公室》是元的，这部剧愚蠢的职场滑稽动作为你在家工作时面临的任何与工作有关的烦恼提供了证明。重新观看节目会降低保持专注的欲望，但偶尔你会听到一句你记得的搞笑台词，并发出真诚的笑声。*办公室*将在 [网飞进行流媒体](https://www.netflix.com/title/70136120) 直到 2021 年 1 月，届时它将转移到 [NBC 的平台孔雀](https://www.peacocktv.com/?cid=20200715takeflightpaidsearch326&utm_source=google&utm_medium=paid_search&utm_campaign=20200715takeflight&utm_content=44700030835775408_44700030835775408&gclid=CjwKCAiA-_L9BRBQEiwA-bm5fh6NcfLXVzFYhz-E9Cnt0nhNbgvMzYKqS7PZM19mYgxO2IAnCZdP6BoC_9UQAvD_BwE&gclsrc=aw.ds) 。
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-jbRVoTL5djs&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-jbRVoTL5djs&start=0) 
 
-[重新席卷全国](https://www.wbur.org/onpoint/2019/09/18/friends-nostalgia-tv-marta-kauffman) 就是大家熟知的情景喜剧，*老友记*。这是一部永远不会过时的电视剧，你可能已经看过了，这让这部易于观看的喜剧变得更加容易。愚蠢的滑稽动作和人物关系仍然足以娱乐，所以在后台运行它是很好的，可以在深度清理你的房子时产生一点怀旧情绪。*老友记*现已在HBOMax 上线 [流媒体。](https://www.hbomax.com/fr/?utm_id=sa%7c71700000067634641%7c58700005910310273%7cp54067328538&gclid=CjwKCAiA-_L9BRBQEiwA-bm5fjAGY1fWn10VGkteovWEH7xCrMKT5Jc7NorzeFGpag9UvdZv5_MVFxoCSK0QAvD_BwE&gclsrc=aw.ds)
+[重新席卷全国](https://www.wbur.org/onpoint/2019/09/18/friends-nostalgia-tv-marta-kauffman) 就是大家熟知的情景喜剧，*老友记*。这是一部永远不会过时的电视剧，你可能已经看过了，这让这部易于观看的喜剧变得更加容易。愚蠢的滑稽动作和人物关系仍然足以娱乐，所以在后台运行它是很好的，可以在深度清理你的房子时产生一点怀旧情绪。*老友记*现已在 HBOMax 上线 [流媒体。](https://www.hbomax.com/fr/?utm_id=sa%7c71700000067634641%7c58700005910310273%7cp54067328538&gclid=CjwKCAiA-_L9BRBQEiwA-bm5fjAGY1fWn10VGkteovWEH7xCrMKT5Jc7NorzeFGpag9UvdZv5_MVFxoCSK0QAvD_BwE&gclsrc=aw.ds)
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-AmW5GO6btMM&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-AmW5GO6btMM&start=0) 
 
@@ -40,7 +40,7 @@ Fab五人组给由他们的爱人提名的优秀的人化妆。 [五位主持人
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-vIKlVgw_b90&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-vIKlVgw_b90&start=0) 
 
-这部成人主题的动画片已经播放了20多季，现在仍在播放。因为一集与下一集没有连接，所以您可以打开它，让自动播放开始。你可能永远不知道到底发生了什么，这完全没问题；每次你停下来看的时候，它都可能是一个独立的荒谬的场景。每隔几分钟，用任何轻松的成人卡通——比如开心汉堡店——来代替类似的笑声。你可以在Hulu 上看几季 [*【家佬】*。](https://www.hulu.com/series/family-guy-3c3c0f8b-7366-4d15-88ab-18050285978e?&cmp=7958&utm_source=google&utm_medium=cpc&utm_campaign=BM%20Search%20TV%20Shows&utm_term=where%20to%20watch%20family%20guy&ds_rl=1263136&gclid=CjwKCAiA-_L9BRBQEiwA-bm5fjSlMKPVpmdlQJXtAMAB35ox67IlD7hj8Ibk86ZjCJOImXJ_tjeSKxoCNWwQAvD_BwE&gclsrc=aw.ds)
+这部成人主题的动画片已经播放了 20 多季，现在仍在播放。因为一集与下一集没有连接，所以您可以打开它，让自动播放开始。你可能永远不知道到底发生了什么，这完全没问题；每次你停下来看的时候，它都可能是一个独立的荒谬的场景。每隔几分钟，用任何轻松的成人卡通——比如开心汉堡店——来代替类似的笑声。你可以在 Hulu 上看几季 [*【家佬】*。](https://www.hulu.com/series/family-guy-3c3c0f8b-7366-4d15-88ab-18050285978e?&cmp=7958&utm_source=google&utm_medium=cpc&utm_campaign=BM%20Search%20TV%20Shows&utm_term=where%20to%20watch%20family%20guy&ds_rl=1263136&gclid=CjwKCAiA-_L9BRBQEiwA-bm5fjSlMKPVpmdlQJXtAMAB35ox67IlD7hj8Ibk86ZjCJOImXJ_tjeSKxoCNWwQAvD_BwE&gclsrc=aw.ds)
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-Wb0c9Nvuq34&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-Wb0c9Nvuq34&start=0) 
 
@@ -52,7 +52,7 @@ Fab五人组给由他们的爱人提名的优秀的人化妆。 [五位主持人
 
  **[https://lifehacker.com/embed/inset/iframe?id=youtube-video-rI9HtyuexBk&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-rI9HtyuexBk&start=0) 
 
-这部感人的家庭喜剧由主演 [沃尔顿·戈金斯](https://www.imdb.com/name/nm0324658/?ref_=tt_cl_t1) 饰演单身父亲韦德·费尔顿。妻子去世后，他要照顾两个年幼的女儿，再次学习约会，以及如何在新生活中经营。鉴于主题，这不是背景观看的一般建议，但它仍然保持了经典情景喜剧的风格，让你既能看到笑点和衷心的时刻，又能完成一些工作。 [独角兽](https://www.netflix.com/title/81190627)*第一季可以在网飞上找到，而新的剧集可以在 [CBS All Access上观看。](https://www.cbs.com/shows/the-unicorn/)T13】*
+这部感人的家庭喜剧由主演 [沃尔顿·戈金斯](https://www.imdb.com/name/nm0324658/?ref_=tt_cl_t1) 饰演单身父亲韦德·费尔顿。妻子去世后，他要照顾两个年幼的女儿，再次学习约会，以及如何在新生活中经营。鉴于主题，这不是背景观看的一般建议，但它仍然保持了经典情景喜剧的风格，让你既能看到笑点和衷心的时刻，又能完成一些工作。 [独角兽](https://www.netflix.com/title/81190627)*第一季可以在网飞上找到，而新的剧集可以在 [CBS All Access 上观看。](https://www.cbs.com/shows/the-unicorn/)T13】*
 
  *[https://lifehacker.com/embed/inset/iframe?id=youtube-video-P6ZxASdQkVU&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-P6ZxASdQkVU&start=0) 
 

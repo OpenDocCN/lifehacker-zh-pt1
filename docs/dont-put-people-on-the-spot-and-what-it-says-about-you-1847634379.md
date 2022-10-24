@@ -1,6 +1,6 @@
 # 不要让别人为难(当你为难时，别人会怎么看你)
 
-> 原文:[https://life hacker . com/don ' t-put-the-place-people-on-the-site and the-say-about you-1847634379](https://lifehacker.com/dont-put-people-on-the-spot-and-what-it-says-about-you-1847634379)
+> 原文：<https://lifehacker.com/dont-put-people-on-the-spot-and-what-it-says-about-you-1847634379>
 
 无论是在工作中还是在一群朋友中，我们大多数人都曾在许多不同的情况下被置于尴尬的境地。当一双眼睛看着你的时候，你会期待你会给出一个你还没准备好的答案——不管是因为你不知道还是你还没准备好分享——这都是一个噩梦般的情况。
 

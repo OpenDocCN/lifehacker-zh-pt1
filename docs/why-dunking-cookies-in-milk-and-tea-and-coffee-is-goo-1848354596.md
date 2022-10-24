@@ -1,8 +1,8 @@
 # 从科学角度来说，为什么把饼干泡在牛奶(茶和咖啡)里是好的
 
-> 原文:[https://life hacker . com/why-dunking-cookies-in-milk-and-tea-and-coffee-is-goo-1848354596](https://lifehacker.com/why-dunking-cookies-in-milk-and-tea-and-coffee-is-goo-1848354596)
+> 原文：<https://lifehacker.com/why-dunking-cookies-in-milk-and-tea-and-coffee-is-goo-1848354596>
 
-几个月前，当希腊NBA球员G iannis Antetokounmpo第一次尝试用牛奶蘸奥利奥时，他的头脑被震惊了，这是可以理解的。“从现在开始，这是我每天晚上的*小吃*，”他在新闻发布会上说。( [观看下面的剪辑](https://youtu.be/JFXd5g33YVM) )。这是令人愉快的。)
+几个月前，当希腊 NBA 球员 G iannis Antetokounmpo 第一次尝试用牛奶蘸奥利奥时，他的头脑被震惊了，这是可以理解的。“从现在开始，这是我每天晚上的*小吃*，”他在新闻发布会上说。( [观看下面的剪辑](https://youtu.be/JFXd5g33YVM) )。这是令人愉快的。)
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-JFXd5g33YVM&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-JFXd5g33YVM&start=0) 
 
@@ -12,7 +12,7 @@ Watch
 
 首先是软化。前面提到的未经发酵的罗马薄饼对牙齿非常坚硬，将它们浸泡在葡萄酒中使它们更容易咀嚼(这使它们尝起来像葡萄酒，我猜这是一种改进)。浸泡还能软化奥利奥和其他英式饼干，让食用者体验到一种不同于食用包装中新鲜饼干的口感。
 
-风味方面，浸泡有两个作用:风味- 顺滑和风味- 突出。如果你把一块饼干浸在牛奶里，你就消除了烘焙食品更粗糙、更令人作呕的品质。2016年，美利坚大学化学教授马修·哈廷斯(Matthew Hartings)告诉 [石英](https://qz.com/635619/theres-a-scientific-reason-why-chocolate-chip-cookies-and-milk-taste-so-good-together/) “这部分是因为我们舌头上的化学化合物相互作用。”牛奶富含乳化剂，当它储存在冰箱里时，可以防止脂肪分离。这些乳化剂“有助于在你吃巧克力的时候使它变得光滑”，同时水分软化了饼干，帮助你的味蕾更快地感受到味道。牛奶中的脂肪也会减弱任何强烈的或过于甜的味道。(我还注意到，它淡化了大规模生产的预包装饼干中的一些合成风味。)
+风味方面，浸泡有两个作用:风味- 顺滑和风味- 突出。如果你把一块饼干浸在牛奶里，你就消除了烘焙食品更粗糙、更令人作呕的品质。2016 年，美利坚大学化学教授马修·哈廷斯(Matthew Hartings)告诉 [石英](https://qz.com/635619/theres-a-scientific-reason-why-chocolate-chip-cookies-and-milk-taste-so-good-together/) “这部分是因为我们舌头上的化学化合物相互作用。”牛奶富含乳化剂，当它储存在冰箱里时，可以防止脂肪分离。这些乳化剂“有助于在你吃巧克力的时候使它变得光滑”，同时水分软化了饼干，帮助你的味蕾更快地感受到味道。牛奶中的脂肪也会减弱任何强烈的或过于甜的味道。(我还注意到，它淡化了大规模生产的预包装饼干中的一些合成风味。)
 
 茶和咖啡提供了不同的体验。我们得到了与牛奶相同的软化效果，但没有脂肪的抑制作用，还有大量不同的美味分子，其中一些可以在饮料和饼干中找到。这些化合物相互作用，覆盖我们的舌头，飘进我们的鼻子，让我们以一种新的有趣的方式体验小吃和饮料。咖啡和茶中的烘烤风味补充了烘焙食品中的烘烤风味，而这两种饮料中更苦、更涩的风味缓和了一些甜味并形成对比。真的挺好看的。
 

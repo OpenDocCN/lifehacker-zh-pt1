@@ -1,12 +1,12 @@
 # 通勤的七宗罪
 
-> 原文:[https://life hacker . com/the-7-deadly-sins-of-communication-1848863017](https://lifehacker.com/the-7-deadly-sins-of-commuting-1848863017)
+> 原文：<https://lifehacker.com/the-7-deadly-sins-of-commuting-1848863017>
 
 通勤简直是最糟糕的。经济学家最近的一项研究显示，开车上班是我们认为最不愉快的活动。这比做家务、回复邮件和实际上的*工作还要糟糕。*长通勤 [毁姻](https://journals.sagepub.com/doi/abs/10.1177/0042098013498280) ， [折心术](https://www.psychologicalscience.org/news/motr/lengthy-commutes-take-a-mental-toll.html) ， [折寿](https://www.thecut.com/2015/03/11-facts-about-your-soul-sucking-commute.html) 。通勤甚至可以 [让你变胖](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC3360418/) 。
 
 因为你糟糕的父母没有赚到足够的钱让你独立富裕，你可能不得不接受通勤的痛苦噩梦，但如果你避免通勤者犯下的更糟糕的错误，你可以让这件可怕的事情稍微好一点。
 
-大约86%的美国工人 [乘坐自己的汽车](https://www.statista.com/chart/18208/means-of-transportation-used-by-us-commuters/) 上下班，但研究表明，如果人们步行、骑自行车或乘火车，他们往往会对每天去办公室 [的旅行更开心。底线:改变你的工作方式会改变你的整个前景。如果你有不同的选择——我意识到在我们这个为汽车疯狂的国家，很多人都没有——你应该每一个都试一试。也许你会发现你喜欢在仲冬骑自行车开始新的一天，而不是一小时的交通堵塞。](https://tram.mcgill.ca/Research/Publications/Happy_Commuter.pdf)
+大约 86%的美国工人 [乘坐自己的汽车](https://www.statista.com/chart/18208/means-of-transportation-used-by-us-commuters/) 上下班，但研究表明，如果人们步行、骑自行车或乘火车，他们往往会对每天去办公室 [的旅行更开心。底线:改变你的工作方式会改变你的整个前景。如果你有不同的选择——我意识到在我们这个为汽车疯狂的国家，很多人都没有——你应该每一个都试一试。也许你会发现你喜欢在仲冬骑自行车开始新的一天，而不是一小时的交通堵塞。](https://tram.mcgill.ca/Research/Publications/Happy_Commuter.pdf)
 
 全球几乎有一半的员工称他们曾利用上班时间做一些垃圾工作，比如回复邮件或电话。虽然很多人 [鼓励员工利用他们的通勤时间](https://www.forbes.com/sites/theyec/2018/10/26/make-the-most-of-your-commute-with-these-eight-productive-tasks/?sh=7e60186b6f2f) “做高层次的战略工作”，以及其他免费劳动，但听听音乐或看看漫画书可能是个更好的主意。
 
@@ -18,7 +18,7 @@
 
 在最好的情况下，长途通勤是一场噩梦，但当你遇到交通堵塞时就更糟了。任何在大城市开过车的人都可以证明这一事实，但这也有科学依据。 [研究表明](https://time.com/9912/10-things-your-commute-does-to-your-body/) 交通拥挤的通勤比同等时间交通较少的通勤更有可能提高人们的压力水平和血压。因此，尽一切努力避开高峰是有意义的，即使你起得更早，下班更晚，或者走更长但不那么拥挤的路线。
 
-也许是因为对路线的熟悉，也许是因为开车的前一个小时，或者是因为整个过程的单调乏味，但是开车去上班是很危险的。开车上班的人比不开车上班的人多50%左右的交通事故 。开车时发短信/发电子邮件/刮胡子显然是危险的，但咄咄逼人、公路狂怒式的驾驶也是危险的。如果你是一个开车急躁的人，专家建议 [不要和其他司机](https://www.chicagotribune.com/columns/ct-road-rage-getting-around-0529-20170528-story.html) (不要尾随或甩开任何人，不管你有多想)， [给自己额外的时间到达目的地](https://www.skillsyouneed.com/rhubarb/fight-road-rage.html) ， [试着记住其他司机和你一样](https://www.seattletimes.com/sponsored/remember-these-tips-to-help-deal-with-road-rage/) 。
+也许是因为对路线的熟悉，也许是因为开车的前一个小时，或者是因为整个过程的单调乏味，但是开车去上班是很危险的。开车上班的人比不开车上班的人多 50%左右的交通事故 。开车时发短信/发电子邮件/刮胡子显然是危险的，但咄咄逼人、公路狂怒式的驾驶也是危险的。如果你是一个开车急躁的人，专家建议 [不要和其他司机](https://www.chicagotribune.com/columns/ct-road-rage-getting-around-0529-20170528-story.html) (不要尾随或甩开任何人，不管你有多想)， [给自己额外的时间到达目的地](https://www.skillsyouneed.com/rhubarb/fight-road-rage.html) ， [试着记住其他司机和你一样](https://www.seattletimes.com/sponsored/remember-these-tips-to-help-deal-with-road-rage/) 。
 
 通勤是一场噩梦，但有意识地害怕它，讨厌它的每一秒钟只会让它变得更糟。专家建议不要把你的通勤视为挑战或障碍，而是把它视为你个人生活和职业生活之间的过渡期 。不要沮丧地盯着前方无尽的刹车灯，通过在精神上规划你的一天，或者更进一步规划你的职业生涯，让自己向前看。你可以试试 [汽车瑜伽](https://pilgrimageyoga.com/blog/simple-car-yoga-poses-to-do-while-driving/) ，试着 [练习汽车意识](https://hbr.org/2014/11/your-car-commute-is-a-chance-to-practice-mindfulness) ，或者听听关于真实犯罪的 [播客——任何能让你不去反思现代生活这方面的平庸恐怖的东西都是好的。](https://lifehacker.com/15-true-crime-podcasts-that-arent-too-murder-y-1848785894)
 

@@ -1,6 +1,6 @@
 # 你的狗的白色皮毛可以更白
 
-> 原文:[https://life hacker . com/your-dogs-white-fur-can-be-even-white-1848842959](https://lifehacker.com/your-dogs-white-fur-can-be-even-whiter-1848842959)
+> 原文：<https://lifehacker.com/your-dogs-white-fur-can-be-even-whiter-1848842959>
 
 无论你有一只可爱的小马耳他狗还是一只毛茸茸的美国爱斯基摩狗，你都知道没有什么比你的狗的皮毛又亮又白更令人惊艳的了。你也知道，狗并不特别在乎美观，也不太可能因为会弄脏皮毛而不愿意在泥土中打滚。
 
@@ -16,11 +16,11 @@ Watch
 
 不管你用什么，一定要遵循包装上的说明。给狗狗涂上肥皂后，让含有荧光增白剂的洗发水在皮毛上停留五分钟左右，然后考虑在清洗后使用增亮护发素。
 
-## **尝试DIY补救污渍和暗淡的外套**
+## **尝试 DIY 补救污渍和暗淡的外套**
 
 根据 [四爪](https://www.fourpaws.com/pets-101/grooming-gateway/how-to-remove-stains-from-white-dog-fur) 的专家介绍，你也可以去自己的储藏室寻找一些能让你的狗皮毛变亮的东西。举例来说，小苏打是一种天然漂白剂，不会损坏外套。用小苏打和水做成糊状，然后刷在任何污渍上。等它干了，用湿布把它擦掉。如果第一次效果不理想，你可以重复这个过程，然后继续用洗发水。
 
-[日常小狗](https://dogcare.dailypuppy.com/naturally-whiten-dogs-fur-2142.html) 还有一个食谱你可以试试。将等量的医用1%过氧化氢和氧化镁牛奶混合，然后加入玉米淀粉，每次一茶匙，直到你有一个糊状物。将混合物放在任何污渍上，静置几个小时，干后轻轻梳理——但考虑先用护发素软化。
+[日常小狗](https://dogcare.dailypuppy.com/naturally-whiten-dogs-fur-2142.html) 还有一个食谱你可以试试。将等量的医用 1%过氧化氢和氧化镁牛奶混合，然后加入玉米淀粉，每次一茶匙，直到你有一个糊状物。将混合物放在任何污渍上，静置几个小时，干后轻轻梳理——但考虑先用护发素软化。
 
 ## **尝试一些预防措施来保护外套的白度**
 
@@ -32,7 +32,7 @@ Watch
 
 ## **小心处理泪痕**
 
-白狗也因为眼睛周围有黏糊糊的泪痕而臭名昭著。这些红棕色的斑点很恶心，会让你的狗不舒服。根据 [Kohepets](https://blog.kohepets.com.sg/fur-whitening-keep-dogs-fur-white/#:~:text=Food%20Allergies%20are%20often%20responsible,on%20a%20white%20dog's%20fur.) 的说法，变色可能是pH值失衡、食物过敏或小狗饮用水中的矿物质造成的。试着把你的狗的食物换出来，观察任何变化，然后换成纯净水。
+白狗也因为眼睛周围有黏糊糊的泪痕而臭名昭著。这些红棕色的斑点很恶心，会让你的狗不舒服。根据 [Kohepets](https://blog.kohepets.com.sg/fur-whitening-keep-dogs-fur-white/#:~:text=Food%20Allergies%20are%20often%20responsible,on%20a%20white%20dog's%20fur.) 的说法，变色可能是 pH 值失衡、食物过敏或小狗饮用水中的矿物质造成的。试着把你的狗的食物换出来，观察任何变化，然后换成纯净水。
 
 也和兽医检查一下，确保你的狗一切都好，特别是如果泪痕突然出现的话。如果狗是健康的，做一些面部美容，这与你用特殊的洗发水在身体上做的不一样。每天使用狗狗洗眼器和洗眼器擦拭来处理污渍，这样就不会产生粘糊糊的东西了。
 

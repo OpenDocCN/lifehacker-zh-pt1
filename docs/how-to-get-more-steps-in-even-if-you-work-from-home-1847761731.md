@@ -1,12 +1,12 @@
 # 即使你在家工作，如何获得更多的步骤
 
-> 原文:[https://life hacker . com/how-to-get-more-steps-if-you-work-from-home-1847761731](https://lifehacker.com/how-to-get-more-steps-in-even-if-you-work-from-home-1847761731)
+> 原文：<https://lifehacker.com/how-to-get-more-steps-in-even-if-you-work-from-home-1847761731>
 
 如果你有一个健身追踪器，并且你决定加入追踪步伐的行列，你可能会嫉妒那些住在城市里的人，他们不得不到处走，或者整天站着工作。但是，如果你醒来并通勤到房子的另一端，或者没有很多机会在你的日常工作中增加步骤，该怎么办呢？这里有一些你也可以玩的方法。
 
 Watch
 
-在进入提示之前，我想明确一点 [默认设置的一万步是一个扯淡的目标](https://lifehacker.com/10-000-steps-is-a-bullshit-goal-1828861391) 。公司使用它是因为它听起来不错，而且对普通人来说有点雄心勃勃。如果你从一个低得多的数字开始，进入你的设置，把你的目标调整到可以达到的水平。(例如，如果你平均每天走2000步，你可能想把它设置为5000步，这样当你改善当前习惯时，你就能感受到失望之外的东西。)
+在进入提示之前，我想明确一点 [默认设置的一万步是一个扯淡的目标](https://lifehacker.com/10-000-steps-is-a-bullshit-goal-1828861391) 。公司使用它是因为它听起来不错，而且对普通人来说有点雄心勃勃。如果你从一个低得多的数字开始，进入你的设置，把你的目标调整到可以达到的水平。(例如，如果你平均每天走 2000 步，你可能想把它设置为 5000 步，这样当你改善当前习惯时，你就能感受到失望之外的东西。)
 
 一旦你经常达到这个数字，考虑进一步提高。但是请记住，步骤不是一切；如果你正在做其他类型的运动，即使你的追踪器没有记录你的步数，你的身体仍然会受益。
 
@@ -18,7 +18,7 @@ Watch
 
 ## 玩一个活跃的视频游戏
 
-当这个问题在Reddit上被问到时，人们通常会推荐特定的视频游戏。 [Pokémon Go](https://lifehacker.com/what-is-pokemon-go-and-why-is-everyone-talking-about-it-1783420761) 让你走来走去孵蛋，你需要去特定的现实世界的地方捕捉新的生物，让它们互相战斗。你只需要在手机上安装一个免费的应用程序就可以玩了。任天堂的 [Ring Fit Adventure](https://gizmodo.com/nintendos-ring-fit-adventure-had-me-huffin-and-puffin-1838413978) 是另一款让你动起来的流行游戏，这款游戏你可以在你的客厅里玩。我们还 [报道了VR头戴设备](https://lifehacker.com/can-you-get-a-good-workout-with-virtual-reality-1847351527) 的健身方面；只要选择一个在你的追踪器上登记为脚步的游戏，因为有些游戏只会让你挥舞手臂。
+当这个问题在 Reddit 上被问到时，人们通常会推荐特定的视频游戏。 [Pokémon Go](https://lifehacker.com/what-is-pokemon-go-and-why-is-everyone-talking-about-it-1783420761) 让你走来走去孵蛋，你需要去特定的现实世界的地方捕捉新的生物，让它们互相战斗。你只需要在手机上安装一个免费的应用程序就可以玩了。任天堂的 [Ring Fit Adventure](https://gizmodo.com/nintendos-ring-fit-adventure-had-me-huffin-and-puffin-1838413978) 是另一款让你动起来的流行游戏，这款游戏你可以在你的客厅里玩。我们还 [报道了 VR 头戴设备](https://lifehacker.com/can-you-get-a-good-workout-with-virtual-reality-1847351527) 的健身方面；只要选择一个在你的追踪器上登记为脚步的游戏，因为有些游戏只会让你挥舞手臂。
 
 ## 遛狗
 
@@ -26,8 +26,8 @@ Watch
 
 ## 开会时走动
 
-如果你在家庭办公室接了很多电话，不要抗拒站起来走动的诱惑。现在这么多的会议都在Z oom上进行，考虑一下你是否可以在户外散步时进行一些不拍照的通话。礼貌一点，适当的沉默就好。
+如果你在家庭办公室接了很多电话，不要抗拒站起来走动的诱惑。现在这么多的会议都在 Z oom 上进行，考虑一下你是否可以在户外散步时进行一些不拍照的通话。礼貌一点，适当的沉默就好。
 
 ## 做一个行走的视频
 
-如果你能克服原地行走的轻微怪异，试试YouTube上许多步行锻炼视频中的一个，这种类型使 [成为我们最好的单独锻炼视频列表](https://lifehacker.com/the-best-workout-videos-to-do-alone-1841673507) 。定期以舞蹈为主题的有氧运动视频可以达到目的，也是如此。
+如果你能克服原地行走的轻微怪异，试试 YouTube 上许多步行锻炼视频中的一个，这种类型使 [成为我们最好的单独锻炼视频列表](https://lifehacker.com/the-best-workout-videos-to-do-alone-1841673507) 。定期以舞蹈为主题的有氧运动视频可以达到目的，也是如此。

@@ -1,12 +1,12 @@
 # 你的孩子如何超越你所有的家长控制
 
-> 原文:[https://life hacker . com/how-your-kids-what-your-all-your-parental-control-1848249586](https://lifehacker.com/how-your-kids-are-outsmarting-all-your-parental-control-1848249586)
+> 原文：<https://lifehacker.com/how-your-kids-are-outsmarting-all-your-parental-control-1848249586>
 
 这篇刊登在华尔街日报的精彩文章详细描述了一场发生在美国家庭中的军备竞赛。忧心忡忡的父母在他们的科技设备上使用互联网拦截和过滤技术，而他们的孩子则在努力找出如何打败他们。剧透:孩子们赢了。
 
 Watch
 
-以43岁的科罗拉多州房地产经纪人兰斯·沃克和他11岁的女儿佩顿为例。当兰斯发现佩顿收到来自抖音成年男子的信息时，他进入苹果的家长控制设置并锁定了这些信息。但是佩顿用一个新的苹果ID登录了抖音，并用密码锁定了她父亲。
+以 43 岁的科罗拉多州房地产经纪人兰斯·沃克和他 11 岁的女儿佩顿为例。当兰斯发现佩顿收到来自抖音成年男子的信息时，他进入苹果的家长控制设置并锁定了这些信息。但是佩顿用一个新的苹果 ID 登录了抖音，并用密码锁定了她父亲。
 
 “这是一场噩梦，”沃克告诉《T2》杂志。据报道，何仍在想办法控制他女儿的抖音习惯。
 
@@ -14,21 +14,21 @@ Watch
 
 关于如何限制内容，很难说得太具体，因为这在很大程度上与你想要阻止哪些应用或服务的内容类型有关，但这里有一些让你开始的提示。
 
-## 使用苹果的iOS家长控制
+## 使用苹果的 iOS 家长控制
 
-每一个主要的操作系统都提供了阻止用户接触不良内容的方法，但是由于大多数孩子( [根据最近的一项调查，87%的青少年](https://daringfireball.net/linked/2021/10/08/us-teens-iphones-apple-watches#:~:text=Of%20the%20~10%2C000%20respondents%2C%2087,in%20the%20Fall%202021%20survey.) )使用iPhones或iPads，大多数父母应该熟悉iOS的屏幕时间工具。它允许你过滤掉成人内容，阻止购买，并为手机的使用或特定类型的应用程序设置时间限制(即晚上8点后不玩游戏)。
+每一个主要的操作系统都提供了阻止用户接触不良内容的方法，但是由于大多数孩子( [根据最近的一项调查，87%的青少年](https://daringfireball.net/linked/2021/10/08/us-teens-iphones-apple-watches#:~:text=Of%20the%20~10%2C000%20respondents%2C%2087,in%20the%20Fall%202021%20survey.) )使用 iPhones 或 iPads，大多数父母应该熟悉 iOS 的屏幕时间工具。它允许你过滤掉成人内容，阻止购买，并为手机的使用或特定类型的应用程序设置时间限制(即晚上 8 点后不玩游戏)。
 
 对于大多数父母来说，这可能提供了他们所需要的所有保护。但是，如果你的孩子决心访问和超越控制，这并不那么困难。
 
-## **孩子们如何绕过iPhone和iPads上的家长控制**
+## **孩子们如何绕过 iPhone 和 iPads 上的家长控制**
 
-根据[protectyoungeyes.com](https://protectyoungeyes.com/12-ingenious-screen-time-hacks-how-to-beat-them/)的说法，如果你的孩子使用他们自己的Apple ID并将他们的设备重置为出厂默认设置，他们可以忽略父母的控制(聪明的孩子会首先在iCloud上设置应用程序和数据的备份)。如果你使用家长控制来设置时间限制，孩子们可以删除然后重新安装超时的应用程序，或者更改设备本身的时区，给自己一些额外的时间。(你可以锁定 [向下改变时区](https://setupsynclearn.com/blog/15/11/2019/ios-tip-how-to-stop-your-kids-from-trying-to-hack-screen-time) ，但是你真的会这么想吗？)
+根据[protectyoungeyes.com](https://protectyoungeyes.com/12-ingenious-screen-time-hacks-how-to-beat-them/)的说法，如果你的孩子使用他们自己的 Apple ID 并将他们的设备重置为出厂默认设置，他们可以忽略父母的控制(聪明的孩子会首先在 iCloud 上设置应用程序和数据的备份)。如果你使用家长控制来设置时间限制，孩子们可以删除然后重新安装超时的应用程序，或者更改设备本身的时区，给自己一些额外的时间。(你可以锁定 [向下改变时区](https://setupsynclearn.com/blog/15/11/2019/ios-tip-how-to-stop-your-kids-from-trying-to-hack-screen-time) ，但是你真的会这么想吗？)
 
-不过，绕过iOS家长控制的主要解决方案是获取你用来锁定设备的PIN码。他们可能会在你打字的时候从你的肩膀上看过去，甚至会注意到屏幕上的污迹。理论上，由于密码只有四位数，孩子们可以在单独的PC或Mac上使用暴力破解程序来破解iTunes备份文件 中的 [密码。你看到父母在反对什么了吗？](https://www.reddit.com/r/apple/comments/apa8fk/you_can_crack_the_screentime_password_by/)
+不过，绕过 iOS 家长控制的主要解决方案是获取你用来锁定设备的 PIN 码。他们可能会在你打字的时候从你的肩膀上看过去，甚至会注意到屏幕上的污迹。理论上，由于密码只有四位数，孩子们可以在单独的 PC 或 Mac 上使用暴力破解程序来破解 iTunes 备份文件 中的 [密码。你看到父母在反对什么了吗？](https://www.reddit.com/r/apple/comments/apa8fk/you_can_crack_the_screentime_password_by/)
 
 ## **在路由器级别设置家长控制**
 
-如果您的孩子正在设法绕过您放在他们设备上的基于操作系统的封锁，您可能需要考虑一个具有强大安全性的路由器来锁定整个网络。大多数路由器至少带有一些家长控制功能，但有些路由器将家长控制功能作为卖点，如T2、T3、T4和T5，提供过滤一般内容、将特定网站列入白名单或黑名单、控制和监控网络设备、设置时间限制等功能。甚至还有像 [Circle](https://meetcircle.com/) 这样的基于订阅的硬件解决方案，承诺家长控制“让你管理屏幕时间，监控不只是一些，而是所有的网站和应用程序。”当然，*这个*足以控制你孩子的屏幕时间？如果他们聪明就不会。
+如果您的孩子正在设法绕过您放在他们设备上的基于操作系统的封锁，您可能需要考虑一个具有强大安全性的路由器来锁定整个网络。大多数路由器至少带有一些家长控制功能，但有些路由器将家长控制功能作为卖点，如 T2、T3、T4 和 T5，提供过滤一般内容、将特定网站列入白名单或黑名单、控制和监控网络设备、设置时间限制等功能。甚至还有像 [Circle](https://meetcircle.com/) 这样的基于订阅的硬件解决方案，承诺家长控制“让你管理屏幕时间，监控不只是一些，而是所有的网站和应用程序。”当然，*这个*足以控制你孩子的屏幕时间？如果他们聪明就不会。
 
 ## **孩子们如何绕过基于路由器的安全措施**
 
@@ -36,15 +36,15 @@ Watch
 
 *   弄清楚你的密码——这是最简单有效的解决方案。
 *   谷歌你的路由器的默认密码，并使用它。(你*记得更改你路由器上的默认密码了吧？)*
-*   *设置VPN:在孩子的手机上设置虚拟专用网络可能会绕过某些路由器的安全功能。*
+*   *设置 VPN:在孩子的手机上设置虚拟专用网络可能会绕过某些路由器的安全功能。*
 *   *拔下家长控制路由器。*
 *   *通过代理网站访问:如果你的孩子想进入某个特定的网站，他们可以通过代理进入。众所周知的代理网站可能已经被父母的软件屏蔽了，但是总会有新的网站出现，我敢打赌你的孩子会在你或你的过滤软件之前听说过它们。*
 *   *使用手机的热点功能绕过路由器。*
-*   *用邻居的wifi。*
+*   *用邻居的 wifi。*
 
 ## *你可以拿走他们的手机*
 
-*在另一个来自的例子中，一家科技公司的销售经理查德·布洛克解释了他控制他14岁的儿子帕克过度玩游戏的三级方法。布洛克说，他经营着 [谷歌家庭链接](https://families.google.com/familylink/)[树皮](https://www.bark.us/?utm_source=aw&utm_medium=paid-search&utm_campaign=website-branded-google&utm_term=bark&gclid=Cj0KCQiA8ICOBhDmARIsAEGI6o00foeJUXWpggEu-4ch71lCF0nfbWFSj6Av6aqTGqd0h-ZNK0dlXWwaAvPJEALw_wcB) 和 [圈子](https://meetcircle.com/) ，这是一个基于硬件和订阅的过滤器。帕克伪造了他妈妈手机的MAC地址。*
+*在另一个来自的例子中，一家科技公司的销售经理查德·布洛克解释了他控制他 14 岁的儿子帕克过度玩游戏的三级方法。布洛克说，他经营着 [谷歌家庭链接](https://families.google.com/familylink/)[树皮](https://www.bark.us/?utm_source=aw&utm_medium=paid-search&utm_campaign=website-branded-google&utm_term=bark&gclid=Cj0KCQiA8ICOBhDmARIsAEGI6o00foeJUXWpggEu-4ch71lCF0nfbWFSj6Av6aqTGqd0h-ZNK0dlXWwaAvPJEALw_wcB) 和 [圈子](https://meetcircle.com/) ，这是一个基于硬件和订阅的过滤器。帕克伪造了他妈妈手机的 MAC 地址。*
 
 *最终，没有任何软件可以代替抚养一个尊重你设定的限制的孩子。技术上的挑战似乎可能产生相反的威慑效果。对于父母来说，在错综复杂的家长控制世界中导航可能是一场乏味的噩梦，但对于一个具有黑客个性的聪明孩子来说，弄清楚如何绕过互联网限制是一件有趣的事情，就像我小时候黑掉有线电视盒以获得免费电影频道一样有趣。*
 

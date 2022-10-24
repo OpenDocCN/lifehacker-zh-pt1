@@ -1,6 +1,6 @@
 # 如何停止打鼾
 
-> 原文:[https://lifehacker.com/how-to-stop-snoring-1848502763](https://lifehacker.com/how-to-stop-snoring-1848502763)
+> 原文：<https://lifehacker.com/how-to-stop-snoring-1848502763>
 
 打鼾会困扰你的床伴，有时可能是健康状况的危险信号(特别是阻塞性睡眠呼吸暂停)。但是有时候你有一个无害的打鼾习惯，仍然会让你的伴侣抓狂。这里有一些方法可以让你变得更安静。
 

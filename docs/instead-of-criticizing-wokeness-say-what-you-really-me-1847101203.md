@@ -1,8 +1,8 @@
 # 不要批评“Wokeness”，而是说出你真正的意思
 
-> 原文:[https://life hacker . com/instead-of-critical-woke ness-say-you-really-me-1847101203](https://lifehacker.com/instead-of-criticizing-wokeness-say-what-you-really-me-1847101203)
+> 原文：<https://lifehacker.com/instead-of-criticizing-wokeness-say-what-you-really-me-1847101203>
 
-花足够的时间在网上，你会开始认识到目前代表更广泛的社会冲突的流行语——甚至可能在它们通过有线新闻专家和热门话题进入主流之前。新的“道德恐慌”随着每一次feed更新而隐现；评论者怒斥“狭隘主义”；“wokeness”被归类为一个大规模的信仰体系，激起了Twitter上的暴民。
+花足够的时间在网上，你会开始认识到目前代表更广泛的社会冲突的流行语——甚至可能在它们通过有线新闻专家和热门话题进入主流之前。新的“道德恐慌”随着每一次 feed 更新而隐现；评论者怒斥“狭隘主义”；“wokeness”被归类为一个大规模的信仰体系，激起了 Twitter 上的暴民。
 
 Watch
 
@@ -12,13 +12,13 @@ Watch
 
 没有一个词比“觉醒”这个现代词更能在网络空间引起轰动，这个词描述了一种更古老的思维方式——即对社会正义、种族和经济平等的承诺。“wokeness”的反对者将其框定为当代妖怪——一种将政治正确的思维置于逻辑问题解决之上的思想体系[正在对我们国家的](https://taskandpurpose.com/news/us-military-woke-debate-russia-china/)[军事学校](https://www.theatlantic.com/education/archive/2021/05/homeroom-antiracist-education/618796/)[慈善组织](https://www.nationalreview.com/2021/06/wokeness-comes-to-philanthropy/) 及更远的地方进行危险的入侵，将可能的职能机构置于一群文化战士的枪口之下。
 
-但是，如果这就是wokeness对最狂热的批评者的意义，那么它经常被不那么好战的人用来描述他们不喜欢的东西。一个很好的例子是[NYU营销教授Scott Galloway最近的博客](https://www.profgalloway.com/advice-to-grads-be-warriors-not-wokesters/) ，他敦促应届毕业生在进入职场时成为“战士，而不是工人”。
+但是，如果这就是 wokeness 对最狂热的批评者的意义，那么它经常被不那么好战的人用来描述他们不喜欢的东西。一个很好的例子是[NYU 营销教授 Scott Galloway 最近的博客](https://www.profgalloway.com/advice-to-grads-be-warriors-not-wokesters/) ，他敦促应届毕业生在进入职场时成为“战士，而不是工人”。
 
 需要澄清的是，加洛韦并不完全赞同那些试图将“批判种族理论” [变成贬义词](https://thehill.com/opinion/civil-rights/555351-the-real-problem-with-critical-race-theory) 的人，但他的博客确实提供了一个大师班，将工作场所的自我宣传与玩世不恭的“扮演受害者”混为一谈
 
 他写道:
 
-> 结构性种族主义是真实的，我们的经济体系是倾斜的，如果不是被操纵的话。对你的机遇最准确的预测不是你的智力或职业道德，而是你的出生地。但是扮演受害者会降低你成为对抗这些不公正的战士的能力。追求个人身份的政治保证了你仍然是一个独立的、疏离的和孤独的人。战士为部落牺牲，但他们认识到自己是部落的一部分。把人和意识形态分开，否则你就放弃了50%的潜在关系和盟友。
+> 结构性种族主义是真实的，我们的经济体系是倾斜的，如果不是被操纵的话。对你的机遇最准确的预测不是你的智力或职业道德，而是你的出生地。但是扮演受害者会降低你成为对抗这些不公正的战士的能力。追求个人身份的政治保证了你仍然是一个独立的、疏离的和孤独的人。战士为部落牺牲，但他们认识到自己是部落的一部分。把人和意识形态分开，否则你就放弃了 50%的潜在关系和盟友。
 
 在一个以惊人的经济不平等、停滞不前的工资以及作为企业公关策略的 [、](https://www.cnn.com/2021/06/08/success/board-diversity-corporate-america/index.html) 多元化为特征的时代，加洛威并不是在敦促年轻员工远离女性工作——他是在告诉他们不要为自己辩护。显然，这是两码事，但通过将自我宣传(甚至抱怨)描绘成所谓女性社会疾病的一种症状，他让自己的文章更具文化共鸣——更容易点击——但却牺牲了清晰度。
 

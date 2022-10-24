@@ -1,6 +1,6 @@
 # 你应该在你的早茶里加燕麦片
 
-> 原文:[https://life hacker . com/you-should-cook-oat-in-your ' s morning-cup-of-tea-1849631713](https://lifehacker.com/you-should-cook-oatmeal-in-your-morning-cup-of-tea-1849631713)
+> 原文：<https://lifehacker.com/you-should-cook-oatmeal-in-your-morning-cup-of-tea-1849631713>
 
 一碗热燕麦粥是一天的坚实开端，可以让你感到几个小时的满足，但不可否认的是，燕麦容易变得乏味。红糖和肉桂可以在几天内解决这个问题，但同样的几种口味的重复会令人感到痛苦无聊。为了对抗燕麦片的单调，看看你的茶叶收藏。
 

@@ -1,38 +1,38 @@
 # 脱离现实的成年人对儿童文化的指导:为什么青少年又流行起来了？
 
-> 原文:[https://life hacker . com/the-out-of-touch-成人-儿童-文化指南-why-is-tw-1848318777](https://lifehacker.com/the-out-of-touch-adults-guide-to-kid-culture-why-is-tw-1848318777)
+> 原文：<https://lifehacker.com/the-out-of-touch-adults-guide-to-kid-culture-why-is-tw-1848318777>
 
 这个星期，年轻人到处都是，在注定要毁灭的远洋客轮上重现餐点，吃芥末奥利奥，互相亲热。这是你应该知道的一切。
 
 Watch
 
-## **本周趋势:twee的回归**
+## **本周趋势:twee 的回归**
 
-我不想惊动任何人，但是抖音的孩子们发现了T2的T3。令人遗憾的时尚和文化潮流在2008年左右风靡一时，以贝儿和塞巴斯蒂安自觉可爱的音乐为特色，像《T4》、《朱诺》和《夏日500天》这样的电影，以及像芭蕾平底鞋和牛仔夹克这样的女性时尚——想想她鼎盛时期的佐伊·丹斯切尔。(我不知道两位男士穿什么，但也许是那些流行了一分钟的蜡胡子和矮胖的眼镜？)看看抖音的 [#twee标签](https://www.tiktok.com/tag/twee?referer_url=https://www.dailydot.com/&referer_video_id=7049142869751418159&refer=embed) 吧，这里有你想要的更多twee，看看新一代是如何改变他们的签名风格的。
+我不想惊动任何人，但是抖音的孩子们发现了 T2 的 T3。令人遗憾的时尚和文化潮流在 2008 年左右风靡一时，以贝儿和塞巴斯蒂安自觉可爱的音乐为特色，像《T4》、《朱诺》和《夏日 500 天》这样的电影，以及像芭蕾平底鞋和牛仔夹克这样的女性时尚——想想她鼎盛时期的佐伊·丹斯切尔。(我不知道两位男士穿什么，但也许是那些流行了一分钟的蜡胡子和矮胖的眼镜？)看看抖音的 [#twee 标签](https://www.tiktok.com/tag/twee?referer_url=https://www.dailydot.com/&referer_video_id=7049142869751418159&refer=embed) 吧，这里有你想要的更多 twee，看看新一代是如何改变他们的签名风格的。
 
 ## 本周子编辑:r/Niceguys
 
-Reddit的“好人”委员会不是由2016年瑞恩·高斯林汽车*好人的粉丝组成的。*这是一个子栏目，献给那些“把懦弱和可悲误认为‘善良’的人。”"
+Reddit 的“好人”委员会不是由 2016 年瑞恩·高斯林汽车*好人的粉丝组成的。*这是一个子栏目，献给那些“把懦弱和可悲误认为‘善良’的人。”"
 
 源源不绝的“搞笑、搞怪的图片”中有各种各样的“好人”内容，像这个“ [字面意义上的软呢帽](https://www.reddit.com/r/niceguys/comments/au86ll/fedora_with_arms/) ”的重要思想，还有像 [古代电子音乐人莫比](https://www.reddit.com/r/niceguys/comments/bs05up/guess_we_can_add_moby_to_the_list_of_nice_guys_as/) 这样的著名好人的报道。把善良和软弱混为一谈的无能公子哥儿也许值得一些同情，但是那些明显性别歧视的混蛋却不值得同情，他们仍然认为自己很好。有很多这样的人。
 
-subreddit有近150万会员，它不仅仅是一个欺负怪人的地方，它似乎是如何不被reddit主要是年轻的男性用户群所接受的实物课程。 [享受武器级的畏缩。](https://www.reddit.com/r/niceguys/)T3】
+subreddit 有近 150 万会员，它不仅仅是一个欺负怪人的地方，它似乎是如何不被 reddit 主要是年轻的男性用户群所接受的实物课程。 [享受武器级的畏缩。](https://www.reddit.com/r/niceguys/)T3】
 
 ## 本周病毒视频:重现泰坦尼克号上的最后一餐
 
-YouTube上有太多华而不实的专业内容，所以我总是庆祝任何看起来像自制的东西在网上传播。本周，迷人的高保真优图伯 [布列塔尼·布罗斯基](https://www.youtube.com/channel/UCad_KQumqRY06gpb24HkpPw) 重现了泰坦尼克号上的最后一餐。
+YouTube 上有太多华而不实的专业内容，所以我总是庆祝任何看起来像自制的东西在网上传播。本周，迷人的高保真优图伯 [布列塔尼·布罗斯基](https://www.youtube.com/channel/UCad_KQumqRY06gpb24HkpPw) 重现了泰坦尼克号上的最后一餐。
 
-布罗斯基超级有趣，但我希望她是一个更好的厨师。薄荷豆沙饼和三文鱼这一餐，以富人过去喜欢的奶油和黄油为主的方式来看，似乎真的很糟糕，但这真的不公平，除非它是由真正有厨房技能的人制作的。我建议Lifehacker自己的[Claire Lower](https://lifehacker.com/author/clairelower)来做这项工作。无论如何，看看 [重现了泰坦尼克号上的最后一餐](https://www.youtube.com/watch?v=6NOl7g_c3EY) 。
+布罗斯基超级有趣，但我希望她是一个更好的厨师。薄荷豆沙饼和三文鱼这一餐，以富人过去喜欢的奶油和黄油为主的方式来看，似乎真的很糟糕，但这真的不公平，除非它是由真正有厨房技能的人制作的。我建议 Lifehacker 自己的[Claire Lower](https://lifehacker.com/author/clairelower)来做这项工作。无论如何，看看 [重现了泰坦尼克号上的最后一餐](https://www.youtube.com/watch?v=6NOl7g_c3EY) 。
 
 ## 抖音青少年正在诊断自己患有罕见的精神疾病
 
-如果你关心的一个青少年开始告诉你他们有边缘型人格障碍，他们可能会成为最近抖音诗坛令人遗憾的趋势的受害者。孩子们正在用罕见的心理问题诊断自己和他人，从BPD到双相情感障碍，到 [分离性身份障碍](https://www.tiktok.com/tag/borderlinepersonalitydisorder?lang=en) 。
+如果你关心的一个青少年开始告诉你他们有边缘型人格障碍，他们可能会成为最近抖音诗坛令人遗憾的趋势的受害者。孩子们正在用罕见的心理问题诊断自己和他人，从 BPD 到双相情感障碍，到 [分离性身份障碍](https://www.tiktok.com/tag/borderlinepersonalitydisorder?lang=en) 。
 
-虽然他们本质上在做和你在WebMD上做的一样的事情——查找他们正在经历的症状，并想象他们患有与之相关的最严重的疾病——但抖音自发生成的内容让情况变得更糟。可疑的“治疗师”发布鼓励自我诊断的视频，同龄人强化这种行为，这一切都因抖音算法而加剧，该算法将越来越多关于精神疾病的视频提供给自认为患有精神疾病的吓坏了的孩子。这就像一个噩梦般的恐怖反馈循环，它让我失去了现实感。
+虽然他们本质上在做和你在 WebMD 上做的一样的事情——查找他们正在经历的症状，并想象他们患有与之相关的最严重的疾病——但抖音自发生成的内容让情况变得更糟。可疑的“治疗师”发布鼓励自我诊断的视频，同龄人强化这种行为，这一切都因抖音算法而加剧，该算法将越来越多关于精神疾病的视频提供给自认为患有精神疾病的吓坏了的孩子。这就像一个噩梦般的恐怖反馈循环，它让我失去了现实感。
 
 ## 本周恶心食物趋势:奥利奥上的黄色芥末
 
-然而，抖音不仅仅是令人遗憾的自我诊断——这里也有令人作呕的食物。孩子们把黄色芥末酱放在奥利奥饼干上，吃了它，然后把视频上传到网上，让其他人开心又恶心。正如你所料，视频 [包括一条信息](https://www.tiktok.com/discover/oreo-mustard) ，要求观众把它传给朋友，这样他们也可以尝试一下。这种趋势一直延续到 [歌手Lizzo](https://www.tiktok.com/foryou?is_from_webapp=v1&item_id=7046802118023531823&refer=embed&referer_url=https://www.elitedaily.com/entertainment/lizzo-tiktok-oreo-mustard-trend-video&referer_video_id=7046802118023531823#/@lizzo/video/7046802118023531823) ，她似乎很喜欢这种barfy零食。
+然而，抖音不仅仅是令人遗憾的自我诊断——这里也有令人作呕的食物。孩子们把黄色芥末酱放在奥利奥饼干上，吃了它，然后把视频上传到网上，让其他人开心又恶心。正如你所料，视频 [包括一条信息](https://www.tiktok.com/discover/oreo-mustard) ，要求观众把它传给朋友，这样他们也可以尝试一下。这种趋势一直延续到 [歌手 Lizzo](https://www.tiktok.com/foryou?is_from_webapp=v1&item_id=7046802118023531823&refer=embed&referer_url=https://www.elitedaily.com/entertainment/lizzo-tiktok-oreo-mustard-trend-video&referer_video_id=7046802118023531823#/@lizzo/video/7046802118023531823) ，她似乎很喜欢这种 barfy 零食。
 
 因为我是一个勇敢无私的人，所以我省了你所有的力气，自己试着做了芥末奥利奥。我还给我爱吃奥利奥的儿子喂过。“这太恶心了。抖音的人真的很蠢，”他报道说。这两点我都同意。
 

@@ -1,6 +1,6 @@
 # 如何选择更好的零食
 
-> 原文:[https://life hacker . com/how-to-choose-a-better-munchie-1846722521](https://lifehacker.com/how-to-choose-a-better-munchie-1846722521)
+> 原文：<https://lifehacker.com/how-to-choose-a-better-munchie-1846722521>
 
 每一个享受四氢大麻酚的人都熟悉一种被称为“零食”的小现象，其中的“T1”和“T2”是“T3”，它们中的“T4”会让你狼吞虎咽地吃下一顿又一顿的“T5”零食，永远不会对美味可口的各种口味感到完全满意。我还没有找到解决零食的单一方法，但是我发现关注质地而不仅仅是味道可以帮助驯服零食这头野兽。
 

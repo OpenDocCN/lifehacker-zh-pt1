@@ -1,6 +1,6 @@
 # 你应该在你的大蒜面包上撒一点味精
 
-> 原文:[https://life hacker . com/您应该在大蒜面包上撒一点味精-1847273783](https://lifehacker.com/you-should-sprinkle-a-little-msg-on-your-garlic-bread-1847273783)
+> 原文：<https://lifehacker.com/you-should-sprinkle-a-little-msg-on-your-garlic-bread-1847273783>
 
 “大蒜面包”可以有很多不同的意思(当然都是好的)。我第一次接触到的是带有乡村瓦罐和蒜盐的白吐司，和我祖父母所说的“意大利面条”一起端上桌(你可能会问，还有什么其他种类的意大利面？鸡肉意大利面，这比它有任何权利规定得更完全。)
 

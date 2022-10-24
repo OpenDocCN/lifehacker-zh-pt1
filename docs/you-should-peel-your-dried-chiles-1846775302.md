@@ -1,8 +1,8 @@
 # 你应该剥干辣椒
 
-> 原文:[https://life hacker . com/you-should-peel-your-dry-chiles-1846775302](https://lifehacker.com/you-should-peel-your-dried-chiles-1846775302)
+> 原文：<https://lifehacker.com/you-should-peel-your-dried-chiles-1846775302>
 
-每个储藏室都需要几种干辣椒。如果你有一个不错的储藏点，你只需要将它们加入到搅拌机中的热水中，就可以马上做出T4风味浓郁的调味酱。唯一的缺点是处理鱼皮，不管你浸泡多长时间，鱼皮都不会分解——这意味着你必须把它们过滤掉。还是你？
+每个储藏室都需要几种干辣椒。如果你有一个不错的储藏点，你只需要将它们加入到搅拌机中的热水中，就可以马上做出 T4 风味浓郁的调味酱。唯一的缺点是处理鱼皮，不管你浸泡多长时间，鱼皮都不会分解——这意味着你必须把它们过滤掉。还是你？
 
 Watch
 

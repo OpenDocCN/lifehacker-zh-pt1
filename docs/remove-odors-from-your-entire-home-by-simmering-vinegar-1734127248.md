@@ -1,6 +1,6 @@
 # 通过煨醋去除整个房间的异味
 
-> 原文:[https://life hacker . com/remove-odies-from-your-whole-home by-smoking-醋-1734127248](https://lifehacker.com/remove-odors-from-your-entire-home-by-simmering-vinegar-1734127248)
+> 原文：<https://lifehacker.com/remove-odors-from-your-entire-home-by-simmering-vinegar-1734127248>
 
 当你能中和一种气味时，没有必要掩盖它。我们过去曾写过一碗醋如何能给一个房间 除臭，但同样的建议只要稍加努力就可以扩展到整个房子:在炉子上煨同样的醋可以最大限度地发挥它的除臭能力。
 
@@ -12,4 +12,4 @@ Watch
 
 不管是难闻的气味把你的家变成了臭窝，还是你昨天做的东西残留的香味，只要在你的炉灶上的调味汁锅中倒入一杯白醋，然后炖煮。煨醋会将它的除臭能力释放到空气中，如果你让它保持一段时间，它会给你的整个房子除臭。当然，如果你愿意的话，你也可以拿着热气腾腾的醋锅从一个房间搬到另一个房间。开始闻起来很像醋，但过一会儿就什么味道都没有了。
 
-本故事最初发表于2015年10月，并于2020年2月23日更新，提供了更多信息并符合Lifehacker风格指南。
+本故事最初发表于 2015 年 10 月，并于 2020 年 2 月 23 日更新，提供了更多信息并符合 Lifehacker 风格指南。

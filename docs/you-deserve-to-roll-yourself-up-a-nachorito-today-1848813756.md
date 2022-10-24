@@ -1,22 +1,22 @@
 # 你今天应该给自己卷一份玉米片
 
-> 原文:[https://life hacker . com/you-worth-to-roll-up-a-nachorito-today-1848813756](https://lifehacker.com/you-deserve-to-roll-yourself-up-a-nachorito-today-1848813756)
+> 原文：<https://lifehacker.com/you-deserve-to-roll-yourself-up-a-nachorito-today-1848813756>
 
-祝福今天，祝你们四月二十日快乐。像你们中的许多人一样，我在 [亢奋和](https://twitter.com/clairelizzie/status/1510774732961902594) 饥饿的时候花了一些时间在互联网上。虽然我在处理零食时想出了一些真正伟大的创新，但redditor /u/Vainquisher可能胜过了我所有的努力，上周发布了一个绝对轰动的消息，他们建议 [用玉米饼吃掉你的玉米片，这样你就可以用剩菜](https://www.reddit.com/r/shittyfoodporn/comments/tz4t17/does_anyone_else_make_nachos_on_a_tortilla_that/) 做墨西哥卷饼。
+祝福今天，祝你们四月二十日快乐。像你们中的许多人一样，我在 [亢奋和](https://twitter.com/clairelizzie/status/1510774732961902594) 饥饿的时候花了一些时间在互联网上。虽然我在处理零食时想出了一些真正伟大的创新，但 redditor /u/Vainquisher 可能胜过了我所有的努力，上周发布了一个绝对轰动的消息，他们建议 [用玉米饼吃掉你的玉米片，这样你就可以用剩菜](https://www.reddit.com/r/shittyfoodporn/comments/tz4t17/does_anyone_else_make_nachos_on_a_tortilla_that/) 做墨西哥卷饼。
 
 Watch
 
-结合 [无限玉米卷循环](https://lifehacker.com/eat-a-taco-over-a-tortilla-to-create-another-taco-1802006752) 与 [将薯片放在东西里](https://lifehacker.com/add-potato-chips-to-your-next-batch-of-cookie-dough-1847901658) ，“吃你的玉米片出来一个玉米饼”是peak stoner food的有力竞争者。
+结合 [无限玉米卷循环](https://lifehacker.com/eat-a-taco-over-a-tortilla-to-create-another-taco-1802006752) 与 [将薯片放在东西里](https://lifehacker.com/add-potato-chips-to-your-next-batch-of-cookie-dough-1847901658) ，“吃你的玉米片出来一个玉米饼”是 peak stoner food 的有力竞争者。
 
 像所有最好的醉酒餐一样，它是最好的微波餐之一:融化的奶酪很有特色，薯条也很常见，如果你吸烟导致短期记忆丧失，最后还有一份令人惊讶的墨西哥卷饼等着你。不需要烤鸡、烤箱、或炉灶。只要把你的薯条堆在一个玉米饼上面，把你最喜欢的玉米片放在薯条上面，然后用微波炉加热直到变暖和变软。(说真的，做这种点心需要的力气很少，清理起来就更少了。)
 
-吃了几个之后，你可能就足够熟练了，你甚至不需要在下面放一个盘子了。见鬼，你可以再吃一份T4玉米饼。它非常灵活。我知道你知道玉米片不一定非得是*薯片和奶酪，但如果你需要灵感，我正好有一些:*
+吃了几个之后，你可能就足够熟练了，你甚至不需要在下面放一个盘子了。见鬼，你可以再吃一份 T4 玉米饼。它非常灵活。我知道你知道玉米片不一定非得是*薯片和奶酪，但如果你需要灵感，我正好有一些:*
 
 *   外卖之夜剩下的蛋白质你会重新加热吗？现在是玉米片了。向鸡肉和华夫饼干致敬。这是一个不需要判断的区域。
-*   正如我这个周末发现的那样， [鸡65](https://masalaandchai.com/chicken-65/) 做出的*真的*好nachorito。
-*   如果你打算去wake & bake，你只需要一点点 [奶酪酱](https://lifehacker.com/how-to-make-shake-shack-cheese-sauce-at-home-1843547612) 培根、鸡蛋和土豆泥玉米片。
+*   正如我这个周末发现的那样， [鸡 65](https://masalaandchai.com/chicken-65/) 做出的*真的*好 nachorito。
+*   如果你打算去 wake & bake，你只需要一点点 [奶酪酱](https://lifehacker.com/how-to-make-shake-shack-cheese-sauce-at-home-1843547612) 培根、鸡蛋和土豆泥玉米片。
 *   说到早餐，你离一个装满米格斯基本配料的大松脆卷不远了。
 
-当吃得很高时，改变你的质地和口味是很重要的，这顿饭在薯片的咸脆和玉米饼的温暖柔软中提供了T2的不同质地。更好的是，玉米片中所有的脂肪和油脂会聚集在你的玉米饼上，而不是被遗忘在你的盘子里。当它被放置时，薯片会吸收它并使它变软一点，使任何绞肉机成为完美的墨西哥卷饼饲料。(想象一下，一个会走路的墨西哥玉米卷，你可以在里面吃袋子。用你的脸。这就是我们在这里谈论的。当你兴奋的时候，一定要想一想，这是有意义的。)
+当吃得很高时，改变你的质地和口味是很重要的，这顿饭在薯片的咸脆和玉米饼的温暖柔软中提供了 T2 的不同质地。更好的是，玉米片中所有的脂肪和油脂会聚集在你的玉米饼上，而不是被遗忘在你的盘子里。当它被放置时，薯片会吸收它并使它变软一点，使任何绞肉机成为完美的墨西哥卷饼饲料。(想象一下，一个会走路的墨西哥玉米卷，你可以在里面吃袋子。用你的脸。这就是我们在这里谈论的。当你兴奋的时候，一定要想一想，这是有意义的。)
 
 因此，当你不可避免地厌倦了负责任地一次把一片薯片送到嘴边，并且以令人尊敬的速度，今天卷起第二(或第三)件东西，然后给自己做一份玉米片。

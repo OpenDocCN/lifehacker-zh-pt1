@@ -1,6 +1,6 @@
 # 制作花式蘸油的最简单方法
 
-> 原文:[https://life hacker . com/the-easy-ways-make-a-fancy-dipping-oil-1849683088](https://lifehacker.com/the-easiest-ways-to-make-a-fancy-dipping-oil-1849683088)
+> 原文：<https://lifehacker.com/the-easiest-ways-to-make-a-fancy-dipping-oil-1849683088>
 
 脂肪和面包的结合是一种简单、低成本的大众喜闻乐见的方式。你既可以 [把脂肪涂在面包上](https://lifehacker.com/impress-your-guests-with-a-butter-board-1848138546) 也可以把面包蘸到脂肪里。两个都是不错的选择。将面包蘸上 [优质橄榄油](https://lifehacker.com/the-most-and-least-fake-extra-virgin-olive-oil-brands-1460894373) 本身就是一种愉快的体验。一个好的橄榄油可以尝起来有草本、水果或胡椒的味道，但这并不意味着你不能用一些附加品来增强体验。
 
@@ -14,7 +14,7 @@ Watch
 
 ## 你并不真的需要食谱
 
-虽然有很多蘸油食谱，但你不必遵循其中一个。从一杯优质橄榄油、1/2茶匙犹太盐和1/4茶匙胡椒开始。挑选一些你想突出的干香草，每种加入一茶匙。以1/4茶匙的增量加入任何其他的免费香草，以1/8茶匙的增量加入任何干的和磨碎的香料。让所有东西都晾30分钟，让药草融入油中，然后品尝，并根据需要进行调整。
+虽然有很多蘸油食谱，但你不必遵循其中一个。从一杯优质橄榄油、1/2 茶匙犹太盐和 1/4 茶匙胡椒开始。挑选一些你想突出的干香草，每种加入一茶匙。以 1/4 茶匙的增量加入任何其他的免费香草，以 1/8 茶匙的增量加入任何干的和磨碎的香料。让所有东西都晾 30 分钟，让药草融入油中，然后品尝，并根据需要进行调整。
 
 ## 来点大蒜味的
 

@@ -1,6 +1,6 @@
 # 用太多的黄油煎鸡蛋
 
-> 原文:[https://life hacker . com/fry-your-eggs in-too-butter-1845206587](https://lifehacker.com/fry-your-eggs-in-too-much-butter-1845206587)
+> 原文：<https://lifehacker.com/fry-your-eggs-in-too-much-butter-1845206587>
 
 有些人可能会说，没有“黄油太多”这回事，如果他们真的这么说了，那他们就是对的。但是由于我们生活在一个恐惧脂肪的社会，“太多黄油”作为一个概念存在，导致即使是最顽固的黄油粉丝，在某些时候也想知道“*是不是太多了？”在煎锅里加入一团黄油或在面包片上涂上厚厚的一层后。*
 

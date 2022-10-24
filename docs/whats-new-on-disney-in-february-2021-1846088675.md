@@ -1,14 +1,14 @@
-# 2021年2月Disney+有什么新消息
+# 2021 年 2 月 Disney+有什么新消息
 
-> 原文:[https://life hacker . com/whats-new-on-Disney-in-two-2021-1846088675](https://lifehacker.com/whats-new-on-disney-in-february-2021-1846088675)
+> 原文：<https://lifehacker.com/whats-new-on-disney-in-february-2021-1846088675>
 
-回到DVD电视的时代，没有一部连续剧比布偶秀更受欢迎——直到它不再受欢迎。迪士尼为该系列制作了奢华的整季套装，包括漂亮的额外功能，甚至将它们包装在上锁的“模糊”盒子里，意在复制布偶的柔软感觉...外套？皮肤？至少在五季中的三季。
+回到 DVD 电视的时代，没有一部连续剧比布偶秀更受欢迎——直到它不再受欢迎。迪士尼为该系列制作了奢华的整季套装，包括漂亮的额外功能，甚至将它们包装在上锁的“模糊”盒子里，意在复制布偶的柔软感觉...外套？皮肤？至少在五季中的三季。
 
-不幸的是，销量 [显然不足以证明其努力](https://www.quora.com/Why-is-it-that-The-Walt-Disney-Company-did-not-release-the-Muppet-Show-seasons-4-and-5-in-DVD) ，或者迪士尼被光剑和钢铁侠等更闪亮的东西分散了注意力；不管怎样——尽管有 和[Change.org请愿——木偶剧*的第四季和第五季从未发行DVD。
+不幸的是，销量 [显然不足以证明其努力](https://www.quora.com/Why-is-it-that-The-Walt-Disney-Company-did-not-release-the-Muppet-Show-seasons-4-and-5-in-DVD) ，或者迪士尼被光剑和钢铁侠等更闪亮的东西分散了注意力；不管怎样——尽管有 和[Change.org 请愿——木偶剧*的第四季和第五季从未发行 DVD。
 
-令人高兴的是，虽然它永远无法抚慰实体媒体完美主义者受伤的感情，但*](https://www.change.org/p/the-walt-disney-company-walt-disney-release-the-muppet-show-seasons-4-and-5-on-dvd) *[迪士尼通过将所有五季都放到下个月的Disney+上，为柯密特粉丝做出了正确的选择](https://io9.gizmodo.com/the-original-muppet-show-is-coming-disney-in-all-its-g-1846084713)* *，所以你可以享受每一个尴尬的明星客串的最初荣耀。
+令人高兴的是，虽然它永远无法抚慰实体媒体完美主义者受伤的感情，但*](https://www.change.org/p/the-walt-disney-company-walt-disney-release-the-muppet-show-seasons-4-and-5-on-dvd) *[迪士尼通过将所有五季都放到下个月的 Disney+上，为柯密特粉丝做出了正确的选择](https://io9.gizmodo.com/the-original-muppet-show-is-coming-disney-in-all-its-g-1846084713)* *，所以你可以享受每一个尴尬的明星客串的最初荣耀。
 
-似乎这还不够，2月份还有一些其他的东西要来迪士尼+,包括一部新电影*弗洛拉&尤利西斯*，它是根据凯特·迪卡米罗的书改编的(*德斯佩罗的故事*)。但我只会看太空中的猪。*
+似乎这还不够，2 月份还有一些其他的东西要来迪士尼+,包括一部新电影*弗洛拉&尤利西斯*，它是根据凯特·迪卡米罗的书改编的(*德斯佩罗的故事*)。但我只会看太空中的猪。*
 
 Watch
 
@@ -19,23 +19,23 @@ Watch
 
 ### **二月上映的电影和完整系列**
 
-### **2月2日**
+### **2 月 2 日**
 
 *   *迪士尼我的音乐故事:林佳树*
 *   *迪士尼倒立魔术*
 *   *邪恶金枪鱼:外堤(s7)*
 
-### **2月12日**
+### **2 月 12 日**
 
 *   *零度以下的生活:下一代(s1)*
 *   *漫威战争世界:神秘的死亡之石(s1)*
 *   *面具后面的漫威*
 
-### **2月19日**
+### **2 月 19 日**
 
 *   *生命之书*
 *   *论打便宜*
-*   *论打便宜2*
+*   *论打便宜 2*
 *   *弗洛拉&尤利西斯*
 *   *提线木偶秀(s1)*
 *   *提线木偶秀(s2)*
@@ -43,10 +43,10 @@ Watch
 *   *提线木偶秀(s4)*
 *   *布偶秀(s5)*
 
-### **2月26日**
+### **2 月 26 日**
 
 *   *汽车紧急呼救(s8)*
-*   *迪士尼频道游戏2008 (s1)*
+*   *迪士尼频道游戏 2008 (s1)*
 *   *迪士尼灯饰烟火秀巴黎迪士尼乐园*
 *   *迪士尼一对国王(s1)*
 *   *迪士尼一对国王(s2)*
@@ -57,5 +57,5 @@ Watch
 *   *米奇去当地(s1)*
 *   神话:一个冻结的故事
 *   *奥卡万戈:梦想之河*
-*   *硫磺泉的秘密*(前5集)
+*   *硫磺泉的秘密*(前 5 集)
 *   尚*海迪士尼度假区盛大开业晚会*

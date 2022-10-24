@@ -1,8 +1,8 @@
 # 最好的“朋友约会”想法不仅仅是喝酒
 
-> 原文:[https://life hacker . com/the-best-friend-date-ideas-the-parent-just-get-drin-1848917321](https://lifehacker.com/the-best-friend-date-ideas-that-arent-just-getting-drin-1848917321)
+> 原文：<https://lifehacker.com/the-best-friend-date-ideas-that-arent-just-getting-drin-1848917321>
 
-浪漫的约会可能会吸引所有的注意力，但是 [维持成人友谊](https://lifehacker.com/how-to-maintain-your-friendships-1827484649) 也值得同样多的爱。随着像Bumble这样的约会应用逐渐成为 [友谊的分支](https://bumble.com/en-us/the-buzz/what-exactly-is-bumble-bff) ,“朋友约会”的想法变得越来越受欢迎。毕竟，作为一个成年人，结交新朋友并不总是容易的，但也不是不可能的。
+浪漫的约会可能会吸引所有的注意力，但是 [维持成人友谊](https://lifehacker.com/how-to-maintain-your-friendships-1827484649) 也值得同样多的爱。随着像 Bumble 这样的约会应用逐渐成为 [友谊的分支](https://bumble.com/en-us/the-buzz/what-exactly-is-bumble-bff) ,“朋友约会”的想法变得越来越受欢迎。毕竟，作为一个成年人，结交新朋友并不总是容易的，但也不是不可能的。
 
 Watch
 

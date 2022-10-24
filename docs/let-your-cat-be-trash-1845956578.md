@@ -1,6 +1,6 @@
 # 让你的猫成为垃圾
 
-> 原文:[https://lifehacker.com/let-your-cat-be-trash-1845956578](https://lifehacker.com/let-your-cat-be-trash-1845956578)
+> 原文：<https://lifehacker.com/let-your-cat-be-trash-1845956578>
 
 我不知道你的猫怎么样，但我的都是垃圾。她喜欢吃垃圾。她喜欢玩垃圾。她喜欢做垃圾。不管我用自己的血汗钱给她买了多少可爱的、不便宜的猫玩具，她总是偏爱掉在地板上的垃圾。(如果地板上没有垃圾，她会做什么？她从垃圾桶里拿出来的。
 

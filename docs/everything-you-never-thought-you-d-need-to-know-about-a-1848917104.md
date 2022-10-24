@@ -1,6 +1,6 @@
 # 关于成人耳部感染，你从未想过你需要知道的一切
 
-> 原文:[https://life hacker . com/everything-you-never-thought-you-d-need-to-know-on-a-1848917104](https://lifehacker.com/everything-you-never-thought-you-d-need-to-know-about-a-1848917104)
+> 原文：<https://lifehacker.com/everything-you-never-thought-you-d-need-to-know-about-a-1848917104>
 
 一些医疗事故与童年经历有着千丝万缕的联系: [孩子们因为某种原因呕吐了很多](https://lifehacker.com/a-guide-to-surviving-your-kids-nighttime-vomit-disaster-1834835112) ，他们 [磨破了膝盖](https://lifehacker.com/get-over-yourself-and-skateboard-with-your-kid-1825751641) 的皮肤，他们切除了扁桃体，他们还得了耳部感染。当然，这些事情也可能发生在成年人身上，但不太常见。尽管如此，由于一些疾病与孩子的关系如此密切，成年人可能需要一段时间才能意识到他们身体表现出的症状。耳部感染就是一个很好的例子。
 
@@ -10,7 +10,7 @@ Watch
 
 ## **成年人会不会得耳部感染？**
 
-他们当然可以。我给一个朋友发了一条关于写这篇文章的短信，她告诉我她现在有一个*，但是花了几个星期去看医生，因为她认为这不可能发生在30多岁的人身上。这个问题并没有消失，因为她错误地确定了它可能是什么，并拒绝寻求治疗；那段时间变得更糟了。*
+他们当然可以。我给一个朋友发了一条关于写这篇文章的短信，她告诉我她现在有一个*，但是花了几个星期去看医生，因为她认为这不可能发生在 30 多岁的人身上。这个问题并没有消失，因为她错误地确定了它可能是什么，并拒绝寻求治疗；那段时间变得更糟了。*
 
 *正如佐治亚州伍德斯托克家庭诊所和紧急护理中心的医生在他们的网站上解释的那样， [孩子确实比成人](https://www.woodstockfamilypractice.com/blog/can-adults-still-get-ear-infections) 更容易*得耳部感染，因为在他们发育期间，他们的咽鼓管又小又短，并且与地面平行，所以他们的排水不太好。粘液堆积，可能是因为感冒或过敏，细菌“建立商店并感染组织。”**
 

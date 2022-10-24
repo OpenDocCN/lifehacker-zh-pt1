@@ -1,6 +1,6 @@
 # 如何计划一次背包旅行
 
-> 原文:[https://life hacker . com/how-to-plan-a-backpacking-trip-1845386908](https://lifehacker.com/how-to-plan-a-backpacking-trip-1845386908)
+> 原文：<https://lifehacker.com/how-to-plan-a-backpacking-trip-1845386908>
 
 在这个永恒的疫情，户外度假是最安全的选择之一。如果你热爱大自然，并且特别有野心(理解为:耐气候)，试着计划一次秋天或冬天的背包旅行。
 
@@ -40,13 +40,13 @@ Watch
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-R3SFqV0hMyo&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-R3SFqV0hMyo&start=0) 
 
-背包旅行时，你的舒适和安全取决于一些基本的装备。显然你需要一个背包——你可以借或买，但是有一个适合你旅行的合适容量的背包可能是值得的。REI有 [帮助指导](https://www.rei.com/learn/expert-advice/backpack.html) 选择狼群。其他必需品包括一个炉子(用合适的燃料)、一个帐篷或 [大袋子](https://www.msrgear.com/blog/the-art-of-the-bivy) 、一个睡袋和垫子、一个头灯、一个滤水器、器具、鞋子或靴子、和许多层。
+背包旅行时，你的舒适和安全取决于一些基本的装备。显然你需要一个背包——你可以借或买，但是有一个适合你旅行的合适容量的背包可能是值得的。REI 有 [帮助指导](https://www.rei.com/learn/expert-advice/backpack.html) 选择狼群。其他必需品包括一个炉子(用合适的燃料)、一个帐篷或 [大袋子](https://www.msrgear.com/blog/the-art-of-the-bivy) 、一个睡袋和垫子、一个头灯、一个滤水器、器具、鞋子或靴子、和许多层。
 
 当然，你具体需要什么取决于你要去哪里以及要去多长时间。如果你在寒冷的月份背包旅行，你可能需要更多的隔热层以及手套和帽子。潮湿气候下的雨具也是如此。还要考虑在你的特定路线上需要的任何辅助装备——例如，熊罐和熊喷雾剂。
 
-只要你的鞋子和背包适合你，你就不需要买新的。问问朋友你是否能借他们的装备，去二手装备店看看，或者在Craigslist上搜索一下。
+只要你的鞋子和背包适合你，你就不需要买新的。问问朋友你是否能借他们的装备，去二手装备店看看，或者在 Craigslist 上搜索一下。
 
-Pro backpacker Andrew Skurka有 [一个可定制的齿轮模板](https://andrewskurka.com/backpacking-gear-list-template-checklist-3-season) 帮助你选择和组织你的齿轮清单，REI有 [一个可打印的PDF齿轮清单](https://www.rei.com/learn/expert-advice/backpacking-checklist.html) 。背包旅行是你想知道的一切的另一个来源。
+Pro backpacker Andrew Skurka 有 [一个可定制的齿轮模板](https://andrewskurka.com/backpacking-gear-list-template-checklist-3-season) 帮助你选择和组织你的齿轮清单，REI 有 [一个可打印的 PDF 齿轮清单](https://www.rei.com/learn/expert-advice/backpacking-checklist.html) 。背包旅行是你想知道的一切的另一个来源。
 
 ### 制作菜单
 
@@ -60,7 +60,7 @@ Pro backpacker Andrew Skurka有 [一个可定制的齿轮模板](https://andrews
 
 尽可能多的了解你的路线可以帮助你为任何潜在的危险做准备，但是采取一些额外的预防措施也是一个好主意。首先，要有多种导航方式:纸质地图和指南针，以及手机上的离线地图(假设你可以随时使用太阳能充电)。 [盖亚](https://www.gaiagps.com/backpacking) 是最好的离线制图应用之一。
 
-接下来，考虑像Garmin InReach或SPOT tracker这样的卫星设备，这种设备可以让你在紧急情况下进行通信。
+接下来，考虑像 Garmin InReach 或 SPOT tracker 这样的卫星设备，这种设备可以让你在紧急情况下进行通信。
 
 在你旅行前几天检查天气，这样你就有时间购买最后一分钟的装备。同样，温习一下[【LNT】](https://lnt.org/why/7-principles)不留痕迹的原则，这样你就能以你发现大自然的方式离开它。最后，与你的朋友和家人分享你的详细计划，让他们知道你计划何时离开。
 

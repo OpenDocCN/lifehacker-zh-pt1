@@ -1,8 +1,8 @@
 # 如果你参加一项运动，为什么你需要举重
 
-> 原文:[https://life hacker . com/why-you-need-lift-weights-if-you-play-a-sport-1847339070](https://lifehacker.com/why-you-need-to-lift-weights-if-you-play-a-sport-1847339070)
+> 原文：<https://lifehacker.com/why-you-need-to-lift-weights-if-you-play-a-sport-1847339070>
 
-众所周知，职业运动员会在举重房大展拳脚。如果你在YouTube上搜索你最喜欢的(男)运动员的名字，加上“锻炼”或“健身房”，你可能会找到他们的视频证据 [压碎495磅的硬拉](https://www.youtube.com/watch?v=Nxjl6IDEtZg) 或 [按下巨大的壶铃](https://youtu.be/saawoVfL3cA?t=208) 好像他们什么都不是。但是那种训练对啤酒联盟的临时工来说是多余的，对吗？
+众所周知，职业运动员会在举重房大展拳脚。如果你在 YouTube 上搜索你最喜欢的(男)运动员的名字，加上“锻炼”或“健身房”，你可能会找到他们的视频证据 [压碎 495 磅的硬拉](https://www.youtube.com/watch?v=Nxjl6IDEtZg) 或 [按下巨大的壶铃](https://youtu.be/saawoVfL3cA?t=208) 好像他们什么都不是。但是那种训练对啤酒联盟的临时工来说是多余的，对吗？
 
 Watch
 
@@ -20,13 +20,13 @@ Watch
 
 我已经举了大约两个月，已经可以证明这一点。上个月，我踢足球时扭伤了右脚踝，这大概是第一百万次了。很疼，但令我惊讶的是，我走了一英里路回到了家。第二天，我的脚踝僵硬，有点肿，但不疼。不到一周，我就完全恢复了活动范围；三分钟之内，就像什么都没发生一样。
 
-我扭伤脚踝的经历可以追溯到20年前，我从来没有在两个月内痊愈过，更不用说几周了。我希望我从一个容易受伤的青少年开始举重，但迟做总比不做好。(如果有青少年运动员在读这篇文章，不管他们是否容易受伤:把你放在深蹲架上。)
+我扭伤脚踝的经历可以追溯到 20 年前，我从来没有在两个月内痊愈过，更不用说几周了。我希望我从一个容易受伤的青少年开始举重，但迟做总比不做好。(如果有青少年运动员在读这篇文章，不管他们是否容易受伤:把你放在深蹲架上。)
 
 ## **如何开始举重运动**
 
 很简单: [把他妈的重量放在杠上](https://lifehacker.com/put-some-fucking-weight-on-the-bar-1847176087) 。如果负重运动已经是你健身房日常活动的一部分， [随着时间的推移增加重量](https://lifehacker.com/how-to-use-progressive-overload-to-get-stronger-1847321428) 。如果没有，那就去深蹲架(或者报名参加一个举重初学者班)，然后开始练习。
 
-然而，并不是每个人都有酒吧和盘子，这就是哑铃的用处。你可以用一对哑铃做任何事情，从抓举和清洁到摆动和硬拉，因为它们还提供了大量单边(单侧)练习的选择，所以它们是受伤康复的理想选择。跳过昂贵的 [无用的小重物](https://lifehacker.com/skip-the-tiny-weights-weight-lifting-isnt-that-differe-1724484355)——两个重的(至少25磅)哑铃会让你有一个好的开始。等你变强了可以多点。(我从迪克体育用品店订购了我的，还有 [还有大量库存](https://www.dickssportinggoods.com/search/SearchDisplay?searchTerm=hex+dumbbell&storeId=15108&catalogId=12301&langId=-1&sType=SimpleSearch&resultCatEntryType=2&showResultsPage=true&fromPage=Search&searchSource=Q&pageView=&beginIndex=0&DSGsearchType=Keyword&pageSize=48) 。)
+然而，并不是每个人都有酒吧和盘子，这就是哑铃的用处。你可以用一对哑铃做任何事情，从抓举和清洁到摆动和硬拉，因为它们还提供了大量单边(单侧)练习的选择，所以它们是受伤康复的理想选择。跳过昂贵的 [无用的小重物](https://lifehacker.com/skip-the-tiny-weights-weight-lifting-isnt-that-differe-1724484355)——两个重的(至少 25 磅)哑铃会让你有一个好的开始。等你变强了可以多点。(我从迪克体育用品店订购了我的，还有 [还有大量库存](https://www.dickssportinggoods.com/search/SearchDisplay?searchTerm=hex+dumbbell&storeId=15108&catalogId=12301&langId=-1&sType=SimpleSearch&resultCatEntryType=2&showResultsPage=true&fromPage=Search&searchSource=Q&pageView=&beginIndex=0&DSGsearchType=Keyword&pageSize=48) 。)
 
 至于具体的招式，用 [深蹲](https://lifehacker.com/why-squats-are-the-best-strength-building-exercise-for-1760732712) 和 [硬拉](https://lifehacker.com/why-deadlifts-are-worth-the-hype-and-how-to-do-them-sa-1756526319) 很难出错。这些经典对建立自信和力量很有帮助，所以如果你感到失落，就从这些开始吧。从那里，查找适合你的运动的建议重量训练计划。从 [跑步者](https://lifehacker.com/how-runners-can-begin-strength-training-1846954615) 到网球运动员再到足球运动员，每个人都可以从举重中受益，而且开始做永远不会晚。
 

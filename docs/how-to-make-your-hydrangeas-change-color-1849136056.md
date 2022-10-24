@@ -1,6 +1,6 @@
 # 如何让你的绣球花变色
 
-> 原文:[https://life hacker . com/how-to-make-your-hydrangeas-change-color-1849136056](https://lifehacker.com/how-to-make-your-hydrangeas-change-color-1849136056)
+> 原文：<https://lifehacker.com/how-to-make-your-hydrangeas-change-color-1849136056>
 
 喜欢你的绣球花，但想看看它们换成不同的颜色会是什么样子？根据品种的不同，你也许可以自己改变它们的颜色。以下是需要了解的内容。
 
@@ -14,22 +14,22 @@ Watch
 
 《农民年鉴》建议 等到绣球花至少两岁时，再尝试改变其花朵的颜色。同样重要的是要记住，颜色的变化不会立即发生:通常需要几周或几个月的时间才会发生变化。
 
-绣球花的颜色取决于 [植物能够从土壤中吸收多少铝](https://www.gardendesign.com/hydrangea/how-to-change-color.html)——这取决于土壤的pH值
+绣球花的颜色取决于 [植物能够从土壤中吸收多少铝](https://www.gardendesign.com/hydrangea/how-to-change-color.html)——这取决于土壤的 pH 值
 
-pH值较低的土壤更容易让植物吸收铝，铝通常会使植物的花朵呈蓝色。同时，pH值较高的土壤使植物更难获得铝，这通常意味着它的花将是粉红色的。
+pH 值较低的土壤更容易让植物吸收铝，铝通常会使植物的花朵呈蓝色。同时，pH 值较高的土壤使植物更难获得铝，这通常意味着它的花将是粉红色的。
 
 ## 如何改变绣球花的颜色
 
-首先，你需要 [测试你土壤的pH值](https://lifehacker.com/how-and-when-to-plant-a-spring-garden-1846388049) 。此外，确保手头有一些硫酸铝。接下来要做的是:
+首先，你需要 [测试你土壤的 pH 值](https://lifehacker.com/how-and-when-to-plant-a-spring-garden-1846388049) 。此外，确保手头有一些硫酸铝。接下来要做的是:
 
 ### 如何把粉色的花变成蓝色的花
 
-从粉红色的 [到蓝色的](https://www.almanac.com/how-change-color-hydrangeas) ，增加土壤的酸度。你可以从春天开始，一年三次在每加仑水中加入1/4盎司的硫酸铝溶液。
+从粉红色的 [到蓝色的](https://www.almanac.com/how-change-color-hydrangeas) ，增加土壤的酸度。你可以从春天开始，一年三次在每加仑水中加入 1/4 盎司的硫酸铝溶液。
 
-三到四周后重复这个过程，三四周后再重复一次。当你在春天使用硫酸铝溶液时，也要按照制造商的说明使用25-5-30肥料。
+三到四周后重复这个过程，三四周后再重复一次。当你在春天使用硫酸铝溶液时，也要按照制造商的说明使用 25-5-30 肥料。
 
 ### 如何把蓝色的花变成粉色的花
 
-从蓝色的 [到粉红色的](http:// https://www.almanac.com/how-change-color-hydrangeas) ，增加土壤的碱性。你可以在春季或秋季以每100平方英尺4磅的比例撒上石灰石粉，并确保它得到充足的水分。同时，按照生产商的说明，给植物施25-10-10的肥料。
+从蓝色的 [到粉红色的](http:// https://www.almanac.com/how-change-color-hydrangeas) ，增加土壤的碱性。你可以在春季或秋季以每 100 平方英尺 4 磅的比例撒上石灰石粉，并确保它得到充足的水分。同时，按照生产商的说明，给植物施 25-10-10 的肥料。
 
 如果你碰巧有高矿物质含量的水(也称为硬水)，这可以帮助蓝色的花变成粉红色。

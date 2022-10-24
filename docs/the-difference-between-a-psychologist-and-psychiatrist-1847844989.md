@@ -1,6 +1,6 @@
 # 心理学家和精神病学家的区别(以及为什么它很重要)
 
-> 原文:[https://life hacker . com/the-difference-a-psychology-and-psychology-1847844989](https://lifehacker.com/the-difference-between-a-psychologist-and-psychiatrist-1847844989)
+> 原文：<https://lifehacker.com/the-difference-between-a-psychologist-and-psychiatrist-1847844989>
 
 当你需要心理保健时，不同的术语可能会令人困惑。需要心理医生吗？心理学家？ 两者到底有什么区别？
 
@@ -18,7 +18,7 @@ Watch
 
 ## **心理学家拥有博士学位，并接受过额外的临床培训**
 
-为了成为获得 执业许可的 [，心理学家必须获得心理学博士学位，完成1-2年的额外培训，重点是获得与病人打交道的实践经验，之后他们参加许可考试，允许他们在自己的州执业。](https://www.healthline.com/health/mental-health/what-is-the-difference-between-a-psychologist-and-a-psychiatrist#education)
+为了成为获得 执业许可的 [，心理学家必须获得心理学博士学位，完成 1-2 年的额外培训，重点是获得与病人打交道的实践经验，之后他们参加许可考试，允许他们在自己的州执业。](https://www.healthline.com/health/mental-health/what-is-the-difference-between-a-psychologist-and-a-psychiatrist#education)
 
 就这两类专业人员的区别而言，心理学家侧重于评估和治疗患者的行为，而精神病学家也有能力评估和治疗精神健康障碍的潜在身体因素。
 

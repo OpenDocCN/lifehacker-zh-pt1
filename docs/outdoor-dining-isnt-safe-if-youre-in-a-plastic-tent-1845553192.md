@@ -1,6 +1,6 @@
 # 如果你在一个塑料帐篷里，户外用餐是不安全的
 
-> 原文:[https://life hacker . com/outdoor-dining-is-safe-if-you-in-a-plastic-tent-1845553192](https://lifehacker.com/outdoor-dining-isnt-safe-if-youre-in-a-plastic-tent-1845553192)
+> 原文：<https://lifehacker.com/outdoor-dining-isnt-safe-if-youre-in-a-plastic-tent-1845553192>
 
 为了在疫情生存，餐馆不得不变得有创意。以外卖为中心的经营和户外用餐让我们在这漫长的几个月里一直吃得很好。但随着天气变冷，一些餐馆现在在封闭的塑料帐篷、温室或泡泡屋内为顾客提供“户外”服务。我不想告诉大家，但那不是在户外。
 

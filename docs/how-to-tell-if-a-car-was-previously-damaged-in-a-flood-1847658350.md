@@ -1,6 +1,6 @@
 # 如何判断一辆汽车之前是否在洪水中受损
 
-> 原文:[https://life hacker . com/how-to-tell-if-a car-before-damaged-in-flood-1847658350](https://lifehacker.com/how-to-tell-if-a-car-was-previously-damaged-in-a-flood-1847658350)
+> 原文：<https://lifehacker.com/how-to-tell-if-a-car-was-previously-damaged-in-a-flood-1847658350>
 
 F 抢劫会对汽车造成一些重大损害，即使它不是立即可见的(一旦它被清洗过)。不幸的是，这意味着一些受到不可修复损害的车辆可能会被运往该国的其他地方销售，特别是那些不太容易发生洪水的地方，买家可能不会意识到这个问题。
 

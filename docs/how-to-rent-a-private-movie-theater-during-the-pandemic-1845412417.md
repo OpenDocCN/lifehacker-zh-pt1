@@ -1,27 +1,27 @@
 # 疫情期间如何租到私人影院
 
-> 原文:[https://life hacker . com/how-to-rent-a-private-movie-theater-in-the-疫情-1845412417](https://lifehacker.com/how-to-rent-a-private-movie-theater-during-the-pandemic-1845412417)
+> 原文：<https://lifehacker.com/how-to-rent-a-private-movie-theater-during-the-pandemic-1845412417>
 
 即使你是一个电影迷，去公共电影院看电影可能是疫情期间你社交活动清单上的最后一件事——但是你现在可以以合理的价格出租电影院进行私人放映。
 
 Watch
 
-电影院和娱乐产业的其他部分一起艰难应对关闭和社会距离，这就是为什么包括AMC和Cinemark在内的几家公司向小型、私人团体聚会敞开大门。
+电影院和娱乐产业的其他部分一起艰难应对关闭和社会距离，这就是为什么包括 AMC 和 Cinemark 在内的几家公司向小型、私人团体聚会敞开大门。
 
 以下是如何租一个私人电影院。
 
-### 出租AMC影院
+### 出租 AMC 影院
 
-AMC Theatres 以99美元(含税)的起价出租礼堂，供20人以下的团体使用。根据电影和地点的不同，价格可能高达349美元。这些是目前可供私人放映的电影:
+AMC Theatres 以 99 美元(含税)的起价出租礼堂，供 20 人以下的团体使用。根据电影和地点的不同，价格可能高达 349 美元。这些是目前可供私人放映的电影:
 
-*   *2颗红心*
+*   *2 颗红心*
 *   *变戏法*
-*   *变戏法2*
+*   *变戏法 2*
 *   *罗娜的诅咒*
 *   *骗局*
 *   *诚实的小偷*
 *   *如何训练你的龙*
-*   *勇敢者游戏2：再战巅峰*
+*   *勇敢者游戏 2：再战巅峰*
 *   *侏罗纪公园*
 *   *怪物公司*
 *   *新的变种人*
@@ -31,15 +31,15 @@ AMC Theatres 以99美元(含税)的起价出租礼堂，供20人以下的团体�
 *   *宗旨*
 *   *与爷爷的战争*
 
-要预订，你需要 [填写一张在线表格](https://www.amctheatres.com/rentals) ，填写你想要的电影和你喜欢的日期、时间和影院位置。AMC表示可能需要3天时间来审核您的请求，并建议您至少提前一周敲定您的预订。
+要预订，你需要 [填写一张在线表格](https://www.amctheatres.com/rentals) ，填写你想要的电影和你喜欢的日期、时间和影院位置。AMC 表示可能需要 3 天时间来审核您的请求，并建议您至少提前一周敲定您的预订。
 
-你也可以 [定制你的体验](https://www.amctheatres.com/faqs/group-sales/group-sales-faq/if-i-buyout-an-auditorium-can-i-use-a-microphone-t) :增加优惠(额外收费出售的爆米花和饮料券)，租一个麦克风以便你可以亲自欢迎你的客人(100美元)，或者取消电影前的15分钟预告片。
+你也可以 [定制你的体验](https://www.amctheatres.com/faqs/group-sales/group-sales-faq/if-i-buyout-an-auditorium-can-i-use-a-microphone-t) :增加优惠(额外收费出售的爆米花和饮料券)，租一个麦克风以便你可以亲自欢迎你的客人(100 美元)，或者取消电影前的 15 分钟预告片。
 
 ### 出租电影院
 
-Cinemark也向私人团体出租其影院 。该公司有一个类似于AMC的的99美元的交易(在某些地方某些晚上有49美元的促销)，但过程略有不同；你将会预订现有公共演出时间的所有门票。由于这些预订数量有限，它们可能会在您所在的地区售完。 [查看离你最近的电影院有什么电影](https://cinemark.com/movies/private-watch-party?) 。
+Cinemark 也向私人团体出租其影院 。该公司有一个类似于 AMC 的的 99 美元的交易(在某些地方某些晚上有 49 美元的促销)，但过程略有不同；你将会预订现有公共演出时间的所有门票。由于这些预订数量有限，它们可能会在您所在的地区售完。 [查看离你最近的电影院有什么电影](https://cinemark.com/movies/private-watch-party?) 。
 
-此外，Cinemark还提供他们所谓的高级私人放映，这是更可定制(也更贵)的租赁套餐。
+此外，Cinemark 还提供他们所谓的高级私人放映，这是更可定制(也更贵)的租赁套餐。
 
 ### 检查你当地的剧院
 

@@ -1,16 +1,16 @@
 # 信用卡、个人贷款和个人信用额度的区别
 
-> 原文:[https://life hacker . com/the-difference-between-credit-cards-personal-loans-an-1847734339](https://lifehacker.com/the-difference-between-credit-cards-personal-loans-an-1847734339)
+> 原文：<https://lifehacker.com/the-difference-between-credit-cards-personal-loans-an-1847734339>
 
-大多数人都知道信用卡是如何工作的，他们可能也熟悉个人贷款——但是个人信用额度t呢？所有这些选项都是相似的，但它们有细微的差别，这些差别会影响你在需要借钱时选择哪一个。下面看看你什么时候会使用信用卡或个人贷款的信用额度。
+大多数人都知道信用卡是如何工作的，他们可能也熟悉个人贷款——但是个人信用额度 t 呢？所有这些选项都是相似的，但它们有细微的差别，这些差别会影响你在需要借钱时选择哪一个。下面看看你什么时候会使用信用卡或个人贷款的信用额度。
 
 Watch
 
 ## 什么是个人信用额度？
 
-个人信用额度是一种无限制的贷款，允许借款人在一段固定的时间内根据需要提取资金，额度从1，000美元到100，000美元不等。与个人贷款不同，这种类型的信贷允许多次获得资金，而不是一次性获得资金。一旦资金被提取，利息就会增加，借款人就像信用卡一样每月支付最低还款额。
+个人信用额度是一种无限制的贷款，允许借款人在一段固定的时间内根据需要提取资金，额度从 1，000 美元到 100，000 美元不等。与个人贷款不同，这种类型的信贷允许多次获得资金，而不是一次性获得资金。一旦资金被提取，利息就会增加，借款人就像信用卡一样每月支付最低还款额。
 
-个人信用额度通常是 [【无担保】](https://www.investopedia.com/terms/u/unsecured.asp) (这意味着你的财产不被用作抵押品)，并有一个可变的 [年百分比](https://www.investopedia.com/terms/a/apr.asp) (APR)，这是基于你的信用评分(再次，像信用卡)。虽然信贷额度和个人贷款 [的利率可以在6-35%的范围内](https://www.nerdwallet.com/article/loans/personal-loans/personal-loan-vs-credit-card) ，但信贷额度的利率往往略高。另一个区别是，个人贷款通常有 [固定利率](https://www.investopedia.com/terms/f/fixedinterestrate.asp#:~:text=A%20fixed%20interest%20rate%20is,same%20throughout%20a%20set%20period.) ，而信贷额度往往有 [可变利率](https://www.investopedia.com/terms/v/variableinterestrate.asp) 。也就是说，这两种选择提供的利率都比你用信用卡得到的要低，平均年利率为16%。
+个人信用额度通常是 [【无担保】](https://www.investopedia.com/terms/u/unsecured.asp) (这意味着你的财产不被用作抵押品)，并有一个可变的 [年百分比](https://www.investopedia.com/terms/a/apr.asp) (APR)，这是基于你的信用评分(再次，像信用卡)。虽然信贷额度和个人贷款 [的利率可以在 6-35%的范围内](https://www.nerdwallet.com/article/loans/personal-loans/personal-loan-vs-credit-card) ，但信贷额度的利率往往略高。另一个区别是，个人贷款通常有 [固定利率](https://www.investopedia.com/terms/f/fixedinterestrate.asp#:~:text=A%20fixed%20interest%20rate%20is,same%20throughout%20a%20set%20period.) ，而信贷额度往往有 [可变利率](https://www.investopedia.com/terms/v/variableinterestrate.asp) 。也就是说，这两种选择提供的利率都比你用信用卡得到的要低，平均年利率为 16%。
 
 ## 为什么你会使用个人信用额度？
 

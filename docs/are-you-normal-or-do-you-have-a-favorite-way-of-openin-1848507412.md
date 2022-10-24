@@ -1,6 +1,6 @@
 # 你正常吗，还是你有自己最喜欢的拆信封方式？
 
-> 原文:[https://life hacker . com/are-you-normal-or-do-do-you-favorite-way-on-1848507412](https://lifehacker.com/are-you-normal-or-do-you-have-a-favorite-way-of-openin-1848507412)
+> 原文：<https://lifehacker.com/are-you-normal-or-do-you-have-a-favorite-way-of-openin-1848507412>
 
 前几天我意识到我不知道如何打开一个信封。
 
@@ -39,9 +39,9 @@ Watch
 *   将刀片插入翻板，水平推入到底。
 *   一次性向上撕开。
 
-大多数拆信专家建议你不要磨你的拆信刀。你没有把信封打开；你在撕，但用的是工具。这样你就不会留下锋利的边缘，以免被纸割伤。(那是什么T3】这家伙在YouTube上说 反正他是真的进他的开信刀了。我的意思是，像*真的*进入其中。)
+大多数拆信专家建议你不要磨你的拆信刀。你没有把信封打开；你在撕，但用的是工具。这样你就不会留下锋利的边缘，以免被纸割伤。(那是什么 T3】这家伙在 YouTube 上说 反正他是真的进他的开信刀了。我的意思是，像*真的*进入其中。)
 
-有工业风格的开信刀，像Office Depot 的 [这些，但是你不能把它们设计成](https://www.officedepot.com/a/products/800332/Office-Depot-Brand-Letter-Opener-No/?utm_source=google&utm_medium=cpc&mediacampaignid=71700000090270503_16076509806&gclid=Cj0KCQiAxoiQBhCRARIsAPsvo-yVtvc4Zc5M2_1s8QniGTOpPlJUGof8-z96vz1k4xq0ariK_Mdxl0waAlkgEALw_wcB&gclsrc=aw.ds) [指环王](https://www.entertainmentearth.com/product/lord-of-the-rings-king-theoden-letter-opener/nbnn9248)*中的剑的微型复制品或者*神界II* 中的赃物，所以它们对我们的目的没有用。*
+有工业风格的开信刀，像 Office Depot 的 [这些，但是你不能把它们设计成](https://www.officedepot.com/a/products/800332/Office-Depot-Brand-Letter-Opener-No/?utm_source=google&utm_medium=cpc&mediacampaignid=71700000090270503_16076509806&gclid=Cj0KCQiAxoiQBhCRARIsAPsvo-yVtvc4Zc5M2_1s8QniGTOpPlJUGof8-z96vz1k4xq0ariK_Mdxl0waAlkgEALw_wcB&gclsrc=aw.ds) [指环王](https://www.entertainmentearth.com/product/lord-of-the-rings-king-theoden-letter-opener/nbnn9248)*中的剑的微型复制品或者*神界 II* 中的赃物，所以它们对我们的目的没有用。*
 
 ## ***用剪刀拆信***
 

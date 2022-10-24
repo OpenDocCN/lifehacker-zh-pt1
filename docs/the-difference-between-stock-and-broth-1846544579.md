@@ -1,6 +1,6 @@
 # 高汤和肉汤的区别
 
-> 原文:[https://life hacker . com/the-difference-that-stock-and-brow-1846544579](https://lifehacker.com/the-difference-between-stock-and-broth-1846544579)
+> 原文：<https://lifehacker.com/the-difference-between-stock-and-broth-1846544579>
 
 高汤和肉汤是非常相似的液体，可以在许多食谱中交替使用。然而，它们之间有一些关键的区别，主要是骨骼问题。
 
@@ -12,11 +12,11 @@ Watch
 
 我相信你见过待售的蔬菜“原汤”，但那种东西是“原汤”，就像杏仁奶是“牛奶”一样——这是一种向家庭厨师说明该产品应该如何在厨房使用的便捷方式——因为蔬菜没有骨头。(贝类严格来说也没有，但我确实喜欢把它们的外骨骼煨熟，称之为“原汤”；我对此很满意，主要是因为虾壳 [含有一点胶原蛋白](https://www.researchgate.net/publication/288387359_The_prospect_of_shrimp_shell_waste_as_raw_material_in_the_gelatin_production#:~:text=Shrimp%20shell%20consists%20of%2025,can%20be%20converted%20to%20gelatin.) 。)
 
-总之。肉汤更像是一种成品，而原汤是用来和T1一起烹饪的。你当然可以用肉汤做菜——不会有什么可怕的事情发生——但是它不会有你从肉汤里得到的那种身体，而且肉汤总是调味的；你应该能够啜饮它，并发现它令人愉快，或者在它里面扔一些面条，称之为汤。它的身体和颜色也更轻，冷却后通常不会胶凝，因为它的烹饪时间更短和/或没有骨头。(如果肉碰巧附着在骨头上，肉汤可以含有骨头，但也可以用去骨的肉制成，如鸡胸肉。)
+总之。肉汤更像是一种成品，而原汤是用来和 T1 一起烹饪的。你当然可以用肉汤做菜——不会有什么可怕的事情发生——但是它不会有你从肉汤里得到的那种身体，而且肉汤总是调味的；你应该能够啜饮它，并发现它令人愉快，或者在它里面扔一些面条，称之为汤。它的身体和颜色也更轻，冷却后通常不会胶凝，因为它的烹饪时间更短和/或没有骨头。(如果肉碰巧附着在骨头上，肉汤可以含有骨头，但也可以用去骨的肉制成，如鸡胸肉。)
 
 虽然“肉汤”在技术上指的是煮一块肉的任何液体，但我最喜欢的制作鸡汤的方法是水煮整只鸡，使用牛顿法[。我将鸡肉放入锅中，浸入水中，确保填满空腔，使其保持浸没，并添加一些切片的姜、蒜、葱、糖和盐。然后，我把它煮沸，让它煨大约半个小时，然后关火，盖上盖子，让它浸泡至少两个小时，有时更长。
 
-这一过程不仅能产出鲜嫩多汁、味道鲜美的火鸡，还能产出一份热汤——一旦充分冷却——几乎可以狼吞虎咽。吃完鸡肉后，我把骨头和一些蔬菜残渣、一片](https://lifehacker.com/maximize-a-chickens-meal-potential-by-poaching-it-first-1822353539) [月桂叶](https://lifehacker.com/do-bay-leaves-even-do-anything-1793275685) 和 [一些ACV](https://skillet.lifehacker.com/why-you-should-add-vinegar-to-your-chicken-stock-1818492266) 一起扔进我的速食锅中，以帮助提取胶原蛋白，然后在高压下煮一个小时。(你也可以在炉子上煨几个小时来达到同样的效果。)
+这一过程不仅能产出鲜嫩多汁、味道鲜美的火鸡，还能产出一份热汤——一旦充分冷却——几乎可以狼吞虎咽。吃完鸡肉后，我把骨头和一些蔬菜残渣、一片](https://lifehacker.com/maximize-a-chickens-meal-potential-by-poaching-it-first-1822353539) [月桂叶](https://lifehacker.com/do-bay-leaves-even-do-anything-1793275685) 和 [一些 ACV](https://skillet.lifehacker.com/why-you-should-add-vinegar-to-your-chicken-stock-1818492266) 一起扔进我的速食锅中，以帮助提取胶原蛋白，然后在高压下煮一个小时。(你也可以在炉子上煨几个小时来达到同样的效果。)
 
 但是骨汤呢？那是什么鬼东西？
 

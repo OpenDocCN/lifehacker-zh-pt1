@@ -1,8 +1,8 @@
 # 这个月使用猎户座腰带很容易发现天狼星
 
-> 原文:[https://life hacker . com/use-orions-belt-to-easy-spot-Sirius-this-month-1845180230](https://lifehacker.com/use-orions-belt-to-easily-spot-sirius-this-month-1845180230)
+> 原文：<https://lifehacker.com/use-orions-belt-to-easily-spot-sirius-this-month-1845180230>
 
-小时候，我妈妈教我如何在夜空中找到猎户座和北斗七星。作为一个成年人，那仍然是我能自己找到的仅有的两个星座。如果你处于类似的位置，但想要扩展你的星座曲目，你有更好的机会d 去所以在9月的剩余时间里，在这段时间里你可以 [使用猎户座腰带作为一种方式来定位天狼星，天空中最亮的星星，大犬座](https://earthsky.org/tonight/good-sky-trick-orions-belt-points-to-starsirius) 的一部分。以下是找到它的方法。
+小时候，我妈妈教我如何在夜空中找到猎户座和北斗七星。作为一个成年人，那仍然是我能自己找到的仅有的两个星座。如果你处于类似的位置，但想要扩展你的星座曲目，你有更好的机会 d 去所以在 9 月的剩余时间里，在这段时间里你可以 [使用猎户座腰带作为一种方式来定位天狼星，天空中最亮的星星，大犬座](https://earthsky.org/tonight/good-sky-trick-orions-belt-points-to-starsirius) 的一部分。以下是找到它的方法。
 
 Watch
 
@@ -10,7 +10,7 @@ Watch
 
 首先:找到猎户座。这个星座最与众不同的特征之一是组成猎人腰带的短而直的一排相对明亮的恒星。 [如果指点会有一个](https://lifehacker.com/figure-out-which-direction-youre-facing-205678)，它就在 [南到](https://earthsky.org/tonight/good-sky-trick-orions-belt-points-to-starsirius) 东南方天空的一部分。
 
-根据EarthSkyT3的黛博拉·伯德所说，接下来要做的是:
+根据 EarthSkyT3 的黛博拉·伯德所说，接下来要做的是:
 
 > 只要画一条穿过猎户座腰带的线，并将这条线向地平线延伸。你会很容易地发现天狼星，天空中最亮的星星。
 > 

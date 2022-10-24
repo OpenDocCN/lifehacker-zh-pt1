@@ -1,6 +1,6 @@
 # 如何发现并除掉可能生活在你圣诞树上的虫子
 
-> 原文:[https://life hacker . com/how-to-spot-and-get-out-of-bugs-that-living-in-1845946290](https://lifehacker.com/how-to-spot-and-get-rid-of-bugs-that-might-be-living-in-1845946290)
+> 原文：<https://lifehacker.com/how-to-spot-and-get-rid-of-bugs-that-might-be-living-in-1845946290>
 
 尽管它们很方便，而且不管你点多少松木香味的蜡烛，都会让人觉得人造圣诞树缺少了什么。当活树的针叶脱落并在房子里被追踪时，不仅仅是活树会制造混乱(尽管这是额外的收获)。(大多数)人造圣诞树缺少的另一个东西是虫子。
 
@@ -35,8 +35,8 @@ Watch
 
 #### 不要使用非处方杀虫剂喷雾
 
-如果你碰巧在假期前看到虫子，又不想把树拆掉，这种情况就更严重了。那是因为很多 [OTC喷剂都是易燃的](https://www.goodhousekeeping.com/holidays/christmas-ideas/news/a41633/christmas-tree-bugs/) ，你不希望那玩意儿靠近挂在树上的发热灯。另外，如果有替代品的话，最好避免在家里喷洒化学物质。
+如果你碰巧在假期前看到虫子，又不想把树拆掉，这种情况就更严重了。那是因为很多 [OTC 喷剂都是易燃的](https://www.goodhousekeeping.com/holidays/christmas-ideas/news/a41633/christmas-tree-bugs/) ，你不希望那玩意儿靠近挂在树上的发热灯。另外，如果有替代品的话，最好避免在家里喷洒化学物质。
 
 #### 对硅藻土来说太晚了
 
-虽然你可能听说过用 [硅藻土](https://www.goodhousekeeping.com/holidays/christmas-ideas/news/a41633/christmas-tree-bugs/) 来消灭圣诞树上的虫子，但这是在你把圣诞树带进屋之前*有用的东西——而不是相反。(比如，当你从车上卸下树时，你是否注意到树上有虫子。)杀虫粉不含合成化学物质，确实有效，但它必须在树上至少24小时才能开始生效，所以在这一点上对你没什么用。*
+虽然你可能听说过用 [硅藻土](https://www.goodhousekeeping.com/holidays/christmas-ideas/news/a41633/christmas-tree-bugs/) 来消灭圣诞树上的虫子，但这是在你把圣诞树带进屋之前*有用的东西——而不是相反。(比如，当你从车上卸下树时，你是否注意到树上有虫子。)杀虫粉不含合成化学物质，确实有效，但它必须在树上至少 24 小时才能开始生效，所以在这一点上对你没什么用。*

@@ -1,8 +1,8 @@
 # 实际上，邮票是一种很好的圣诞礼物(这一点我是对的)
 
-> 原文:[https://life hacker . com/actually-stamps-is-a-great-stocking-stuffer-I-m-righ-1848189044](https://lifehacker.com/actually-stamps-are-a-great-stocking-stuffer-i-m-righ-1848189044)
+> 原文：<https://lifehacker.com/actually-stamps-are-a-great-stocking-stuffer-i-m-righ-1848189044>
 
-正如我之前提到的 一样，我的家人非常重视丝袜。一双好的袜子是关于平衡的。这里一些糖果， [一个克莱门汀](https://lifehacker.com/lets-bring-back-the-fruit-stocking-stuffer-1848167306) 那里，一些c [ute美容产品](https://lifehacker.com/the-lazy-way-to-stuff-a-stocking-that-doesn-t-look-lazy-1848132358) 让一切变得完美——你想要创造一个不同的象征物和小饰品的集合，以保持袜子不是一个音符。
+正如我之前提到的 一样，我的家人非常重视丝袜。一双好的袜子是关于平衡的。这里一些糖果， [一个克莱门汀](https://lifehacker.com/lets-bring-back-the-fruit-stocking-stuffer-1848167306) 那里，一些 c [ute 美容产品](https://lifehacker.com/the-lazy-way-to-stuff-a-stocking-that-doesn-t-look-lazy-1848132358) 让一切变得完美——你想要创造一个不同的象征物和小饰品的集合，以保持袜子不是一个音符。
 
 Watch
 
@@ -12,4 +12,4 @@ Watch
 
 如果这听起来太实用，太无聊，不够个性化，请理解你可以用它变得真正可爱，并根据袜子主人的个性定制你的邮票购买。没有理由给难看或无聊的 邮票。只是 [看有多少](https://store.usps.com/store/results/stamps/_/N-9y93lv) 可供选择。每个人都有一枚邮票。你得到了高尔夫爱好者的邮票，星球大战书呆子的邮票，社会主义科幻读者的邮票，还有那些真正热爱假期的人的邮票。(我真的很喜欢这些两分钱的小迈耶柠檬邮票，尽管它们不像永久邮票那样实用。)
 
-另外，购买邮票意味着你支持美国邮政服务，你会感觉很好。如果你在网上订购，你甚至不用去T2的邮局。(但是现在就订购，而不是以后。邮政服务在每年的这个时候都有很多事情要做。)
+另外，购买邮票意味着你支持美国邮政服务，你会感觉很好。如果你在网上订购，你甚至不用去 T2 的邮局。(但是现在就订购，而不是以后。邮政服务在每年的这个时候都有很多事情要做。)

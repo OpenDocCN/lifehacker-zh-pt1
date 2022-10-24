@@ -1,6 +1,6 @@
 # 是的，你仍然需要一个坐浴盆
 
-> 原文:[https://life hacker . com/yes-you-still-need-a-bide-1847114622](https://lifehacker.com/yes-you-still-need-a-bidet-1847114622)
+> 原文：<https://lifehacker.com/yes-you-still-need-a-bidet-1847114622>
 
 坐浴盆在许多其他国家都是一种日常浴室用品，但在美国，它并不常见，只是最近才变得更加普遍( [部分源于疫情](https://www.theguardian.com/us-news/2020/apr/14/us-bidet-toilet-paper-sales-coronavirus) 和卫生纸短缺)。如果你还没有考虑自己买一个坐浴盆...你应该这么做。以下是购买坐浴盆的几个理由，以及如何使用。
 
@@ -12,9 +12,9 @@ Watch
 
 ## 为什么要买坐浴盆？
 
-购买坐浴盆是一个健康、环保、经济的决定。根据研究网站 [的研究发现](https://www.studyfinds.org/average-american-toilet-paper/) 和净身器公司 [Tushy](https://hellotushy.com/pages/about-us) 的数据，美国人平均每天使用57张卫生纸。因为当你拥有一个坐浴盆时，你需要更少的纸，你可以在卫生纸生产中每年节省大约1500万棵树。
+购买坐浴盆是一个健康、环保、经济的决定。根据研究网站 [的研究发现](https://www.studyfinds.org/average-american-toilet-paper/) 和净身器公司 [Tushy](https://hellotushy.com/pages/about-us) 的数据，美国人平均每天使用 57 张卫生纸。因为当你拥有一个坐浴盆时，你需要更少的纸，你可以在卫生纸生产中每年节省大约 1500 万棵树。
 
-我知道你在想什么——如果我们用水代替卫生纸，那就是在浪费水——但是据知情人报道，制造一卷卫生纸需要37加仑水，而使用坐浴盆只需要八分之一加仑水。与此同时，美国拥有世界上最高的卫生纸使用量 [每天3400万卷](https://bigthink.com/surprising-science/toilet-paper-is-a-giant-waste-of-resources?rebelltitem=1#rebelltitem1) ，每个家庭每年在卫生纸上的花费超过120美元。
+我知道你在想什么——如果我们用水代替卫生纸，那就是在浪费水——但是据知情人报道，制造一卷卫生纸需要 37 加仑水，而使用坐浴盆只需要八分之一加仑水。与此同时，美国拥有世界上最高的卫生纸使用量 [每天 3400 万卷](https://bigthink.com/surprising-science/toilet-paper-is-a-giant-waste-of-resources?rebelltitem=1#rebelltitem1) ，每个家庭每年在卫生纸上的花费超过 120 美元。
 
 坐浴盆还通过清洗细菌来减少细菌，而不是把细菌涂在你的底盘上。根据你购买的不同，坐浴盆还可以消毒和干燥，这样你就再也不用卫生纸了。
 
@@ -22,11 +22,11 @@ Watch
 
 如果你需要更多的理由，坐浴盆对残疾人来说也是非常有效的，提供了一个方便和卫生的厕所。轻柔的洗涤也有助于痔疮护理和整体生殖器健康。
 
-那么，为什么不每年省下100美元买一个坐浴盆呢？有些人认为它太贵了，或者安装它太麻烦了(或者需要一个水管工)。另一方面，有些人就是不知道如何使用它们。
+那么，为什么不每年省下 100 美元买一个坐浴盆呢？有些人认为它太贵了，或者安装它太麻烦了(或者需要一个水管工)。另一方面，有些人就是不知道如何使用它们。
 
 ## 坐浴盆有哪些不同类型？
 
-有几种类型的净身器，包括独立式净身器、手持式净身器和连接到马桶座上的净身器。那些喷水的可以用空气吹干身体，喷洒消毒液，并且有多种设置。健康网站 [Self有一个附件坐浴盆](https://www.self.com/gallery/best-bidets) 的详细列表，以及它们的所有功能供您探索。我们将探索马桶座圈附件和独立坐浴盆的基础知识。
+有几种类型的净身器，包括独立式净身器、手持式净身器和连接到马桶座上的净身器。那些喷水的可以用空气吹干身体，喷洒消毒液，并且有多种设置。健康网站 [Self 有一个附件坐浴盆](https://www.self.com/gallery/best-bidets) 的详细列表，以及它们的所有功能供您探索。我们将探索马桶座圈附件和独立坐浴盆的基础知识。
 
 ## 如何使用独立智能便座
 
@@ -36,4 +36,4 @@ Watch
 
 ## 如何使用马桶座坐浴盆
 
-从普通的马桶座圈附件到为你的臀部提供五星级水疗服务的全方位服务附件， [坐浴盆非常简单](https://www.brondell.com/healthy-living-blog/how-do-you-use-a-bidet-toilet-seat/) 。处理完事务后，打开智能便座喷嘴。根据你买的附件，它可能会机械地从座位上移开，或者它已经在那里了，会开始喷水。你要确保水流从到[的前后](https://www.healthline.com/health/bidets-bad-or-good-for-health#Its-not-taboo-to-talk-about-(or-emote-over)-poop) ，让水流冲洗你的臀部 [30到60秒](https://hellotushy.com/pages/how-to-use-a-bidet) 。完成后，取少量卫生纸拍干。如果你足够幸运，有一个干燥附件，只要打开烘干机，你就再也不需要擦拭了。
+从普通的马桶座圈附件到为你的臀部提供五星级水疗服务的全方位服务附件， [坐浴盆非常简单](https://www.brondell.com/healthy-living-blog/how-do-you-use-a-bidet-toilet-seat/) 。处理完事务后，打开智能便座喷嘴。根据你买的附件，它可能会机械地从座位上移开，或者它已经在那里了，会开始喷水。你要确保水流从到[的前后](https://www.healthline.com/health/bidets-bad-or-good-for-health#Its-not-taboo-to-talk-about-(or-emote-over)-poop) ，让水流冲洗你的臀部 [30 到 60 秒](https://hellotushy.com/pages/how-to-use-a-bidet) 。完成后，取少量卫生纸拍干。如果你足够幸运，有一个干燥附件，只要打开烘干机，你就再也不需要擦拭了。

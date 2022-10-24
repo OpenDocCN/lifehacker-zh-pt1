@@ -1,6 +1,6 @@
 # 分手后的悲伤阶段(以及如何度过每一阶段)
 
-> 原文:[https://life hacker . com/the-stages-of-break-after-and-how-to-survive-1849586927](https://lifehacker.com/the-stages-of-grief-after-a-breakup-and-how-to-survive-1849586927)
+> 原文：<https://lifehacker.com/the-stages-of-grief-after-a-breakup-and-how-to-survive-1849586927>
 
 分手感觉像死亡是有原因的。无论是你主动提出分手还是接受分手，在一段关系结束时都会有一段明确的哀悼期。
 

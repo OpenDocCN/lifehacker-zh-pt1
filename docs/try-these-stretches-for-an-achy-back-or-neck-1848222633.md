@@ -1,12 +1,12 @@
 # 尝试这些伸展运动来缓解背部或颈部疼痛
 
-> 原文:[https://life hacker . com/try-these-stretches-for-an-achy-back-or-neck-1848222633](https://lifehacker.com/try-these-stretches-for-an-achy-back-or-neck-1848222633)
+> 原文：<https://lifehacker.com/try-these-stretches-for-an-achy-back-or-neck-1848222633>
 
 我们当中有谁不会在醒来时感到脖子疼痛，或者发现在一整天都坐在或站在同一个位置后，我们的背部感觉不舒服？虽然疼痛程度是医生或物理治疗师的事，但几次伸展运动对缓解日常僵硬有很大帮助。
 
 Watch
 
-在尝试了下面的练习来看看哪个对你来说感觉最好之后，考虑设置一个间隔计时器(使用你手机上的一个应用程序，或者 [本网站](https://www.intervaltimer.com) )给你30秒的时间做一个给定的拉伸，然后10秒钟移动到下一个位置。每天早上进行你最喜欢的伸展运动，或者在工作日离开办公桌休息一下。
+在尝试了下面的练习来看看哪个对你来说感觉最好之后，考虑设置一个间隔计时器(使用你手机上的一个应用程序，或者 [本网站](https://www.intervaltimer.com) )给你 30 秒的时间做一个给定的拉伸，然后 10 秒钟移动到下一个位置。每天早上进行你最喜欢的伸展运动，或者在工作日离开办公桌休息一下。
 
 ## 坐在你手上
 

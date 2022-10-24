@@ -1,6 +1,6 @@
 # 计划一次远足，呼吸一些新鲜空气，消除假日压力
 
-> 原文:[https://life hacker . com/plan-a-hike-to-get-some-air-out-of-holiday-1845757939](https://lifehacker.com/plan-a-hike-to-get-some-fresh-air-and-tune-out-holiday-1845757939)
+> 原文：<https://lifehacker.com/plan-a-hike-to-get-some-fresh-air-and-tune-out-holiday-1845757939>
 
 无论你是一个人过假期，还是(仍然)和你隔离了几个月的人关在一起，你都可能需要打破常规。即使你没有庆祝，你仍然可以有一天(或者至少一天的一部分)的休息时间来重组。一种方法是出去散步，享受新鲜空气。下面是 [如何计划](https://observer-me.com/2020/11/24/sports/how-to-plan-a-festive-holiday-hike/) 一次减压的假日远足。
 
@@ -12,7 +12,7 @@ Watch
 
 ### 如何计划假日远足
 
-以下是一些计划假日远足的建议，由班戈每日新闻的Aislinn Sarnacki提供:
+以下是一些计划假日远足的建议，由班戈每日新闻的 Aislinn Sarnacki 提供:
 
 *   做一次天气检查，不仅仅是温度，还有风和可能的降水。然后相应地穿衣服。
 *   选择路线/地点。如果你要去一个有多条步道的公园，提前看看(或下载) [一张步道地图](https://lifehacker.com/how-to-read-a-trail-map-1844344804) ，这样一旦你到达，你就准备好出发了。

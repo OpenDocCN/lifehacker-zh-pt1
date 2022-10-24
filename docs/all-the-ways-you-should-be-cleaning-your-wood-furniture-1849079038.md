@@ -1,6 +1,6 @@
 # 所有你应该清洁木制家具的方法，但是没有
 
-> 原文:[https://life hacker . com/all-the-way-you-should-be-cleaning-your-wood-furniture-1849079038](https://lifehacker.com/all-the-ways-you-should-be-cleaning-your-wood-furniture-1849079038)
+> 原文：<https://lifehacker.com/all-the-ways-you-should-be-cleaning-your-wood-furniture-1849079038>
 
 超市的清洁产品通道有很多清洁和抛光木制家具的选择。虽然那些针对木材的配方可以完成工作，但你并不总是需要专门的产品来让你的红木桌子或橡木椅子闪闪发光。这里有一些清洁木材的其他方法——其中很多都涉及到你家里已经有的物品。
 
@@ -28,17 +28,17 @@ Watch
 
 像牙膏一样，蛋黄酱也可用于木制家具上的 [水和困渍](https://todayshomeowner.com/how-to-remove-water-stains-from-furniture-with-mayonnaise/) 。用手指或抹刀将蛋黄酱涂在污渍上，做圆周运动。让它静置一个小时，然后检查部分污渍，看看它是否消失了。如果是，用一块布擦掉蛋黄酱，然后用另一块布擦干。
 
-### DIY除尘清洁喷雾
+### DIY 除尘清洁喷雾
 
 正在寻找一种自己动手制作的解决方案来进行日常清洁吗？你可能想把 [混成一批](https://www.tipsbulletin.com/homemade-wood-cleaner/) 这样:
 
-*   1杯水
+*   1 杯水
 *   一杯白醋
-*   2茶匙矿物油或椰子油
-*   15滴柠檬油
+*   2 茶匙矿物油或椰子油
+*   15 滴柠檬油
 
 将配料倒入空的喷雾瓶中，摇匀(开始时和每次使用前)。使用时，只需喷在木制家具上，用超细纤维布擦拭即可。
 
-### DIY清洁抛光剂
+### DIY 清洁抛光剂
 
 想清洁你的脏木头并让它发亮吗？将等量的橄榄油、变性酒精、松节油和过滤柠檬汁混合在一起，就可以自己动手制作一款。然后用超细纤维布涂抹，再用单独的干净、干燥的超细纤维布擦拭。

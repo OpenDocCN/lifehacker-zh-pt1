@@ -1,6 +1,6 @@
 # 也许你应该买一枚碳硅石订婚戒指，而不是钻石
 
-> 原文:[https://life hacker . com/maybe-you-should-buy-a-moissanite-engagement-ring-inste-1848242733](https://lifehacker.com/maybe-you-should-buy-a-moissanite-engagement-ring-inste-1848242733)
+> 原文：<https://lifehacker.com/maybe-you-should-buy-a-moissanite-engagement-ring-inste-1848242733>
 
 婚姻和钻石是千禧一代被指责杀害的和中的几件。虽然说千禧一代不买钻石(或结婚，就此而言)并不准确，但*确实以不同的方式购买。* 
 
@@ -14,13 +14,13 @@ Watch
 
 ## 碳硅石和钻石有什么区别？
 
-如果你想要钻石的外观，但又不能忍受T2购买钻石，碳硅石是你能得到的最接近的了。
+如果你想要钻石的外观，但又不能忍受 T2 购买钻石，碳硅石是你能得到的最接近的了。
 
 ### 价格:碳硅石更便宜
 
 购买钻石的最大障碍之一是成本。即使是非常小的优质钻石，对许多人来说也是买不起的——在预算紧张的情况下是买不起的，对那些只想把钱花在别处的人来说也是荒谬的。
 
-碳硅石 [大约是大小和质量相似的钻石](https://www.brides.com/moissanite-vs-diamond-5094238) 的10%。所以，如果你想要一块更大的石头，碳硅石会给你更大的回报。
+碳硅石 [大约是大小和质量相似的钻石](https://www.brides.com/moissanite-vs-diamond-5094238) 的 10%。所以，如果你想要一块更大的石头，碳硅石会给你更大的回报。
 
 ### 伦理:碳硅石是合成的
 

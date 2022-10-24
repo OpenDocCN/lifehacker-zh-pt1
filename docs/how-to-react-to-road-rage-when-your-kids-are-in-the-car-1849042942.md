@@ -1,8 +1,8 @@
 # 当你的孩子在车里时，如何应对路怒症
 
-> 原文:[https://life hacker . com/how-react-to-road-rage-when-your ' s-kids-in-the-car-1849042942](https://lifehacker.com/how-to-react-to-road-rage-when-your-kids-are-in-the-car-1849042942)
+> 原文：<https://lifehacker.com/how-to-react-to-road-rage-when-your-kids-are-in-the-car-1849042942>
 
-我不完全确定为什么卡车司机对我的拉链合并如此生气— [这是*正确的*合并](https://lifehacker.com/merge-properly-you-assholes-1847272279) 的方式，非常感谢— 但是他很明显不喜欢，他的喇叭让我知道了。我开着一辆小货车去学校，车上坐满了6到8岁的孩子，在这个特殊的早晨，交通异常拥挤。几分钟后，其中一个孩子注意到同一个卡车司机正在翻另一辆车，这在我们的车上引起了很大的兴奋，因为他们最近都知道了竖起中指是什么意思。
+我不完全确定为什么卡车司机对我的拉链合并如此生气— [这是*正确的*合并](https://lifehacker.com/merge-properly-you-assholes-1847272279) 的方式，非常感谢— 但是他很明显不喜欢，他的喇叭让我知道了。我开着一辆小货车去学校，车上坐满了 6 到 8 岁的孩子，在这个特殊的早晨，交通异常拥挤。几分钟后，其中一个孩子注意到同一个卡车司机正在翻另一辆车，这在我们的车上引起了很大的兴奋，因为他们最近都知道了竖起中指是什么意思。
 
 Watch
 

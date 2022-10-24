@@ -1,16 +1,16 @@
-# MAGA品牌的“自由手机”是一个应该不惜一切代价避免的黑匣子
+# MAGA 品牌的“自由手机”是一个应该不惜一切代价避免的黑匣子
 
-> 原文:[https://gizmodo . com/maga-branded-freedom-phone-is-a-black-box-the-should-b-1847299215](https://gizmodo.com/maga-branded-freedom-phone-is-a-black-box-that-should-b-1847299215)
+> 原文：<https://gizmodo.com/maga-branded-freedom-phone-is-a-black-box-that-should-b-1847299215>
 
-无论是Parler、Gab还是GETTR，最近都出现了不少拿着美元符号的企业家，他们希望利用保守的美国对“自由”硅谷的蔑视。有人试图发明MAGA电话只是时间问题。
+无论是 Parler、Gab 还是 GETTR，最近都出现了不少拿着美元符号的企业家，他们希望利用保守的美国对“自由”硅谷的蔑视。有人试图发明 MAGA 电话只是时间问题。
 
 Watch
 
-呃，做那个... [自由手机](https://freedomphone.com/) 周四发布的这款设备是22岁的加密百万富翁埃里克·芬曼(Erik Finman)的产品，他说他希望美国的爱国者从科技寡头手中夺回对自己生活的控制权。芬曼的手机售价499美元，声称为保守派提供了一种免受大型科技公司“监视”和“审查”的方式——尽管在细节上非常模糊。就像一把随机的手枪一样，手机应该被视为装有子弹的危险物品，因为我们根本不知道枪膛里有什么。
+呃，做那个... [自由手机](https://freedomphone.com/) 周四发布的这款设备是 22 岁的加密百万富翁埃里克·芬曼(Erik Finman)的产品，他说他希望美国的爱国者从科技寡头手中夺回对自己生活的控制权。芬曼的手机售价 499 美元，声称为保守派提供了一种免受大型科技公司“监视”和“审查”的方式——尽管在细节上非常模糊。就像一把随机的手枪一样，手机应该被视为装有子弹的危险物品，因为我们根本不知道枪膛里有什么。
 
-Freedom Phone声称，它可以保护用户免受iOS或Android操作系统的数据收集(它有一种叫做“FreedomOS”的东西，具有讽刺意味的是，它似乎只是谷歌Android操作系统的修改版本)。这款手机还旨在将用户从Big Tech所谓的意识形态偏好中解放出来:它有一个“不受审查的应用程序商店”(称为“PatriApp”，lol)，无论应用程序多么不安全或可怕，显然都不可能被启动。
+Freedom Phone 声称，它可以保护用户免受 iOS 或 Android 操作系统的数据收集(它有一种叫做“FreedomOS”的东西，具有讽刺意味的是，它似乎只是谷歌 Android 操作系统的修改版本)。这款手机还旨在将用户从 Big Tech 所谓的意识形态偏好中解放出来:它有一个“不受审查的应用程序商店”(称为“PatriApp”，lol)，无论应用程序多么不安全或可怕，显然都不可能被启动。
 
-该设备还预装了一系列隐私功能(Signal、DuckDuckGo、Brave)，以及一套似乎为特朗普选民量身定制的应用程序:Parler、One America News Network、Newsmax和Rumble都包括在内。
+该设备还预装了一系列隐私功能(Signal、DuckDuckGo、Brave)，以及一套似乎为特朗普选民量身定制的应用程序:Parler、One America News Network、Newsmax 和 Rumble 都包括在内。
 
 “这是对攻击我们的大型科技公司的第一次主要反击——仅仅是因为他们的想法不同，” [芬曼周四早上在](https://twitter.com/erikfinman) 的推特上写道。“我们终于夺回了控制权。”还可以看到其他右翼影响者和评论员 [在他们的频道上推广产品](https://www.instagram.com/p/CRUowZGJMyR/) 。
 
@@ -18,23 +18,23 @@ Freedom Phone声称，它可以保护用户免受iOS或Android操作系统的数
 
 在我们进入为什么这种设备可能很糟糕的细节之前，我只想说，拥有一部致力于保护你的自主权和隐私的手机的愿望是合理的，应该得到鼓励。也就是说，我不认为自由手机提供了这一点。事实上，除了其公开的党派倾向，它是不可能告诉这是什么样的设备，因为芬曼和他的追随者没有提供任何有关它的信息。
 
-先说 [网站](https://freedomphone.com/) (freedomphone.com)。有趣的是，它提供了实际设备的几乎为零的规格。没有关于手机操作系统、存储、摄像头、CPU或RAM能力的信息。它有一个功能列表，但没有关于它们的实际细节。相反，在每个功能下，只有一个“立即购买”按钮，将你重定向到网站的购物车。这款手机的高昂价格，加上该公司完全缺乏透明度，简直是荒谬可笑——实质上是要求买家掏出5000英镑来换取，呃，一些东西！我们给自由电话发了一封电子邮件，询问进一步的信息，如果他们有回应，我们会更新这个故事。
+先说 [网站](https://freedomphone.com/) (freedomphone.com)。有趣的是，它提供了实际设备的几乎为零的规格。没有关于手机操作系统、存储、摄像头、CPU 或 RAM 能力的信息。它有一个功能列表，但没有关于它们的实际细节。相反，在每个功能下，只有一个“立即购买”按钮，将你重定向到网站的购物车。这款手机的高昂价格，加上该公司完全缺乏透明度，简直是荒谬可笑——实质上是要求买家掏出 5000 英镑来换取，呃，一些东西！我们给自由电话发了一封电子邮件，询问进一步的信息，如果他们有回应，我们会更新这个故事。
 
 该设备本质上是一个黑匣子的事实也使它成为一个潜在的安全(因此也是隐私)噩梦——再次，它应该被这样对待，直到证明不是这样。事实上，根据一些安全专家的评估，应该不惜一切代价避免使用免费电话。
 
 黑客组织的联合创始人、资深网络专业人士耐特·赫克表示，虽然尚未得到证实，但这款自由手机似乎是一款来自亚洲的廉价安卓设备——这类设备可能容易受到各种供应链风险和其他问题的影响。
 
-“根据该公司网站上的照片，一些互联网侦探确定该设备与 [Umidigi A9 Pro](https://www.umidigi.com/page-umidigi_a9pro_overview.html) 具有相同的外形、形状和外观，”希基通过电子邮件说道。“这款设备是一款可定制的安卓手机，可以从亚太地区订购，并根据项目要求进行定制，”他说，他澄清说，这种设备可以“批量购买和运输，带有定制的标志和品牌，以便给人一种为独特目的而设计的手机的外观，但实际上只是一款普通的廉价安卓智能手机，核心部件在台湾和周边地区生产。”它也非常便宜:A9 Pro目前的 [售价约为120美元](https://www.aliexpress.com/item/1005001468394552.html?af=240682&utm_campaign=240682&aff_platform=api-new-hotproduct-download&utm_medium=cpa&afref=https%3A%2F%2Fwww.thedailybeast.com%2F&dp=1eaecbebda74bc4a4c051a7927b83bc8&aff_fcid=66397154496944af94116479ee593531-1626419566582-08573&cv=47843&mall_affr=pr3&aff_trace_key=66397154496944af94116479ee593531-1626419566582-08573&terminal_id=8301e030b86b4f5b923ed87228d5efba&tmLog=new_Detail&utm_source=admitad&utm_content=47843) ，远低于Freedom手机的500美元。
+“根据该公司网站上的照片，一些互联网侦探确定该设备与 [Umidigi A9 Pro](https://www.umidigi.com/page-umidigi_a9pro_overview.html) 具有相同的外形、形状和外观，”希基通过电子邮件说道。“这款设备是一款可定制的安卓手机，可以从亚太地区订购，并根据项目要求进行定制，”他说，他澄清说，这种设备可以“批量购买和运输，带有定制的标志和品牌，以便给人一种为独特目的而设计的手机的外观，但实际上只是一款普通的廉价安卓智能手机，核心部件在台湾和周边地区生产。”它也非常便宜:A9 Pro 目前的 [售价约为 120 美元](https://www.aliexpress.com/item/1005001468394552.html?af=240682&utm_campaign=240682&aff_platform=api-new-hotproduct-download&utm_medium=cpa&afref=https%3A%2F%2Fwww.thedailybeast.com%2F&dp=1eaecbebda74bc4a4c051a7927b83bc8&aff_fcid=66397154496944af94116479ee593531-1626419566582-08573&cv=47843&mall_affr=pr3&aff_trace_key=66397154496944af94116479ee593531-1626419566582-08573&terminal_id=8301e030b86b4f5b923ed87228d5efba&tmLog=new_Detail&utm_source=admitad&utm_content=47843) ，远低于 Freedom 手机的 500 美元。
 
-[据 *The Daily Beast*](https://www.thedailybeast.com/maga-worlds-freedom-phone-actually-budget-chinese-phone?ref=scroll) 报道，芬曼证实他正在销售的设备是由Umidigi制造的，但不能说出具体是什么型号。
+[据 *The Daily Beast*](https://www.thedailybeast.com/maga-worlds-freedom-phone-actually-budget-chinese-phone?ref=scroll) 报道，芬曼证实他正在销售的设备是由 Umidigi 制造的，但不能说出具体是什么型号。
 
-最重要的是，“自由”似乎还将使用联发科(Mediatek)生产的台湾CPU，这种CPU“在基于Android的低端设备中很受欢迎”，并且众所周知有问题，Hickey说。
+最重要的是，“自由”似乎还将使用联发科(Mediatek)生产的台湾 CPU，这种 CPU“在基于 Android 的低端设备中很受欢迎”，并且众所周知有问题，Hickey 说。
 
-Hickey说:“从历史上看，联发科设备附带了大量不安全的配置，容易出现轻微的漏洞，允许任何物理上拥有这种设备的人通过其早期的引导加载程序读取/写入手机上的数据。”他补充说:“他们专门制造允许高度定制的手机，因此许多供应商拥有可以用来操纵设备的软件，这就是为什么这种硬件在朝鲜等国家很受欢迎，因为用户启用的安全措施往往可以被国家特工简单地绕过。”。
+Hickey 说:“从历史上看，联发科设备附带了大量不安全的配置，容易出现轻微的漏洞，允许任何物理上拥有这种设备的人通过其早期的引导加载程序读取/写入手机上的数据。”他补充说:“他们专门制造允许高度定制的手机，因此许多供应商拥有可以用来操纵设备的软件，这就是为什么这种硬件在朝鲜等国家很受欢迎，因为用户启用的安全措施往往可以被国家特工简单地绕过。”。
 
 没有什么比在朝鲜流行的产品更能体现“自由”了。
 
-有趣的是，如果特朗普的选民正在寻找一种摆脱“大型科技”网格的方法，他们没有必要购买这种粗略的狗屎。实际上，手机行业中有整个亚文化致力于逃离Android/iOS范式。举例来说，你可以涉入 [去谷歌化的手机领域](https://www.pcmag.com/news/google-free-android-smartphones-are-now-available-in-the-us)——那里出售的安卓手机已经过翻新，以消除设备上的代码，这些代码将把你的数据发送回科技巨头。还有 [基于Linux的Pinephone](https://www.pine64.org/pinephone/) ，其售价仅为Freedom Phone的一小部分(在150美元到200美元之间)，是隐私社区的最爱。显然，所有这些都带有警告，但关键是有比自由手机更透明、更实惠的选择。
+有趣的是，如果特朗普的选民正在寻找一种摆脱“大型科技”网格的方法，他们没有必要购买这种粗略的狗屎。实际上，手机行业中有整个亚文化致力于逃离 Android/iOS 范式。举例来说，你可以涉入 [去谷歌化的手机领域](https://www.pcmag.com/news/google-free-android-smartphones-are-now-available-in-the-us)——那里出售的安卓手机已经过翻新，以消除设备上的代码，这些代码将把你的数据发送回科技巨头。还有 [基于 Linux 的 Pinephone](https://www.pine64.org/pinephone/) ，其售价仅为 Freedom Phone 的一小部分(在 150 美元到 200 美元之间)，是隐私社区的最爱。显然，所有这些都带有警告，但关键是有比自由手机更透明、更实惠的选择。
 
 当然，完全的安全和隐私并不是自由手机真正想要的。对于芬曼和他的公司来说，这只是对品牌杂志产品日益增长的保守需求的一种兑现。与此同时，对于消费者来说，购买这样一部手机是一种身份的声明——这是一种消费者选择，它带来了一种社区感，也是一个向他们认为已经否定了他们的商业和文化机构伸出大中指的机会。
 

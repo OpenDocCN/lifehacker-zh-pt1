@@ -1,6 +1,6 @@
 # 如何知道你是否有一个“好”的治疗师
 
-> 原文:[https://life hacker . com/how-to-know-if-you ' s a-good-therapist-1849542096](https://lifehacker.com/how-to-know-if-you-have-a-good-therapist-1849542096)
+> 原文：<https://lifehacker.com/how-to-know-if-you-have-a-good-therapist-1849542096>
 
 好的治疗师就在那里，我们有一些关于如何找到一个 的建议。你还会想知道你的治疗师提供的治疗类型是否适合你正在经历的问题。但是一旦你经历了互相了解的阶段，你可能会发现自己在想:我怎么知道我找到了一个好的呢？这里有一些问题要问。
 
@@ -8,7 +8,7 @@ Watch
 
 ## 他们应该在保密和道德方面做到专业
 
-一个好的治疗师会解释他们的政策，并让你签署或口头同意知情同意协议。不这样做是一个主要的危险信号，根据心理中心[。T4认为，治疗师在少数情况下透露信息是合乎道德的，包括他们是否怀疑虐待或者他们是否被传唤。](https://psychcentral.com/lib/red-flags-a-clinician-isnt-right-for-you#red-flags)
+一个好的治疗师会解释他们的政策，并让你签署或口头同意知情同意协议。不这样做是一个主要的危险信号，根据心理中心[。T4 认为，治疗师在少数情况下透露信息是合乎道德的，包括他们是否怀疑虐待或者他们是否被传唤。](https://psychcentral.com/lib/red-flags-a-clinician-isnt-right-for-you#red-flags)
 
 治疗师也应该把客户当作客户，而不是朋友。友善就好；给予特殊待遇或把亲密的朋友或家庭成员作为客户不是。
 

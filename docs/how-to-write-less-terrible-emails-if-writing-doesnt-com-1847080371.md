@@ -1,6 +1,6 @@
 # 如果写作对你来说不容易，如何写不那么糟糕的电子邮件
 
-> 原文:[https://life hacker . com/how-to-write-less-worthy-emails-if-writing-stuns-com-1847080371](https://lifehacker.com/how-to-write-less-terrible-emails-if-writing-doesnt-com-1847080371)
+> 原文：<https://lifehacker.com/how-to-write-less-terrible-emails-if-writing-doesnt-com-1847080371>
 
 由于我们现代工作中的很多交流都依赖于我们的收件箱，所以每个人都有责任学习如何通过电子邮件进行有效的交流。即使你是一个连门把手上的介词和都不知道的化学工程师和[也是如此。](https://lifehacker.com/are-sentences-that-end-in-prepositions-really-something-1846788809) 
 
@@ -14,7 +14,7 @@ Watch
 
 例如，如果，你向团队汇报你领导的一个项目，首先解释这个项目是什么，你希望通过它完成什么。然后，描述你已经完成了什么，以及项目可能的发展方向。最后，通过询问想法或问题来结束，然后优雅地退出，正式结束。
 
-另一种思考方式是把它浓缩成四个步骤。正如成长咨询公司Partners所写的那样， [你可以遵循这个蓝图](https://www.growthpartnersconsulting.com/post/write-better-emails-or-teach-others-to) :
+另一种思考方式是把它浓缩成四个步骤。正如成长咨询公司 Partners 所写的那样， [你可以遵循这个蓝图](https://www.growthpartnersconsulting.com/post/write-better-emails-or-teach-others-to) :
 
 1.  问候
 2.  询问或请求的操作
@@ -25,7 +25,7 @@ Watch
 
 ## 在你的电子邮件中总是使用主题行
 
-在电子邮件礼仪中(至少对我来说)，没有什么比一封不理会主题行的电子邮件更令人厌恶的了。如果你只是想在紧要关头引起一个人的注意——比如，写“你能打电话给我吗？”在电子邮件的正文中——那么*也许*没关系。不过，一般来说，没有主题行的电子邮件令人抓狂，比如我以前的一个会计尽管在一个线程里给我发了50多封邮件，却没有添加一封。
+在电子邮件礼仪中(至少对我来说)，没有什么比一封不理会主题行的电子邮件更令人厌恶的了。如果你只是想在紧要关头引起一个人的注意——比如，写“你能打电话给我吗？”在电子邮件的正文中——那么*也许*没关系。不过，一般来说，没有主题行的电子邮件令人抓狂，比如我以前的一个会计尽管在一个线程里给我发了 50 多封邮件，却没有添加一封。
 
 所以，如果你给人发了一封关于重要事情的电子邮件，在主题行添加你们谈话的主题。让它简短易读— [不需要插入任何双关语](https://lifehacker.com/why-you-should-avoid-applying-to-companies-that-speak-i-1846972810?rev=1622047851065) 。你的同事可能正在梳理堆积如山的未读邮件，他们会欣赏你对清晰性的强调。
 

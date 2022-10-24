@@ -1,6 +1,6 @@
 # 如何带着“相关后果”为人父母(以及为什么你应该这样做)
 
-> 原文:[https://life hacker . com/how-to-parent-with-connected-results-and-why-yo-1849470945](https://lifehacker.com/how-to-parent-with-connected-consequences-and-why-yo-1849470945)
+> 原文：<https://lifehacker.com/how-to-parent-with-connected-consequences-and-why-yo-1849470945>
 
 随着育儿趋势逐渐远离惩罚和严厉的纪律，育儿群体中仍然存在冲突——甚至可能在你自己的家庭中——如何让孩子做需要做的事情，而不是过于严厉或过于宽容。我们已经谈论过 [对我们孩子的自然后果](https://lifehacker.com/the-best-ways-to-get-your-kids-to-listen-without-naggin-1848917787) ，比如让他们从自己的错误或缺乏准备中学习。当你帮助你的孩子把他们的行为和结果联系起来时，特别是当你是给出结果的人时，要考虑一个新的术语，那就是“关联后果”
 
@@ -14,7 +14,7 @@ Watch
 
 ## 我们经常做错的事情
 
-抖音明星Kc Davis ( [国内水泡](https://www.tiktok.com/@domesticblisters) )用现实生活中的例子很好地解释了这一点: [在这段视频](https://www.tiktok.com/@domesticblisters/video/7131768435817581866?_r=1&_t=8UyKh991SIt&is_from_webapp=v1&item_id=7131768435817581866) 中，她分解了评估你是否给孩子带来了“关联后果”或威胁的重要性。
+抖音明星 Kc Davis ( [国内水泡](https://www.tiktok.com/@domesticblisters) )用现实生活中的例子很好地解释了这一点: [在这段视频](https://www.tiktok.com/@domesticblisters/video/7131768435817581866?_r=1&_t=8UyKh991SIt&is_from_webapp=v1&item_id=7131768435817581866) 中，她分解了评估你是否给孩子带来了“关联后果”或威胁的重要性。
 
 这段视频指出，我们中的许多人，尤其是在疲劳、压力或疲惫的时候，会在孩子有了我们不想实施的行为时威胁和惩罚他们。如果家里到处都是要洗的衣服的孩子按了你的按钮，而你没有考虑到相关的后果，你可以简单地告诉他们不要整周都玩视频游戏，而不是直到他们完成家务。
 
@@ -22,11 +22,11 @@ Watch
 
 ## 如何区分惩罚和后果
 
-在为VeryWellFamily 撰写的一篇文章中，莎拉·范布斯柯克解释说，惩罚和后果之间的区别在于“惩罚是让孩子为他们的错误遭受痛苦或感到羞耻。他们可能意在 [让孩子感觉不好](https://www.verywellfamily.com/causes-of-low-self-esteem-in-kids-3288009) 。虽然后果可能会带来一些不适，但目标是让孩子将他们的行为与他们行动的结果联系起来，以获得下次做出不同选择所需的动力。”当你选择对一种行为的反应时，请记住这一点。
+在为 VeryWellFamily 撰写的一篇文章中，莎拉·范布斯柯克解释说，惩罚和后果之间的区别在于“惩罚是让孩子为他们的错误遭受痛苦或感到羞耻。他们可能意在 [让孩子感觉不好](https://www.verywellfamily.com/causes-of-low-self-esteem-in-kids-3288009) 。虽然后果可能会带来一些不适，但目标是让孩子将他们的行为与他们行动的结果联系起来，以获得下次做出不同选择所需的动力。”当你选择对一种行为的反应时，请记住这一点。
 
 作为父母，我们做的另一件事是把后果看得太重。我们通常这样做是因为我们已经完全厌倦了一次又一次的情况。你的孩子从不把洗好的衣服放好，他们的态度很糟糕，所以你不仅拿走了电子游戏，还扔掉了游戏机。但是，由于这些“太大”的反应，惩罚与罪行不匹配或不相称，你的孩子不太可能将后果与他们的行为联系起来——他们只会感觉到失去游戏的破坏。
 
-更糟糕的是诉诸体罚——[r研究表明，体罚](https://publications.aap.org/pediatrics/article/142/6/e20183112/37452/Effective-Discipline-to-Raise-Healthy-Children?autologincheck=redirected?nfToken=00000000-0000-0000-0000-000000000000) ，利用痛苦来“教训一个人”，以及辱骂、过度叫喊或羞辱，对改变孩子的行为不起作用，而且会造成持久的心理伤害。
+更糟糕的是诉诸体罚——[r 研究表明，体罚](https://publications.aap.org/pediatrics/article/142/6/e20183112/37452/Effective-Discipline-to-Raise-Healthy-Children?autologincheck=redirected?nfToken=00000000-0000-0000-0000-000000000000) ，利用痛苦来“教训一个人”，以及辱骂、过度叫喊或羞辱，对改变孩子的行为不起作用，而且会造成持久的心理伤害。
 
 ## 如何对相关后果建模
 

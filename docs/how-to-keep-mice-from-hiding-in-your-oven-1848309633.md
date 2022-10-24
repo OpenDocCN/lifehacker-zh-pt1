@@ -1,6 +1,6 @@
 # 如何防止老鼠藏在你的烤箱里
 
-> 原文:[https://life hacker . com/how-to-keep-mouse-from-hide-in-your-oven-1848309633](https://lifehacker.com/how-to-keep-mice-from-hiding-in-your-oven-1848309633)
+> 原文：<https://lifehacker.com/how-to-keep-mice-from-hiding-in-your-oven-1848309633>
 
 如果你发现自己不情愿地在厨房里招待又痒又跑的害虫——而且你很确定你听到它们在你的炉子和烤箱里格格作响——你并不孤单。老鼠会被指示灯的温暖和烤箱内及周围大量的面包屑和剩余的食物残渣所吸引。以下是你如何摆脱他们。
 
@@ -18,13 +18,13 @@ Watch
 
 ## 密封烤箱的入口
 
-Terminix建议用 [填缝料或钢丝网](https://www.terminix.com/blog/diy/mice-in-stove/#:~:text=Set%20traps.&text=Snap%20traps%20can%20be%20an,in%20and%20out%20for%20food.) 密封这些入口点，另一种方法是用浸泡在纯薄荷油中的棉球填塞这些孔，然后用钢丝绒填塞，然后用修补膏密封这些孔，以获得额外的保护层。然后用硬纸板盖住这个区域，这样当你的手工艺品变干时，老鼠就不会打扰你了—在决定性的时刻，它们不可避免地会试图把它从烤箱里跑出来。
+Terminix 建议用 [填缝料或钢丝网](https://www.terminix.com/blog/diy/mice-in-stove/#:~:text=Set%20traps.&text=Snap%20traps%20can%20be%20an,in%20and%20out%20for%20food.) 密封这些入口点，另一种方法是用浸泡在纯薄荷油中的棉球填塞这些孔，然后用钢丝绒填塞，然后用修补膏密封这些孔，以获得额外的保护层。然后用硬纸板盖住这个区域，这样当你的手工艺品变干时，老鼠就不会打扰你了—在决定性的时刻，它们不可避免地会试图把它从烤箱里跑出来。
 
 ## 设置好陷阱，然后...做得更差
 
 这是两条捕捉老鼠的道路分叉的地方。当特米尼克斯说要封住所有的洞，在烤箱后面设置捕捉器，并经常给它们重新上饵(如果不起作用，就叫它们完成任务)， [这篇大块头文章](https://www.hunker.com/13416863/how-to-kill-mice-in-the-stove) 更进了一步。在这份报告中，他们建议在入口周围和沿着你的烤箱后壁放置胶水陷阱或夹有花生酱或奶酪的陷阱，这看起来很正常。(如果不想用胶水困住他们，也可以用 [无杀伤](https://www.amazon.com/Smart-Mouse-Trap-Humane-Mousetrap/dp/B000YFA7HW?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-keep-mice-from-hiding-in-your-oven-1848309633&asc_source=&tag=kinjalifehackerlink-20) 陷阱。)但是还有。
 
-重新连接煤气管道并重新打开阀门后，你可以发动致命一击b y打开烤箱(如果你是的铁杆粉丝，打开*和*烤鸡)，然后打开和热量将迫使老鼠从你*没有看到的任何剩余的洞出来，然后被陷阱困住。*
+重新连接煤气管道并重新打开阀门后，你可以发动致命一击 b y 打开烤箱(如果你是的铁杆粉丝，打开*和*烤鸡)，然后打开和热量将迫使老鼠从你*没有看到的任何剩余的洞出来，然后被陷阱困住。*
 
 他们建议:“跟随任何逃脱的老鼠，穿过胶水陷阱到达任何你可能不知道的老鼠洞。”但是...如果你看不到他们从哪里出来，更别说足够快地跟踪他们，那该怎么办？更令人不安的问题是:如果你封住了*所有的洞*，他们就再也无法逃脱了，那会怎么样？那么什么是？凭良心说，我该拿大规模老鼠谋杀案怎么办？
 

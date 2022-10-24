@@ -1,6 +1,6 @@
 # 你可以更好地使用正确的代词(没有冒犯的意思)
 
-> 原文:[https://life hacker . com/you-can-get-better-at-use-the-right-代词-without-1848421018](https://lifehacker.com/you-can-get-better-at-using-the-right-pronouns-without-1848421018)
+> 原文：<https://lifehacker.com/you-can-get-better-at-using-the-right-pronouns-without-1848421018>
 
 当你使用某人正确的代词时，你是在向他们表示基本的尊重。尽管如此，许多善意的人发现自己被不同性别身份的领域所困惑甚至吓倒——特别是当和你不太亲近的人说话时，比如员工，或者你孩子的学校朋友。
 
@@ -14,9 +14,9 @@ Watch
 
 请允许我陈述显而易见的事实，但是代词并不新鲜。每当你以第三人称提及某人时，你总是用它们来代替某人的名字。像“他”和“她”这样的代词带有隐含的性别。越来越重要的是，“他”和“她”并不总是准确地反映一个人的实际身份。
 
-根据2019年 [皮尤研究调查](https://www.pewsocialtrends.org/2019/01/17/generation-z-looks-a-lot-like-millennials-on-key-social-and-political-issues/psdt_1-17-19_generations-02/) ，三分之一的青少年和20岁出头的人知道有人使用除“她”或“他”之外的代词——而 [这个数字将增长](https://www.houstonchronicle.com/local/gray-matters/article/u-s-increase-trans-gender-nonconforming-people-13054716.php) 。此外，性别是一个光谱，人们在不同的时间会觉得自己有多重性别或者没有性别。虽然可能需要一些时间来适应，代词是我们身份的重要组成部分。
+根据 2019 年 [皮尤研究调查](https://www.pewsocialtrends.org/2019/01/17/generation-z-looks-a-lot-like-millennials-on-key-social-and-political-issues/psdt_1-17-19_generations-02/) ，三分之一的青少年和 20 岁出头的人知道有人使用除“她”或“他”之外的代词——而 [这个数字将增长](https://www.houstonchronicle.com/local/gray-matters/article/u-s-increase-trans-gender-nonconforming-people-13054716.php) 。此外，性别是一个光谱，人们在不同的时间会觉得自己有多重性别或者没有性别。虽然可能需要一些时间来适应，代词是我们身份的重要组成部分。
 
-“歧视和偏见的第一种形式是否认一个群体或个人的存在...与跨性别和性别不同的人有关，使用不正确的代词被视为否认，”教育家和演说家 [莎莉·戈德纳](https://www.wheelercentre.com/people/sally-goldner) 告诉 [ABC澳大利亚](https://www.abc.net.au/news/2016-04-15/a-ten-point-guide-to-not-offending-transgender-people/7326584) 。
+“歧视和偏见的第一种形式是否认一个群体或个人的存在...与跨性别和性别不同的人有关，使用不正确的代词被视为否认，”教育家和演说家 [莎莉·戈德纳](https://www.wheelercentre.com/people/sally-goldner) 告诉 [ABC 澳大利亚](https://www.abc.net.au/news/2016-04-15/a-ten-point-guide-to-not-offending-transgender-people/7326584) 。
 
 使用某人正确的代词对确认他们的人性很重要。而且不对， [不会是语法错误](https://lifehacker.com/vacay-is-now-a-real-word-according-to-merriam-webster-1838493217) 。
 

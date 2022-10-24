@@ -1,6 +1,6 @@
 # 在购买任何大宗商品之前，你应该问自己这四个问题
 
-> 原文:[https://life hacker . com/you-should-question-before-any-1847643231](https://lifehacker.com/you-should-ask-yourself-these-four-questions-before-any-1847643231)
+> 原文：<https://lifehacker.com/you-should-ask-yourself-these-four-questions-before-any-1847643231>
 
 “去购物”过去指穿上外面的衣服，离开房子，在零售店中寻找你需要的物品。但是现在，购物不再是一件大事，而是你无聊时可以在手机上做的事情。虽然网上购物肯定比逛不同的商店更方便，但这种方便也有不好的一面——看似无限的选择让人们不知所措，包括他们以前可能没有考虑过的功能和产品。
 

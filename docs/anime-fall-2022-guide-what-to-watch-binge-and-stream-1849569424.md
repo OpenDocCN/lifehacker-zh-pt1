@@ -1,8 +1,8 @@
-# 你的2022年秋季动漫指南:看什么，狂欢什么，沉迷什么
+# 你的 2022 年秋季动漫指南:看什么，狂欢什么，沉迷什么
 
-> 原文:[https://kotaku . com/anime-fall-2022-guide-what-to-watch-binge-and-stream-1849569424](https://kotaku.com/anime-fall-2022-guide-what-to-watch-binge-and-stream-1849569424)
+> 原文：<https://kotaku.com/anime-fall-2022-guide-what-to-watch-binge-and-stream-1849569424>
 
-恭喜你，威布斯。你已经晋级到秋季动漫季了。你的奖励？更多动漫。但不是任何一种动漫。你已经有了*漂白剂*(《[三巨头动漫](https://otaku.fandom.com/wiki/Big_Three)】*的挥剑成员)的回归，还有*暴民心理100* 的最后一季，*电锯侠*等等*所以*更多。是啊，这个季节你吃得很好。*
+恭喜你，威布斯。你已经晋级到秋季动漫季了。你的奖励？更多动漫。但不是任何一种动漫。你已经有了*漂白剂*(《[三巨头动漫](https://otaku.fandom.com/wiki/Big_Three)】*的挥剑成员)的回归，还有*暴民心理 100* 的最后一季，*电锯侠*等等*所以*更多。是啊，这个季节你吃得很好。*
 
 *你已经知道这里的情况了，所以让我们开始吧。以下是今年秋天登陆你的流媒体服务的所有新的和回归的动漫节目。像往常一样，在下面的评论区让我们知道你打算看哪个节目。啊哈啊哈，额外的分数只会给那些回答不是以上三个问题的人。* 
 
@@ -10,29 +10,29 @@
 
 <figcaption class="sc-1ptbguh-0 hxeMec caption">Crunchyroll Collection</figcaption> 
 
-**工作室:** EMT平方
+**工作室:** EMT 平方
 
 **类型:**动作、喜剧、奇幻
 
-首映日期:10月2日
+首映日期:10 月 2 日
 
 **观看地点:**脆脆卷
 
-**一句话讲的是什么:**一个名叫Rain的驯兽师因为没用而被从英雄的派对上踢走后，他和一个全能的猫女开始了一段冒险旅程。**T3】**
+**一句话讲的是什么:**一个名叫 Rain 的驯兽师因为没用而被从英雄的派对上踢走后，他和一个全能的猫女开始了一段冒险旅程。**T3】**
 
  [https://kotaku.com/embed/inset/iframe?id=youtube-video-H6dkuEdzaFY&start=0](https://kotaku.com/embed/inset/iframe?id=youtube-video-H6dkuEdzaFY&start=0)
 
 <figcaption class="sc-1ptbguh-0 hxeMec caption">Crunchyroll Collection</figcaption> 
 
-**工作室:**4c工作室
+**工作室:**4c 工作室
 
 **类型:**动作、剧情、奇幻、恐怖
 
-首映日期:10月2日
+首映日期:10 月 2 日
 
 **观看地点:**脆脆卷
 
-**一句话讲的是什么:**T2狂战士:黄金时代之弧电影三部曲的电视播放剪辑，有新的场景、音乐，以及为纪念已故创作者三浦建太郎而重新录制的原版电影剪辑。
+**一句话讲的是什么:**T2 狂战士:黄金时代之弧电影三部曲的电视播放剪辑，有新的场景、音乐，以及为纪念已故创作者三浦建太郎而重新录制的原版电影剪辑。
 
  [https://kotaku.com/embed/inset/iframe?id=youtube-video-1sygUhb8Q2Y&start=0](https://kotaku.com/embed/inset/iframe?id=youtube-video-1sygUhb8Q2Y&start=0)
 
@@ -42,11 +42,11 @@
 
 **流派:**动作，超自然
 
-**首映日期:**10月10日
+**首映日期:**10 月 10 日
 
-**在哪里看:**美国的Hulu，迪士尼 +国际
+**在哪里看:**美国的 Hulu，迪士尼 +国际
 
-**一句话讲的是:**黑崎一护必须从T3】昆西T5】的军团中拯救灵魂社会。
+**一句话讲的是:**黑崎一护必须从 T3】昆西 T5】的军团中拯救灵魂社会。
 
  [https://kotaku.com/embed/inset/iframe?id=youtube-video-IYeipQNZFxE&start=0](https://kotaku.com/embed/inset/iframe?id=youtube-video-IYeipQNZFxE&start=0)
 
@@ -56,11 +56,11 @@
 
 **流派:**体育
 
-**首映日期:**10月8日
+**首映日期:**10 月 8 日
 
 **观看地点:**脆脆卷
 
-**一句话:日本足球联合会在2018年世界杯惨败后，寻找一名王牌前锋来扭转他们的运气。**
+**一句话:日本足球联合会在 2018 年世界杯惨败后，寻找一名王牌前锋来扭转他们的运气。**
 
  [https://kotaku.com/embed/inset/iframe?id=youtube-video-SyMMZF5zNW4&start=0](https://kotaku.com/embed/inset/iframe?id=youtube-video-SyMMZF5zNW4&start=0)
 
@@ -70,11 +70,11 @@
 
 **类型:**喜剧，生活片段
 
-**首映日期:**10月8日
+**首映日期:**10 月 8 日
 
 **观看地点:**脆脆卷
 
-**一句话讲的是:**一个孤独的高中女生Hitori Goto在成为Kessoku乐队的吉他手后，她的生活发生了天翻地覆的变化。
+**一句话讲的是:**一个孤独的高中女生 Hitori Goto 在成为 Kessoku 乐队的吉他手后，她的生活发生了天翻地覆的变化。
 
  [https://kotaku.com/embed/inset/iframe?id=youtube-video-OatDU-PgJQE&start=0](https://kotaku.com/embed/inset/iframe?id=youtube-video-OatDU-PgJQE&start=0)
 
@@ -84,7 +84,7 @@
 
 **流派:**动作，冒险
 
-**首映日期:**10月11日
+**首映日期:**10 月 11 日
 
 **观看地点:**脆脆卷
 
@@ -98,11 +98,11 @@
 
 **类型:**动作、科幻
 
-首播日期:9月13日
+首播日期:9 月 13 日
 
 **观看地点:**网飞
 
-**一句话讲述的内容:**在母亲死于车祸后，一个名叫大卫·马丁内斯的街头男孩将一种危险的军用技术融合到自己的脊椎上，加入了一个名为edgerunners的网络朋克乌合之众团体。
+**一句话讲述的内容:**在母亲死于车祸后，一个名叫大卫·马丁内斯的街头男孩将一种危险的军用技术融合到自己的脊椎上，加入了一个名为 edgerunners 的网络朋克乌合之众团体。
 
  [https://kotaku.com/embed/inset/iframe?id=youtube-video-oNM8tKFZkQU&start=0](https://kotaku.com/embed/inset/iframe?id=youtube-video-oNM8tKFZkQU&start=0)
 
@@ -112,11 +112,11 @@
 
 **类型:**喜剧，生活片段
 
-**首映日期:**10月5日
+**首映日期:**10 月 5 日
 
 **观看地点:**脆脆卷
 
-**一句话讲的是什么:**一群来自一所著名高中的女孩组成了一个DIY俱乐部，她们在那里奋斗，失败，并成功地建造了各种各样的小发明。
+**一句话讲的是什么:**一群来自一所著名高中的女孩组成了一个 DIY 俱乐部，她们在那里奋斗，失败，并成功地建造了各种各样的小发明。
 
  [https://kotaku.com/embed/inset/iframe?id=youtube-video-P1gpSWUolyI&start=0](https://kotaku.com/embed/inset/iframe?id=youtube-video-P1gpSWUolyI&start=0)
 
@@ -126,11 +126,11 @@
 
 **类型:**冒险、喜剧、奇幻、生活片段
 
-首映日期:10月2日
+首映日期:10 月 2 日
 
 **观看地点:** Hidive
 
-**一句话讲的是:**一个叫Cid的家伙在进入一个幻想世界后，因为同时扮演英雄和反派而惹上了麻烦。
+**一句话讲的是:**一个叫 Cid 的家伙在进入一个幻想世界后，因为同时扮演英雄和反派而惹上了麻烦。
 
  [https://kotaku.com/embed/inset/iframe?id=youtube-video-ctUiQSAYOTo&start=0](https://kotaku.com/embed/inset/iframe?id=youtube-video-ctUiQSAYOTo&start=0)
 
@@ -140,25 +140,25 @@
 
 **类型:**科幻、恐怖
 
-**首映日期:**10月13日
+**首映日期:**10 月 13 日
 
 **观看地点:**网飞
 
-**一句话讲的是什么:**一个太空恐怖系列，设定在遥远的未来，人类被迫从地球迁移，地球化为一个新的星球。该系列以*最终幻想*的T5【天野喜孝 的角色设计为特色。
+**一句话讲的是什么:**一个太空恐怖系列，设定在遥远的未来，人类被迫从地球迁移，地球化为一个新的星球。该系列以*最终幻想*的 T5【天野喜孝 的角色设计为特色。
 
  [https://kotaku.com/embed/inset/iframe?id=youtube-video-JT8QtXL4GSs&start=0](https://kotaku.com/embed/inset/iframe?id=youtube-video-JT8QtXL4GSs&start=0)
 
 <figcaption class="sc-1ptbguh-0 hxeMec caption">adult swim</figcaption> 
 
-工作室:制作I.G
+工作室:制作 I.G
 
 **流派:**恐怖
 
-首映日期:10月1日
+首映日期:10 月 1 日
 
 **在哪里看:** Toonami，HBO Max
 
-**一句话讲述的内容:**一个名叫Kimi的女孩遭遇了可怕的事情，她认为这是一个古老的恶魔在困扰着她廉价住宅区的居民。
+**一句话讲述的内容:**一个名叫 Kimi 的女孩遭遇了可怕的事情，她认为这是一个古老的恶魔在困扰着她廉价住宅区的居民。
 
  [https://kotaku.com/embed/inset/iframe?id=youtube-video-vzAWnF86HKs&start=0](https://kotaku.com/embed/inset/iframe?id=youtube-video-vzAWnF86HKs&start=0)
 
@@ -168,7 +168,7 @@
 
 **类型:**喜剧
 
-**首映日期:**10月5日
+**首映日期:**10 月 5 日
 
 **观看地点:**脆脆卷
 
@@ -182,7 +182,7 @@
 
 **流派:**音乐**T3】**
 
-首映日期:10月2日
+首映日期:10 月 2 日
 
 **观看地点:**脆脆卷
 
@@ -196,7 +196,7 @@
 
 **类型:**喜剧、奇幻、言情
 
-首播日期:9月24日
+首播日期:9 月 24 日
 
 **观看地点:**脆脆卷
 
@@ -206,11 +206,11 @@
 
 <figcaption class="sc-1ptbguh-0 hxeMec caption">松竹チャンネル/SHOCHIKUch</figcaption> 
 
-工作室:制作I.G
+工作室:制作 I.G
 
 **流派:**剧情、科幻
 
-首播日期:9月29日
+首播日期:9 月 29 日
 
 **观看地点:**脆脆卷
 
@@ -224,7 +224,7 @@
 
 **类型:**喜剧、言情
 
-首映日期:10月12日
+首映日期:10 月 12 日
 
 **观看地点:** Hidive
 
@@ -238,7 +238,7 @@
 
 **类型:**动作、喜剧、超自然
 
-**首映日期:**10月5日
+**首映日期:**10 月 5 日
 
 **观看地点:**脆脆卷
 
@@ -252,7 +252,7 @@
 
 **类型:**动作、科幻
 
-首映日期:10月2日
+首映日期:10 月 2 日
 
 **观看地点:**脆脆卷
 
@@ -266,7 +266,7 @@
 
 **类型:**动作，剧情，科幻
 
-**首映日期:**10月5日
+**首映日期:**10 月 5 日
 
 **观看地点:**脆脆卷
 
@@ -280,7 +280,7 @@
 
 **流派:**动作
 
-首映日期:10月1日
+首映日期:10 月 1 日
 
 **观看地点:**脆脆卷
 
@@ -294,7 +294,7 @@
 
 **类型:**喜剧
 
-首映日期:10月1日
+首映日期:10 月 1 日
 
 **观看地点:**脆脆卷
 
@@ -308,7 +308,7 @@
 
 **流派:**奇幻
 
-首映日期:10月1日
+首映日期:10 月 1 日
 
 **观看地点:**脆脆卷
 
@@ -322,21 +322,21 @@
 
 **类型:**喜剧、言情
 
-**首映日期:**10月27日
+**首映日期:**10 月 27 日
 
 **观看地点:**网飞
 
-**一句话:一个名叫Anzu的游戏女孩被带进了一个充满帅哥的世界。**
+**一句话:一个名叫 Anzu 的游戏女孩被带进了一个充满帅哥的世界。**
 
  [https://kotaku.com/embed/inset/iframe?id=youtube-video-_KGGfkeqnU4&start=0](https://kotaku.com/embed/inset/iframe?id=youtube-video-_KGGfkeqnU4&start=0)
 
 <figcaption class="sc-1ptbguh-0 hxeMec caption">Warner Bros. Japan Anime</figcaption> 
 
-**工作室:**横滨动画实验室Graphinica
+**工作室:**横滨动画实验室 Graphinica
 
 **流派:**冒险
 
-**首映日期:**10月7日
+**首映日期:**10 月 7 日
 
 **观看地点:**脆脆卷
 
@@ -350,25 +350,25 @@
 
 **流派:**动作
 
-**首映日期:**10月4日
+**首映日期:**10 月 4 日
 
 **观看地点:**脆脆卷
 
-**一句话讲的是:**在发现自己是家族忍者家族的下一任领袖后，一位名为Ittoki Sakuraba的高中生必须学习现代忍者的方式。
+**一句话讲的是:**在发现自己是家族忍者家族的下一任领袖后，一位名为 Ittoki Sakuraba 的高中生必须学习现代忍者的方式。
 
  [https://kotaku.com/embed/inset/iframe?id=youtube-video-jR1L1EK3kN0&start=0](https://kotaku.com/embed/inset/iframe?id=youtube-video-jR1L1EK3kN0&start=0)
 
 <figcaption class="sc-1ptbguh-0 hxeMec caption">Crunchyroll Collection</figcaption> 
 
-**工作室:** CloverWorks，Wit工作室
+**工作室:** CloverWorks，Wit 工作室
 
 **类型:动作**
 
-首映日期:10月1日
+首映日期:10 月 1 日
 
 **观看地点:**脆脆卷
 
-**一句话讲的是:**为了迎来世界和平，超级间谍Loid伪造者，他的刺客妻子Yor，和他收养的心灵感应女儿Anya，必须和一个有权势的政客的家庭交朋友。
+**一句话讲的是:**为了迎来世界和平，超级间谍 Loid 伪造者，他的刺客妻子 Yor，和他收养的心灵感应女儿 Anya，必须和一个有权势的政客的家庭交朋友。
 
  [https://kotaku.com/embed/inset/iframe?id=youtube-video-OnDqvGUkqjc&start=0](https://kotaku.com/embed/inset/iframe?id=youtube-video-OnDqvGUkqjc&start=0)
 
@@ -378,11 +378,11 @@
 
 **流派:**动作
 
-**首映日期:**10月7日
+**首映日期:**10 月 7 日
 
 **观看地点:**网飞
 
-**一句话讲的是什么:**阔别11年后，野虎和新秀巴纳比·布鲁克斯这对超级英雄搭档的第二季第二场比赛开始了
+**一句话讲的是什么:**阔别 11 年后，野虎和新秀巴纳比·布鲁克斯这对超级英雄搭档的第二季第二场比赛开始了
 
  [https://kotaku.com/embed/inset/iframe?id=youtube-video-OJEOJcwoP68&start=0](https://kotaku.com/embed/inset/iframe?id=youtube-video-OJEOJcwoP68&start=0)
 
@@ -392,11 +392,11 @@
 
 类型:爱情片，喜剧片，生活片
 
-首播日期:11月22日
+首播日期:11 月 22 日
 
 **观看地点:**脆脆卷
 
-**一句话讲的是什么:**一位名叫Nasa Yuzaki的太空爱好者在向一位名叫Tsukasa的神秘女孩表白后，以新婚丈夫的身份进入了他人生的新篇章。
+**一句话讲的是什么:**一位名叫 Nasa Yuzaki 的太空爱好者在向一位名叫 Tsukasa 的神秘女孩表白后，以新婚丈夫的身份进入了他人生的新篇章。
 
  [https://kotaku.com/embed/inset/iframe?id=youtube-video-B7rV6fFERcQ&start=0](https://kotaku.com/embed/inset/iframe?id=youtube-video-B7rV6fFERcQ&start=0)
 
@@ -406,11 +406,11 @@
 
 **类型:**动作、剧情、超自然
 
-**首映日期:**10月23日
+**首映日期:**10 月 23 日
 
 **观看地点:**脆脆卷
 
-**一句话讲的是什么:**长生不老的福士结束了他40年的孤独生活，去拯救他的朋友们免于一场即将到来的流血战争。
+**一句话讲的是什么:**长生不老的福士结束了他 40 年的孤独生活，去拯救他的朋友们免于一场即将到来的流血战争。
 
  [https://kotaku.com/embed/inset/iframe?id=youtube-video-um7Si6ZmeVE&start=0](https://kotaku.com/embed/inset/iframe?id=youtube-video-um7Si6ZmeVE&start=0)
 
@@ -420,11 +420,11 @@
 
 **流派:**超自然
 
-首播日期:9月30日
+首播日期:9 月 30 日
 
 **观看地点:** Hidive
 
-**一句话讲的是什么:**在当今这个愤世嫉俗的时代，一个名叫马梅达的淘气的会变形的塔努基为了表演hijinks而成为了一个落语表演者的学徒。
+**一句话讲的是什么:**在当今这个愤世嫉俗的时代，一个名叫马梅达的淘气的会变形的塔努基为了表演 hijinks 而成为了一个落语表演者的学徒。
 
  [https://kotaku.com/embed/inset/iframe?id=youtube-video-IOe1OPX7DKU&start=0](https://kotaku.com/embed/inset/iframe?id=youtube-video-IOe1OPX7DKU&start=0)
 
@@ -434,11 +434,11 @@
 
 **类型:**喜剧、爱情、科幻
 
-**首映日期:**10月14日
+**首映日期:**10 月 14 日
 
 **观看地点:** Hidive
 
-**一言以蔽之:**2022年翻拍的高桥留美子经典动漫系列 *Urusei Yatsura* ，将改编漫画中精选的故事。影片讲述了一个名叫阿塔鲁·莫罗波希的男孩被错误地许配给了一个名叫卢姆的外星公主。
+**一言以蔽之:**2022 年翻拍的高桥留美子经典动漫系列 *Urusei Yatsura* ，将改编漫画中精选的故事。影片讲述了一个名叫阿塔鲁·莫罗波希的男孩被错误地许配给了一个名叫卢姆的外星公主。
 
  [https://kotaku.com/embed/inset/iframe?id=youtube-video-T5gJ9Xt7skM&start=0](https://kotaku.com/embed/inset/iframe?id=youtube-video-T5gJ9Xt7skM&start=0)
 
@@ -448,11 +448,11 @@
 
 **流派:**喜剧，Ecchi
 
-首映日期:10月1日
+首映日期:10 月 1 日
 
 **观看地点:**脆脆卷
 
-**一句话的内容:**一个名叫樱井新一的大专学生的暑假被一个讨厌的同学Hana Uzaki连根拔起，她邀请自己和他一起出去玩。
+**一句话的内容:**一个名叫樱井新一的大专学生的暑假被一个讨厌的同学 Hana Uzaki 连根拔起，她邀请自己和他一起出去玩。
 
  [https://kotaku.com/embed/inset/iframe?id=youtube-video-YHsQSqkXI-s&start=0](https://kotaku.com/embed/inset/iframe?id=youtube-video-YHsQSqkXI-s&start=0)
 
@@ -462,11 +462,11 @@
 
 **流派:**音乐
 
-**首映日期:**10月4日
+**首映日期:**10 月 4 日
 
 **观看地点:**脆脆卷
 
-**一句话讲的是什么:**一部新的音乐动画，讲述了两个男子偶像团体Vazzy和Rock Down的出道和职业生涯。
+**一句话讲的是什么:**一部新的音乐动画，讲述了两个男子偶像团体 Vazzy 和 Rock Down 的出道和职业生涯。
 
  [https://kotaku.com/embed/inset/iframe?id=youtube-list-HuaCoBXcxLY%2FPLRe9ARNnYSY5d2tU9GFEtIdnhdkj1mx6c&start=0](https://kotaku.com/embed/inset/iframe?id=youtube-list-HuaCoBXcxLY%2FPLRe9ARNnYSY5d2tU9GFEtIdnhdkj1mx6c&start=0) 
 
@@ -474,7 +474,7 @@
 
 **类型:**喜剧、奇幻、超自然
 
-**首映日期:**10月8日
+**首映日期:**10 月 8 日
 
 **观看地点:**脆脆卷
 

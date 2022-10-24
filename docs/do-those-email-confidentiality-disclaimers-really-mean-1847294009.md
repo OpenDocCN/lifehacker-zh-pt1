@@ -1,6 +1,6 @@
 # 那些邮件保密“免责声明”真的意味着什么吗？
 
-> 原文:[https://life hacker . com/do-these-email-confidential-declarations-really-mean-1847294009](https://lifehacker.com/do-those-email-confidentiality-disclaimers-really-mean-1847294009)
+> 原文：<https://lifehacker.com/do-those-email-confidentiality-disclaimers-really-mean-1847294009>
 
 如果你曾经收到过银行、会计师、律师、或医生(或任何数量的其他专业人士)发来的电子邮件，你可能也会在邮件底部看到一条关于保密的免责声明。它可能读到了这样的内容:
 
@@ -12,11 +12,11 @@ Watch
 
 一般来说，要使合同具有法律约束力，双方(在这种情况下，发送方*和*接收方)必须同意合同条款。如果你收到一封不是给你的邮件，你和发件人没有合同。
 
-“电子邮件免责声明通常应该被视为信息的一部分，而不是双方有意签订的合同，”伊利诺伊州律师、协调法律有限责任公司 创始人[Terra Gross说。](https://attuned.legal/our-firm/)
+“电子邮件免责声明通常应该被视为信息的一部分，而不是双方有意签订的合同，”伊利诺伊州律师、协调法律有限责任公司 创始人[Terra Gross 说。](https://attuned.legal/our-firm/)
 
 格罗斯指出，一些法院裁决发现，保密通知和其他免责声明不会在发送者和接收者之间产生有约束力的法律协议。在许多情况下，这些通知可能实际上是为了提供更多信息，帮助收件人理解发件人的角色——例如， [作为授权记者](https://www.childwelfare.gov/topics/systemwide/laws-policies/statutes/manda/) 。
 
-杰克逊else医疗律师事务所 的健康技术和远程医疗律师艾琳·杰克逊说:“如果有什么不同的话，一封电子邮件免责声明可以显示意图。”。"也就是说，它们告诉接收者发送者在想什么，希望什么，想要完成什么."
+杰克逊 else 医疗律师事务所 的健康技术和远程医疗律师艾琳·杰克逊说:“如果有什么不同的话，一封电子邮件免责声明可以显示意图。”。"也就是说，它们告诉接收者发送者在想什么，希望什么，想要完成什么."
 
 例如，保密通知可用于表明您的治疗师为保护您的个人信息做出了合理的努力，或者律师为保护保密通信做出了合理的努力。
 

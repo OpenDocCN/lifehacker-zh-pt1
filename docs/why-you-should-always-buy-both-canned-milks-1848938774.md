@@ -1,8 +1,8 @@
 # 为什么你应该总是买两种罐装牛奶
 
-> 原文:[https://life hacker . com/why-you-should-always-buy-can-milks-1848938774](https://lifehacker.com/why-you-should-always-buy-both-canned-milks-1848938774)
+> 原文：<https://lifehacker.com/why-you-should-always-buy-both-canned-milks-1848938774>
 
-罐装牛奶是雷区。即使你知道甜炼乳和淡炼乳的区别，也很容易买错。不要误会我的意思:他们两个我都爱。加糖炼乳做出一份极好的 [焦糖酱](https://lifehacker.com/make-caramel-from-sweetened-condensed-milk-5894215) (在你的 [慢炖锅](https://lifehacker.com/make-a-no-fuss-caramel-dip-with-a-can-of-condensed-milk-5941290) 或 [即溶锅](https://lifehacker.com/make-this-vegan-one-ingredient-caramel-sauce-in-your-i-1823718112) )、一份 [易批软糖](https://lifehacker.com/make-this-fudge-without-a-candy-thermometer-1821225720) 、一份 [超级简单软糖](https://lifehacker.com/make-super-quick-soft-serve-with-frozen-fruit-and-conde-1786076532) 、一份 [击杀其他美味的](https://lifehacker.com/7-delicious-ways-to-use-that-old-can-of-sweetened-conde-1847428784)；而淡炼乳擅长各种芝士场合，像 [nacho芝士酱](https://lifehacker.com/use-a-can-of-evaporated-milk-for-the-creamiest-nacho-ch-1737667122) ，还有这个 [炉顶通心粉](https://www.seriouseats.com/the-food-labs-ultra-gooey-stovetop-mac-cheese) 。
+罐装牛奶是雷区。即使你知道甜炼乳和淡炼乳的区别，也很容易买错。不要误会我的意思:他们两个我都爱。加糖炼乳做出一份极好的 [焦糖酱](https://lifehacker.com/make-caramel-from-sweetened-condensed-milk-5894215) (在你的 [慢炖锅](https://lifehacker.com/make-a-no-fuss-caramel-dip-with-a-can-of-condensed-milk-5941290) 或 [即溶锅](https://lifehacker.com/make-this-vegan-one-ingredient-caramel-sauce-in-your-i-1823718112) )、一份 [易批软糖](https://lifehacker.com/make-this-fudge-without-a-candy-thermometer-1821225720) 、一份 [超级简单软糖](https://lifehacker.com/make-super-quick-soft-serve-with-frozen-fruit-and-conde-1786076532) 、一份 [击杀其他美味的](https://lifehacker.com/7-delicious-ways-to-use-that-old-can-of-sweetened-conde-1847428784)；而淡炼乳擅长各种芝士场合，像 [nacho 芝士酱](https://lifehacker.com/use-a-can-of-evaporated-milk-for-the-creamiest-nacho-ch-1737667122) ，还有这个 [炉顶通心粉](https://www.seriouseats.com/the-food-labs-ultra-gooey-stovetop-mac-cheese) 。
 
 Watch
 

@@ -1,14 +1,14 @@
 # 告诉学校领导你对“爱国”教育的感受
 
-> 原文:[https://life hacker . com/tell-school-leaders-how-you-feel-about-patriotic-educat-1845139834](https://lifehacker.com/tell-school-leaders-how-you-feel-about-patriotic-educat-1845139834)
+> 原文：<https://lifehacker.com/tell-school-leaders-how-you-feel-about-patriotic-educat-1845139834>
 
-嘿，家长们，你们猜怎么着？川普创建了一个“ [1776委员会](https://www.whitehouse.gov/briefings-statements/remarks-president-trump-white-house-conference-american-history) ”，旨在教导孩子们“关于美国历史的奇迹”他想“捍卫美国建国的遗产、美国英雄的美德和美国人的高尚品格。”换句话说，他想要——毫不夸张地说——重写我们国家的历史，以进一步颂扬拥有奴隶的白人。
+嘿，家长们，你们猜怎么着？川普创建了一个“ [1776 委员会](https://www.whitehouse.gov/briefings-statements/remarks-president-trump-white-house-conference-american-history) ”，旨在教导孩子们“关于美国历史的奇迹”他想“捍卫美国建国的遗产、美国英雄的美德和美国人的高尚品格。”换句话说，他想要——毫不夸张地说——重写我们国家的历史，以进一步颂扬拥有奴隶的白人。
 
 Watch
 
-正如Arwa Mahdawi为《卫报》撰写的一篇题为“ [Trump的1776年委员会证明了美国正在螺旋走向法西斯主义](https://www.theguardian.com/commentisfree/2020/sep/19/trump-1776-commission-proof-america-spiraling-toward-facism) ”:
+正如 Arwa Mahdawi 为《卫报》撰写的一篇题为“ [Trump 的 1776 年委员会证明了美国正在螺旋走向法西斯主义](https://www.theguardian.com/commentisfree/2020/sep/19/trump-1776-commission-proof-america-spiraling-toward-facism) ”:
 
-> 特朗普周四在 的一次 [演讲中宣称:“左翼暴乱和伤害是我们学校几十年左翼思想灌输的直接结果。”。他继续谴责批判种族理论和1619项目，该项目是《纽约时报》获得普利策奖的倡议，旨在通过将奴隶制的后果置于中心来重构美国历史。“对美国历史的讨伐是有害的宣传，将摧毁我们的国家，”他宣布。按照特朗普的说法，拯救美国的唯一方法是彻底修改历史；掩饰暴力的殖民主义和奴隶制，假装美国没有顽固不化。特朗普说，这就是为什么他要成立一个1776年委员会，向学生讲授“美国历史的奇迹”。“奇迹”当然是描述完全虚构的事物的一种方式。](https://www.whitehouse.gov/briefings-statements/remarks-president-trump-white-house-conference-american-history)
+> 特朗普周四在 的一次 [演讲中宣称:“左翼暴乱和伤害是我们学校几十年左翼思想灌输的直接结果。”。他继续谴责批判种族理论和 1619 项目，该项目是《纽约时报》获得普利策奖的倡议，旨在通过将奴隶制的后果置于中心来重构美国历史。“对美国历史的讨伐是有害的宣传，将摧毁我们的国家，”他宣布。按照特朗普的说法，拯救美国的唯一方法是彻底修改历史；掩饰暴力的殖民主义和奴隶制，假装美国没有顽固不化。特朗普说，这就是为什么他要成立一个 1776 年委员会，向学生讲授“美国历史的奇迹”。“奇迹”当然是描述完全虚构的事物的一种方式。](https://www.whitehouse.gov/briefings-statements/remarks-president-trump-white-house-conference-american-history)
 
 在你开始恐慌之前，让我们明确一点:川普实际上不能决定孩子们在学校里学什么，而且联邦政府本身也不能(T1)目前(T2)强制规定课程(T3)。这些都是在州和地方一级做出的决定。正如《华盛顿邮报》所指出的:
 

@@ -1,6 +1,6 @@
 # 如何给绞肉调味
 
-> 原文:[https://life hacker . com/how-to-seasoning-ground-meat-1847150730](https://lifehacker.com/how-to-season-ground-meat-to-taste-1847150730)
+> 原文：<https://lifehacker.com/how-to-season-ground-meat-to-taste-1847150730>
 
 无论你是在做肉丸、烘肉卷，还是其他一些需要对大量生碎肉调味的食物，都很难预测味道的结果，尤其是如果你正在使用一个新的食谱、一个模糊的食谱或一个完全由你自己开发的食谱。
 

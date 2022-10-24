@@ -1,15 +1,15 @@
-# Xbox最好的低调功能变得更好了
+# Xbox 最好的低调功能变得更好了
 
-> 原文:[https://kotaku . com/Xbox-series-x-s-quick-resume-game-pass-improved-feature-1848634488](https://kotaku.com/xbox-series-x-s-quick-resume-game-pass-improved-feature-1848634488)
+> 原文：<https://kotaku.com/xbox-series-x-s-quick-resume-game-pass-improved-feature-1848634488>
 
-Xbox系列X和S有许多生活质量的东西，这些东西在纸面上看起来很小，但在实践中极大地改善了玩游戏的体验。其中之一是快速恢复，这使得同时在几个游戏之间切换变得容易，而新更新的使它更加强大。
+Xbox 系列 X 和 S 有许多生活质量的东西，这些东西在纸面上看起来很小，但在实践中极大地改善了玩游戏的体验。其中之一是快速恢复，这使得同时在几个游戏之间切换变得容易，而新更新的使它更加强大。
 
 Watch
 
 目前，快速恢复可以让你保持一些游戏在后台运行。例如，如果你正在进行 [*光晕:无限*的战役](https://kotaku.com/halo-infinite-the-kotaku-review-1848159022) 并想快速进入一轮*最黑暗地牢*，你可以退出，加载新游戏，然后选择*光晕:无限*随时从你离开的地方返回，而不必重新启动游戏。
 
-但它还远非完美。没有简单的方法来跟踪什么时候把一个新游戏放入快速恢复会启动一个旧游戏，或者选择关闭哪个游戏。微软最新的X/S系列更新添加了一个名为“快速简历”的新功能，以帮助解决这一问题。它可以让你标记最多两个游戏，这样无论如何他们都可以快速恢复。对我来说，这将是目前的 [*【死亡之光2】*](https://kotaku.com/dying-light-2-kotaku-review-zombie-techland-open-world-1848456376)和*远:改变潮汐*(顺便说一下，这是美妙的)。
+但它还远非完美。没有简单的方法来跟踪什么时候把一个新游戏放入快速恢复会启动一个旧游戏，或者选择关闭哪个游戏。微软最新的 X/S 系列更新添加了一个名为“快速简历”的新功能，以帮助解决这一问题。它可以让你标记最多两个游戏，这样无论如何他们都可以快速恢复。对我来说，这将是目前的 [*【死亡之光 2】*](https://kotaku.com/dying-light-2-kotaku-review-zombie-techland-open-world-1848456376)和*远:改变潮汐*(顺便说一下，这是美妙的)。
 
 这在 [游戏通行证](https://kotaku.com/the-12-best-games-on-xbox-game-pass-1841477023) 的上下文中特别有用，在那里我每周换进换出多个新游戏，只是为了尝试它们。虽然不是每个游戏都支持这一功能，但对于那些支持的游戏来说，这基本上是一种自动保存状态，就像 [和智能交付](https://kotaku.com/xbox-smart-delivery-turned-out-to-be-a-pretty-big-deal-1846515502) 一样，它被证明是非常好的。
 
-三月份的更新为Xbox Series X/S带来了快速恢复pin，还添加了一个音频设置工具来帮助自动优化您的声音设置，现在可以让您重新映射Xbox控制器上的共享按钮。现在，如果你能使用分享按钮来抓取主菜单的截图就好了。
+三月份的更新为 Xbox Series X/S 带来了快速恢复 pin，还添加了一个音频设置工具来帮助自动优化您的声音设置，现在可以让您重新映射 Xbox 控制器上的共享按钮。现在，如果你能使用分享按钮来抓取主菜单的截图就好了。

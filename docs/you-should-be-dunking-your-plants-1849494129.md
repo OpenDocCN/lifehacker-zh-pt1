@@ -1,6 +1,6 @@
 # 你应该泡你的植物
 
-> 原文:[https://life hacker . com/you-should-be-dunking-your-plants-1849494129](https://lifehacker.com/you-should-be-dunking-your-plants-1849494129)
+> 原文：<https://lifehacker.com/you-should-be-dunking-your-plants-1849494129>
 
 大多数盆栽植物——无论它们生活在室内还是室外——都需要某种程度的维护。即使是多肉植物、空气植物和其他你可以长期忽视的植物，也需要偶尔浇水。此外，随着时间的推移，污垢、灰尘和其他碎片可能会沉积在树叶上(和下面)。
 

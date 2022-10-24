@@ -1,8 +1,8 @@
 # 如何在冬季防止家中一氧化碳中毒
 
-> 原文:[https://life hacker . com/how-to-prevent-一氧化碳中毒-在你家里-d-1848405325](https://lifehacker.com/how-to-prevent-carbon-monoxide-poisoning-in-your-home-d-1848405325)
+> 原文：<https://lifehacker.com/how-to-prevent-carbon-monoxide-poisoning-in-your-home-d-1848405325>
 
-疾病控制和预防中心(CDC)的 报告称，每年，一氧化碳中毒都会导致2万多名美国人被送进急诊室，其中约4000人住院。此外，超过400名美国人死于无意的一氧化碳中毒(与火灾无关)。
+疾病控制和预防中心(CDC)的 报告称，每年，一氧化碳中毒都会导致 2 万多名美国人被送进急诊室，其中约 4000 人住院。此外，超过 400 名美国人死于无意的一氧化碳中毒(与火灾无关)。
 
 Watch
 
@@ -18,7 +18,7 @@ Watch
 
 一个人一氧化碳中毒的症状取决于空气中的气体含量和接触时间的长短。
 
-根据NSC， [低中度一氧化碳中毒](https://www.nsc.org/home-safety/safety-topics/other-poisons/carbon-monoxide) 的症状可包括:
+根据 NSC， [低中度一氧化碳中毒](https://www.nsc.org/home-safety/safety-topics/other-poisons/carbon-monoxide) 的症状可包括:
 
 *   头痛
 *   乏力
@@ -44,6 +44,6 @@ Watch
 *   请每年对您的烟囱进行专业检查和清洁。
 *   点火前确保你的壁炉挡板是开着的，在火熄灭后也要开着。
 *   千万不要用煤气炉给家里取暖。
-*   不要在家里、地下室或车库里使用发电机，也不要在距离任何窗户、门或通风口不到20英尺的地方使用发电机。
+*   不要在家里、地下室或车库里使用发电机，也不要在距离任何窗户、门或通风口不到 20 英尺的地方使用发电机。
 
-如果你的一氧化碳探测器响了，立即离开你的家，并拨打911。
+如果你的一氧化碳探测器响了，立即离开你的家，并拨打 911。

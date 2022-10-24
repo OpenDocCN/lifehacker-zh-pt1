@@ -1,8 +1,8 @@
 # 为什么你应该预订经济型酒店而不是豪华酒店(除了省钱)
 
-> 原文:[https://life hacker . com/why-you-should-book-a-budget-hotel-over-luxury-lodging-1849011167](https://lifehacker.com/why-you-should-book-a-budget-hotel-over-luxury-lodging-1849011167)
+> 原文：<https://lifehacker.com/why-you-should-book-a-budget-hotel-over-luxury-lodging-1849011167>
 
-随着越来越多的人认为Airbnb不值得花费 这些天，你可能会回到预订酒店作为你今年夏天即将到来的旅行的首选。如果你能负担得起，你可能会自然而然地认为在你的预算内选择最豪华的住宿会更好。但是更高的价格标签真的会带来更高质量的体验吗？(随着全国许多酒店的 [客房服务被削减](https://lifehacker.com/why-hotels-are-quitting-room-service-and-you-should-to-1848637783) ，还有什么能算作*豪华*呢？)
+随着越来越多的人认为 Airbnb 不值得花费 这些天，你可能会回到预订酒店作为你今年夏天即将到来的旅行的首选。如果你能负担得起，你可能会自然而然地认为在你的预算内选择最豪华的住宿会更好。但是更高的价格标签真的会带来更高质量的体验吗？(随着全国许多酒店的 [客房服务被削减](https://lifehacker.com/why-hotels-are-quitting-room-service-and-you-should-to-1848637783) ，还有什么能算作*豪华*呢？)
 
 Watch
 
@@ -12,7 +12,7 @@ Watch
 
 当豪华住宿比经济实惠的选择要贵几百美元时，花点时间分析一下你到底在付什么是值得的。成本的差异未必能准确反映体验的差异。
 
-就个人而言，通常物有所值的“奢侈”的一个方面是清洁。然而，更大的房间成本 [并不一定](https://www.healthyway.com/content/getting-your-moneys-worth-budget-friendly-vs-expensive-hotels/) 导致更高的清洁标准。来自 [TravelMath](https://www.travelmath.com/feature/hotel-hygiene-exposed/) 的一项2016年的小型研究更进一步，发现经济型酒店与五星级酒店一样干净，甚至更干净。
+就个人而言，通常物有所值的“奢侈”的一个方面是清洁。然而，更大的房间成本 [并不一定](https://www.healthyway.com/content/getting-your-moneys-worth-budget-friendly-vs-expensive-hotels/) 导致更高的清洁标准。来自 [TravelMath](https://www.travelmath.com/feature/hotel-hygiene-exposed/) 的一项 2016 年的小型研究更进一步，发现经济型酒店与五星级酒店一样干净，甚至更干净。
 
 话又说回来，如果你能负担得起额外的几百美元，那么挥霍在豪华住宿上的理由是相当明显的。你将为更大的安全感、便利的地理位置以及所有有形的便利设施和无形的氛围买单，这些都让某些东西变得“奢侈”那么，你的决定可以归结为，对你的旅行来说，“奢华”到底有多重要。请继续阅读，重新考虑经济型酒店在您住宿的其他方面的优势。
 
@@ -30,4 +30,4 @@ Watch
 
 如果你是那种把酒店作为最终目的地的人——完全正确！—那就放纵一下吧。但是正如积分专家 所说，更便宜的酒店有一个最大的无形好处:可控预期。豪华住宿可能会让你觉得每样小商品都物有所值，而经济型酒店有可能在你入住期间一次又一次给你惊喜。
 
-此外，如果你独自旅行，并想结识T2 T3，预算友好的空间比人们在豪华酒店花钱购买的隐私和安静要好得多。
+此外，如果你独自旅行，并想结识 T2 T3，预算友好的空间比人们在豪华酒店花钱购买的隐私和安静要好得多。

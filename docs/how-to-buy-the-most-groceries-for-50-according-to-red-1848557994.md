@@ -1,8 +1,8 @@
-# 据Reddit报道，如何用50美元买到最多的杂货
+# 据 Reddit 报道，如何用 50 美元买到最多的杂货
 
-> 原文:[https://life hacker . com/how-to-buy-the-most-food-50-by-red-1848557994](https://lifehacker.com/how-to-buy-the-most-groceries-for-50-according-to-red-1848557994)
+> 原文：<https://lifehacker.com/how-to-buy-the-most-groceries-for-50-according-to-red-1848557994>
 
-食品杂货可能会很贵，即使你没有买什么特别的东西。因此，当一位redditor问如何在上周 的杂货店赚到50美元时，社区提供了大量便宜的(而且通常是健康的！)用餐思路。
+食品杂货可能会很贵，即使你没有买什么特别的东西。因此，当一位 redditor 问如何在上周 的杂货店赚到 50 美元时，社区提供了大量便宜的(而且通常是健康的！)用餐思路。
 
 Watch
 
@@ -26,7 +26,7 @@ Watch
 
 肉类往往比谷物和蔬菜更贵，但它们也富含蛋白质，而且容易让人产生饱腹感。一些评论者建议不要吃肉；其他人对他们深信不疑。
 
-如果你买肉，鸡腿是最划算的，尤其是如果你喜欢吃鸡皮的话。请记住，尽管鸡胸肉被认为更“健康”，但那是 [，因为它的卡路里](https://lifehacker.com/healthy-eating-is-not-the-same-as-dieting-1847957005) 更低。当你试图增加你的食品预算时，买一种便宜又高T4卡路里的食物是对金钱的一种很好的利用。
+如果你买肉，鸡腿是最划算的，尤其是如果你喜欢吃鸡皮的话。请记住，尽管鸡胸肉被认为更“健康”，但那是 [，因为它的卡路里](https://lifehacker.com/healthy-eating-is-not-the-same-as-dieting-1847957005) 更低。当你试图增加你的食品预算时，买一种便宜又高 T4 卡路里的食物是对金钱的一种很好的利用。
 
 其他负担得起的肉类包括整只鸡(如果你不介意把它们切碎或整只烤着吃)、炖肉和碎牛肉，尤其是高脂肪的选择(记住，脂肪多是好事)。
 

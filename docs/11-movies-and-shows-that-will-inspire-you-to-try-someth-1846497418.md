@@ -1,10 +1,10 @@
-# 11部能激发你尝试新事物的电影和电视剧
+# 11 部能激发你尝试新事物的电影和电视剧
 
-> 原文:[https://life hacker . com/11-会激发你尝试的电影和节目-1846497418](https://lifehacker.com/11-movies-and-shows-that-will-inspire-you-to-try-someth-1846497418)
+> 原文：<https://lifehacker.com/11-movies-and-shows-that-will-inspire-you-to-try-someth-1846497418>
 
 我们看的电影和电视不仅仅是娱乐— [它们有能力影响我们的行为](https://www.nytimes.com/2019/07/25/upshot/social-effects-television.html) 。鼓舞人心的人物和故事情节可以教会我们一些新的东西，并激励我们改变我们的思维，甚至我们的生活。这种改变甚至不一定是深刻的——它可能只是鼓励你学习一项新技能。
 
-自己？我看了经典电影*A League of Own，*讲述了第一个女子棒球联赛的故事，当时我还是个孩子。我从三年级一直到高中都在打垒球。这里有11部电视节目和电影会激励你尝试不同的东西。
+自己？我看了经典电影*A League of Own，*讲述了第一个女子棒球联赛的故事，当时我还是个孩子。我从三年级一直到高中都在打垒球。这里有 11 部电视节目和电影会激励你尝试不同的东西。
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video--YBpoBzWW4g&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video--YBpoBzWW4g&start=0) 
 
@@ -14,7 +14,7 @@
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-an7-gDMOe4s&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-an7-gDMOe4s&start=0) 
 
-说到米歇尔·罗德里格兹，她在另一部鼓舞人心的体育剧中首次亮相，那是Karyn kaus ama 2000年的电影《少女战争》。她扮演戴安娜·古兹曼，她与父亲和弟弟住在纽约市的低收入住房里。当古兹曼的父亲强迫她的弟弟开始打拳击时，她与他达成了一项协议:她将接管他的拳击课，这样他就可以专注于学校和他喜欢的事情，而不会被他们的父亲发现。问题是业余拳击联盟从来没有女拳击手。古兹曼努力打入联盟，同时打击她父亲的虐待行为。唯一一个愿意和她对打的男孩成了她的新欢，我们陷入了古兹曼，她的训练伙伴和她对拳击的热爱之间的单恋故事。古兹曼的大胆和坚韧是有感染力的。如果你在看完这部电影后购买了一副手套和一张拳击馆的会员卡，请不要惊讶。
+说到米歇尔·罗德里格兹，她在另一部鼓舞人心的体育剧中首次亮相，那是 Karyn kaus ama 2000 年的电影《少女战争》。她扮演戴安娜·古兹曼，她与父亲和弟弟住在纽约市的低收入住房里。当古兹曼的父亲强迫她的弟弟开始打拳击时，她与他达成了一项协议:她将接管他的拳击课，这样他就可以专注于学校和他喜欢的事情，而不会被他们的父亲发现。问题是业余拳击联盟从来没有女拳击手。古兹曼努力打入联盟，同时打击她父亲的虐待行为。唯一一个愿意和她对打的男孩成了她的新欢，我们陷入了古兹曼，她的训练伙伴和她对拳击的热爱之间的单恋故事。古兹曼的大胆和坚韧是有感染力的。如果你在看完这部电影后购买了一副手套和一张拳击馆的会员卡，请不要惊讶。
 
 **在哪里播放:**黄金视频
 
@@ -38,9 +38,9 @@
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-0A-O1MJAl9E&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-0A-O1MJAl9E&start=0) 
 
-*一个属于自己的联盟*是以20世纪40年代初开始的第一个 [全美女子职业棒球联盟](https://en.wikipedia.org/wiki/All-American_Girls_Professional_Baseball_League) (AAGPBL)为基础的。姐妹多蒂·辛森(吉娜·戴维斯饰)和基特·凯勒(洛里·佩蒂饰)一时兴起加入了联盟，并在多蒂的才华和引人注目的风格使她成为明星后成为竞争对手，妨碍了他们的关系。这些女子经过严格的训练，学习如何滑入垒垒(穿着裙子)以及如何在人群中表演。他们的队友，由麦当娜和罗茜·欧唐内这样的人扮演，以及他们脾气暴躁的经理汤姆·汉克斯，变得像家人一样互相教导。如果你和我一样，这本书会让你想要抓起球棒和手套，融入团队精神。
+*一个属于自己的联盟*是以 20 世纪 40 年代初开始的第一个 [全美女子职业棒球联盟](https://en.wikipedia.org/wiki/All-American_Girls_Professional_Baseball_League) (AAGPBL)为基础的。姐妹多蒂·辛森(吉娜·戴维斯饰)和基特·凯勒(洛里·佩蒂饰)一时兴起加入了联盟，并在多蒂的才华和引人注目的风格使她成为明星后成为竞争对手，妨碍了他们的关系。这些女子经过严格的训练，学习如何滑入垒垒(穿着裙子)以及如何在人群中表演。他们的队友，由麦当娜和罗茜·欧唐内这样的人扮演，以及他们脾气暴躁的经理汤姆·汉克斯，变得像家人一样互相教导。如果你和我一样，这本书会让你想要抓起球棒和手套，融入团队精神。
 
-**流媒体播放地点:** 数码租赁，包括Prime Video、Apple TV、YouTube
+**流媒体播放地点:** 数码租赁，包括 Prime Video、Apple TV、YouTube
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-P6ZxASdQkVU&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-P6ZxASdQkVU&start=0) 
 
@@ -50,7 +50,7 @@
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-3lfkVT0HezM&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-3lfkVT0HezM&start=0) 
 
-《美食网络之星》是由厨师吉娅达·德·劳伦蒂斯和巴比·福雷主持的一项全国性比赛，有希望的电视厨师们在比赛中争夺在《美食网络》主持他们自己的烹饪节目的席位。参赛者接受挑战，比如烹饪一道可上传的菜肴，然后将其发布到社交媒体上，以测试他们的在线参与技能。他们还拍摄烹饪片段，同时评委们评论他们的选择。你有机会看到厨师的电视宣传，看看他们如何制作和传播自己的个人品牌。它让你想去厨房，然后上网，看看你作为一名Instagram厨师如何公平。
+《美食网络之星》是由厨师吉娅达·德·劳伦蒂斯和巴比·福雷主持的一项全国性比赛，有希望的电视厨师们在比赛中争夺在《美食网络》主持他们自己的烹饪节目的席位。参赛者接受挑战，比如烹饪一道可上传的菜肴，然后将其发布到社交媒体上，以测试他们的在线参与技能。他们还拍摄烹饪片段，同时评委们评论他们的选择。你有机会看到厨师的电视宣传，看看他们如何制作和传播自己的个人品牌。它让你想去厨房，然后上网，看看你作为一名 Instagram 厨师如何公平。
 
 **流向哪里:** Hulu
 
@@ -62,7 +62,7 @@
 
  [https://lifehacker.com/embed/inset/iframe?id=youtube-video-USqLBUyW7EU&start=0](https://lifehacker.com/embed/inset/iframe?id=youtube-video-USqLBUyW7EU&start=0) 
 
-在这个系列中，承包商和设计师布莱恩和米卡·克莱恩施密特着手在100天或更短的时间内建造客户的梦想家园。这对夫妻二人组与最近准备定制建造他们永久家园的土地所有者一起工作。Mika和业主一起参观房屋，寻找布局和装饰的灵感，而丈夫Brian则绘制蓝图。这对夫妇有着惊人的工作关系和美好的审美观。他们建造的房屋布局为大小家庭提供了空间。当你看着他们在短短三个多月的时间里从无到有建造了一个家，你会想要学习如何建造你自己梦想中的家。
+在这个系列中，承包商和设计师布莱恩和米卡·克莱恩施密特着手在 100 天或更短的时间内建造客户的梦想家园。这对夫妻二人组与最近准备定制建造他们永久家园的土地所有者一起工作。Mika 和业主一起参观房屋，寻找布局和装饰的灵感，而丈夫 Brian 则绘制蓝图。这对夫妇有着惊人的工作关系和美好的审美观。他们建造的房屋布局为大小家庭提供了空间。当你看着他们在短短三个多月的时间里从无到有建造了一个家，你会想要学习如何建造你自己梦想中的家。
 
 **流向哪里:** Hulu
 

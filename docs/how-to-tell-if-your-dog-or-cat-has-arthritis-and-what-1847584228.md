@@ -1,6 +1,6 @@
 # 如何判断你的狗或猫是否有关节炎(以及如何应对)
 
-> 原文:[https://life hacker . com/how-to-tell if your ' s dog-or-cat ' s a-arthritis and-what-1847584228](https://lifehacker.com/how-to-tell-if-your-dog-or-cat-has-arthritis-and-what-1847584228)
+> 原文：<https://lifehacker.com/how-to-tell-if-your-dog-or-cat-has-arthritis-and-what-1847584228>
 
 就像人一样，我们的宠物也会患上关节炎，如果管理不当，会对它们的生活质量产生重大影响。虽然随着宠物年龄的增长，速度会不可避免地慢下来，但我们通常认为与年龄增长相关的一些迹象是，事实上，是由于关节炎。 [又称退化性关节疾病，当关节中的软骨侵蚀](https://www.petmd.com/dog/centers/nutrition/evr_multi_how-to-recognize-arthritis-signs-in-pets) ，导致骨骼摩擦骨骼的疼痛状态时，就会出现关节炎。
 
@@ -12,7 +12,7 @@ Watch
 
 不幸的是，我们的宠物不能告诉我们发生了什么，这意味着我们必须特别注意任何表明有问题的行为变化。对于关节炎，这意味着观察你的宠物是否有迹象表明它们不像以前那样行动自如了，或者它们可能感到疼痛。这对猫来说尤其困难，它们往往表现得好像它们很好，直到它变得真正*明显它们并不好。*
 
-根据PetMD， [七种迹象你的猫或狗可能有关节炎](https://www.petmd.com/dog/slideshows/care/7-signs-of-arthritis-in-dogs-cats#slide-8) 包括:
+根据 PetMD， [七种迹象你的猫或狗可能有关节炎](https://www.petmd.com/dog/slideshows/care/7-signs-of-arthritis-in-dogs-cats#slide-8) 包括:
 
 *   L 撞击
 *   四处走动很困难

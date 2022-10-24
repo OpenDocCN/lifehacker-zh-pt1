@@ -1,6 +1,6 @@
 # 如何在你的植物上使用厨房废料，而不必学习堆肥
 
-> 原文:[https://life hacker . com/how-to-use-kitchen-scrap-on-your-plants-without-1847223657](https://lifehacker.com/how-to-use-kitchen-scraps-on-your-plants-without-having-1847223657)
+> 原文：<https://lifehacker.com/how-to-use-kitchen-scraps-on-your-plants-without-having-1847223657>
 
 我们应该首先说我们是*而不是*反对堆肥。事实上，我们有几篇文章带你走过[堆肥](https://lifehacker.com/how-to-get-started-composting-1830416203) 的过程。在一个完美的世界里，每个人都有时间、精力和空间拥有自己的堆肥堆或容器，然后用成品来帮助他们的植物生长。
 
@@ -8,7 +8,7 @@ Watch
 
 但是对许多人来说，出于许多原因，最好的堆肥意图并不一定转化为真正花时间来堆肥。这听起来像是你的免费植物营养的梦想永远不会成为现实，但事实并非如此。
 
-在完全不堆肥和大量堆肥之间有一个中间地带:用(不堆肥的)食物残渣代替。米歇尔乌尔曼在为BobVila.com撰写的文章 [中提供了一些食物的例子，这些食物从喂养你到种植你的植物。](https://www.bobvila.com/slideshow/13-kitchen-leftovers-that-are-good-for-your-plants-580095)
+在完全不堆肥和大量堆肥之间有一个中间地带:用(不堆肥的)食物残渣代替。米歇尔乌尔曼在为 BobVila.com 撰写的文章 [中提供了一些食物的例子，这些食物从喂养你到种植你的植物。](https://www.bobvila.com/slideshow/13-kitchen-leftovers-that-are-good-for-your-plants-580095)
 
 ## 香蕉皮可以帮助植物形成健康的根
 

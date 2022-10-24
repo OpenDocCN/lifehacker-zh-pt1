@@ -1,6 +1,6 @@
 # 如何停止说“喜欢”(以及其他令人分心的填充词)
 
-> 原文:[https://life hacker . com/how-to-stop-saying-like-and-other-distracting-filler-w-1848715699](https://lifehacker.com/how-to-stop-saying-like-and-other-distracting-filler-w-1848715699)
+> 原文：<https://lifehacker.com/how-to-stop-saying-like-and-other-distracting-filler-w-1848715699>
 
 如果你曾经听过某人，喜欢，在他们说的每一句话中加入，像，T2，没完没了的一连串喜欢，嗯，或啊，你知道这可能会分散注意力，不管公平与否，可能会削弱他们说的话。当我们紧张、心烦意乱或不知道接下来该说什么时，我们都会偶尔依靠语言拐杖，或学者所说的“不流利”。但是当这些语言抽搐主宰我们的言语时，我们试图传达的信息就会受到影响。我们大多数人都这样做——很多次。
 
@@ -28,7 +28,7 @@ Watch
 
 ## 给自己一些小的口语挑战
 
-在自己舒适的家中，在风险较低的地方，挑战自己，就随机话题即兴发言一到两分钟。正如 [Ramona J. Smith](https://www.ramonajsmith.com/) ，演讲会2018年公开演讲世界冠军，告诉 [真实简单](https://www.realsimple.com/work-life/life-strategies/stop-staying-filler-words) ，“空闲时间练习即兴演讲。选择一个随机的话题或事物，即兴谈论至少一分钟，挑战自己不要使用拐杖语。
+在自己舒适的家中，在风险较低的地方，挑战自己，就随机话题即兴发言一到两分钟。正如 [Ramona J. Smith](https://www.ramonajsmith.com/) ，演讲会 2018 年公开演讲世界冠军，告诉 [真实简单](https://www.realsimple.com/work-life/life-strategies/stop-staying-filler-words) ，“空闲时间练习即兴演讲。选择一个随机的话题或事物，即兴谈论至少一分钟，挑战自己不要使用拐杖语。
 
 ## 找一个朋友大声说出来
 

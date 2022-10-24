@@ -1,14 +1,14 @@
 # 你应该烤一个不可思议的三明治
 
-> 原文:[https://life hacker . com/you-should-waffle-an-uncrusted-sandwich-1846623423](https://lifehacker.com/you-should-waffle-an-uncrustable-sandwich-1846623423)
+> 原文：<https://lifehacker.com/you-should-waffle-an-uncrustable-sandwich-1846623423>
 
 在我进入青春期之前，几乎每个主要杂货店的冷冻区都有不可信任的东西，但直到昨天下午我才拥有一个。虽然我小时候讨厌面包皮，我也讨厌果冻、果酱和任何晃动的食物，但真正的绊脚石是我妈妈不喜欢买白面包。(如果你面对的是一个挑食的人，请相信 heart: T 他们很可能会长大，他们长大后会变成我。)
 
 Watch
 
-现在我有了两个不可信任的人，其中一个是胡说八道的，如果我说我不喜欢这种经历，那我是在撒谎。没有褶皱的三明治尝起来就像其他用柔软有弹性的白面包做的PB&J。它不坏，但它相当不起眼，肯定不会比你自己做的味道更好。除非你的孩子不断要求喂食，否则你可能会认为你对这种特殊的方便食品没有任何用处，但你错了。不可预测的事物有可能成为美味佳肴——它们只需要一点小小的变化。
+现在我有了两个不可信任的人，其中一个是胡说八道的，如果我说我不喜欢这种经历，那我是在撒谎。没有褶皱的三明治尝起来就像其他用柔软有弹性的白面包做的 PB&J。它不坏，但它相当不起眼，肯定不会比你自己做的味道更好。除非你的孩子不断要求喂食，否则你可能会认为你对这种特殊的方便食品没有任何用处，但你错了。不可预测的事物有可能成为美味佳肴——它们只需要一点小小的变化。
 
-我不能因为这个美丽的想法而居功。事实上，我在很大程度上已经忘记了不可思议的事情，直到托起 [的那些才华横溢的女士们在她们的Instagram上发布了一张华夫饼三明治](https://www.instagram.com/p/CKo53Z1htN3/?igshid=1hpmo93mi3wtd) 的照片。(这还不是山姆和莫莉对不可信任的谈话的全部贡献——[他们的播客](https://theholdup.libsyn.com/uncrustables) 的一整集都是关于三明治的，而且它的专利法话题比人们想象的要多得多。)
+我不能因为这个美丽的想法而居功。事实上，我在很大程度上已经忘记了不可思议的事情，直到托起 [的那些才华横溢的女士们在她们的 Instagram 上发布了一张华夫饼三明治](https://www.instagram.com/p/CKo53Z1htN3/?igshid=1hpmo93mi3wtd) 的照片。(这还不是山姆和莫莉对不可信任的谈话的全部贡献——[他们的播客](https://theholdup.libsyn.com/uncrustables) 的一整集都是关于三明治的，而且它的专利法话题比人们想象的要多得多。)
 
  [https://lifehacker.com/embed/inset/iframe?id=instagram-CKo53Z1htN3&autosize=1](https://lifehacker.com/embed/inset/iframe?id=instagram-CKo53Z1htN3&autosize=1) 
 

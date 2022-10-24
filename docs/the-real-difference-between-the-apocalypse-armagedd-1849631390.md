@@ -1,8 +1,8 @@
 # “天启”、“世界末日”和“末日”的真正区别
 
-> 原文:[https://life hacker . com/the-real-difference-tham geddy-1849631390](https://lifehacker.com/the-real-difference-between-the-apocalypse-armagedd-1849631390)
+> 原文：<https://lifehacker.com/the-real-difference-between-the-apocalypse-armagedd-1849631390>
 
-我们每天都要面对大量的坏消息，这很容易让人觉得我们生活在末世——也许我们确实是这样。我们肯定会说我们生活在一个反乌托邦里，到处乱说诸如“天启”和“世界末日”但是那些话是什么意思呢？它们是一回事吗？还有w 关于末日的帽子？
+我们每天都要面对大量的坏消息，这很容易让人觉得我们生活在末世——也许我们确实是这样。我们肯定会说我们生活在一个反乌托邦里，到处乱说诸如“天启”和“世界末日”但是那些话是什么意思呢？它们是一回事吗？还有 w 关于末日的帽子？
 
 Watch
 

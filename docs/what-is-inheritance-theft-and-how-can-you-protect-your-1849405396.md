@@ -1,6 +1,6 @@
 # 什么是遗产盗窃(以及如何保护你的钱)？
 
-> 原文:[https://life hacker . com/what-is-inheritance-theft-and-how-can-you-protect-your-1849405396](https://lifehacker.com/what-is-inheritance-theft-and-how-can-you-protect-your-1849405396)
+> 原文：<https://lifehacker.com/what-is-inheritance-theft-and-how-can-you-protect-your-1849405396>
 
 如果你死后有金钱、财产或其他资产可以继承，或者如果你是一个期望从亲戚那里继承遗产的受益人，你会希望确保所有的财产都按照计划进行分配。
 

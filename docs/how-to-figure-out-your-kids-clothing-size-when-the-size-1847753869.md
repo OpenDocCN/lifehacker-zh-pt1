@@ -1,8 +1,8 @@
 # 当尺码毫无意义时，如何计算出孩子的衣服尺码
 
-> 原文:[https://life hacker . com/how-to-figure-out-of-your-kids-clothing-size-when-size-1847753869](https://lifehacker.com/how-to-figure-out-your-kids-clothing-size-when-the-size-1847753869)
+> 原文：<https://lifehacker.com/how-to-figure-out-your-kids-clothing-size-when-the-size-1847753869>
 
-如果你给一个孩子穿了一段时间的衣服，毫无疑问，你会意识到他们的年龄并不总是与他们“应该”穿的衣服尺寸相对应(例如，三岁了，但不适合3T的尺寸)，并且服装品牌之间有很多差异。你的孩子在塔吉特百货可能穿7/8码的衬衫，但在沃尔玛却是6码。他们的裤子尺寸甚至可能与他们的*短裤*尺寸不一致——来自同一个品牌。加入欧洲尺寸，和...你头痛了吗？
+如果你给一个孩子穿了一段时间的衣服，毫无疑问，你会意识到他们的年龄并不总是与他们“应该”穿的衣服尺寸相对应(例如，三岁了，但不适合 3T 的尺寸)，并且服装品牌之间有很多差异。你的孩子在塔吉特百货可能穿 7/8 码的衬衫，但在沃尔玛却是 6 码。他们的裤子尺寸甚至可能与他们的*短裤*尺寸不一致——来自同一个品牌。加入欧洲尺寸，和...你头痛了吗？
 
 Watch
 
@@ -10,7 +10,7 @@ Watch
 
 ## 关注尺寸而不是年龄
 
-而一个的通用尺码表可能有用，因为品牌之间存在这样的波动，最佳的方法是单独参考每个品牌的在线尺码表。(事实上，最好的方法是试穿所有的衣服，但是谁有时间这样做呢——尤其是当一些品牌，比如Hanna Andersson和Mini Boden，在这个国家几乎没有零售店的时候。)
+而一个的通用尺码表可能有用，因为品牌之间存在这样的波动，最佳的方法是单独参考每个品牌的在线尺码表。(事实上，最好的方法是试穿所有的衣服，但是谁有时间这样做呢——尤其是当一些品牌，比如 Hanna Andersson 和 Mini Boden，在这个国家几乎没有零售店的时候。)
 
 确保使用身高和体重测量值，而不是年龄，来为您的孩子确定最佳尺寸选项。如果你看到以厘米为单位的尺寸，查阅一下 [国际尺寸表](https://www.sizeguide.net/childrens-clothing-sizes-international-conversion-chart.html) 。
 
@@ -24,16 +24,16 @@ Watch
 
 好吧，不止一个词:还有紧身裤、慢跑裤、弹力袖口，看在上帝的份上，不要穿紧身连衣裤。基本上任何有弹性和宽松的内置弹性。如果你的孩子是中号，或者如果你正在尝试一个新品牌，没有拉链的腰围*是最安全的选择。穿脱自如的衣服有助于减轻纽扣、摁扣和扣子不合适的僵硬感。*
 
-[拉带腰带](https://oldnavy.gap.com/browse/product.do?pid=553847012&vid=1&tid=onpl000017&kwid=1&ap=7&gclid=Cj0KCQjw18WKBhCUARIsAFiW7JzzeJ6wx_Mb6McRIFp_PXli7RJmY772XfC76OC6jM902fxYLrDx69QaAid_EALw_wcB&gclsrc=aw.ds#pdp-page-content) 既能拉伸*又能收紧*；它们可以折叠一次，以消除额外的一英寸的潜在聚束。而且就算 [弹力袖口](https://www.target.com/p/boys-stretch-pull-on-jogger-fit-pants-cat-jack/-/A-54555133) 的easy fit慢跑者太长，还是不会垂到脚踝以下。努夫说，除非切断孩子的血液循环已经提上日程，否则就不要穿紧身牛仔裤。
+[拉带腰带](https://oldnavy.gap.com/browse/product.do?pid=553847012&vid=1&tid=onpl000017&kwid=1&ap=7&gclid=Cj0KCQjw18WKBhCUARIsAFiW7JzzeJ6wx_Mb6McRIFp_PXli7RJmY772XfC76OC6jM902fxYLrDx69QaAid_EALw_wcB&gclsrc=aw.ds#pdp-page-content) 既能拉伸*又能收紧*；它们可以折叠一次，以消除额外的一英寸的潜在聚束。而且就算 [弹力袖口](https://www.target.com/p/boys-stretch-pull-on-jogger-fit-pants-cat-jack/-/A-54555133) 的 easy fit 慢跑者太长，还是不会垂到脚踝以下。努夫说，除非切断孩子的血液循环已经提上日程，否则就不要穿紧身牛仔裤。
 
 ## **节俭(或使用服装交换网站)**
 
 虽然它不能直接解决尺码问题，但买二手童装或交换童装，可以减轻每季花费数百美元购买新衣服的痛苦，只为了让你的孩子在你脱下标签后迅速成长。
 
-除了善意、寄售商店、旧货出售、Craigslist、脸书市场，以及我们最喜欢的二手货，这里还有一些其他的选择: [Kidizen](https://www.kidizen.com/) 让父母购买二手衣服，并可以选择建立一个在线商店来出售他们自己的衣服。去看看ThredUp的 [like-new儿童服装店](https://www.thredup.com/kids) 和[Swoondle Society](https://www.swoondlesociety.com/)，在那里，每月缴纳15美元的会员费，你就可以用你小宝贝的旧衣服换取点数，挑选你需要的款式和尺码。
+除了善意、寄售商店、旧货出售、Craigslist、脸书市场，以及我们最喜欢的二手货，这里还有一些其他的选择: [Kidizen](https://www.kidizen.com/) 让父母购买二手衣服，并可以选择建立一个在线商店来出售他们自己的衣服。去看看 ThredUp 的 [like-new 儿童服装店](https://www.thredup.com/kids) 和[Swoondle Society](https://www.swoondlesociety.com/)，在那里，每月缴纳 15 美元的会员费，你就可以用你小宝贝的旧衣服换取点数，挑选你需要的款式和尺码。
 
 ## 当有疑问时，估量一下
 
-无论你买的衣服是太小还是太大，都令人讨厌。至少当它们太大时，你可以选择储存它们以备后用(这样你就不用再跑一趟塔吉特或UPS了)。我们的建议是量出尺寸，并留意哪些布料可能缩水。
+无论你买的衣服是太小还是太大，都令人讨厌。至少当它们太大时，你可以选择储存它们以备后用(这样你就不用再跑一趟塔吉特或 UPS 了)。我们的建议是量出尺寸，并留意哪些布料可能缩水。
 
 说到这里，买童鞋也没什么意思。点击 查看 [如何让鞋码更易管理。](https://lifehacker.com/how-to-figure-out-your-kids-shoe-size-1843464064)

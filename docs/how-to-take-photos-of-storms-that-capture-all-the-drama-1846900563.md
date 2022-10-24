@@ -1,12 +1,12 @@
 # 如何拍摄捕捉所有戏剧性的风暴照片
 
-> 原文:[https://life hacker . com/how-to-take-photos-the-capture-all-the-drama-1846900563](https://lifehacker.com/how-to-take-photos-of-storms-that-capture-all-the-drama-1846900563)
+> 原文：<https://lifehacker.com/how-to-take-photos-of-storms-that-capture-all-the-drama-1846900563>
 
 每个人都有自己的人生目标。对一些人来说，这是爬山或写小说。对另一些人来说，这是拍摄极端天气的照片，随后出现在当地的天气预报中。问题是，拍摄一张即将到来的风暴或云形成的高质量照片并不像听起来那么容易。事实上，大多数结果都不太好。
 
 Watch
 
-但是改善的方法还是有的， [KXAN奥斯汀有几个建议](https://www.kxan.com/weather/how-to-take-severe-weather-photos-like-a-pro-and-get-them-on-tv/) 。这里有一些捕捉天空变化的技巧。
+但是改善的方法还是有的， [KXAN 奥斯汀有几个建议](https://www.kxan.com/weather/how-to-take-severe-weather-photos-like-a-pro-and-get-them-on-tv/) 。这里有一些捕捉天空变化的技巧。
 
 ### 安全
 
@@ -14,7 +14,7 @@ Watch
 
 ### 检查照明
 
-像其他类型的照片一样，照明可以成就或破坏恶劣天气的拍摄。以下是KXAN公司 [的人如何建议](https://www.kxan.com/weather/how-to-take-severe-weather-photos-like-a-pro-and-get-them-on-tv/) 确保你的照明是正确的:
+像其他类型的照片一样，照明可以成就或破坏恶劣天气的拍摄。以下是 KXAN 公司 [的人如何建议](https://www.kxan.com/weather/how-to-take-severe-weather-photos-like-a-pro-and-get-them-on-tv/) 确保你的照明是正确的:
 
 > 为了避免这种情况，大多数智能手机(如果它们在相机应用程序中设置了自动设置)都允许你在拍照前点击屏幕的不同区域来调整光线。轻按暗区域将使图像的某些部分变亮，轻按亮区域将使图像的某些部分变暗。视频也是如此。
 
@@ -22,7 +22,7 @@ Watch
 
 ### 保持焦点对准
 
-如果你的照片特写了一些东西——比如一个大冰雹——一定要多花一两秒钟来对焦。下面是 [KXAN再给](https://www.kxan.com/weather/how-to-take-severe-weather-photos-like-a-pro-and-get-them-on-tv/) 一个提示:
+如果你的照片特写了一些东西——比如一个大冰雹——一定要多花一两秒钟来对焦。下面是 [KXAN 再给](https://www.kxan.com/weather/how-to-take-severe-weather-photos-like-a-pro-and-get-them-on-tv/) 一个提示:
 
 > 类似于调节灯光，在相机应用程序中点击屏幕的不同区域会将你点击的区域置于焦点上。当你准备好了，点击你照片的主题，让你的智能手机相机来锁定它。确保你也尽可能地站着不动，以防止模糊。
 
