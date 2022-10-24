@@ -4,7 +4,7 @@
 
 跟踪你吃的食物中的卡路里和常量营养素 [可以帮助你达到你的营养相关目标](https://lifehacker.com/how-to-track-your-food-without-counting-calories-1832649187) ，从体重减轻，到体重增加，到试图更好地控制你的蛋白质和维生素摄入量。为了准确测量这些信息，你需要一个食物秤。但是然后呢？
 
-Watch
+
 
 ## 如何使用秤追踪食物
 

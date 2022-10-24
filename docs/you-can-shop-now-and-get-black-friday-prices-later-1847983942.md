@@ -4,7 +4,7 @@
 
 你不需要等到黑色星期五才能买到最划算的东西——尤其是今年的 [你可能不想等那么久才开始](https://lifehacker.com/how-to-plan-for-slower-more-expensive-mail-service-thi-1847839708) 。一些主要零售商提供价格匹配保证，可以追溯适用；通过现在购买礼物，你将更有可能在流行商品还在库存的时候买到它们， [，因为商店要处理由于大流行相关的供应链问题而造成的有限库存](https://www.wsj.com/articles/stores-to-customers-behind-on-christmas-shopping-supply-chain-11635375486) 。
 
-Watch
+
 
 ## **什么是价格匹配？**
 

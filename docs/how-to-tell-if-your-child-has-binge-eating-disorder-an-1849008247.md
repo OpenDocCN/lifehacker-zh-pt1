@@ -4,7 +4,7 @@
 
 [疫情对任何人的心理健康都不仁慈](https://mhanational.org/issues/state-mental-health-america) 不幸的是，儿童的心理健康危机一直呈上升趋势， [包括饮食失调](https://lifehacker.com/how-to-recognize-signs-of-an-eating-disorder-in-kids-an-1848651214) 。虽然厌食症(通常表现为对食物的限制)是人们谈论最多的饮食障碍，但暴食症也会对孩子的生活产生负面影响，导致终身健康问题。以下是如果你怀疑你的孩子可能患有暴饮暴食症，应该寻找什么— 和做什么— 。
 
-Watch
+
 
 ## 暴食症有哪些迹象？
 

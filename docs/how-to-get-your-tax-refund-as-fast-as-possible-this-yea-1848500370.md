@@ -4,7 +4,7 @@
 
 如果你是仍在等待 2020 年回报的不幸纳税人之一，不要指望今年会有任何好转。 [众多消息来源](https://www.washingtonpost.com/business/2022/02/04/tax-season-2022-refund-return-backlog-advice/) 有 [报道](https://www.cbsnews.com/news/tax-refund-when-get-irs-returns-2022-02-04/)2022 年报税季将再次充满重大延误。财政部 [在今年年初](https://www.washingtonpost.com/us-policy/2022/01/10/treasury-irs-filing-season/) 警告称，国税局将面临“巨大的挑战”，这主要是由于去年积压的未处理申报表以及其他问题。
 
-Watch
+
 
 尽管如此，面对人手不足的处理大量积压的工作、削减预算以及其他肯定会导致挫折的挑战，你还是可以采取一些措施来最大限度地减少挫折感。考虑到[2020 纳税年度的平均纳税申报表是 2827 美元](https://www.bankrate.com/taxes/average-tax-return/) ，你有很好的理由想要尽快改变这一大块。以下是你可以做的，以尝试在 21 天内收到你的退税。
 

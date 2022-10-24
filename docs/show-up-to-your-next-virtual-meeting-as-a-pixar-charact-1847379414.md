@@ -4,7 +4,7 @@
 
 听着，去年我们都在视频通话上花了太多时间，但我们会尽我们所能让我们在 Zoom(或团队，或 Google Meet)上的时间可以忍受，如果不是一点点乐趣的话。 [随着 Delta 变种](https://lifehacker.com/a-lot-of-us-should-start-wearing-masks-again-according-1847372587) 的兴起，显然是时候把自己变成一个卡通人物了。
 
-Watch
+
 
 我们已经介绍了一批[的黑客](https://lifehacker.com/how-to-use-virtual-backgrounds-in-google-meet-1845585735) 将 [滤镜](https://lifehacker.com/how-to-turn-yourself-into-a-cat-in-a-video-call-1846241562) 和 [特效](https://lifehacker.com/how-to-blur-your-background-in-google-meet-1845081778) 应用于各种视频聊天平台，最新尝试的是 Snap Camera 的卡通风格滤镜，它可以直接将你的脸变成梦工厂或皮克斯电影中的通用角色( [h/t The Verge)](https://www.theverge.com/22595987/cartoon-filter-snapchat-snap-camera-desktop-app-zoom-meeting-how-to)
 

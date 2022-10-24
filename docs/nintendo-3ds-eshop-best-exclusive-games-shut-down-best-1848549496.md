@@ -4,7 +4,7 @@
 
 昨天晚上，任天堂宣布 [任天堂 3DS 和 Wii U eShops 将于 2023 年 3 月无限期停止运营](https://kotaku.com/nintendo-wii-u-3ds-classic-games-mario-zelda-eshop-shop-1848544931) 。一个可怕的后果是，很多 3DS eShop 独有的游戏将无法在任何地方买到。
 
-Watch
+
 
 更重要的是，一些重要的功能将很快被停用。自今年 5 月 23 日起，您将无法在这些商店使用信用卡向您的账户添加资金，并且从 8 月 29 日开始，您将无法使用 eShop 卡。
 

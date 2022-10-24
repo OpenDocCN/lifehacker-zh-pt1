@@ -4,7 +4,7 @@
 
 [抖音今日](https://newsroom.tiktok.com/en-us/strengthening-privacy-and-safety-for-youth) 宣布，将为 18 岁以下用户增加一些新的隐私保护措施，包括增强的默认隐私设置，对谁可以评论视频以及哪些视频可以下载的更严格限制。
 
-Watch
+
 
 根据流行的 [平台的网站](https://newsroom.tiktok.com/en-us/strengthening-privacy-and-safety-for-youth) ，这些变化“旨在提高用户隐私和安全的默认标准。”这些变化包括:
 

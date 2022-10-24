@@ -4,7 +4,7 @@
 
 由于随着时间的推移复利， [二十出头时存下的](https://www.ally.com/do-it-right/money/savings-by-age-how-much-to-save-in-your-20s-30s-40s-and-beyond/) 一块钱，到退休时值 10 块钱。因此，随着成年早期持续的储蓄，当你退休时，成为百万富翁的可能性比 T4 大，即使你的平均工资是 T6。下面我们来看看如何让它发生。
 
-Watch
+
 
 ## **越早开始储蓄越好**
 

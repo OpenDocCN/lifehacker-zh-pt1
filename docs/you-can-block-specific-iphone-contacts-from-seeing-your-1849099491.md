@@ -4,7 +4,7 @@
 
 苹果的 [对焦功能](https://lifehacker.com/you-should-definitely-use-ios-15s-new-distraction-squa-1847671349) ， [随 iOS 15](https://lifehacker.com/36-of-the-best-new-ios-15-features-for-iphone-1847674175) 推出，有助于让你的 iPhone 少一些分心的体验。可定制的“请勿打扰”配置文件确保在您无法回复通知时阻止通知:iOS 甚至会告诉您的联系人您已将通知静音，这样他们就知道不会打扰您。然而，这些状态让人们可以选择通知你，这就剥夺了你过滤干扰的能力。虽然不太明显，但是您可以关闭特定联系人的这些状态，同时仍然可以获得 Focus 的好处。
 
-Watch
+
 
 ## 苹果让你看起来需要让每个人都看到你的专注状态
 

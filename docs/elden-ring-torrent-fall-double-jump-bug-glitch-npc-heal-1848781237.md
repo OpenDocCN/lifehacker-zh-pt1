@@ -4,7 +4,7 @@
 
 激流， [神奇的马羊](https://kotaku.com/elden-ring-fromsoftware-horse-mount-torrent-souls-revie-1848652225) 让你以巡航速度在*埃尔登戒指的*世界中穿梭，这是游戏的亮点之一，但这并不是说它们是完美的。
 
-Watch
+
 
 你可能已经注意到了，有时候激流的生命值不会像其他 NPC 一样重新充满。或者有时候，不是让玩家在探险或旅行的时候双跳，而是让他们带着你一起摔死。
 

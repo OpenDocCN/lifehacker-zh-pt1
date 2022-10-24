@@ -4,7 +4,7 @@
 
 你有没有在 FaceTime 通话时想要实时字幕？ [Navi](https://apps.apple.com/app/navi-subtitles-translation/id1573261774) ，FaceTime 的配套应用，可以让你把它添加到你的 iPhone、iPad 上，添加到你的 Mac 上，也可以。这款应用巧妙地利用了苹果的 SharePlay 功能，在你与朋友视频通话时向你展示实时字幕， [这也是使用 FaceTime](https://lifehacker.com/7-reasons-why-you-should-probably-just-use-facetime-ove-1848044843) 的另一个好理由。
 
-Watch
+
 
 对于有听力障碍的人来说，通话中的实时字幕可以改变游戏规则。同样，那些觉得很难听懂英语口语的人(比如非英语母语的人)会发现这个字幕功能真的很有帮助。我们试着用 Navi 给朋友打电话，发现这款应用在 iPhone 和 Mac 上都相当好用。
 

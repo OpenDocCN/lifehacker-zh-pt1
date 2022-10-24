@@ -4,7 +4,7 @@
 
 几周前，一段视频 [在互联网](https://www.fox13news.com/news/protective-goose-attacks-unsuspecting-woman-in-jacksonville-parking-lot) 上流传，视频中一名毫无防备的佛罗里达州妇女在拥挤的停车场被一只鹅袭击。根据犹他州立大学 的一项 [研究，据报道，从 1990 年到 2015 年，美国有 117 起加拿大鹅伤人事件。这意味着你被加拿大鹅攻击的几率很低，但绝不是零。](https://digitalcommons.usu.edu/cgi/viewcontent.cgi?article=1544&context=hwi) 
 
-Watch
+
 
 如果你是鹅攻击的新手，那你来对地方了。如果你发现自己与美国最常见的鸟类之一面对面，这里是你需要知道的一切。
 

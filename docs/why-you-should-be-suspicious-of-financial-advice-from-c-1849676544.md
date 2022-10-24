@@ -4,7 +4,7 @@
 
 本月早些时候，美国证券交易委员会(SEC) [宣布指控金·卡戴珊](https://www.sec.gov/news/press-release/2022-183) 在社交媒体上兜售加密技术，而 未能披露她是有偿这样做的。卡戴珊同意以 126 万美元勉强接受，但她远不是唯一一个大明星为了 [推密码产品](https://www.nytimes.com/2022/05/17/business/media/crypto-gwyneth-paltrow-matt-damon-reese-witherspoon.html) 而没有明确表示自己的帖子我们重新赞助。这还不算更不用说 [那些加密资产后来价值](https://www.bloomberg.com/features/2022-crypto-celebrity-endorsements/) 暴跌。
 
-Watch
+
 
 我们最近解释了 [为什么你不应该听](https://lifehacker.com/why-personal-finance-gurus-are-awful-at-giving-personal-1849558271) 听“金融大师”的话，当谈到那种你可以从 [【专家】](https://lifehacker.com/tiktok-is-a-never-ending-stream-of-bad-financial-advice-1847337199) 那里得到的建议时，我们也谈到了类似的问题。这就是为什么在接受你最喜欢的名人的秘密建议(或任何财务建议)之前，你也应该三思而行。
 

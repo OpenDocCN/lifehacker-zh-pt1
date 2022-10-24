@@ -4,7 +4,7 @@
 
 虽然我们可能会将郊狼与沙漠、山脉或走鹃生活的任何地方联系起来，但它们很有可能就在你所在的地区或附近。不管你是住在郊区、乡下，甚至是城市，都没关系，因为 [郊狼的适应性很强](https://www.desertmuseum.org/kids/oz/long-fact-sheets/coyote.php#:~:text=Coyotes%20are%20known%20for%20how,well%20as%20in%20populated%20neighborhoods.) 它们能在各种气候下安家。
 
-Watch
+
 
 不要以为你在自家后院没见过郊狼，你就住在没有郊狼的地区。根据美国 动物保护协会的 [的说法，我们通常在我们的地区看不到郊狼的原因是因为它们往往只在晚上出来捕食像老鼠、田鼠和兔子这样的小动物。](https://www.humanesociety.org/resources/coyotes-pets-and-community-cats)
 

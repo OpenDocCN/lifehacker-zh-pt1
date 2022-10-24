@@ -4,7 +4,7 @@
 
 随着最近 [在疫情期间](https://www.wsj.com/articles/dogecoins-12-000-rally-spurs-hunt-for-next-crypto-winner-11620293371) 的加密货币价值上涨，如果你还没有拥有一些，你可能会感觉到一种加剧 FOMO 的感觉。但是你真的错过了吗，或者加密是一场过度炒作的赌博吗？答案取决于你的投资策略和你的风险偏好。下面来看看 crypto 是否值得购买。
 
-Watch
+
 
 ## **什么是加密货币？**
 

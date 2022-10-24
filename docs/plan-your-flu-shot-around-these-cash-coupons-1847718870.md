@@ -4,7 +4,7 @@
 
 在疫情时代，人们很容易忘记另一种重要的接种——流感疫苗。虽然我们在 2020 年轻松过关，但健康专家建议，今年的流感季节 [可能会更糟糕](https://lifehacker.com/why-its-even-more-important-to-get-your-flu-shot-this-y-1847555355)——甚至更有理由在今年秋天注射疫苗。为了获得进一步的激励，考虑选择一家为你的疫苗接种提供现金优惠券的药店或杂货店:
 
-Watch
+
 
 *   Albertsons 为购买任何免疫接种的食品杂货提供 10%的折扣，最高可达 200 美元。有些限制适用，所以在你去之前打电话给你当地的艾伯森药房了解详情。
 *   **CVS 药店**从 12 月 31 日起，在 CVS 药店购物满 20 美元可以获得 5 美元的折扣。请注意，只有独立的 CVS 位置才有资格。要在您附近的 CVS 安排流感疫苗注射， [点击此处](https://www.cvs.com/immunizations/flu?CID=aff:7925973:15033012&cjevent=1a60bd2c1b1811ec822600100a82b82a&cjdata=MXxOfDB8WXww) 。

@@ -4,7 +4,7 @@
 
 "性就像比萨饼:即使是坏的，也是好的."我们都听过这句话。虽然不是最准确的格言(有时候性就像披萨，当它不好的时候，它真的，真的不好！)，这是一个如何利用吃食物的普遍经验来传授性知识的例子。
 
-Watch
+
 
 康涅狄格州的一所中学最近在为八年级学生开设的名为“披萨和同意”的家庭健康和性教育课上使用了披萨，这引起了家长和社区成员的愤怒，据家长捍卫教育[报道。在一封道歉邮件中，学校的健康和体育协调员解释说，分发了错误的工作表，作业应该是关于清晰的交流，根本没有提到性行为。但是从长远来看，明确地进行性教育可能对青少年更有益，这是全国更多的性教育项目应该采用的做法。](https://defendinged.org/incidents/family-health-and-human-sexuality-lesson-for-8th-graders-uses-pizza-to-teach-consent-asks-students-to-list-their-sexual-likes-and-dislikes-as-if-they-are-pizza-toppings-and-uses-kissing-and-giv/)
 

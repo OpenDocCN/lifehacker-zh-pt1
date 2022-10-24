@@ -4,7 +4,7 @@
 
 你可能已经看到了本周关于垂死公司股价突然飙升的头条新闻，如 GameStop ( [)上涨 400%](https://www.google.com/finance/quote/GME:NYSE?sa=X&ved=2ahUKEwi0gODy67zuAhWsFlkFHcUfA3MQ3ecFMAB6BAgBEBk) )和 AMC ( [上涨 375%](https://www.google.com/finance/quote/AMC:NYSE) )。但是百视达呢？是的，它们仍然以低价股的形式存在——而且从本周早些时候开始，它们也上涨了 2000% 。这是怎么回事？
 
-Watch
+
 
 ### **散户的崛起**
 

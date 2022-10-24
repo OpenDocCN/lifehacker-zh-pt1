@@ -4,7 +4,7 @@
 
 赛博朋克 2077 是一个游戏中的野兽，如果你想体验它所有的光线追踪，高分辨率，华丽的荣耀，它会粉碎你的帧率(FPS)。我同情你，Xbox One 和 PlayStation 4 游戏玩家； [你一定不好过](https://www.youtube.com/watch?v=C5pHpQqhmR4)T5。赛博朋克 2077 也惩罚了个人电脑用户，但至少我们可以用一点点我们的帧速率的图形叠加来看看损害有多严重。
 
-Watch
+
 
 例如，如果你从 GOG 购买了*赛博朋克 2077* 并在 Windows 中播放，你通常应该可以点击 **Shift+CTRL+Tab** 来拉起 T5】GOG 银河的 [每秒帧数计数器](https://gamefaqs.gamespot.com/boards/916373-pc/79163360) 。然而，如果那不起作用，你将不得不尝试不同的方法。你有很多选择。
 

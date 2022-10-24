@@ -4,7 +4,7 @@
 
 今年的夏季旅游季并不像人们希望的那样轻松。直到(非常)最近，油价还异常高，飞行一直是一场噩梦——尤其是在拥挤、延误和航班取消的情况下。
 
-Watch
+
 
 那么哪些机场取消航班最多呢？彭博 发布的 [AirHelp](https://www.airhelp.com/en/) 和 [的新数据揭示了你在预订下一次航班时想要避免的那些。以下是需要了解的内容。](https://www.bloomberg.com/news/articles/2022-08-10/the-10-worst-us-airports-for-flight-cancellations-best-day-time-to-fly-instead)
 

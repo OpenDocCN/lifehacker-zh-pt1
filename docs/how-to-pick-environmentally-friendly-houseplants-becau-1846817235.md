@@ -4,7 +4,7 @@
 
 当我们想到我们个人对环境的影响时，我们的第一想法可能是改用可重复使用的购物袋或者节约用水用电。但是我们的室内植物呢？
 
-Watch
+
 
 过去几年里，无数的文章列举了室内植物的好处——特别是声称它们能够“”净化空气但是除了有 [少到没有](https://www.nationalgeographic.com/science/article/houseplants-dont-purify-indoor-air) 科学 [证据支持](https://www.theatlantic.com/science/archive/2019/03/indoor-plants-clean-air-best-none-them/584509/) “事实” [《每日电讯报》](https://www.telegraph.co.uk/gardening/problem-solving/dark-side-houseplant-obsession/) 最近的一篇文章详细描述了一些室内植物实际上是如何危害环境的。以下是需要了解的内容。
 

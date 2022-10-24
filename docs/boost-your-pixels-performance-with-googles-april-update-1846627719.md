@@ -4,7 +4,7 @@
 
 如果你是谷歌 Pixel 智能手机的骄傲拥有者，你应该现在就为你的设备(RQ2A.210405.005)获取全新的 4 月更新。如果你使用 Pixel 4a (5G)或 Pixel 5，你不仅会从一些错误修复和质量更新中受益，而且还会看到非常好的性能提升。
 
-Watch
+
 
 当 Android 11 在去年 9 月回落时，相当多的评论者发现他们的新 Pixel 设备似乎受到了性能打击。正如 [HotHardware](https://hothardware.com/news/android-11-performance-degradation) 当时写道:
 

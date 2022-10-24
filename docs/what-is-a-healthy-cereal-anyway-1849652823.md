@@ -4,7 +4,7 @@
 
 在 [之后，FDA 改变了“健康”](https://lifehacker.com/the-fda-finally-has-a-definition-for-healthy-food-1849602259) (用于食品标签目的)的定义，结果发现许多受欢迎的早餐谷物不符合标准。 [美国消费者新闻与商业频道指出](https://www.cnbc.com/2022/10/11/fda-redefined-healthy-these-7-cereals-do-not-qualify.html) 葡萄干麦片、蜂蜜果仁麦片和玉米片添加了太多的糖以至于不合格。如果你感到惊讶，请系好安全带，因为希望早餐麦片“健康”的想法由来已久。
 
-Watch
+
 
 ## 早餐谷物被发明为(非常粗略的)健康食品
 

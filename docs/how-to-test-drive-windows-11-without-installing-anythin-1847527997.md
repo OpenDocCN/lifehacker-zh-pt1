@@ -4,7 +4,7 @@
 
 你现在可以在你的网络浏览器上演示 Windows 11，这要感谢由一位足智多谋的开发者“蓝色边缘”创建的新网页
 
-Watch
+
 
 网页让任何人都可以直接看到 Windows 11，即使你的 PC 不符合 [操作系统的严格硬件要求](https://lifehacker.com/what-is-a-tpm-and-why-do-you-need-one-to-run-windows-11-1847186073) ，也不必 [在你的 PC 上安装一个未完成的 Windows 11](https://lifehacker.com/how-to-go-back-to-windows-10-if-you-regret-installing-w-1847283558) 测试版。我在 Chrome 和 Edge 上试用过，效果很好，所以它应该可以在任何浏览器上使用。
 

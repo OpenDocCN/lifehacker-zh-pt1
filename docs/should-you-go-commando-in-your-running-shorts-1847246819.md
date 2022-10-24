@@ -4,7 +4,7 @@
 
 如果你是那种什么都穿内衣的人——在我看来，这是一种非常正常的人——你可能会开始想跑步短裤和运动绑腿是怎么回事。有时宽松的男式短裤会有一个贴身的衬里，或者某些女式短裤会有一个由不同材料制成的裤裆。*你可能会想，我应该不穿内裤就穿这些吗*？在很多情况下，答案是肯定的。
 
-Watch
+
 
 不过，这是一个常见的问题。在 Reddit 上，这个话题在跑步论坛、 [女子健身论坛](https://www.reddit.com/r/xxfitness/comments/8ypv56/do_you_wear_underwear/) 、 [“没有愚蠢的问题”子论坛](https://www.reddit.com/r/NoStupidQuestions/comments/90c65c/womens_running_shorts_come_with_built_in_panties/) 等等都有讨论。接下来的讨论经常涉及两组人(穿内衣的和不穿内衣的)，他们对对方的存在感到震惊。
 

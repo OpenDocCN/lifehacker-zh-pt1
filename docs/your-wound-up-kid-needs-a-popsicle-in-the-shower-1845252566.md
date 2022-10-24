@@ -4,7 +4,7 @@
 
 有时候，当你的孩子对某件事感到紧张时，不管是焦虑、兴奋还是精力充沛，让他们振作起来或平静下来的最好方法就是感官体验。洗澡或淋浴是一个好的开始；然而，在混合物中加入一根冰棒会使它更上一层楼。
 
-Watch
+
 
 [Reddit 用户 u/Bigglesmith](https://www.reddit.com/r/Parenting/comments/j3ra4a/to_the_person_who_taught_me_about_popsicle) 解释道:
 

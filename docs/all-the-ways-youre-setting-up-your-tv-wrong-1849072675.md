@@ -4,7 +4,7 @@
 
 [这个来自](https://www.tiktok.com/@kylo_sten_/video/7106309342839852330?is_copy_url=1&is_from_webapp=v1) [的抖音视频](https://www.tiktok.com/@kylo_sten_)Kylo 斯登冲锋枪 以一个大胆的声明开始:“我从事电视后期制作，你们几乎所有人都把电视设置错了。下面是斯登冲锋枪的三大电视设置错误，加上我们自己的一些错误。
 
-Watch
+
 
 ## 关闭运动- 平滑模式
 

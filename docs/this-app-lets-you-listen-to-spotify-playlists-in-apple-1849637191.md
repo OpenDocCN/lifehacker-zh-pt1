@@ -4,7 +4,7 @@
 
 苹果音乐 [有其优势](https://lifehacker.com/should-you-renew-your-music-streaming-service-or-switch-1847040898) ，但大多数用户都会承认 Spotify 的播放列表要好得多。传统上，听一个 Spotify 播放列表需要你使用 Spotify ，如果你已经为一个不同的服务付费，这就不好玩了。幸运的是，现在你可以在苹果音乐的 中欣赏 Spotify 的播放列表了。
 
-Watch
+
 
 我们之前已经在中介绍了将 [Spotify 播放列表移动到 Apple Music](https://lifehacker.com/how-to-export-your-entire-spotify-library-for-free-1848452337) 和 [的各种方法，反之亦然](https://lifehacker.com/transfer-your-music-library-and-playlists-among-any-str-1849125094) 。这些方法有效，但并不总是理想的，因为它们往往会向你的曲库添加成千上万首歌曲，并且在这个过程中，弄乱你最近添加的列表。这就是 iPhone、iPad 和 Mac 的免费下载软件 [Playlisty](https://apps.apple.com/us/app/playlisty-the-playlist-tool/id1459275972) 的用武之地。
 

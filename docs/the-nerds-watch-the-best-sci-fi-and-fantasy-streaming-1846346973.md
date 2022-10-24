@@ -4,7 +4,7 @@
 
 由于全球疫情，观众比以往任何时候都更多地转向 [流媒体娱乐](https://io9.gizmodo.com/infinity-trains-creator-says-the-shows-future-is-in-jeo-1844852183) ，过多的服务——网飞、Hulu、亚马逊、迪士尼+和 HBO Max——可以作为急需的逃避。 [每个月初](https://io9.gizmodo.com/the-nerds-watch-the-best-sci-fi-and-fantasy-streaming-1846094172) ，大多数流媒体都会做一点调整，增加新电影，带走一些 io9 可以帮助你缩小决策范围。
 
-Watch
+
 
 欢迎来到 [t 何书呆子的手表](https://gizmodo.com/tag/the-nerds-watch) ，我们的每月专栏，在这里我们策划最有趣的科幻、奇幻和 [恐怖电影](https://io9.gizmodo.com/the-10-scariest-g-rated-movies-1845392685) (和节目)来到最大的流媒体服务。网飞、Hulu、亚马逊、迪士尼+和 HBO Max 都有 2021 年 3 月的新内容，让我们开始吧。
 

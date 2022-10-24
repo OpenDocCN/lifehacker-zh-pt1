@@ -4,7 +4,7 @@
 
 昨天[国税局推出了一个新的门户网站](https://www.irs.gov/newsroom/irs-announces-two-new-online-tools-to-help-families-manage-child-tax-credit-payments) 来帮助你管理最近扩大的儿童税收抵免的预付款，每个孩子高达 3600 美元。税收抵免很复杂——因为它是基于你 2021 年的*估计*收入——所以你会想使用门户网站来更新你的收入和子女抚养状态(或者选择退出,如果你宁愿在报税时获得一次性抵免)。以下是你需要知道的。
 
-Watch
+
 
 ## 儿童税收抵免值多少钱？
 

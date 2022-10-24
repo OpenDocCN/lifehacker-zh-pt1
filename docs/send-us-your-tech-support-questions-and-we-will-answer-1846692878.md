@@ -4,7 +4,7 @@
 
 嗨！三年来，我一直在撰写 Lifehacker 受人尊敬的 [**Tech 911**](https://lifehacker.com/c/tech/tech-911) 建议专栏，新的一期将于美国东部时间每周五上午 9 点(除了偶尔的假期)发布。我想保持这个速度——但是为了让我们度过这个夏天，我需要你们更多的技术问题。你得到的任何东西，都扔给我。
 
-Watch
+
 
 我已经发表了大约 150 篇专栏文章，这意味着我已经帮助很多人解决了最古怪的技术问题。我们一起走过了“ [的山谷色情是怎么上我的设备的](https://lifehacker.com/my-fiance-says-these-disturbing-sites-in-his-phone-hist-1838952329) ”的；我们已经通过恢复访问 [被黑的脸书账户](https://lifehacker.com/how-do-i-restore-access-to-a-hacked-facebook-account-1846408974) ，避免了疫情引发的社会孤立；我们已经讲过一个 [*地段*](https://lifehacker.com/how-do-i-troubleshoot-slow-speeds-from-my-new-isp-1845666181) [关于](https://lifehacker.com/why-do-hotels-have-a-million-wifi-networks-1845595512) [联网](https://lifehacker.com/why-are-my-upload-speeds-at-home-so-terrible-1845168399) 。( W 对于自感应 COVID 隔离，什么比良好的 wifi 连接更重要？除了女童子军饼干，我指的是。)
 

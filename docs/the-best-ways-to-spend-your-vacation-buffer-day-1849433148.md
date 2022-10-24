@@ -4,7 +4,7 @@
 
 去度假虽然令人愉快，但也可能令人筋疲力尽。还有时差反应，排满假期后的疲劳，除此之外，如果你带着孩子旅行，肯定会有至少几次崩溃。同样的道理也适用于和大家庭一起旅行，因为没有什么比家庭剧更累人和可预测的了。
 
-Watch
+
 
 正如蕾切尔·奥尔最近为《华盛顿邮报》 的 [撰写的所言，减轻旅行压力的一个方法是额外休息一天，给自己一点时间休息和恢复。正如 Orr](https://www.washingtonpost.com/travel/tips/buffer-day-travel-staycation/) [所说](https://www.washingtonpost.com/travel/tips/buffer-day-travel-staycation/) “我利用缓冲日展望下周，只是再次享受我的空间。把它当成假期结束时的一次迷你居家度假吧。”
 

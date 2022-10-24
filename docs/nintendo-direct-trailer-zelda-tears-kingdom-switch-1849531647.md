@@ -4,7 +4,7 @@
 
 为了纪念已故女王的逝世 ，英国玩家没有观看任天堂直播 [。对于我们其他人来说，我们看了将近 40 分钟的《任天堂 Switch》即将上映的冬季电影。英国人完全欢迎观看我们的自由直播，只要他们保证友好。](https://kotaku.com/nintendo-direct-zelda-botw-wind-waker-queen-elizabeth-1849524488) 
 
-Watch
+
 
 * * *
 

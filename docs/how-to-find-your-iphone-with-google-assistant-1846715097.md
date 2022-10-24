@@ -4,7 +4,7 @@
 
 如果你住在一个极客忠诚度分裂的房子里，你的竞争设备将变得更具协作性。支持谷歌助手的智能音箱 [现在可以帮你找到你丢失的 iPhone](https://blog.google/products/assistant/5-new-ways-google-assistant-can-make-day-little-easier/)；你所要做的就是说“嘿，谷歌，找到我的手机”，向你错放的 iPhone 发送一个紧急警告，迫使它响铃 25 秒或直到通知被取消。关键提醒会绕过设备的通知设置，因此即使 iPhone 处于静音或“请勿打扰”模式，它也会响铃。
 
-Watch
+
 
 诚然，智能扬声器的要求使得谷歌助手的“查找我的手机”功能在 iOS 上比在 Android 上更受限制，Android 用户可以通过任何网络浏览器或链接到他们谷歌账户的辅助设备来搜索他们的设备 。幸运的是， [苹果的 Find My app](https://lifehacker.com/how-to-access-a-lost-ipad-thats-locked-with-apples-find-1839332161) 本质上做的是同样的事情，你可以从任何其他苹果设备上使用它，或者通过 iCloud 网站。
 

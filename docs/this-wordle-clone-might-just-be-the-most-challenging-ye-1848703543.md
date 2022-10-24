@@ -4,7 +4,7 @@
 
 至此， [二字无需介绍](https://lifehacker.com/how-to-master-or-cheat-at-wordle-the-internets-favor-1848312354) 。这个游戏不仅激发了我们中的许多人每天享受猜单词的乐趣，它还激发了一波克隆人[衍生产品](https://lifehacker.com/6-wordle-esque-games-that-are-just-as-good-or-better-1848426197)其中一些和原版一样有趣。这最新的一个，不管多有趣，把难度调到了我不确定自己是否能接受的水平。
 
-Watch
+
 
 这个最新的条目叫做 Semantle，是语义学和 Wordle 的结合体。这是因为，Semantle 不是让你根据拼写猜测一个单词，或者 [通过票房前五名](https://lifehacker.com/the-latest-wordle-clone-is-perfect-for-movie-geeks-1848635062) ，甚至 [从短片](https://lifehacker.com/finally-there-s-a-wordle-clone-for-music-lovers-1848649747) 中找出歌曲，而是让你根据语义上与你的猜测相似程度来破译隐藏的单词。
 

@@ -4,7 +4,7 @@
 
 电子艺界已经悄悄地开始关闭一批旧游戏的在线服务器。有些是绝对的经典，有些你完全忘记了也是情有可原的。
 
-Watch
+
 
 首先被 [发现的是真实成就](https://www.trueachievements.com/n51511/ea-games-server-closure) ，这份名单包括最受欢迎的像*镜之边缘*， 2010 的 *NBA 果酱*重启，和*命令&征服:红色警戒 3* ( [《蒂姆·克里《一个没有被资本主义腐化的地方》](https://www.vice.com/en/article/qjkv9q/an-oral-history-of-tim-currys-escape-to-the-one-place-uncorrupted-by-capitalism)[one](https://www.vice.com/en/article/qjkv9q/an-oral-history-of-tim-currys-escape-to-the-one-place-uncorrupted-by-capitalism))。
 

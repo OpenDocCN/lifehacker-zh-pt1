@@ -4,7 +4,7 @@
 
 我不是抖音的粉丝——那是青少年去参加愚蠢、危险的活动的地方，比如“”或“ [【苯海拉明】挑战](https://offspring.lifehacker.com/warn-your-teens-about-the-benadryl-challenge-1844927737) ”这里也是 [亲生父母嘲笑](https://offspring.lifehacker.com/stop-with-the-new-teacher-challenge-1844916659) 残疾人或遗传病患者的地方。但是我*已经*发现了我非常享受的社交媒体服务的一个小角落:[“mom hack”标签](https://www.tiktok.com/tag/momhack) 。
 
-Watch
+
 
 这个标签包含了一系列快速、简单的想法，大多适用于婴儿和幼儿的父母。想想这个 [乱糟糟的绘画技巧](https://www.tiktok.com/@mothercould/video/6865120541594979590) 我希望 7、8 年前当我儿子蹒跚学步时有人告诉我:
 

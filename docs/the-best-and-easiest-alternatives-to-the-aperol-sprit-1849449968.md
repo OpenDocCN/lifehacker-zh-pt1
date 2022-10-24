@@ -4,7 +4,7 @@
 
 当你想到 [spritz 饮料](https://lifehacker.com/take-your-booze-outdoors-with-a-simple-summer-spritz-1781648731) 时，首先想到的可能是 Aperol Spritz，理由很充分——它很美味。这种意大利鸡尾酒由起泡酒、开胃酒(或另一种利口酒)和苏打水制成。但是如果你对 Aperol Spritz 有点厌倦了，还有很多其他的选择你应该尝试一下。
 
-Watch
+
 
 ## 如何制作一个基本的 spritz
 

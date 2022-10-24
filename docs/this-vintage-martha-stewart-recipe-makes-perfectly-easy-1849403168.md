@@ -4,7 +4,7 @@
 
 我喜欢主持晚宴，但我讨厌主持焦虑。为了克服这一点，我一直在寻找美丽的，令人印象深刻的，秘密简单的食谱。艾娜·加滕(Ina Garten)和玛莎·斯图尔特(Martha Stewart)是两位厨师，不可否认是出色的晚宴主持人，他们掌握了这些类型的食谱(严格来说，我还没有参加过他们的晚宴，但请给我时间)，自从我妈妈最近发现了她那本《T2》[*【娱乐】*](https://www.abebooks.com/servlet/BookDetailsPL?bi=30733496718&searchurl=an%3Dmartha%2Bstewart%26fe%3Don%26sortby%3D17%26tn%3Dentertaining&cm_sp=snippet-_-srp1-_-title5) (1982)，这是一本玛莎关于举办完美聚会的经典书籍，我向它寻求建议，并找到了玛莎制作诱人水果盘的简单秘诀——给你的水果加糖霜。
 
-Watch
+
 
 ## 什么是冰糖水果？
 

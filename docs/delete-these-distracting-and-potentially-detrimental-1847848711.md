@@ -4,7 +4,7 @@
 
 虽然你的简历应该突出你的成就和与你申请的工作相关的经历，但招聘人员通常平均只花大约 [7 秒看简历](https://www.indeed.com/career-advice/resumes-cover-letters/how-long-do-employers-look-at-resumes#:~:text=On%20average%2C%20employers%20look%20at,for%20only%20a%20few%20seconds.) 。在申请过程的这个阶段，他们正在*寻找*拒绝申请人的理由，这就是为什么你不想在不必要的信息上浪费他们宝贵的一秒钟。以下是招聘人员说你不需要写进简历的所有东西。
 
-Watch
+
 
 #### **您的邮寄地址**
 

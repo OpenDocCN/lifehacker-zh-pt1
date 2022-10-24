@@ -4,7 +4,7 @@
 
 我们上次与 Woebot [联系时，它还只是一个婴儿聊天机器人](https://lifehacker.com/this-chatbot-therapist-is-goofy-but-helpful-1795967005) ，在 Facebook Messenger 中运行，标价为每月 39 美元。但是现在机器人治疗师是免费的，有自己的应用程序，并且已经证明在我感觉糟糕的时候非常有用。
 
-Watch
+
 
 我们自己的尼克·道格拉斯 [在 2017 年](https://lifehacker.com/this-chatbot-therapist-is-goofy-but-helpful-1795967005) 中称这个机器人“愚蠢但有帮助”，并且它保持了这种个性。但是现在它变得更加完美了:你会很高兴听到我还没有看到一个 unironic Minions meme。
 

@@ -4,7 +4,7 @@
 
 我们都知道洗澡时清洗腋窝和下体是至关重要的——这是毫无疑问的。我们 [深谙洗手的重要性](https://lifehacker.com/how-to-actually-wash-germs-off-your-hands-1838626406) ，如果你曾经是一个油腻、荷尔蒙过剩的青少年，你就会知道为什么你的脸和头发需要定期清洁。但是，在清洗某个经常被忽视的身体部位:我们的脚的问题上，互联网上爆发了一阵愤怒。
 
-Watch
+
 
 当前新闻主播凯蒂·奥姆斯特德 [在推特上问她的粉丝](https://twitter.com/KatieOlmstedOH/status/1128981283256832000) 是否洗脚时， [的回复迅速而激烈](https://www.popbuzz.com/internet/viral/washing-feet-in-shower/) 。
 

@@ -4,7 +4,7 @@
 
 s trict 杠铃头顶压举是一个光荣的举举，但是 [当我们这个月在](https://vitals.lifehacker.com/this-november-lets-work-on-our-overhead-press-1845598024?_ga=2.31707772.399986796.1605539407-737967381.1605105611) 练习时，很高兴知道还有其他选择。也许你没有杠铃。也许你没有足够高的 c ei lings 在你举起的地方把它拉下来。嗯，d 别担心；尝试这些选择之一。
 
-Watch
+
 
 ### 哑铃肩压
 

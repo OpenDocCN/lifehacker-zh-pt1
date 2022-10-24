@@ -4,7 +4,7 @@
 
 鉴于我的出生地(密西西比州)，我最喜欢的烹饪脂肪是培根油和黄油就不足为奇了。它们让食物尝起来像家一样，但如果我用 [油煎三文鱼片](https://lifehacker.com/the-best-way-to-cook-seafood-if-youre-skittish-about-co-1848334399) ，搅打 [快速调味汁](https://lifehacker.com/use-this-template-to-make-a-perfect-vinaigrette-every-t-1844718967) ，或者做 [纯素食番茄酱](https://lifehacker.com/this-3-ingredient-vegan-marinara-is-my-new-favorite-1847839126) (顺便提一下，这甚至比我用黄油做的 还要好)，它们都不是我想要的脂肪。在这种情况下，我会去拿橄榄油。
 
-Watch
+
 
 然而，购买橄榄油比购买黄油更令人困惑(这个话题我完全理解)。很像 [鸡蛋盒](https://lifehacker.com/cage-free-is-basically-meaningless-and-other-lies-yo-1848308957) ，橄榄油瓶的包装上写满了许多字，其中一些比其他的更重要。为了弄清楚一些，我请了橄榄油供应商和自称“恢复饮食作家”的吉姆·迪克森来帮助我理解所有这些术语的含义，以及如何在满是伪装者的杂货店过道里发现真正的处女。
 

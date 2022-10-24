@@ -4,7 +4,7 @@
 
 疫情对每个人都很苛刻，尤其是在与我们所爱的人保持联系方面。幸运的是，技术允许我们以各种有用的方式保持这些联系。聊天。游戏之夜。视频通话。你们甚至可以 [一起看电影](https://lifehacker.com/how-to-watch-movies-with-your-friends-on-movies-anywher-1844548979)——即使你们不在同一个房间。
 
-Watch
+
 
 然而，当你试图与一个不太懂技术或者因为年龄或环境而受到限制的人保持联系时，这尤其具有挑战性。Lifehacker 读者 **Lorisa** 最近写信给 [**Tech 911**](https://lifehacker.com/c/tech-911) 与她的困境:
 

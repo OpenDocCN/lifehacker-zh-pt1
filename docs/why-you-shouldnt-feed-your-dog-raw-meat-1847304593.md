@@ -4,7 +4,7 @@
 
 你可能要重新考虑你的狗的生食饮食: [根据最近在线发表在《国际食品微生物学杂志》](https://www.sciencedirect.com/science/article/abs/pii/S0168160521002439?via%3Dihub) 上的一项研究，在欧洲市售的生狗粮含有耐药肠球菌属细菌。来自 Porto 大学和 IUCS Instituto universitáRio de ciências da saúde 的科学家测试了 55 种干、湿和生狗粮中的肠球菌，肠球菌可导致人类从尿路感染到心内膜炎的各种疾病。他们在超过一半的样本中发现了这一点——包括*每一个生的。*
 
-Watch
+
 
 这项研究的第一作者 Ana R. Freitas 博士在 CDC 的新兴传染病杂志 上发表了一封研究信，详细讨论了原始样本的结果。说得好听点，它们并不“好”:
 

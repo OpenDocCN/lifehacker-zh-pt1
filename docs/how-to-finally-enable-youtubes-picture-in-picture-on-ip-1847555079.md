@@ -4,7 +4,7 @@
 
 画中画(或 PiP)是 iPhones 自 iOS 13 以来就有的功能，iPads 自 iOS 9 以来也是如此。YouTube，作为 YouTube，在 PiP 派对上时髦地姗姗来迟；it [在 6 月](https://www.theverge.com/2021/6/18/22540482/youtube-picture-in-picture-iphone-ipad-ios-app-free-premium) 宣布，它将为高级订户和普通用户在苹果设备上推出该功能，并刚刚开始在苹果设备上推出该功能。当然，有一个条件。
 
-Watch
+
 
 ## 画中画目前是一项高级功能
 

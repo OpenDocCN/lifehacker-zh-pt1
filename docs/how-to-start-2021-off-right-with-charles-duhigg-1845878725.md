@@ -4,7 +4,7 @@
 
 本周，我们将从普利策奖得主记者查尔斯·杜希格那里获得如何坚持新年决心的建议。听听查尔斯分享的多种科学支持的策略，我们可以用它们来促进习惯的形成，将坏习惯转化为好习惯，以及心智模型如何帮助我们实现目标。
 
-Watch
+
 
 Charles 是《习惯的力量:为什么我们在生活和商业中做我们做的事情 和 [*更聪明更快更好:真正生产力的变革力量*](https://www.amazon.com/Smarter-Faster-Better-Transformative-Productivity/dp/0812983599/ref=pd_lpo_14_img_1/133-3164265-4746324?_encoding=UTF8&asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-start-2021-off-right-with-charles-duhigg-1845878725&asc_source=&pd_rd_i=0812983599&pd_rd_r=1bc56cdb-49e4-4057-9aa0-7689397932f0&pd_rd_w=MDy66&pd_rd_wg=bKRNR&pf_rd_p=7b36d496-f366-4631-94d3-61b87b52511b&pf_rd_r=GT8DDEG5R9WJV1V1G9RF&psc=1&refRID=GT8DDEG5R9WJV1V1G9RF&tag=kinjalifehackerlink-20) 的作者，也是播客 [How To 的主持人！同查尔斯·杜希格](https://slate.com/podcasts/how-to) 。
 

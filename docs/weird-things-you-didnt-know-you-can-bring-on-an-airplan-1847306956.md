@@ -4,7 +4,7 @@
 
 我们中的许多人都曾有过被美国运输安全管理局没收的东西。显然，任何被视为武器的东西都有可能被特工收入囊中(他们甚至拿走了我的指甲钳一次)，允许的 [大小的液体](https://www.tsa.gov/travel/security-screening/liquids-rule#:~:text=You%20are%20allowed%20to%20bring,milliliters)%20or%20less%20per%20item.) 可能会感觉非常有限，尤其是如果你没有托运行李的话。如果你已经有一段时间没有坐飞机了，你可能需要复习一下飞机上不能带的东西——但是有时候，你*能*带的东西就更奇怪了。
 
-Watch
+
 
 ## 可以通过安检随身携带的食物
 

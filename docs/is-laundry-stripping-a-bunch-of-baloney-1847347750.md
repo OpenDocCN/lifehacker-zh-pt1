@@ -4,7 +4,7 @@
 
 洗衣脱衣是一种 [去除衣物上积聚的](https://www.nytimes.com/wirecutter/blog/stop-using-so-much-laundry-detergent/) 洗涤剂，以及任何衣物柔软剂、身体油脂、或硬水矿物质的方法。尽管洗衣脱衣是一项由来已久的技术，但由于一些病毒式社交媒体视频，它再次成为人们关注的焦点。虽然 t 这里的*是*需要脱衣服的时候，但是并没有人们想象的那么有效——而且在很多情况下，完全可以避免。
 
-Watch
+
 
 首先，水在剥离过程中变成的深棕色或灰色并不像大多数人认为的那样是污垢或尘垢，而是因为热水导致 [织物染料运行](https://www.goodhousekeeping.com/home/cleaning/a33588329/laundry-stripping/) 。最重要的是，只需使用较少的洗衣液就可以避免脱衣。
 

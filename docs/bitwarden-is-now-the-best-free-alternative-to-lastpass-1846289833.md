@@ -4,7 +4,7 @@
 
 无论你只是因为而想要改变你的密码管理*，还是你是一个对服务的 [最近的变化](https://blog.lastpass.com/2021/02/changes-to-lastpass-free/) 感到恼火的 LastPass 用户，切换到备受喜爱的(免费的)Bitwarden 服务是一个不错的选择。Bitwarden 现在是大多数人最好的免费密码管理器，因为它可以在你的所有设备上工作，为你的登录增加便利和安全，而且设置起来又快又简单。*
 
-Watch
+
 
 首先，进入 [比特沃顿的网站](https://bitwarden.com/) 并创建一个账户。这是免费的，你需要担心的是给自己 [一个可靠的主密码](https://lifehacker.com/how-to-create-secure-passwords-that-arent-impossible-to-1825048324) 。使它成为一个好的密码，一个你不会在其他地方使用的密码，因为它将是你存储在服务上的所有其他密码的看门人之一。创建帐户并登录后，请确保使用右上角的选项验证您的电子邮件地址。
 

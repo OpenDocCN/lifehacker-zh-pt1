@@ -4,7 +4,7 @@
 
 如果你发现自己的小孩不那么耐心地等着吃晚饭，你需要他们离开厨房，离开热炉子几分钟，有一个你可能没有想到的解决方案。现在听我说完，这个解决方案就是调味瓶。
 
-Watch
+
 
 [Reddit 用户 u/drybrodhi](https://www.reddit.com/r/LifeProTips/comments/jb0g9s/lpt_if_you_need_to_distract_a_small_child_while/?utm_source=share&utm_medium=ios_app&utm_name=iossmf) 解释道:
 

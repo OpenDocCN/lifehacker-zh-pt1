@@ -4,7 +4,7 @@
 
 如果像我一样，你关注几十个 YouTube 频道，涉及一系列话题，你可能会发现你偶尔错过一个上传(或几个),因为你每天都被新视频轰炸。幸运的是，有一些很棒的第三方工具可以帮助您组织订阅。
 
-Watch
+
 
 其中最好的是 [**袖珍管**](https://yousub.info/) (承蒙 [下网](https://thenextweb.com/plugged/2021/01/19/sort-your-favorite-youtube-channels-into-into-folders-with-this-free-app/) )。这项免费的跨平台服务将你的一长串频道订阅分类到标签文件夹中。您可以完全控制命名和组织，并且您的文件夹可以在您用来观看 YouTube 的所有设备之间传送——只要您登录即可。Pocket Tube 在 Chrome 商店中作为浏览器扩展提供，在 [Android](https://play.google.com/store/apps/details?id=com.youtubesubscriptionmanager&hl=en_US&gl=US) 和 [iOS](https://apps.apple.com/us/app/pockettube-subscription-manage/id1475688814) 上作为外部应用提供。
 

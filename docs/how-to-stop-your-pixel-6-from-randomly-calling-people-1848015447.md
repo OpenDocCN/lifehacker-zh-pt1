@@ -4,7 +4,7 @@
 
 屁股拨号可以是稍微尴尬的经历，也可以是彻头彻尾的羞辱，但它们至少是罕见的。除非你有多个联系人告诉你，你最近意外地给他们打了电话——那可不仅仅是打电话。如果这种情况正在发生在你身上，而你恰好在摇一个 [Pixel 6 或者一个 Pixel 6 Pro](https://lifehacker.com/how-does-the-pixel-6-stack-up-against-the-iphone-13-1847895441) ，你并不孤单，但是有一个简单的方法可以阻止这些自发的呼出电话。
 
-Watch
+
 
 在 Pixel 6 和 Pixel 6 Pro 上， [用户注意到他们的手机随机拨打联系人列表中的号码](https://9to5google.com/2021/11/05/google-assistant-on-pixel-6-is-randomly-placing-phone-calls-for-some-heres-how-to-stop-it/) 。更奇怪的是，这些电话通常是在手机不工作时打的。在智能手机上，对接拨号通常发生在设备解锁时，因此 Pixel 用户会感到困惑和担心，这是可以理解的...不是。
 

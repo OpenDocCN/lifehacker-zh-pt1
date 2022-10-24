@@ -4,7 +4,7 @@
 
 苹果播客是许多 iOS 用户的首选播客应用，但不要问我为什么。首先在 iOS 14 [中做出的改变让它变成了一个无法忍受的混乱](https://lifehacker.com/how-to-make-sense-of-what-apple-has-done-to-the-podcast-1847129209) ，当更新只包括一些表面上的改进时，他们希望随着上个月 iOS 15 的发布而得到修复的希望破灭了。
 
-Watch
+
 
 当然，你可以 [花半个小时调整你的设置，试图让苹果播客更好](https://lifehacker.com/10-ways-to-make-the-apple-podcasts-app-suck-less-1847854148)——但谢天谢地，如果你厌倦了最近的头痛，你不必坚持使用原生应用。播客越来越受欢迎，因此，App Store 上的顶级播客经理比以往任何时候都多。
 

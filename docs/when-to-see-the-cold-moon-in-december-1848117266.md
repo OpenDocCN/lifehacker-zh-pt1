@@ -4,7 +4,7 @@
 
 [11 月的血腥海狸月食](https://lifehacker.com/when-to-see-novembers-lunar-eclipse-of-the-beaver-moon-1847977601) 很壮观，但不要小看 12 月的满月。被称为“冷月”的 12 月满月将于 2021 年 12 月 18 日星期六升起。东部时间晚上 11 点 37 分最亮。Brrr。
 
-Watch
+
 
 ## 十二月的满月有什么特别的吗？
 

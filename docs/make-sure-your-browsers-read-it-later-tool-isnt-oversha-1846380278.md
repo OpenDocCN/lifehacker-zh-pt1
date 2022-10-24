@@ -4,7 +4,7 @@
 
 当你在网上看到一篇有趣的文章，但没有时间马上阅读时，你可能会习惯于在一个新的标签页中打开它，稍后再阅读——结果只是它迷失在你的浏览器栏的混乱中。相反，你*应该*使用你的浏览器专用的“稍后阅读”功能。这是我推荐给每个人的设置——这些标签会占用更少的资源，你的浏览器会看起来更漂亮，而且有一天你可能会回头去看那些文章。
 
-Watch
+
 
 许多浏览器已经内置了这一功能——从 Edge Chromium 的 [收藏](https://lifehacker.com/how-to-try-out-edge-chromiums-latest-features-months-be-1842562597) ，到 Chrome 的 [稍后阅读](https://lifehacker.com/you-can-finally-save-articles-to-read-later-in-chrome-1846145758) 工具，到 Firefox 的 [口袋](https://support.mozilla.org/en-US/kb/save-web-pages-later-pocket-firefox) ，到 Safari 的 [阅读列表](https://support.apple.com/en-us/HT200294) 等等。有 [的](https://chrome.google.com/webstore/detail/notion-web-clipper/knheggckgoiihginacbkhaalnibhilkk?hl=en) [的](https://getpocket.com/add/?ep=1)的 [的](https://www.instapaper.com/) 的 [的](https://mailist.app/)[的](https://raindrop.io/) 的【扩展】的。
 

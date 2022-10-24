@@ -4,7 +4,7 @@
 
 蜱及蜱传疾病 [呈上升趋势](https://www.nejm.org/doi/full/10.1056/nejmp1911661)[已有多年](https://lifehacker.com/beware-of-ticks-lyme-disease-may-be-more-common-this-y-1706608337) 。当我们想到蜱时，我们通常会想到莱姆病，但蜱叮咬也可能导致许多其他问题，如 [落基山斑点热](https://lifehacker.com/know-the-symptoms-of-these-tick-borne-diseases-1836217979) 。另一种不太为人所知的情况是:哺乳动物的肉过敏，这可能是由于被孤星蜱咬了一口。
 
-Watch
+
 
 ## 什么是孤星蜱，它们生活在哪里？
 

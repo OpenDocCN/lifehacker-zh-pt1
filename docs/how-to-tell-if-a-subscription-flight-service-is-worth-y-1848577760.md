@@ -4,7 +4,7 @@
 
 订阅服务对企业和消费者来说都是双赢的。有时候，这些模式对消费者来说甚至比商家([RIP movie pass](https://lifehacker.com/rip-moviepass-1838106387))更好。现在，阿拉斯加航空公司正在通过 Flight Pass 进入订阅经济，这是一项年度计划，允许订户以每月固定费用的一部分预订参与航班，据称 [的费用低于标准机票价格](https://www.alaskaair.com/content/gifts-and-products/flight-pass) 。
 
-Watch
+
 
 阿拉斯加航空公司 [最初宣称](https://www.forbes.com/sites/michaelgoldstein/2022/02/17/will-alaska-airlines-new-flight-pass-subscription-service-take-off/?sh=6e8f6e338b13) 的 Flight Pass 是有史以来第一个主要的航班订阅服务，这并不完全准确。尽管如此，Flight Pass 似乎比 Jet Blue 误导性的 [All You Can Jet](https://thepointsguy.com/news/jetblue-all-you-can-jet-2019/) 计划等前辈更有前途——只要你一直在参与目的地旅行。
 

@@ -4,7 +4,7 @@
 
 当你打开一封邮件时，没有明显的迹象表明发件人会知道。它不像 Facebook Messenger，每当你打开一条消息，它就会发送一个 [公开已读回执](https://lifehacker.com/how-to-turn-off-read-receipts-on-most-popular-messagi-1848438633) 。然而，发件人可以在电子邮件中包含一个像素大小的小图像，它可以在我们打开它时进行识别。反过来，它告诉发送者(narc)。它被称为像素跟踪器，这是电子邮件不是隐私友好服务的一个例子。
 
-Watch
+
 
 然而，科技公司已经开始反击。去年，苹果公司为其产品套件实现了“ [”隐藏我的电子邮件](https://lifehacker.com/how-to-get-a-burner-email-address-with-icloud-s-hide-my-1847553382) ”，每当你需要与一家公司分享你的电子邮件时，它都会生成一个唯一的“一次性”地址。那个一次性地址会将你的信息转发到你的真实地址，所以你永远不需要与可疑的服务共享它。
 

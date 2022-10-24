@@ -4,7 +4,7 @@
 
 如果你最近参加了所有最近的 [【梦想工作】](https://lifehacker.com/how-to-apply-for-a-job-that-pays-50k-to-explore-nation-1845116265) 旅行竞赛，但是运气不佳，我们为你带来了另一个。这一次的“位置”是“发现之王”，涉及 [一场摄影大赛](http://photocomp.monsterchildren.com/#enter) ，一辆 1978 年的面包车和威士忌。以下是你需要知道的。
 
-Watch
+
 
 ### 摄影比赛
 

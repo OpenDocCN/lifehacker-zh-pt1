@@ -4,7 +4,7 @@
 
 在 18 岁之前，Amber Kelley 已经赢得了 [*美食网明星 Kids*](https://www.foodnetwork.com/shows/food-network-star-kids) ，写了自己的 [食谱](https://www.amazon.com/gp/product/0762463872?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-introduce-your-kids-to-cooking-1846169977&asc_source=&pf_rd_p=1cac67ce-697a-47be-b2f5-9ae91aab54f2&pf_rd_r=GSC2JCA9VS1SPWQG84WJ&tag=kinjalifehackerlink-20) ，发起了 [成功的 YouTube 秀](https://www.youtube.com/user/CookWithAmber) ，并入围了 n 杰米·奥利弗的“寻找美食之星”比赛。但是她通过和父母在厨房里闲逛开始了厨师的职业。
 
-Watch
+
 
 “烹饪一直是我们大家一起做的事情，”凯利说。“我妈妈教了我一些基础知识。我开始用黄油刀切香蕉。我帮妈妈做了很多事情，她会在炉子旁或做大块的切肉，但在我使用暖气或大厨刀之前，这让我在厨房里很舒服。”虽然你的孩子可能注定不会成为美食频道的明星，但你仍然可以马上做一些事情让他们有家的感觉在厨房里。
 

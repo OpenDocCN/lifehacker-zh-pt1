@@ -4,7 +4,7 @@
 
 在世界各地的国家中，习惯是进屋前脱鞋。一些家庭这样做是出于实际原因，而另一些家庭则是出于 [宗教原因](https://www.ritiriwaz.com/why-we-remove-shoes-before-entering-temple/) 脱鞋。在美国，家里围绕鞋子的对话往往是绑着 [细菌和污秽](https://www.vice.com/en/article/435ymn/wearing-shoes-inside-house-bacteria) 。虽然这是一个合理的担忧，但是你的鞋子可能没有你想象的那么脏或者有细菌。
 
-Watch
+
 
 ## 你的鞋子有多少细菌？
 

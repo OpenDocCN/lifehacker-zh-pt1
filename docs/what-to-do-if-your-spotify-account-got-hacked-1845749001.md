@@ -4,7 +4,7 @@
 
 成千上万的 Spotify 用户才明白为什么不应该重复使用密码。
 
-Watch
+
 
 [网络安全公司 VPN mentor](https://www.vpnmentor.com/blog/report-spotify-scam/)发现了一个安全措施不当的数据库，其中包含数千个 Spotify 账户的电子邮件地址、密码、账户名称和其他个人信息。黑客借助*其他*泄露的或者经由 [凭据填充](https://lifehacker.com/1password-adds-password-checker-pwned-passwords-1823264040) 来编译这些数据，而不是直接攻击 Spotify 本身；尽管如此，这种采矿作业还是让他们成功地将分成了 30 多万个账户。
 

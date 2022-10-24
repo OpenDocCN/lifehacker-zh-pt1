@@ -4,7 +4,7 @@
 
 几年前，我很开心地揭穿了那些把它放在你的点烟器里以节省汽油的把戏之一，[当他们要求道歉的时候](https://jalopnik.com/fuelshark-wants-us-to-apologize-because-they-sell-bulls-1527588505) 又做了一次。这些东西绝对是骗局，我还以为它们现在已经消失了。我错了。 [一个读者给我发了一个链接，同样的东西，现在叫 fuel save](https://lulaleaves.com/products/fuelsave%E2%84%A2?fbclid=IwAR277KYUXmtD4FGERop6DshTPUyiPQq2SXQ4eyHnuNwK-WbsARl0E30H2uY_aem_AYvVKzPNgMnQ6YYjjOvHsVFawo-2CAJZYWIBVLSd3PeiwBbv6g58v-78ObYNKcheez6UgB0BM_bf-Onv-tU237xa6_snhgb8IlKYQFx1rPJeZWBz6fhaVjVknMfAJjAQemc)，也是一样的扯淡。也许更多，因为这个人声称他们用这种“技术”驾驶一辆旧甲壳虫用一箱汽油行驶了 2096 英里。
 
-Watch
+
 
 我有一辆旧甲壳虫，虽然它很省油，但你需要一辆油箱是通常大小八倍的甲壳虫来完成它。同样有趣的是，当我最初测试几乎相同的燃料鲨鱼时，我实际上也使用了一辆旧甲壳虫。
 

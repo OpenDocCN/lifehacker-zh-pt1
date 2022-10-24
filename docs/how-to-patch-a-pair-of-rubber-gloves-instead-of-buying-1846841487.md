@@ -4,7 +4,7 @@
 
 虽然橡胶手套很耐用，但它们不会永远耐用，如果你发现你最喜欢的手套突然有一个大到令人讨厌但不一定要扔掉的洞，你可能会想 [考虑修理它们](https://www.avpress.com/valley_life/how-to-fix-rubber-gloves/article_cbd5cf64-ad49-11eb-b323-e70afba6cc9e.html) 。这里有一个简单的方法。
 
-Watch
+
 
 ### 如何修补橡胶手套上的洞
 

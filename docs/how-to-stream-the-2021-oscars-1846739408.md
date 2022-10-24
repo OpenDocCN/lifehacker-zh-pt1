@@ -8,7 +8,7 @@
 
 如果说疫情时代的](https://variety.com/2020/film/news/why-an-all-streaming-movie-world-wont-look-like-you-think-it-will-column-1234847237/) [艾美奖](https://variety.com/2020/tv/news/emmys-ratings-abc-jimmy-kimmel-1234777513/) 和 [金球奖](https://www.cnn.com/2021/03/02/entertainment/golden-globe-ratings/index.html) 的收视率能告诉我们什么的话，那就是当颁奖典礼在虚拟世界中进行时，人们甚至更不感兴趣了(或者我们只是没有心情看好莱坞庆祝自己)。奥斯卡将至少试图通过把大多数(经过测试，可能接种过疫苗的)明星 [聚集在一个房间](https://www.usmagazine.com/entertainment/pictures/oscars-2021-no-host-not-virtual-everything-to-know/) 来保持一种正常的外表，所以如果你想观看，下面是如何做的。
 
-Watch
+
 
 ### 电视上还在播
 

@@ -4,7 +4,7 @@
 
 大蒜是世界各地各种菜肴中的重要配料。 [Maneul jangjji](https://www.koreanbapsang.com/maneul-jangajji-korean-pickled-garlic/) 是韩国餐桌上流行的腌蒜配菜，埃及 [kushary](https://www.sugarandgarlic.com/kushary-an-egyptian-comfort-food/#:~:text=Kushary%20is%20a%20classic%20Egyptian,carb%20diet%2C%20then%20look%20away.) 是人们喜爱的大蒜- 前餐，法式 [蜜饯蒜](https://larderlove.com/preserved-garlic-oil/) 几乎对任何东西都很美味。对我来说，表达对大蒜的喜爱的最常见的方式是撒上一点泰国炸蒜片。
 
-Watch
+
 
 我称之为 gratiam tod 蒜片、因为它们通常被切成片*样、*但这似乎让人们感到困惑，他们希望我在煎蛋卷上倒一把薯片。所以就叫炒蒜吧。如果你已经喜欢大蒜了，我应该很难说服你做这个。对于那些不确定是否要提前准备的人来说——这非常简单，即使一小批也能让你在柜台上放上不少。然后，只要有心情，你就可以给成品菜肴添加一种快速蒸馏的蒜味。此外，这是买一送一的交易。你可以吃到炸好的大蒜片*和*浸有橄榄油的大蒜。
 

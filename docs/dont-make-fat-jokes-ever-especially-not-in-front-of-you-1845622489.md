@@ -4,7 +4,7 @@
 
 这个疫情给了我们每个人自己身体和精神垃圾的聚宝盆:焦虑、孤立、抑郁、惰性和失眠，仅举几例。对一些人来说，这也导致了更频繁地消费不太健康的食物。这种放纵(坦率地说，这是我们应得的)导致了多少有些不可避免的关于“COVID 19”或“ [隔离 15](https://twitter.com/hashtag/quarantine15?src=hashtag_click) ”的笑话——这是更传统的“大一 15”的情景增重表弟
 
-Watch
+
 
 不管世界上发生了什么——天啊，发生了很多事情——我们似乎无法停止谈论我们现在都增加了多少体重。问题是，我们*需要*停下来，尤其是当我们的孩子听得见的时候。Hayley Juhl 在 [蒙特利尔公报](https://montrealgazette.com/news/local-news/juhl-when-we-make-and-laugh-at-fat-jokes-our-children-are-listening) 中给我们提供了这个提醒:
 

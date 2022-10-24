@@ -4,7 +4,7 @@
 
 大多数时候，你可能是在浏览网页，而不是真正阅读。这对于快速新闻更新和浏览社交媒体来说没问题。但是当你打开一篇你真正想读的长文章时，事情就开始变得困难了。
 
-Watch
+
 
 你发现你的思维在走神，并且越来越难注意到同一个页面。是的，你可以把文章保存在 [的](https://lifehacker.com/read-it-later-showdown-pocket-vs-instapaper-1756021479) 口袋里，以便以后阅读，但我们都知道那是你的阅读清单的归宿。互联网无休止的刺激已经 [扼杀了你专注的能力](https://wexnermedical.osu.edu/blog/how-internet-affects-your-brain)——那么该怎么办？
 

@@ -4,7 +4,7 @@
 
 Twitter 已经 [推出了](https://www.cnet.com/news/twitter-wants-you-to-try-ticketed-spaces-super-follows/) 两项新功能，超级关注和购票空间，该公司称这将帮助创作者从他们的关注者身上赚钱。这是否意味着你可以使用社交媒体应用程序体面地生活？可能不会，除非你已经有一大群推特粉丝渴望高价消费你的内容。下面来看看这些新特性是如何工作的。
 
-Watch
+
 
 ## **目前，超级粉丝和购票空间仅限受邀者使用**
 

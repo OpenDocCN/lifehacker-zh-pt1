@@ -4,7 +4,7 @@
 
 在 Lifehacker，我们已经鼓励你创建自己的 Peloton 式健身车的 DIY 版本(我们的健康编辑尝试了足够长的时间，给了它 [她的批准](https://vitals.lifehacker.com/what-its-like-to-live-with-a-diy-exercise-bike-1844946460) )。但是如果你的小孩已经有了一辆带辅助轮的自行车，你可以不花一毛钱为他们造一辆类似的——你可以用它来让他们在幼儿园的课堂上尽情摇摆。
 
-Watch
+
 
 父母 Julie Bredemeier Fulks 想出了如何为她精力充沛的幼儿园孩子 Charleston 制作一辆家用健身车，并好心地在脸书 与我们分享她的才华:
 

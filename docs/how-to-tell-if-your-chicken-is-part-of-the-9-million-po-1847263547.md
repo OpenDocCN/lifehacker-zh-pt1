@@ -4,7 +4,7 @@
 
 完全煮熟的即食鸡肉可能是一种方便的方式来为一餐添加一些蛋白质，但如果你现在冰箱里有任何鸡肉，你会想检查一下标签。
 
-Watch
+
 
 这是因为近 900 万磅(准确地说是 8955296 磅)的泰森鸡肉产品是大规模召回的一部分，原因是担心这些食品可能掺杂了*单核细胞增生李斯特菌*据 [美国农业部(USDA)食品安全和检验服务](https://www.fsis.usda.gov/recalls-alerts/tyson-foods-inc.-recalls-ready-eat-chicken-products-due-possible-listeria) (FSIS)称。以下是关于召回需要了解的内容。
 

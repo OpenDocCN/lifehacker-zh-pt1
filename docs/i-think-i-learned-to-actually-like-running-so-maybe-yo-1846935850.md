@@ -4,7 +4,7 @@
 
 在为期一个月的“ [Lifehacker 健身挑战赛](https://lifehacker.com/c/lifehacker-fitness-challenge) ”中，当我结束第三周努力学习*喜欢*跑步——这是我一生中最讨厌的事情时，我不得不报告几个打嗝和一个难以置信的、几乎难以置信的成功。
 
-Watch
+
 
 首先，打嗝，有几个。尽管上周给自己定了三次跑的 [目标](https://vitals.lifehacker.com/how-zombies-made-me-hate-running-slightly-less-than-i-d-1846887981) ，但上周我还是准确地跑了一次*:*
 

@@ -4,7 +4,7 @@
 
 根据我的经验，运动服装大多是 Instagram 广告的一部分，有一段时间我认为 Halara 试图让它们自己发生。但是根据最近两篇来自纽约出版物的文章( [《纽约时报》](https://www.nytimes.com/2021/08/18/style/exercise-dress.html) 和 [the Cut](https://www.thecut.com/2021/08/what-do-you-even-do-in-an-exercise-dress.html) )，这些东西无处不在(显然是在纽约)，人们对此感到困惑。你应该穿着它们做什么样的运动？
 
-Watch
+
 
 两篇文章的作者得出结论，运动服是为了让你看起来随时都可以锻炼，即使你并不打算锻炼。换句话说，它们是休闲服装。或者换句话说，它们比运动裤更可爱，也更容易被社会接受，因为你可能不打算穿运动裤出汗。
 

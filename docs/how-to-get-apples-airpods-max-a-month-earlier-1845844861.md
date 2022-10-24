@@ -4,7 +4,7 @@
 
 苹果的热情是强烈的。曾经有一段时间，我也想要这家公司生产的许多产品——甚至为了一部全新的 iPhone 排队等候几个小时。不管你对苹果刚刚宣布的豪华 AirPods Max 怎么说，但有一个不争的事实是关于新的 550 美元(！)罐头: [要得到它们](https://gadgets.ndtv.com/audio/news/apple-airpods-max-shipping-times-delay-march-2021-india-availability-price-rs-59900-specifications-features-colours-2336186) 要花很长时间，就算你再聪明。
 
-Watch
+
 
 如果你真的对 ai rpods Max 感到兴奋，有*有*一种古怪的方式，你可以在大多数其他人之前获得它们。在撰写本文时，AirPods Max 的发货日期是从购买之日起 12-14 周。如果我今天预订一双(我没有)，这意味着它们会在 3 月 3 日到 3 月 17 日之间到达。这与他们 12 月 15 日的发布时间相差甚远。
 

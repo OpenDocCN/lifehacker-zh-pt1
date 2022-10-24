@@ -4,7 +4,7 @@
 
 Signal 正在为 Android 用户测试一种新的 wifi 传输工具，这种工具可以让你将你的信息历史转移到一个新设备上，就像去年添加到 iOS 的 [手机到手机传输信号一样。](https://lifehacker.com/how-to-add-pin-security-to-your-signal-account-1843591099)
 
-Watch
+
 
 在引入这一新功能之前，Android 用户可以在多个设备上激活他们的账户，但信息数据必须使用 PC 手动备份和传输。新的传输工具跳过了这一步，通过 wifi 移动你所有的信号数据——包括信息历史。在传输过程中，两台设备都进行了端到端加密，以确保您的数据安全。
 

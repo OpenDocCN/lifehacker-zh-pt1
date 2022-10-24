@@ -4,7 +4,7 @@
 
 一个奇怪的错误正在影响苹果 M1 系列 MAC 电脑(笔记本电脑*和台式电脑*)的一些用户，它触发 macOS 屏幕保护程序随机运行。一开始听起来还不错——谁不喜欢 Flurry 呢？——除了一个更奇怪的问题，一旦它被打开，受影响的 Mac 的屏幕保护程序就无法关闭。
 
-Watch
+
 
 如果你被这个错误击中，你基本上被锁定在你的系统之外，这似乎与 macOS 的“快速用户切换”功能有关。如果你在 MacBook 上只使用一个账户，你可能不会受到这个 bug 的影响；然而，如果你在 Mac 上有多个账户，你可能需要采取一些措施来解决这个问题，以免 [在你不方便的时候把你锁出系统](https://forums.macrumors.com/threads/what-is-going-on-here-screensaver-like-animation-spontaneously-appears-video.2273013/post-29338930) 。
 

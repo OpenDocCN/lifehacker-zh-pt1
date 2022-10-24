@@ -4,7 +4,7 @@
 
 随着本周 [在迪士尼+](https://gizmodo.com/the-original-muppet-show-is-coming-disney-in-all-its-g-1846084713) 的到来，吉姆·汉森的*布偶秀*——独一无二的——终于可以更容易地被粉丝们看到了。你可能会兴奋得一头扎进去，但是如果你想跳过一点，我们有一些最好的建议。
 
-Watch
+
 
 虽然迪士尼的 [更近的电影](https://io9.gizmodo.com/the-new-muppet-movie-is-the-real-thing-5862539) 和 [系列主演的布袋戏](https://io9.gizmodo.com/disneys-muppets-now-limited-series-finally-has-a-releas-1843564285) 都得到了不同程度的极尽 OK，最初的*布袋戏*仍然可以理解地被认为是一些 [最强评书主演的角色](https://io9.gizmodo.com/a-new-documentary-about-the-muppets-shows-why-almost-ev-1793407511) 。这在很大程度上是因为汉森的直接参与。
 

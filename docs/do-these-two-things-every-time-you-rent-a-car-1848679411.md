@@ -4,7 +4,7 @@
 
 今年春天，我们中的许多人都渴望上路，去看看除了房子内部以外的任何东西。P 用和全国范围内的汽车租赁短缺来表达你的绝望。你可能会因为真的得到一辆车而如释重负，在别人抢走本属于你的东西之前，跳上驾驶座离开。但是在你离开停车场之前，有两件事你应该做，以防止将来你为不是你造成的损失买单，或者为你不应该负责的事情买单。
 
-Watch
+
 
 以 [开始(和结束)，Reddit 用户 u/rvtsazap 提醒我们](https://www.reddit.com/r/LifeProTips/comments/timyb6/lpt_always_take_pictures_of_your_rental_vehicle/) 一拿到车就记录下车上的每一处刮痕和凹痕——就在你还车之前:
 

@@ -4,7 +4,7 @@
 
 一些联想笔记本电脑用户将很快找到解决 Windows 10 严重错误的方法，该错误已经导致了一系列崩溃和系统启动问题。
 
-Watch
+
 
 这些崩溃是由联想的“增强的 Windows 生物识别安全”功能和 Windows 10 版本 2004 更新中引入的变化之间不可预见的兼容性问题引起的。这是 [一个高度技术性的 bug](https://www.bleepingcomputer.com/news/microsoft/microsoft-explains-why-windows-10-is-crashing-on-lenovo-laptops) ，但核心问题是 Windows 10 版让联想用户无法在不崩溃系统的情况下用笔记本电脑的指纹传感器或网络摄像头登录。
 

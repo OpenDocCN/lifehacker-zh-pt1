@@ -4,7 +4,7 @@
 
 就像 iPhone 键盘上的 [隐藏符号](https://lifehacker.com/how-to-access-the-hidden-symbols-on-your-iphones-keyboa-1847212952) 一样，在你的安卓系统上，长按一次就有大量有用的按键被埋没。在我们分享这些技巧之前，最好澄清一下，这些隐藏的符号可以使用谷歌自己的 [Gboard](https://play.google.com/store/apps/details?id=com.google.android.inputmethod.latin) 键盘应用程序来访问，这是谷歌 Pixel 系列和装有安卓系统的手机的默认键盘。如果你使用的是其他版本的 Android，你当然可以安装 Gboard，因为不是所有的键盘应用都提供相同的功能。
 
-Watch
+
 
 最有用的快捷键藏在句号键下面。按住**。**(句点键)访问一串有用的符号，如&、%、+、#、！、和@。这种快捷方式大大加快了键入速度，因为您不必一次又一次地切换到键盘的符号页。
 

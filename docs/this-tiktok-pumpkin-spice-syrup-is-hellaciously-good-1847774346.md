@@ -4,7 +4,7 @@
 
 你可能已经注意到一种新的南瓜香料糖浆配方正在抖音流传。在@thethriftwitch 发布的这个 [视频](https://www.tiktok.com/@thethriftwitch/video/6999003894697233669) 中，她将两杯红糖、一杯水、一汤匙南瓜派香料和一杯南瓜泥搅拌在一起，慢慢煨成浓稠的糖浆状混合物。
 
-Watch
+
 
 正如 Kitchn [最近报道的](https://www.thekitchn.com/i-tried-the-homemade-pumpkin-spice-syrup-from-tiktok-23233847) ，虽然这是一个很好的配方，但你需要做一些修改，以达到你在视频中看到的浓稠的稠度——包括减少水量，等到最后再加入你的南瓜泥。否则，你会落得一塌糊涂。
 

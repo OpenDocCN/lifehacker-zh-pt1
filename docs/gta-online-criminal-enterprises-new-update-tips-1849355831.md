@@ -4,7 +4,7 @@
 
 [随着上周*发布新的*侠盗猎车手在线](https://kotaku.com/gta-online-update-criminal-enterprises-iaa-missions-1849334935) 更新，在 Rockstar 增加了更多赚钱的方法后，游戏变得更容易了，这些方法不需要揪你的头发和忍受烦人的巨魔。但是对于一个已经很大的游戏来说，像这样的大更新可能会让人不知所措。
 
-Watch
+
 
 不过，不要担心，我们有一些提示，对回归的玩家，甚至那些想要快速了解新内容以及 [犯罪企业更新](https://kotaku.com/gta-online-jetbike-criminal-enterprises-money-rockstar-1849314732) 如何工作的长期 *GTA Online* 老兵都应该有用。
 

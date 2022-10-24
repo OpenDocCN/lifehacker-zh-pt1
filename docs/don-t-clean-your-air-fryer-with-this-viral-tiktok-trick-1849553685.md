@@ -4,7 +4,7 @@
 
 又是一天，又是一个 [误入歧途的来自抖音](https://lifehacker.com/tiktok-s-overloading-trend-is-a-crappy-way-to-clean-y-1849545412) 的清洗黑客，让你将 [后悔尝试](https://lifehacker.com/never-cook-these-things-in-your-air-fryer-1848462042) 。在流行的视频分享应用上流传的最新清洁技巧都是关于 [空气油炸锅](https://lifehacker.com/the-first-15-things-you-should-cook-in-your-new-air-fry-1848217324)——但据报道这种特殊的黑客正在破坏人们的空气油炸锅。
 
-Watch
+
 
 ## 什么是抖音空气油炸锅清洁黑客？
 

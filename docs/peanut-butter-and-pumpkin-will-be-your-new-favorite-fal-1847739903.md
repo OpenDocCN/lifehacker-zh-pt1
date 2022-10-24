@@ -4,7 +4,7 @@
 
 正如我们在外卖店的同事指出的，在我们所有人的 中都有一个 [怪异的花生酱三明治。对我母亲来说，这意味着在她 20 年公立学校教师生涯的每一天，她都要带一份花生酱和泡菜三明治作为午餐*。正如她经常指出的，她从来不担心有人偷她的午餐。*](https://thetakeout.com/weird-peanut-butter-sandwich-bacon-mayo-chia-1839445425) 
 
-Watch
+
 
 对于其他人来说，它可能是一个 [花生酱和培根三明治](https://lifehacker.com/alternative-peanut-butter-sandwiches-for-when-you-run-o-1842866710) ，一个花生酱和棉花糖绒毛三明治， [花生酱和黄油三明治](https://thetakeout.com/weird-peanut-butter-sandwich-bacon-mayo-chia-1839445425) ，一个花生酱和薯条三明治，甚至是一个 [花生酱和沙拉三明治](https://spoonuniversity.com/lifestyle/taste-test-bizarre-peanut-butter-sandwich-combos) 。
 

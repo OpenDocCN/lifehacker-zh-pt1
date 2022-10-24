@@ -4,7 +4,7 @@
 
 疫情会议之前的一项调查显示，近一半的美国人 [认为他们的工资过低](https://www.prnewswire.com/news-releases/are-you-underpaid-survey-released-with-robert-half-2019-salary-guides-finds-46-percent-of-workers-feel-shortchanged-300702967.html) ，COVID 使情况变得更糟，因为近三分之一的美国人失业或被减薪，根据 Redfin。你觉得工资低吗？这里有一些关于如何提出加薪的建议。 
 
-Watch
+
 
 ### **首先，定义支付不足**
 

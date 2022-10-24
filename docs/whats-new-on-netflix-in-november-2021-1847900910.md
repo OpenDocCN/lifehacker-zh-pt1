@@ -4,7 +4,7 @@
 
 无论你怎么说网飞(还有很多到 [说](https://www.thebatt.com/opinion/is-netflix-ruining-the-way-movies-are-being-watched/article_dd82e138-0738-11ea-a8c3-f7d9eeb293e4.html) ，尤其是 [本周](https://www.npr.org/2021/10/20/1047307202/netflix-fired-trans-nonbinary-walkout-organizer-speaks) )，你都必须承认 streamer:他们可能有 185 亿美元的债务，但他们已经花了很多钱在那种利基内容上，这种内容在真空空间的任何其他地方都不会有柯基的机会。
 
-Watch
+
 
 以《星际牛仔》的真人版重启为例，这是一部 90 年代在美国轰动一时的标志性动画，《T2》的真人版绝对不需要存在——但它看起来很酷，我很高兴它确实存在。至少现在是这样。也许一旦这部由约翰·赵主演的跨文化、跨流派的电影在 11 月 19 日首映，我会有不同的感觉。 [3-2-1，让我们卡住](https://www.youtube.com/watch?v=T6zDfxZ4NcE&ab_channel=7th7andwich) ，希望如此。这还不是网飞在 11 月份下的唯一大赌注。我还对林·曼努埃尔·米兰达(我知道，我知道)的关于剧作家张克帆·拉森的传记电影感兴趣。*滴答，滴答...嘣！*(11 月 19 日)是根据 *Rent* creator 的 [自传体音乐剧](https://en.wikipedia.org/wiki/Tick,_Tick..._Boom!) 改编的一部舞台剧，你会被一个不知名的作家第一次尝试写百老汇秀是一部关于他自己的音乐传记片的想法吓跑，也许音乐剧不适合你。
 

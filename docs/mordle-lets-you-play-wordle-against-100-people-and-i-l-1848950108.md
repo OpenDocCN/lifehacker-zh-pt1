@@ -4,7 +4,7 @@
 
 在的广阔世界里，竞争版本的设计尤其棘手。和某人比赛意味着什么？你们是怎么互动的？胜利有多激动人心，失败有多痛苦？ [口角](https://lifehacker.com/squabble-lets-you-beat-other-people-at-wordle-in-real-t-1848849342) 混乱而伤脑筋，P3nto 近乎高深莫测。但是一个新人， [Mordle](https://mordle.io/) ，成了我的最爱。
 
-Watch
+
 
 当你玩魔多游戏时，你只需等一会儿，大厅就会挤满了其他玩家。最多可允许 100 人进入；我通常和 20 到 30 个人一起玩游戏。
 

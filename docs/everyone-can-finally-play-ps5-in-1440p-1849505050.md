@@ -4,7 +4,7 @@
 
 如果你今天早上有一轮 [*埃尔登环*](https://lifehacker.com/10-elden-ring-tips-for-complete-beginners-1848627469) 或 [*流浪*](https://lifehacker.com/13-more-animal-video-games-to-play-when-you-finish-stra-1849218567) 被写进你的日历，是时候重新安排了。您的 PS5 有新的更新可供下载和安装。幸运的是，这是值得的——尤其是如果你碰巧拥有一台 1440p 显示器的话。索尼于 9 月 7 日周三向 PS5 机主发布了 [系统软件 6.0](https://www.playstation.com/en-us/support/hardware/ps5/system-software/) 。此次更新为您的 PlayStation 带来了许多有趣的新功能和变化，但最大的亮点无疑是 1440p 支持。
 
-Watch
+
 
 1440 p 游戏普遍越来越受欢迎。它提供了比 1080p 更高的分辨率，但对图形的要求没有 4K 游戏高。当然，PS5 不仅具备 4K 功能，而且不是模块化系统(每个人都有相同的硬件)，但如果你拥有一台 1440p *显示器*，这一更新允许你原生输出到该显示器，提供像素完美的游戏体验。
 

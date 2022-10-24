@@ -4,7 +4,7 @@
 
 iPhone 和 Android 智能手机使得用表情符号和 gif 聊天变得很容易。它们内置在键盘上，带有一个专用按钮——Android 甚至将 GIF 搜索直接内置在 Gboard 中。但当你转而在 Mac 或 Windows 电脑上工作时，你可能会觉得失去了这种轻松。但实际上， Mac 和 Windows 都有内置的表情选择器，而 Windows 11 和安卓一样，也有内置的 GIF 工具。一切都在那里——你只需要知道去哪里找。
 
-Watch
+
 
 ## 如何在 Windows 中添加表情符号或 gif
 

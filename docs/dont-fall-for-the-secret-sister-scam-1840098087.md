@@ -4,7 +4,7 @@
 
 这已经成为一年一度的节日传统——商业改善局再次 [发布关于“秘密姐妹”礼物骗局的警告](https://www.bbb.org/article/scams/18854-bbb-warning-secret-sister-gift-exchange-is-illegal) 。远离脸书要求“六位女士参与秘密姐妹礼物交换”的帖子，因为这是一个金字塔计划，依靠不知情的人向他们的朋友推广骗局。
 
-Watch
+
 
 ### **骗局如何运作**
 

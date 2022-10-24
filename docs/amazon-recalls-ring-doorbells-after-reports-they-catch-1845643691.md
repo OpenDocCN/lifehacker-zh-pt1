@@ -4,7 +4,7 @@
 
 在这一年里，似乎一切都在字面上和象征性地着火，这并不奇怪，我们现在可以将亚马逊的环形视频门铃添加到列表中。没错，原来你为了让家里更安全而购买安装的设备本身就是一个安全隐患。结果， [亚马逊对其广受欢迎的门铃/间谍相机](https://www.cpsc.gov/Recalls/2020/ring-recalls-video-doorbells-2nd-generation-due-to-fire-hazard) 发出大规模召回。以下是需要了解的内容。
 
-Watch
+
 
 ### 门铃是怎么回事？
 

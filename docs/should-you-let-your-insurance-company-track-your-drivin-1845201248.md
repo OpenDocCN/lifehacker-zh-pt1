@@ -4,7 +4,7 @@
 
 汽车保险公司 [越来越多地提供“基于使用的保险”](https://insurancenewsnet.com/oarticle/usage-based-insurance-market-to-cross-115-bn-us-dollar-by-2026-desjardins-metromile-nationwide-allianz-allstate-axa-cambridge-mobile-telematics-danlaw-inc#.X3FGJZNKhec) 费率，依靠手机或 GPS 设备监控你的驾驶方式。这些费率可以提供传统汽车保险可能提供的重大折扣，但也有所取舍。以下是你需要知道的，以决定基于使用的保险是否适合你。
 
-Watch
+
 
 ### **什么是基于使用的保险？**
 

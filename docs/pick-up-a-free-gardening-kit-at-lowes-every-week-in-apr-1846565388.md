@@ -4,7 +4,7 @@
 
 漫长的冬天过后——尤其是如果你和孩子住在一起——你家里的每个人可能都准备好出门了。如果你的家人在去年春天被困在家里时开始从事园艺，你可能会寻找一些新的项目。事实上，根据[Cinch Home Services](https://www.cinchhomeservices.com/view-blog/-/blogs/exploring-perceptions-of-homebuying-in-2021)进行的一项调查，54%的房主表示他们将在 2021 年改善他们的房产，其中 35%的人在他们的后院。
 
-Watch
+
 
 今年春天，家装连锁店 Lowe's 希望利用我们在户外花费更多时间的兴趣。“今年的春天感觉太隐喻了。Lowe 的执行副总裁、首席品牌和营销官 Marisa Thalberg 在接受《今日美国》 采访时说。“我们已经看到，随着美国不同地区的天气开始变暖，人们的兴趣开始迅速增加。”
 

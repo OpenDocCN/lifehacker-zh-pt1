@@ -4,7 +4,7 @@
 
 随着寒冷、雨夹雪、冰雪席卷美国许多地区，断电的威胁越来越大。虽然停电可能只会造成在夜靠头灯吃剩菜的小麻烦，但有时它可能会有更长、更昂贵的影响，因为你冰箱里的食物会慢慢变坏。但是当恶劣天气导致你家停电几天，你实际上可以从你的房屋保险中得到损失的补偿。
 
-Watch
+
 
 让我们从一个大警告开始:所有的房主保险政策都是不同的。我们不能保证你的保险公司会赔偿因停电而在你家变质的任何食物的价值——你需要检查你的个人保险来确保这一点。然而，在其网站上， [好事达指出](https://www.allstate.com/tr/home-insurance/spoiled-food-coverage.aspx) “在某些情况下，房主保险可能会对停电期间损失的食物进行赔偿。”在线保险市场 [Policy Genius](https://www.policygenius.com/homeowners-insurance/food-spoilage-coverage-what-you-need-to-know/) 提供了一个更令人鼓舞的消息，“大多数标准的房屋保险政策都包括停电后高达 500 美元的食物损失，但前提是停电原因在你的保单范围内。”( [这适用于租房者的保险，也适用于](https://www.policygenius.com/renters-insurance/does-renters-insurance-cover-food-loss/) )。)
 

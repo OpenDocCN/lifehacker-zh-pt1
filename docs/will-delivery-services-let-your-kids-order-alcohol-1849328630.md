@@ -4,7 +4,7 @@
 
 网上送餐服务 [DoorDash 只是让未成年人送酒变得更加困难](https://www.today.com/food/news/doordash-scan-ids-crack-down-underage-alcohol-orders-rcna39389) 。该公司宣布了一个新的酒精交付两步身份验证流程，他们声称为负责任的酒精交付设立了一个新的行业标准。 “食品/饮料配送行业的其他公司情况如何？哪些服务为那些想让孩子远离非法酒精饮料的父母提供了最好的保护？
 
-Watch
+
 
 ## **每个人都检查身份证，但有些公司把它留给司机**
 

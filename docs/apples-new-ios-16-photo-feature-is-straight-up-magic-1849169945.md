@@ -4,7 +4,7 @@
 
 苹果设备的一些功能提醒了我为什么我会被捆绑到他们的生态系统中。 [万能控制](https://lifehacker.com/how-to-enable-universal-control-between-your-mac-and-1848665891) 让我用同一个键盘和鼠标在 Mac 和 iPad 之间移动；隔空投送让文件共享变得愚蠢简单；Handoff 允许您轻松地在设备之间复制和粘贴。而一个 [iOS 16](https://lifehacker.com/the-best-new-features-in-ios-16-and-ipados-16-1849023814) 中的新照片功能现在是那个列表的一部分，因为它*的方式*太酷了。
 
-Watch
+
 
 这个想法很简单:在 iOS 16 y 中，你可以快速准确地将主体从任何给定的照片中“提升”出来，只需将它从背景中拖出即可。没有必要提前追踪或删除主题，或者使用特殊的应用程序或软件。事实上，该功能可以在多个显示图片的应用程序中工作，包括照片、截图、快速查看、Safari 等。
 

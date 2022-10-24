@@ -4,7 +4,7 @@
 
 [*评论阅读器*](https://projects.playables.net/reviewreader/) 是一个非常有趣的网站，你可以点击任何你想要的 Steam 游戏，并通过文本到语音转换程序的舒缓声音向你朗读一些用户评论。
 
-Watch
+
 
 ——感谢 [*PC 游戏玩家*](https://www.pcgamer.com/i-cant-stop-making-this-web-app-read-me-horny-steam-game-reviews/?utm_campaign=socialflow&utm_source=twitter.com&utm_medium=social)——使用起来很可爱有两个原因。首先，它简洁的外观让它看起来很舒服。第二，它通过在你每次点击时混合程序来保持有趣，每当你听到有人说“玩了 200 小时，要求退款”时给你不同的声音。
 

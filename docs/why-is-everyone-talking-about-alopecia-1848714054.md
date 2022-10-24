@@ -4,7 +4,7 @@
 
 昨晚，威尔·史密斯单枪匹马让奥斯卡再次变得有价值。而我所说的单枪匹马，当然指的是他用来 [巴掌喜剧演员](https://www.youtube.com/watch?v=qaN0whso7bc)T5】的那只单刀。我本来可以继续开玩笑，但是 [碎碎念](https://twitter.com/davidmackau/status/1508270575902687232) [有](https://twitter.com/mikeryan/status/1508279692595503110) [有](https://twitter.com/nomchompsky/status/1508289893574881285) [有](https://twitter.com/LORRAKON/status/1508270234062393345) [有](https://twitter.com/thethirdhan/status/1508307970257571840) 。 
 
-Watch
+
 
 不管你对这场争吵有什么感觉，这个事件回避了一个问题:这和脱发有什么关系？
 

@@ -4,7 +4,7 @@
 
 如果你是优步或 Uber Eats 的常客，也是优步奖励计划的会员，你应该计划在接下来的几个月里使用你剩余的积分和福利。优步 [在 10 月 31 日之后，取消其免费的忠诚计划](https://www.theverge.com/2022/8/13/23304267/uber-shutting-down-rewards-loyalty-program-this-year-one-subscription) ，转而支持其付费的月度订阅——优步一号。
 
-Watch
+
 
 优步奖励计划于 2018 年推出，允许会员通过优步乘车和优步吃饭购物获得积分， [可通过优步和其他第三方零售商兑换折扣和优惠](https://thepointsguy.com/news/uber-rewards-ending/) (“精选奖励”)。用户还可以获得会员级别的积分，从而获得额外的优惠，如乘坐升级和专门的客户支持。
 

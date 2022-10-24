@@ -4,7 +4,7 @@
 
 在我们的一生中，我们都被一点一滴地消磨掉了。有我们需要(或想要)支付的东西，然后是我们期望支付的超出那些东西的假定成本的费用:有 [神秘的酒店费用](https://lifehacker.com/all-of-your-mysterious-hotel-fees-explained-1822610340)[惊人的机票费用](https://lifehacker.com/how-to-avoid-an-airlines-bullshit-seat-selection-fee-1847345736)[惩罚年轻人的租车费用](https://lifehacker.com/how-to-avoid-paying-extra-fees-on-your-car-rental-when-1834750333)——不胜枚举。但是像这样的费用真正让你恼火的是，它们让你觉得被操纵了——我们应该假装这不仅仅是在已经谈妥的价格上攫取现金。
 
-Watch
+
 
 也就是说，有些费用比其他费用有更高的扯淡商数。你无法避免*我们的资本主义主人扔给我们的所有*费用，但是有很多愚蠢的费用你可以避免——并且*永远不要*支付。
 

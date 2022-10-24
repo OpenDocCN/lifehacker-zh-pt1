@@ -4,7 +4,7 @@
 
 随着冬季的临近，许多人将开始更频繁地在室内聚集，这意味着含有病毒的飞沫将在更近的 T2 地区通过空气传播到 T4。根据 [CDC](https://www.cdc.gov/mmwr/volumes/70/wr/mm7027e1.htm) 、 [EPA](https://www.epa.gov/coronavirus/air-cleaners-hvac-filters-and-coronavirus-covid-19) 和 [OSHA](https://www.osha.gov/sites/default/files/publications/OSHA4172.pdf) ，良好的通风— 包括便携式空气净化器— 是你可以添加到 COVID 缓解计划中的一件事，有助于降低室内病毒传播的风险。Y 你可以花 150 到 300 美元买一台空气净化器，或者你可以花 65 到 100 美元自己组装一台。
 
-Watch
+
 
 ## 为你的家自制空气净化器所需的材料
 

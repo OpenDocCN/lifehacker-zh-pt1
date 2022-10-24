@@ -4,7 +4,7 @@
 
 Carvana 及其竞争对手可能会被一些人视为比进入经销商更好。它的技术使购买过程变得简单，对话式汽车自动售货机和送货上门都很有吸引力。我们自己的奔驰 Streeter [最近的](https://jalopnik.com/buying-this-toyota-prius-through-carvana-was-easier-tha-1847978340) 正好说明了这一点。但据我采访的一位 Carvana 客户说，整个体验有时会很糟糕，这都是因为错过了验车。
 
-Watch
+
 
 这个人是 Reddit 用户 [u/beep41](https://www.reddit.com/user/beep41/) ，他 [在网站上发布了他的整个故事。他最终找到了一份工作，挣的钱足以让他升级自己的汽车。他需要 3000 美元的定金，他听说了 Carvana 给人们提供的所有现金和折价优惠。他最初得到了一份工作，但几周后就过期了，所以他又去找了另一份工作，并惊讶于这份工作的价格之高。](https://www.reddit.com/r/cars/comments/qlz1uq/i_bought_a_car_through_carvana_and_it_was/) 
 

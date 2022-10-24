@@ -4,7 +4,7 @@
 
 你永远不知道什么时候你会需要在你的手机上记录一些东西。也许地铁里有一只 [老鼠带着它的切片回家吃饭](https://www.youtube.com/watch?v=UPXUG8q4jKU)；也许一个 [行人在一次通话中就要泄露某人的生活状况](https://www.youtube.com/watch?v=4ZuydxEUpFM) 。无论是哪种情况，如果有一个病毒式的时刻展现在你面前，没有时间可以浪费了——你需要开始拍摄。
 
-Watch
+
 
 我们都知道如何在智能手机上录制视频: O 打开相机应用程序，切换到视频模式，按下红色的录制按钮，然后继续进行。你甚至可能知道 [如何确保以最高质量](https://lifehacker.com/how-to-set-your-smartphone-to-actually-shoot-in-its-hig-1847438528) 录制视频。但当关键时刻到来时，你不会想要摆弄按钮或菜单，这就是为什么 iPhone 和 Android 都支持从照片模式立即录制视频的选项，而不需要你先跳到视频模式。
 

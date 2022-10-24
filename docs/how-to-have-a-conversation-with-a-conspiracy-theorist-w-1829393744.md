@@ -4,7 +4,7 @@
 
 登月是假的，#PizzaGate，9 月 11 日是内鬼，文斯·福斯特被克林顿夫妇谋杀以掩盖白水事件，桑迪胡克大屠杀是一场骗局——美国阴谋论的清单很长，很离奇，在昨天国会大厦发生剧变后，它只会变得更长。(已经 [社交媒体](https://news.yahoo.com/capitol-riot-was-falseflag-operation-by-leftists-trump-backers-claim-with-no-basis-051703320.html)——更不用说 [主流右翼媒体](https://news.yahoo.com/fox-news-stars-america-had-025041228.html)——正在传播这样一种观点，即昨天的事件是“假旗”行动的一部分，旨在伤害唐纳德·川普推翻乔·拜登选举的努力。)
 
-Watch
+
 
 当偏执狂的胡言乱语导致普通人将重要决定——例如，他们如何投票——建立在任何狂热的互联网故事最能支持他们个人世界观的基础上时，这种胡言乱语变得令人担忧和愤怒。当它威胁到社会结构时，它就变得危险了——尤其是当世界上最有权力的人之一在幕后操纵的时候。(要明确的是，这应该被看作是指总统一直没有证据——甚至在政府所在地被围困的时候——从他那里偷走了 [【神圣的压倒性选举】](https://deadline.com/2021/01/donald-trump-speech-capitol-protest-go-home-election-was-stolen-1234666061/) 。
 

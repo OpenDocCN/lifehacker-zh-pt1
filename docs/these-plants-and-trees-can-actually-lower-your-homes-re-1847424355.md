@@ -4,7 +4,7 @@
 
 当然，当你准备出售时，你家在内*上的展示是一件大事——但是在*外*上发生的事情也很重要。 [你的家的 c urb 吸引力](https://www.millionacres.com/real-estate-market/homebuying/what-is-curb-appeal-and-why-does-it-matter-when-selling-a-house/) (或缺乏其中的)将是你的家给潜在买家的第一印象之一——如果你不想让你的景观有损于这种印象，有一些植物和树木你会想避开。*
 
-Watch
+
 
 ## 不要种植入侵物种
 

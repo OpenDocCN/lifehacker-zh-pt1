@@ -4,7 +4,7 @@
 
 生活中有三件事是不可避免的:死亡、税收和软件更新。像 Chrome 这样的程序永远不会完美，安全漏洞不可避免地会被发现——而的目标只是在坏人利用这些漏洞之前，通过更新来粉碎这些漏洞。今天，Chrome 和 Edge 用户 [发现自己处于这样的境地](https://www.bleepingcomputer.com/news/security/emergency-google-chrome-update-fixes-zero-day-used-in-attacks/) 。
 
-Watch
+
 
 ## 谷歌 Chrome 有什么问题？
 

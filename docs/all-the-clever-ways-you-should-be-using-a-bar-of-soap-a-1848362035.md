@@ -4,7 +4,7 @@
 
 这块不起眼的肥皂曾经被认为是不可或缺的家庭必需品，几十年来它经历了坎坷。现在，不一定你会在家里的每个水槽旁和每个浴缸里找到肥皂条，因为许多人 [更喜欢液体品种](https://www.mintel.com/press-centre/beauty-and-personal-care/slippery-slope-for-bar-soap-as-sales-decline-2-since-2014-in-favor-of-more-premium-options) 。(根据 2016 年的一项调查，其中一个原因是 48%的美国消费者认为肥皂在使用后布满了细菌。)
 
-Watch
+
 
 但是不管你个人对肥皂的偏好如何，你可能会考虑买一块肥皂专门用于各种家务——其中许多不涉及任何类型的清洁。这里有一些你应该在家里使用肥皂的巧妙方法。
 

@@ -4,7 +4,7 @@
 
 随着通货膨胀 [达到 7%](https://tradingeconomics.com/united-states/inflation-cpi)[消费者信心](https://www.reuters.com/world/us/us-consumer-sentiment-drops-more-than-10-year-low-february-survey-2022-02-11/) 处于 10 年的低点，在不久的将来提高联邦基金利率已成定局。它 [可能在三月](https://www.nytimes.com/2022/02/14/business/federal-reserve-rates-inflation.html) 的会议上，或者它可能在 [紧急会议](https://www.thestreet.com/markets/inflation-surge-sparks-aggressive-bets-on-emergency-fed-rate-hike) 上来得更快，但是它就要来了。第一次加息之后可能会有一系列的加息，可能会在 2023 年底前将美联储利率从目前的. 08%提高到 1.6%或更高。这意味着银行的最优惠利率(贷款的最优惠利率)最终可能会达到 4.6%左右。 
 
-Watch
+
 
 利率变化将最直接地影响信用卡利率、房屋净值信贷额度和其他类型的可变利率债务，因为这些利率是基于银行的最优惠利率，而最优惠利率在很大程度上与美联储的利率同步变动。其他种类的贷款——抵押贷款、汽车贷款等。—有不同的影响者影响他们的利率，但加息的涟漪效应可能会提高所有借贷的成本。
 

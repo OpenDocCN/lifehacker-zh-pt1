@@ -4,7 +4,7 @@
 
 随着第三轮救济付款于本周发出，美国国税局在周末重新启动了其 [获取我的付款工具](https://www.irs.gov/coronavirus/get-my-payment) 来帮助你追踪你的。该机构在工具中对其支付状态的描述非常精辟，因此我们将阐明它们的实际含义。
 
-Watch
+
 
 ### **如何使用 Get My Payment 工具**
 

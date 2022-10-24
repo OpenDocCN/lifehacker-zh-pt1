@@ -4,7 +4,7 @@
 
 过去，在圣诞节前夕，孩子们与圣诞老人联系的唯一选择是给北极发一封手写的信，或者在当地的购物中心与圣诞老人单独相处。但是在 2020 年，即使是在疫情，孩子们也有 [多种方式与虚拟的](https://lifehacker.com/how-to-visit-santa-virtually-this-year-1845841684) 和 e 大人物联系——包括，现在，通过 [与他聊天的脸书信使孩子](https://www.facebook.com/messengerkidssanta) 。
 
-Watch
+
 
 然而，众所周知，每年的这个时候都德都很忙。所以为了帮助他，他请父母现在代替他和他聊天。也就是说，您可以将他添加为您孩子的批准联系人，但之后您将代表他与他们发送消息。正如 [脸书解释的](https://messengernews.fb.com/2020/12/15/celebrate-the-holidays-with-messenger-kids/) :
 

@@ -4,7 +4,7 @@
 
 在我定期购买的所有食物中，鸡蛋的价格变化最大。它们每打可以卖 2 美元 18 或 7 美元——对于一种非常基本的食物来说，这是一个相当大的差异。
 
-Watch
+
 
 鸡蛋纸盒上有 [很多字](https://lifehacker.com/cage-free-is-basically-meaningless-and-other-lies-yo-1848308957) 印满了它们，其中一些的存在似乎比其他的更能影响里面鸡蛋的价格——尤其是“有机”和“自由放养”你可以在这里 读到所有关于这些词实际上意味着什么 [，但即使有了这些知识，也很难知道更贵的鸡蛋是否“值得”，尤其是如果你正试图用预算养活自己或家人的话。](https://lifehacker.com/cage-free-is-basically-meaningless-and-other-lies-yo-1848308957)
 

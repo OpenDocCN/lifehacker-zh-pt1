@@ -4,7 +4,7 @@
 
 本月早些时候， [索尼宣布清除 PlayStation 5 的](https://kotaku.com/playstation-5-sony-accolades-online-feature-removed-ps5-1849355205) 功能，理由是“绝对他妈的没人用这个东西”这款名为 Accolades 的游戏允许用户在多人游戏中向对手奖励点数。是啊。在索尼把它直接送进坟墓之前，我也从未听说过它。
 
-Watch
+
 
 PS5 是一款设计高效的机器，具有一系列有用的功能和一套令人印象深刻的辅助选项，以及一个整洁的内置指南，为脑筋急转弯游戏提供提示。但是所有的控制台都可以减少一些瑕疵。正如 [*Kotaku* 对任天堂 Switch](https://kotaku.com/nintendo-switch-features-remove-news-app-voice-chat-1849362089) 所做的那样——也正如我们肯定会对微软的 Xbox 系列 X/S 所做的那样……有一天……也许……不敢保证——这里有所有其他可能让 PS5 相形见绌的功能。
 

@@ -4,7 +4,7 @@
 
 如果你是中等收入，并且正在考虑购买你的第一套房子，那么考虑一下 FHA 支持的抵押贷款是值得的。这些贷款只有 [要求](https://www.investopedia.com/ask/answers/112515/can-fha-loans-be-used-investment-property.asp)3.5%的首付，而通常提供比传统贷款更低的利率。另一方面，也有一些限制和权衡要考虑——所以这里有一些信息可以帮助你弄清楚 FHA 贷款是否适合你。
 
-Watch
+
 
 ### 什么是 FHA 贷款？
 

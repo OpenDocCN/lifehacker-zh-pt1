@@ -4,7 +4,7 @@
 
 除非你最近烧断了保险丝，突然发现自己没电了，否则你可能已经有一段时间没在断路器盒前呆过了。但你今天可能想快速浏览一下，看看它是否是因过热而被召回的[140 万电板](https://www.cpsc.gov/Recalls/2022/Schneider-ElectricTM-Recalls-1-4-Million-Electrical-Panels-Due-to-Thermal-Burn-and-Fire-Hazards) 之一。以下是需要了解的内容。
 
-Watch
+
 
 ## 为什么断路器盒被召回？
 

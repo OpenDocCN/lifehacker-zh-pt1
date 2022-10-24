@@ -4,7 +4,7 @@
 
 商业改善局发布 [警告](https://www.bbb.org/article/scams/23570-bbb-scam-alert-selling-used-items-online-beware-of-this-overpayment-scam) 关于影响在线销售商品的消费者的欺诈行为。如果你得到的出价比你的物品售价高得多，那么在交易时要三思——这很可能是一个超额支付的骗局。
 
-Watch
+
 
 ### **超额付款骗局如何运作**
 

@@ -4,7 +4,7 @@
 
 据估计，每年有 30%到 40%的美国人经历失眠症状——这还是在一切变得混乱之前的*。今天，这些数字可能会更糟糕，这可能是一场真正的斗争，因为它影响到你生活的方方面面。但是 [失眠认知行为疗法](https://www.mayoclinic.org/diseases-conditions/insomnia/in-depth/insomnia-treatment/art-20046677) (CBT-I)被认为是治疗失眠的黄金标准，并被推荐为第一个尝试的方法——这是因为研究表明 [CBT-I 与治疗失眠的药物](https://lifehacker.com/therapy-works-as-well-as-medication-for-insomnia-and-1710401121) 一样有效。*
 
-Watch
+
 
 “同样有效，但更持久，”梅奥诊所专门治疗睡眠障碍的精神病学家巴努·科拉 博士说。“一旦你投入了工作，付出了努力，做出了改变，收益就会自然增长并持续下去。”
 

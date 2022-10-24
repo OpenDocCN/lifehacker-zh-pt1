@@ -4,7 +4,7 @@
 
 暂停联邦学生贷款支付和利息 [将于 10 月](https://www.cnbc.com/2021/01/20/biden-plans-to-extend-pause-on-student-loan-payments-until-october.html) 结束，但是你准备好了吗？考虑到 [55%的借款人](https://studentloanhero.com/featured/student-loan-relief-covid-2021/#more) 没有信心在今年晚些时候继续还款，你可能想现在就制定一个计划，因为没有保证学生贷款延期会继续或债务豁免会提供。
 
-Watch
+
 
 ## 评估你现在能支付多少
 

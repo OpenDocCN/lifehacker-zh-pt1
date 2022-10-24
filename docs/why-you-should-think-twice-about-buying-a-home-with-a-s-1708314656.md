@@ -4,7 +4,7 @@
 
 房屋翻新和房地产展示几乎总是以正面的方式描绘后院的游泳池，但它们伴随着巨大的维护、修理和保险费用，这是你在买房时可能不会想到的。无论你计划安装一个游泳池——如果你试图通过增加房地产价值 来收回你的钱，这是一个坏主意[——或者你正在考虑购买一个已经有一个游泳池的房子，这里有几点要记住。](https://lifehacker.com/here-are-the-renovations-that-increase-your-homes-value-1846630618)
 
-Watch
+
 
 你应该知道的第一件事是，谷歌明显低估了“平均”泳池安装成本。 [在 2018 年接受福布斯](https://www.forbes.com/sites/lenakatz/2018/06/27/room-for-a-pool-what-to-really-expect-when-you-buy-an-inground-swimming-pool/?sh=22cadc77f4bf) 、 [比基尼泳池和水疗中心](http://www.bikinipoolsandspas.com/) 的采访时，老板约翰·休金斯解释说，所有谷歌搜索结果在 1 万至 2 万美元范围内的宣传费用都是“只是让推销员迈出第一步的一种方式。”实际数字接近 50，000 美元——这是一个基本的安装。灯光、围栏、甲板、景观和高端机械系统等额外费用很容易使总成本达到 100，000 美元或更多。
 

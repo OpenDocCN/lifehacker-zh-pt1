@@ -4,7 +4,7 @@
 
 最新的一批新版本和端口正在向 Xbox Game Pass 进发，这里有一堆非常好的东西。虽然科幻射击游戏 [*死亡循环*在 PS5 独占一年后终于加入了主机服务](https://kotaku.com/deathloop-review-game-pass-playstation-plus-arkane-1847725473) ，但 2021 年的大规模维京 sim 卡热门游戏*瓦尔海姆*也正在向 PC 端进军。以下是 2022 年 9 月剩余时间的:
 
-Watch
+
 
 ### 9 月 20 日
 

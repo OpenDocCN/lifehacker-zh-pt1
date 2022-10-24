@@ -4,7 +4,7 @@
 
 富豪 [宣布](https://www.prnewswire.com/news-releases/regal-to-close-all-theatres-301025100.html) 无限期关闭他们在美国的电影院几天后，我们 [现在知道](https://www.regmovies.com/static/en/us/unlimited/subscriber-message) 他们的无限订阅计划会发生什么， [于去年 7 月推出](https://lifehacker.com/should-you-get-a-regal-unlimited-movie-subscription-1836730697) 。好消息是，如果你是订户，你将不会为你看不到的电影付费(或失去你无法兑换的奖励)——但看起来你也不能提前取消这些合同。
 
-Watch
+
 
 ### **包月费**
 

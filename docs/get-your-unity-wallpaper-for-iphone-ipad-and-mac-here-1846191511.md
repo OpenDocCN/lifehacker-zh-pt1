@@ -4,7 +4,7 @@
 
 延续苹果对黑人文化的庆祝，该公司发布了新的(和华丽的)“团结”壁纸。这些苹果黑色 Unity 系列的新成员紧随苹果推出的 [Unity 主题表盘](https://lifehacker.com/add-the-pan-african-flag-to-your-apple-watch-for-black-1846143047) 、苹果手表和苹果手表带之后，现在可以在任何苹果商店购买。
 
-Watch
+
 
 作为提醒，黑色团结系列借用了泛非国旗的颜色，突出了“团结非洲散居者的象征。”正如苹果之前在发布新款手表 faces 时所写的:
 

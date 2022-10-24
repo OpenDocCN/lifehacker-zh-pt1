@@ -4,7 +4,7 @@
 
 香槟是迎接新年的一种奇特而危险的方式。打开一瓶酒让人精神振奋。这就像试图戳破一个气球:你知道它会发生，但当它真正爆炸时，你仍然会感到震惊。一个香槟酒瓶每平方英寸可承受 90 磅的压力，比一般的汽车轮胎还要多。一个香槟软木塞在释放时时速可达 55 英里，并有可能导致 [严重的眼部伤害](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC1771961/)[甚至死亡](https://worldnewsdailyreport.com/china-billionaire-killed-by-champagne-bottle-cork/) 。那么，如何安全地打开一瓶香槟，同时又看起来像个老板呢？
 
-Watch
+
 
 ### 当它冷的时候打开它
 

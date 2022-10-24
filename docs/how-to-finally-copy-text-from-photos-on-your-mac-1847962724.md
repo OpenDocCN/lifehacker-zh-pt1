@@ -4,7 +4,7 @@
 
 多亏了 macOS Monterey，你终于可以在 Mac 上扫描和复制照片中的文本了。下一次你想 [节省一些在学校的时间](https://lifehacker.com/how-kids-are-using-iphones-to-cheat-at-school-and-how-1847889748) 或者快速从名片上复制电话号码的时候，从图像中选择并复制文本会给你很大帮助。以下是如何做到这一点。
 
-Watch
+
 
 ## 如何在 macOS Monterey 上拷贝照片中的文本
 

@@ -4,7 +4,7 @@
 
 在过去的几十年里，大学被认为是任何想要过上好日子的人的不二选择。但是最近那个古老的智慧 [越来越受到审查](https://money.com/is-college-worth-the-cost-report/) 。有证据表明，一些大学学位实际上没有回报，从某种意义上说，它们将帮助你找到一份高薪、令人满意的工作，即使正在进行的学生贷款债务危机已经改变了许多人对高等教育的看法。因此，在过去的十年里， [每年的招生人数减少了大约 400 万。](https://www.nbcnews.com/news/us-news/americans-are-increasingly-dubious-going-college-rcna40935#:~:text=There%20are%204%20million%20fewer,people%20straight%20into%20the%20workforce.) 
 
-Watch
+
 
 无论你是一个试图 [决定自己下一步](https://lifehacker.com/top-10-ways-to-find-your-career-path-1628537579) 的年轻人，还是一个只想 [改善收入状况](https://lifehacker.com/how-to-earn-six-figures-according-to-reddit-1847585166) 的人，最终都会有人建议你“进入行业”这是一个很好的建议，从理论上来说——很多行业的工作报酬很高，大多数不需要昂贵的学位，而且总是有很多需求。但是，在给出这个明智的建议后，经常被忽视的是后续的问题:一个人到底是如何“进入交易”的？
 

@@ -4,7 +4,7 @@
 
 每年，人们都会为火鸡、土豆和调料配哪种酒而绞尽脑汁，尽管我们已经知道 [香槟是最好的选择](https://lifehacker.com/champagne-is-the-only-wine-you-need-for-thanksgiving-1830590742) 。但是不是每个人都可以喝香槟(或者任何酒)，而且——虽然它解渴——水对于感恩节来说是不够的。幸运的是(对每个人来说，尤其是对我来说)，健怡可乐是存在的，它是与大餐搭配的完美饮料。
 
-Watch
+
 
 (在我继续之前，我要说，我不会容忍任何在评论或收件箱中对健怡可乐的诽谤。是 [一种美味的饮料](https://lifehacker.com/can-i-just-enjoy-this-damn-diet-coke-without-being-heal-1797073517) 我从五岁就开始享用，我是*精*。)
 

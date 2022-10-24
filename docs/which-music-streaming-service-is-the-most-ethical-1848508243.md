@@ -4,7 +4,7 @@
 
 围绕 Spotify 与乔·罗根的商业合作关系，经历了 [个月的争议](https://gizmodo.com/joe-rogan-apology-n-word-planet-of-the-apes-1848488170) 之后，包括尼尔·杨、因迪亚·阿里和克罗斯比在内的艺术家、斯蒂尔斯和纳什都从 Spotify 的图书馆中撤出了他们的音乐，用户也在向其他平台转移。这种外流提出了一个重要的问题:如果你想搬到一个更道德的平台，你应该搬到哪个平台？
 
-Watch
+
 
 Spotify 有很多可行的替代品，具有类似的功能和歌曲库，但尽管 Apple Music、亚马逊和 YouTube Music 等服务可能不会积极支持因说种族主义话和传播 COVID 错误信息而闻名的喜剧演员，但大多数音乐分发平台 [都忽略了艺术家](https://www.theatlantic.com/ideas/archive/2022/02/neil-young-spotify-joe-rogan-musicians/621503/) 。
 

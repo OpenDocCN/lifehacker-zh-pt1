@@ -4,7 +4,7 @@
 
 这个感恩节是 [不同于](https://lifehacker.com/this-thanksgiving-ignore-tradition-1845626251) 。是的，这是艰难的一年。是的，我们都会错过一个和一个。但是如果你爱你的家人，跳过这个假期是值得的，以确保他们在下一个假期还活着并且健康。
 
-Watch
+
 
 当我们为持续五天的选举之夜感到紧张时，冠状病毒正在全国肆虐。10 月 30 日，我们迎来了首个 10 万箱日； [昨日新增病例](https://covid.cdc.gov/covid-data-tracker/#trends_dailytrendscases)143408 例。这种病毒每天会夺去 1000 多人的生命。
 

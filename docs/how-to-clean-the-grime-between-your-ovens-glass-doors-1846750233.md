@@ -4,7 +4,7 @@
 
 深度清洁通常包括擦洗那些你很少认为的空间，这可能意味着甚至不知道 *如何*到清洁它们。最近我开始清理我自己的烤箱，擦洗完玻璃窗后，它看起来还是很脏。这时我才意识到他把里面的*双层玻璃弄脏了。* 
 
-Watch
+
 
 那时我认为这是不可能的 并听天由命让习惯透过我的烤箱门看到的雾蒙蒙的景色，但是专业的房屋清洁工 [瓦妮莎 Am aro](https://www.tiktok.com/@vaneamaro91/video/6952643441104817413?_d=secCgYIASAHKAESMgowCIbKTRPbfD%2B%2FbEC1j7DKiML62dWg8PpZmcGk3dpGszewlqD3DB%2FMXSlhWBxg4J1CGgA%3D&language=en&preview_pb=0&sec_user_id=MS4wLjABAAAAGYxynPey2tMigMdKH1VTzB2yBxC79hL1xCKWgATrTJ_LZTjOmzlDUZpU-36A9Owx&share_app_id=1233&share_item_id=6952643441104817413&share_link_id=3b4f8ce1-8df4-4dc8-bd80-a3233828407e&source=h5_m&timestamp=1619187923&u_code=dh5kl3a0g26jmd&user_id=6930651992822989829&utm_campaign=client_share&utm_medium=android&utm_source=copy&_r=1) 来救了我。下面是如何进入烤箱的玻璃门，恢复你清晰的烹饪视野。
 

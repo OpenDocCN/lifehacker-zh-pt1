@@ -4,7 +4,7 @@
 
 尽管大多数成年人需要七到九个小时的睡眠，这个数字对我们大多数人来说是难以捉摸的。尽管你可能 [掌握一个实际有效的睡眠程序](https://lifehacker.com/how-to-master-a-sleep-routine-that-actually-works-1849180354) ，但最大的挑战之一是一旦你的头碰到枕头，你的大脑实际上就关闭了。 [很多应用程序都可以追踪你的睡眠](https://lifehacker.com/use-these-apps-and-gadgets-to-get-better-sleep-1848076010)——但是首先如何进入宝贵的快速眼动周期呢？
 
-Watch
+
 
 如果你需要一点帮助让你的思想进入睡眠模式，这里有一些应用程序使用引导冥想和其他声音场景来哄你进入一个良好的睡眠。
 

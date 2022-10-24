@@ -4,7 +4,7 @@
 
 所以你认为自己是安静放弃者 的对立面(如果你没听说过，这是一个严重的用词不当)。相反，你是 [一个超额完成者](https://lifehacker.com/how-to-know-if-youre-an-overachiever-1844178406)——总是努力完成越来越多的事情。正如我们之前说过的，过度工作带来的压力会适得其反，实际上损害了你做好工作的能力。即使你喜欢把所有的时间和精力都投入到工作中，在你过度劳累之前设定界限也是很重要的。
 
-Watch
+
 
 对许多人来说， [焦虑是他们超水平发挥的主要组成部分](https://www.psychologytoday.com/us/blog/rethink-your-way-the-good-life/201901/are-you-healthy-achiever-or-anxious-overachiever) 。过度分散精力的风险除了会损害你的个人幸福之外，甚至会损害你的职业前景。这里有一些在工作中超水平发挥的负面影响，以及你可以做些什么来管理它们，同时保持你的高成就。
 

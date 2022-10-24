@@ -6,7 +6,7 @@
 
 不过先，何必多此一举。当然，苹果并不是毫无目的地更新固件。固件更新可以解决 bug 问题，比如当 [AirPods Max 用户遇到异常电池消耗](https://lifehacker.com/how-to-maybe-fix-your-airpods-maxs-battery-drain-bug-1846449650) (对于所有其他问题，我们在 之前讨论过 [隐藏重置选项)并提高性能，所以我 t 支付定期更新它们，即使它们 eem 工作正常。](https://lifehacker.com/how-to-use-your-airpods-hidden-reset-feature-when-th-1848481632)
 
-Watch
+
 
 ## 如何检查 AirPods 的当前固件版本
 

@@ -4,7 +4,7 @@
 
 iOS 15 即将推出的便利新功能之一(已经推出公测版)是让 Siri 读出来自苹果和第三方应用的通知。用户可以选择让 Siri 宣布来电和短信，但 [宣布通知可以让你定制](https://9to5mac.com/2021/08/03/how-to-announce-notifications-on-iphone-siri-ios-15/amp/) 当你戴着 AirPods 或某些型号的 Beats，或使用 CarPlay 时，你会听到哪些额外的提醒。
 
-Watch
+
 
 此外，一旦阅读了通知，Siri 会暂停并听你回复，而无需说“嘿，Siri”这意味着您可以在跑步或驾驶时接收和响应警报，而无需拿起并解锁您的设备。
 

@@ -4,7 +4,7 @@
 
 亚马逊擅长资本主义。无处不在的网上零售商使用一切可以想象的(有些我们可能想象不到)心理伎俩来实现利润最大化，公司武器库中最强大的工具之一就是在 Prime Day 这样的销售期间控制产品价格。
 
-Watch
+
 
 从广义上来说，整个运作的基础是 [说服消费者购买他们不需要的东西](https://lifehacker.com/the-only-good-advice-for-shopping-amazon-prime-day-1849154608) ，他们使用的具体方法之一是随着时间的推移操纵价格，让你认为你比实际上节省了更多的钱。(查看 [这篇文章深入探讨了亚马逊的战术](https://lifehacker.com/all-the-ways-amazon-tricks-you-into-spending-more-on-pr-1849158042) 以获取更多信息。)
 

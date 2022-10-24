@@ -4,7 +4,7 @@
 
 所以你开始洗衣服，却发现你已经用完了最后一点洗涤剂。扫兴——但是你的袜子和内衣还有希望。必要时，你可以添置一些日常生活用品，以备不时之需。它们可能没有同样的去污能力，但它们可以去除异味和细菌。取决于你手头上有哪一种，它们甚至会让你的衣服闻起来更清新。
 
-Watch
+
 
 **小苏打。**创造性地使用小苏打的方法并不缺乏，从 [扑灭油脂大火](https://lifehacker.com/15-smarter-ways-you-should-be-using-baking-soda-1848491125/slides/2) 到 [快速将你的碎牛肉褐变。](https://lifehacker.com/you-should-add-baking-soda-to-your-ground-meat-1846103865) 这种多功能烘焙配料和清洁剂也是洗衣液的合适替代品。 [根据 Essential Home and Garden 的说法，](https://www.essentialhomeandgarden.com/laundry-detergent-alternatives/) 它能有效去除所有不同类型织物的酸、油和气味，同时在洗衣机中使用也完全安全。如果你想变得别致，加入几滴你选择的精油，给你的衣物一股好的香味。
 

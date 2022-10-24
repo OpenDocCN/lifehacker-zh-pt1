@@ -4,7 +4,7 @@
 
 也许你已经注意到，我一直在 [思考](https://lifehacker.com/up-your-ice-cream-game-with-one-of-these-easy-sundae-sa-1849015466) 和 [写关于](https://lifehacker.com/why-you-should-chop-your-sundae-cherries-1849024945) 冰淇淋的一大堆东西。炎热的天气需要冷食，虽然我(一个太平洋西北部的居民)仍然缺乏持续的阳光，但我知道某个地方很热，知道这就够了。
 
-Watch
+
 
 我不是唯一的一个。babs——以 [brunchwithbabs](https://www.instagram.com/brunchwithbabs/) 出名——也在考虑冰淇淋，她至少有过两个与冰淇淋有关的绝妙想法，这两个想法都可以帮助你分发和享受冰淇淋甜筒。
 

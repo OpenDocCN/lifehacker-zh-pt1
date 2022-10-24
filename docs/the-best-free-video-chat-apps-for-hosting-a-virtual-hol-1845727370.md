@@ -4,7 +4,7 @@
 
 几个视频聊天应用程序正在做出重大改变，以便到 [帮助家庭今年举行虚拟假日聚会](https://lifehacker.com/how-to-host-a-virtual-thanksgiving-1845702404) 。例如，Zoom 将在感恩节 取消免费用户的 [通话时间限制。免费的 Zoom 会议通常限制在 40 分钟内，但您可以在 11 月 26 日上午 12 点至 11 月 27 日上午 6 点(美国东部时间)之间随意拨打电话。](https://lifehacker.com/use-zoom-for-free-on-thanksgiving-all-you-want-1845688838) 
 
-Watch
+
 
 Zoom 并不是唯一一款为假期做改变的应用。回到 9 月， [谷歌将](https://blog.google/products/meet/stay-connected-meet/) 的通话时长延长至整整 24 小时，免费与用户见面。2021 年 3 月 31 日之前，您可以享受一吨通话时间；在那之后，谁知道我们会在疫情的哪里。
 

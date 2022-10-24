@@ -4,7 +4,7 @@
 
 室内设计的基本原则之一——如果你打算卖掉你的房子——是避免过于个人化的选择。然而，任何曾经寻找过房子或公寓的人都可以证明，许多人认为纹理墙是一种普遍吸引人的设计选择。事实: [他们不是](https://lifehacker.com/10-renovations-that-can-actually-decrease-the-value-of-1849468967) 。公平地说，纹理墙经常被用作 [一种节省成本的措施](https://www.remodelista.com/posts/how-to-get-rid-of-textured-walls/) ，因为它们节省了干墙安装成本，并隐藏了原本需要修复的损坏和缺陷——但这并没有减少它们的分歧。
 
-Watch
+
 
 如果你发现自己有一面你想要的有纹理的墙，嗯，不是有纹理的，不要绝望:有办法去除那种纹理。只是需要一些时间和努力。
 

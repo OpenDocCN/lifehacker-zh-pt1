@@ -4,7 +4,7 @@
 
 如果你正在寻找免费快餐，忠诚度应用程序通常有最好的交易。在疫情期间，数字优惠券的使用量终于超过了纸质优惠券( [，据 Inmar Intelligence](https://www.inmar.com/blog/press/digital-coupons-continue-be-fastest-growing-method-redemption-due-shoppers-increased) )，但这一趋势的很大一部分是移动奖励计划的增长。随着品牌 [对应用](https://www.restaurantbusinessonline.com/technology/mobile-ordering-takes-thanks-covid) 的大量投资，从现在开始，期待它们成为独家交易和特权的首选来源。下面看看这些应用程序目前提供的服务，包括免费食物。
 
-Watch
+
 
 ### **星巴克**
 

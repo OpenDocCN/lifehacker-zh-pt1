@@ -4,7 +4,7 @@
 
 好刀如果你打理的话保质期很长:手洗，存放在专用的地方， [保持锋利](https://lifehacker.com/how-to-keep-your-knives-sharp-1846972299) 。即使是钝的刀片也可以回收。
 
-Watch
+
 
 但是如果你想升级到更高质量的刀具，你需要小心处理掉那些你不再需要的刀具。不要在没有任何保护的情况下将它们简单地扔进垃圾桶。下面是最安全的扔老刀方法，据 [鲍勃维拉](https://www.bobvila.com/articles/how-to-dispose-of-knives/) 。
 

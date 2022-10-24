@@ -4,7 +4,7 @@
 
 苹果公司现在已经将用于 13 英寸 MacBook Air 的顶级苹果 s ilicon M1 芯片添加到 599 美元的入门级 iPad Air 中，这就引出了一个问题:既然 iPad Air 与 11 英寸 iPad Pro 有相同的芯片，而且还有如此多的其他相似之处，那么为 iPad Pro 多花 200 美元真的值得吗？
 
-Watch
+
 
 ## iPad Air 5 和 11 英寸 iPad Pro 有什么共同点
 

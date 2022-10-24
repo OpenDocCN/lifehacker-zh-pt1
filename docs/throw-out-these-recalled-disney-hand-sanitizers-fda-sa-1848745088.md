@@ -4,7 +4,7 @@
 
 虽然洗手液 [已经出现了几十年](https://invention.si.edu/lupe-hernandez-and-invention-hand-sanitizer) ，但它在正在进行的新冠肺炎疫情之初变得不可或缺——从那以后，该产品一直受到许多 [讽刺回忆](https://lifehacker.com/dont-use-these-toxic-hand-sanitizer-brands-1844133093) 。现在，标签上印有米老鼠或尤达宝宝的洗手液是另一种洗手液的一部分。自愿召回是由于担心产品可能含有潜在的危险化学物质，包括一种已知的致癌物质，美国美国食品药品监督管理局 [报告](https://www.fda.gov/safety/recalls-market-withdrawals-safety-alerts/best-brand-consumers-products-inc-issues-voluntary-recall-mickey-mouse-hand-sanitizer-ethyl-alcohol) 。以下是需要了解的内容。
 
-Watch
+
 
 ## 为什么洗手液被召回
 

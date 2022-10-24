@@ -4,7 +4,7 @@
 
 Windows 11 的下一次重大改革即将推出，它似乎准备给微软的操作系统的外观和可用性带来巨大的变化。
 
-Watch
+
 
 [Ars Technica](https://arstechnica.com/gadgets/2022/05/windows-11s-first-yearly-update-is-almost-done-heres-what-is-and-isnt-part-of-it/) 全面概述了 Windows 11 22H2 即将推出的所有新功能，但主要变化包括:
 

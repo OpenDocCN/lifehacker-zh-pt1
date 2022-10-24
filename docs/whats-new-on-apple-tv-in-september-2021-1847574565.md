@@ -4,7 +4,7 @@
 
 虽然我已经订阅 Apple TV+一年了——主要是因为我的 iPhone 12 Mini 免费赠送了一年——但我仍然不太明白。一个除了苹果设法制作的少量原创内容之外几乎什么都没有的流媒体服务对我来说没有意义，在十亿个竞争服务的时代没有意义，即使每月 4.99 美元也没有意义。
 
-Watch
+
 
 没错，我为我最喜欢的播客的几集 Patreon 独家剧集支付了更多的费用，但当与 [【网飞】](https://lifehacker.com/25-netflix-original-shows-you-probably-arent-watching-b-1847429789)[Hulu](https://lifehacker.com/15-hulu-originals-you-probably-arent-watching-but-defin-1847459312)和[HBO Max](https://lifehacker.com/15-hbo-max-originals-you-probably-arent-watching-but-de-1847554849)——见鬼， [甚至派拉蒙+](https://lifehacker.com/whats-new-on-paramount-plus-in-september-2021-1847562916)——的价格相比，这似乎不值得，甚至是它们价格的一半或三分之一。
 

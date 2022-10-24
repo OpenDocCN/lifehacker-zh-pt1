@@ -4,7 +4,7 @@
 
 为了防止年幼的孩子无意中接触到成熟的内容——无论是他们自己的个人资料，还是父母或哥哥姐姐的个人资料——迪士尼+宣布 [增加了家长控制](https://help.disneyplus.com/csp?id=csp_article_content&sys_kb_id=9582efcbdb1aac50055ceadc13961917#profilecreation) 。下面是设置它们的方法。
 
-Watch
+
 
 要调整家长控制，首先在 Disney+网站或移动应用程序上点击您想要编辑的档案，然后滚动到“家长控制”
 

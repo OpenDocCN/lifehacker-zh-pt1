@@ -4,7 +4,7 @@
 
 WhatsApp 是世界上最受欢迎的聊天应用，拥有超过 20 亿活跃用户。我们中的许多人*依靠该应用的 [有趣和独特的功能](https://lifehacker.com/18-of-the-best-hidden-whatsapp-features-you-should-know-1848029332) 与世界各地的朋友和家人交流，因此这项服务必须继续在我们的 iPhones 上运行。不幸的是，WhatsApp 正准备停止对某些 iOS 版本的支持，实际上，某些 iPhone 型号也是如此。你的是其中之一吗？* 
 
-Watch
+
 
 先说好消息:如果你的 iPhone 还在接收软件更新，你没什么好担心的。事实上，一些苹果*不支持更新的 iPhones 仍然可以运行 WhatsApp。然而，这仍然会让一些用户陷入困境。让我们看看这次支持率下降影响到了谁。*
 

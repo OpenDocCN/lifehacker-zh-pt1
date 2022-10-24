@@ -4,7 +4,7 @@
 
 当微软的下一代游戏机拥有比 PlayStation 5 更好的 PlayStation 向后兼容性时，我们生活在一个多么美好的世界啊。
 
-Watch
+
 
 Xbox 和 X 系列都有一个用户可以激活的开发者模式，可以让你运行 UWP(通用 Windows 协议)应用程序。这款应用程序不仅可以在 Windows 10 上运行，还可以在 Xbox 和 Windows 10 Mobile 上运行。
 

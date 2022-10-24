@@ -4,7 +4,7 @@
 
 任何领导过团队的人都知道，成为一名高效的管理者不仅仅是确保完成工作和实现目标。但对于完美主义者来说，工作的这些方面可能特别具有挑战性——因为保证一切都符合他们标准的唯一方法是自己动手(或至少仔细检查)。换句话说，一些完美主义者可能很难授权，因此，他们发现自己过度扩张，可能处于精疲力竭的边缘。
 
-Watch
+
 
 这是高管教练和注册社工梅洛迪·威尔丁 经常向她的客户提出的问题。基于她的经验，她已经开发了一些策略来帮助完美主义者学习如何授权(然后实际去做)。她最近在 [为《快公司》](https://www.fastcompany.com/90635430/how-to-let-others-take-over-when-youre-perfectionist-tendencies-wont-allow-it?partner=rss&utm_source=rss&utm_medium=feed&utm_campaign=rss+fastcompany&utm_content=rss) 撰写的一篇文章中分享了其中的一些技巧。以下是需要了解的内容。
 

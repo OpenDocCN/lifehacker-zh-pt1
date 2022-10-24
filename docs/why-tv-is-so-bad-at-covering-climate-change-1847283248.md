@@ -4,7 +4,7 @@
 
 周六，德克萨斯理工大学的气候科学家凯瑟琳·海霍 [在推特](https://twitter.com/KHayhoe/status/1414040387178713093) 上说，她将出现在 CNN 上与法里德·扎卡利亚谈论席卷西方的 [破纪录热浪](https://gizmodo.com/a-new-dangerous-heat-wave-is-coming-for-the-west-yes-1847259077) 。第二天，她宣布她的那一段被砍掉了。“因为亿万富翁要去太空，所以取消了，”她写道。
 
-Watch
+
 
 Hayhoe 被安排出现在 CNN 上，因为死亡谷正在记录地球上有可靠记录的 最高温度 [，紧随另一个热浪](https://gizmodo.com/the-130-degree-fahrenheit-reading-in-death-valley-ties-1847266914) [在太平洋西北部和加拿大杀死数百人](https://gizmodo.com/the-pacific-northwest-heat-wave-is-now-a-mass-casualty-1847252012) 。与此同时，理查德·布兰森花了 [三四分钟失重](https://apnews.com/article/virgin-galactic-launch-richard-branson-37fd721264b1421f8a1223ee5e5626e3) 为一艘宇宙飞船做广告，该飞船将为 [提供座位，每次几十万美元](https://www.nytimes.com/2021/07/11/science/cost-to-fly-virgin-galactic-space.html)——并在本周末赢得了广播网络的铺天盖地的报道，其中许多都播放了他的“短暂兜风的镜头
 

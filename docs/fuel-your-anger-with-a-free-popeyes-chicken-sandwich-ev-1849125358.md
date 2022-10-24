@@ -4,7 +4,7 @@
 
 那一年是 2019 年。那是一个更简单的时代，一个不再监测 [最新疫情头条](https://lifehacker.com/we-are-not-ready-for-monkeypox-1849035126)担心 [如何买得起一整罐汽油](https://lifehacker.com/the-fastest-way-to-find-the-cheapest-gas-in-your-area-1848554597)[哀悼身体自主性的终结](https://lifehacker.com/where-to-donate-locally-to-help-people-access-abortions-1848873651)的时代，人们排着长队 [与陌生人](https://www.businessinsider.com/popeyes-chicken-sandwich-return-linked-to-violent-incidents-list-2019-11) 争论大力水手鸡肉三明治。
 
-Watch
+
 
 三年后，很多事情都变了，大部分是变得更糟，但至少现在大力水手免费赠送那些著名的鸡肉三明治(或免费的 T2 式的 T4 三明治)，为你对现状的完全合理的愤怒提供充足的燃料来源。而且不只是一次，而是每周五[](https://www.qsrmagazine.com/news/popeyes-give-out-free-chicken-sandwiches-fridays-through-grubhub)【大部分】暑假的剩余时间。下面是为了抢到免费鸡需要知道的事情( [小字收录](https://lp-stage.grubhub.com/popeyes-free-sandwich-fridays-2022/) )。
 

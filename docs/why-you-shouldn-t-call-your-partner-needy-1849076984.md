@@ -4,7 +4,7 @@
 
 如果你曾经认为伴侣是“需要的”，在某种程度上，你可能是对的——根据 [依恋理论](https://lifehacker.com/what-the-hell-is-attachment-style-and-is-it-the-key-to-1828398515) 的，一种焦虑的依恋会在成年人身上发展，他们得到不一致的照顾，并且在童年时他们的需要没有得到满足。焦虑依恋的成年人经常从他们的伴侣那里寻求认可、支持和安慰。然而，给伴侣贴上“贫困”的标签，而不向内寻找你自己的*依恋风格*，可能对关系既无益又有害。
 
-Watch
+
 
 正如性治疗师 [瓦妮莎·马林](https://vmtherapy.com/) 告诉 [喧嚣](https://www.bustle.com/articles/134214-6-signs-youre-too-dependent-on-your-significant-other) “表现出粘人行为的人真的是不安全感的表现。他们过去可能有过被人利用或失信的经历。”
 

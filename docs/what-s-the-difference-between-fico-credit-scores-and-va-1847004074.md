@@ -4,7 +4,7 @@
 
 你可能熟悉单一信用评分的概念，但实际上有两个主要的信用评分提供者来评估你的信用度:FICO 和 VantageScore。虽然 FICO 用于所有贷款决策的 [90%](https://www.cnbc.com/select/where-to-get-a-free-fico-score/) ，但 VantageScore 仍然可以在您是否获得贷款批准方面发挥作用。以下是你需要知道的。
 
-Watch
+
 
 ## 什么是 FICO 和 VantageScore 信用评分？
 

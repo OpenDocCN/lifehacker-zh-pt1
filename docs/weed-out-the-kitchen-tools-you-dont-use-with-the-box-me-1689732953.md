@@ -4,7 +4,7 @@
 
 有些厨房工具 [是不可或缺的](https://skillet.lifehacker.com/kitchen-tool-school-the-flippin-awesome-fish-spatula-1683871427) ，但其他的只是漂浮在你的厨房里，再也不会被使用。不过，整理厨房储物件只需一个简单的过程。
 
-Watch
+
 
 在 2015 年的一篇名为 [的帖子中，Kitchn 向读者征集了关于精简餐具、炊具和其他厨房相关杂物的最佳建议](https://www.thekitchn.com/what-are-the-most-essential-utensils-and-cookware-good-questions-216495) 。 [评论员 cook_at_home 建议的盒子法](https://www.openweb.com/share/1twjVv5nx632PU5T21KBBjdKkEv) ，既简单又有效:
 

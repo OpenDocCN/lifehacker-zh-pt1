@@ -4,7 +4,7 @@
 
 如果你一直在关注多动症抖音，你可能听说过“身体加倍”这个术语，这是一种经常用来保持注意力和专注的生产力工具。 [身体加倍是另一个人与你同时工作](https://chadd.org/adhd-news/adhd-news-adults/could-a-body-double-help-you-increase-your-productivity/) ，要么在同一个房间，要么虚拟地。有时被称为责任伙伴，仅仅是另一个人的出现就可以成为保持专注和完成任务的动力。
 
-Watch
+
 
 ## **什么是身体加倍？**
 

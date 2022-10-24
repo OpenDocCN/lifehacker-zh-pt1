@@ -4,7 +4,7 @@
 
 抱歉，老*守夜人*现在不能接电话。 [她死了](https://www.youtube.com/watch?v=9ugnKgFCaTw) 。今天，美国东部时间 10 月 4 日下午 3 点，*看守 2* 将取代她，太阳早就在 6v6 和自由散养角色的日子里落下，而不是躲在战斗通道后面。
 
-Watch
+
 
 你可能有一些问题。当你发现你的一个游戏被一个有着 [和](https://kotaku.com/overwatch-2-beta-tracer-butt-porn-sfm-twitter-blizzard-1848880115) 的替身所取代时，这是很自然的反应。你的不安是可以理解的，你应该知道你将会遇到什么，以防你需要尽快开始制作今年的[*over watch*中的前 5 名屁股】YouTube 视频](https://www.youtube.com/watch?v=Qa9-Ab8TPEQ) 。为了让你轻松度过这个困难的(但是，相对于一个真实的问题，仍然非常有趣)过渡，我列出了在你第一次选择*守望先锋 2* 之前需要注意的 7 个游戏变化。
 

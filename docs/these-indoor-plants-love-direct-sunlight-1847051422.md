@@ -4,7 +4,7 @@
 
 随着北半球白天越来越长，阳光越来越明亮，有必要对我们的室内植物给予更多的关注。有些可能需要将在房间里来回切换，以避免阳光直射，因为这样会 [损伤一些叶子](https://www.urbangardengal.com/direct-sun-houseplants/#:~:text=Many%20houseplants%20will%20experience%20leaf,especially%20during%20the%20summer%20months.) 或使根部干枯。另一方面，一些室内植物*喜欢*直射光，不会过度暴露在阳光下。这里有一些植物，你可以一年四季都把它们放在你最明亮的窗口。
 
-Watch
+
 
 ## 喜欢阳光的室内植物种类
 

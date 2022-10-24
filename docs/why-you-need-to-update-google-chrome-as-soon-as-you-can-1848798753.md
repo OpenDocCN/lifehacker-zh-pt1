@@ -4,7 +4,7 @@
 
 如果你认为读完这个标题后你有似曾相识的感觉，你没有:谷歌报告了另一个影响 Chrome 的零日漏洞，并延伸到其所有用户。幸运的是，现在有一个补丁:谷歌 [于 4 月 14 日周四发布了一份安全报告](https://chromereleases.googleblog.com/2022/04/stable-channel-update-for-desktop_14.html) ，称该公司已将 Chrome 更新至新版本 100.0.4896.127，以解决这一新发现的缺陷。
 
-Watch
+
 
 ## 谷歌 Chrome 浏览器的最新安全漏洞是什么？
 

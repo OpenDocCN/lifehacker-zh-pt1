@@ -4,7 +4,7 @@
 
 我昨天写了一篇关于“”的帖子——许多家长担心，在这几个月的虚拟学习中，我们的孩子会在学业上落后(或*更落后*)。事实是，这一年对父母和他们的孩子来说是地狱，他们与朋友隔绝，试图在家学习。但是在那篇文章的评论部分，一个清晰的声音传了出来——那是幼儿园老师疲惫不堪的父母的声音。
 
-Watch
+
 
 Kinja 用户 [Fritz O' The Ham](https://offspring.lifehacker.com/are-you-worried-about-the-covid-slide-1845631837#replies) 解释道:
 

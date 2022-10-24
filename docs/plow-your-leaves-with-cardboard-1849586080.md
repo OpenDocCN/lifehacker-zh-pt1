@@ -4,7 +4,7 @@
 
 耙树叶是一件令人头疼的事情。它耗时、潮湿、寒冷，甚至可以 [引发你的过敏](https://lifehacker.com/maybe-that-virus-is-actually-a-fall-allergy-1849523561) 。你必须去做，但是这个任务是如此的乏味，以至于人们想出了各种各样的方法和设备来帮助你更有效地完成它。你可以用 [塑料](https://lifehacker.com/quickly-clear-the-leaves-in-your-yard-with-some-flexibl-1744697082) 将树叶铲起，或者用 [油布](https://lifehacker.com/rake-leaves-onto-a-tarp-for-a-speedy-fall-cleanup-5962916) 或 [毯子](https://lifehacker.com/how-to-collect-your-raked-leaves-without-a-leaf-blower-1845665413) 将它们运走。但是有一种方法近年来越来越受欢迎，它使用了你可能已经放在身边，也可能想扔掉的东西:纸板。
 
-Watch
+
 
 ## **如何用纸板“犁”树叶**
 

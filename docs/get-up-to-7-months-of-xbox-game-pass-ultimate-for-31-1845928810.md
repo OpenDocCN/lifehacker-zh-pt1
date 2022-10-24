@@ -4,7 +4,7 @@
 
 如果你在 PC 或 Xbox 主机上玩游戏，考虑订阅 Xbox Game Pass Ultimate。你将以每月 15 美元的价格获得超过 100 款 Xbox 和 Windows PC 游戏的巨大图书馆，会员专属折扣，以及 Android 设备的云流媒体(2021 年，在桌面、iOS 和 Xbox 主机上)。这是一笔令人难以置信的交易，它使 Game Pass Ultimate 成为 [现有的](https://lifehacker.com/which-pc-gaming-subscription-service-is-best-1845019353) 最佳游戏订阅服务之一。但是有两个技巧可以让你用更少的钱得到服务。
 
-Watch
+
 
 电子艺界的订阅服务 EA Play 现在与 Game Pass Ultimate 捆绑在一起。如果你为 Xbox 购买了 12 个月的 EA Play 礼品卡(通常为 30 美元)，你可以将其转换为 4 个月的 Game Pass Ultimate 的代码。这意味着活跃用户只需花 30 美元就可以获得额外的四个月 Game Pass Ultimate 服务——比你通常支付的价格打五折。
 

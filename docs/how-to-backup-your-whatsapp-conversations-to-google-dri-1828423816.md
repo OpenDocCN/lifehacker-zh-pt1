@@ -4,7 +4,7 @@
 
 你应该经常备份你的手机，如果你是一个 WhatsApp 的大用户，尤其应该这样。由于 WhatsApp 不是云服务，你做的一切都保存在你的本地设备上。因此，任何攻击你设备的灾难都会毁掉你的整个对话历史。
 
-Watch
+
 
 解决办法？你应该*也*为你的 WhatsApp 对话设置定期备份。你可以备份到 iCloud (iOS)或 Google Drive (Android)，如果你是后者，WhatsApp [甚至不应该把](https://faq.whatsapp.com/android/chats/about-google-drive-backups/) 计入你宝贵的 [谷歌存储配额](https://lifehacker.com/how-to-manage-your-google-photos-or-move-them-somewhere-1845657549) 。在任一平台上设置它只需不到五分钟的时间:
 

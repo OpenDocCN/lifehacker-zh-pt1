@@ -4,7 +4,7 @@
 
 一名前 InfoWars 记者和一名右翼电影制作人联手在众筹网站 Indiegogo 上成功筹集了近 172，000 美元，用于一款以戴绿帽子命名的设备...一些听不清的东西，没人能弄明白。
 
-Watch
+
 
 这款名为“Qux”的设备由“每日野兽” 命名，是前“信息战争”撰稿人米莉·韦弗和 [加文·温瑟](https://bestnewsdirect.com/news/gavin-wince-millie-weavers-companion-5-rapid-facts-174853.html) 的创意。这是一种乍一看似乎是一种流媒体盒子的东西，但它将把虔诚的买家从大型科技自由主义者的永恒暴政中解放出来。除此之外，一切都变得模糊了。
 

@@ -4,7 +4,7 @@
 
 除非你已经 [发誓永远离开谷歌](https://lifehacker.com/the-comprehensive-guide-to-quitting-google-1830001964) ，否则你的数字生活中至少有一部分可能会与谷歌纠缠在一起。也许你只有一个 Gmail 账户，或者也许你从个人照片存储到工作中共享文件都依赖谷歌。很有可能你有*的一些*重要数据连接到你的谷歌账户，这使得只有你才能访问这些数据。
 
-Watch
+
 
 不幸的是，互联网是一个充满危险的地方。坏演员不断试图打破你的防御来窃取有价值的个人信息。即使当你试图 [避免网络钓鱼](https://lifehacker.com/13-persistent-online-scams-and-how-to-avoid-them-1848882890) 和 [实践良好的密码卫生](https://lifehacker.com/how-to-create-a-strong-password-1797681069) 时，总存在有人会访问你的谷歌账户的风险，你需要能够立即识别并删除他们。
 

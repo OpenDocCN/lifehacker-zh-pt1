@@ -4,7 +4,7 @@
 
 像后挡板这样的小瓷砖项目可以成为 DIY 项目——只要你有合适的工具，这就是 T2。然而，的瓷砖铺设工作，包括后溅工程——经常需要湿锯来准确(安全)地切割瓷砖。 [湿锯](https://www.bhg.com/home-improvement/remodeling/carpentry/how-to-use-a-wet-saw/) 在锯片上提供稳定的水流，以产生平滑的切割，并减少高功率切割产生的灰尘或碎屑。不幸的是，购买湿锯的价格从 [大约 100 美元](https://www.amazon.com/SKIL-3540-02-7-Inch-Wet-Tile/dp/B003HIWR08/ref=asc_df_B003HIWR08/?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-cut-tile-without-a-wet-saw-1847298509&asc_source=&hvadid=312003160272&hvdev=c&hvdvcmdl=&hvlocint=&hvlocphy=9004173&hvnetw=g&hvpone=&hvpos=&hvptwo=&hvqmt=&hvrand=17296677785733491026&hvtargid=pla-479590647004&linkCode=df0&psc=1&tag=kinjalifehackerlink-20) 到 [将近 300 美元](https://www.harborfreight.com/7-in-wet-tile-saw-with-sliding-table-64683.html?cid=paid_google%7C*PLA+-+Top+SKUs+-+All+%28Main%29%7CShop+Press%7C64683&utm_source=google&utm_medium=cpc&utm_campaign=*PLA+-+Top+SKUs+-+All+%28Main%29&utm_content=Shop+Press&gclid=Cj0KCQjwub-HBhCyARIsAPctr7yI5YDNX3sIuL31eXyvAG6JKtD-HjYoX9oLRN7aJ_YkT0xLaw7YBkAaAkevEALw_wcB) 不等，而且对于的初学者来说可能有点难以承受。如果你还没有准备好进行这样的跳跃，还有其他方法可以为你的项目切割瓷砖。
 
-Watch
+
 
 以下是如何在不使用湿锯的情况下完成你的下一个贴砖项目——。
 

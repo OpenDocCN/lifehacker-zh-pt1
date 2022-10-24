@@ -4,7 +4,7 @@
 
 如果你上周安装了最新的 Windows Server 更新，你可能会注意到一些令人沮丧的事情— [你的 VPN 无法连接到 Windows](https://www.xda-developers.com/windows-update-causing-issues-vpn/) 。该问题主要针对 Windows VPN 客户端，但会影响多个 VPN 设备，如 SonicWall、WatchGuard 防火墙和 Cisco Meraki。如果你卸载了这些更新，或者只是听到这个消息后避免更新，你会很高兴地得知微软终于修补了这个漏洞。
 
-Watch
+
 
 在微软 1 月 11 日 发布更新后，这个漏洞似乎主要影响运行 Windows 10 和 Windows 11 [的机器。由于这些更新是 2022 年第一个补丁的一部分，它没有为微软今年设定一个好的基调。(](https://www.bleepingcomputer.com/news/microsoft/new-windows-server-updates-cause-dc-boot-loops-break-hyper-v/) [正如一位 Redditor 如此优雅地说的](https://www.reddit.com/r/sysadmin/comments/s1oqv8/comment/hs9lgkt/?utm_source=share&utm_medium=web2x&context=3) ，“为了他妈的微软。”)
 

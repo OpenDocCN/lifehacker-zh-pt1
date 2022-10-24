@@ -4,7 +4,7 @@
 
 尽管互联网上关于使用止汗剂的危险的智慧被夸大了(你 [实际上不需要担心你的止汗剂是否含有铝](https://lifehacker.com/you-don-t-need-to-worry-about-aluminum-in-your-deodoran-1825016935) )，但你可能已经考虑过在处理你的体味时是否应该走更自然的路线。除臭剂在不抑制身体排汗的情况下掩盖气味( [，这就是止汗剂的作用](https://lifehacker.com/the-difference-between-antiperspirant-and-deodorant-an-1847397101) )，有一大堆品牌承诺这样做更“自然”，从缅因州的汤姆(Tom ' s)(4.89 美元)，到 Native(12.99 美元)，到 Schmidt(9.19 美元)，到 Lume(16.99 美元)。问题是，除了汤姆的(会让腋下整天都湿湿的)，它们通常都很贵。(*三十美元*这个 [例行程序](https://www.amazon.com/dp/B0744N2H1X?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/should-you-make-your-own-deodorant-1848719697&asc_source=&imprToken=0cbfeaf9-dfef-b710-e65&ots=1&slotNum=14&tag=kinjalifehackerlink-20) 除臭剂的用量看起来相当于你在橡皮泥容器中找到的量。)
 
-Watch
+
 
 但是有另一种方法可以“自然地”减少臭味——制造你自己的除臭剂。虽然一开始听起来可能无效或耗时，DIY 自制除臭剂是避免使用你不想涂在皮肤上的成分的好方法，并且在你的口袋里留一些额外的钞票。
 

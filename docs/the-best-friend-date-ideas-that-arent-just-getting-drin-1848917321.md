@@ -4,7 +4,7 @@
 
 浪漫的约会可能会吸引所有的注意力，但是 [维持成人友谊](https://lifehacker.com/how-to-maintain-your-friendships-1827484649) 也值得同样多的爱。随着像 Bumble 这样的约会应用逐渐成为 [友谊的分支](https://bumble.com/en-us/the-buzz/what-exactly-is-bumble-bff) ,“朋友约会”的想法变得越来越受欢迎。毕竟，作为一个成年人，结交新朋友并不总是容易的，但也不是不可能的。
 
-Watch
+
 
 你不仅可以把经典的 [约会夜活动](https://lifehacker.com/these-date-night-activities-are-better-solo-1841587333) 变成指定的友谊时间，而且，柏拉图式的约会可以说为你能做的那种活动提供了更多的回旋余地。和新老朋友在一起，你不必努力让自己看起来很酷很有魅力。想一想:和一个新的爱人去远足，往好了说，意味着不要看起来身材走样、大汗淋漓，往坏了说，意味着不要在森林里被谋杀。另一方面，和朋友一起徒步旅行意味着你们需要多少休息就休息多少。
 

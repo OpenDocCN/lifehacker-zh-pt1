@@ -4,7 +4,7 @@
 
 周六上午，美国众议院——或者更准确地说，众议院民主党人——[通过了 1.9 万亿美元的](https://www.nytimes.com/2021/02/27/us/politics/stimulus-biden-senate-coronavirus.html) 美国救援计划。(零共和党人 [越过党派界限](https://www.cnbc.com/2021/02/27/heres-whats-in-the-dem-houses-covid-relief-bill.html) 去争取议案；两名民主党人投了反对票。该计划预计将于本周在美国参议院获得通过，将提供广泛的条款，包括为新冠肺炎疫苗生产和分销提供资金，延长联邦失业福利...以及对一些美国家庭的第三轮刺激付款。
 
-Watch
+
 
 如果获得通过并签署成为法律，美国救援计划将为个人提供最高 1400 美元，为夫妇提供 2800 美元，另外为每个受抚养人提供 1400 美元。当然，这都取决于你[(AGI)调整后的总收入。](https://www.cnbc.com/2021/03/02/third-stimulus-check-calculator.html) 为了获得全额，个人的 AGI 不能超过 75，000 美元，夫妇不能超过 150，000 美元。
 

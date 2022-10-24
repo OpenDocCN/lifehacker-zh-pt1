@@ -4,7 +4,7 @@
 
 [土豆泥](https://lifehacker.com/9-tips-for-perfect-mashed-potatoes-1845692616) 很重要，我很重视。舒适食物的缩影，一碗粗糙的土豆是将原本“健康”的一餐变成舒适食物的最简单的方法。
 
-Watch
+
 
 我用很多不同的方法捣碎了很多土豆，但是在为我自己和我爱的人做土豆时，我通常会用同样的两三种方法。我会把它们 [和蛋黄酱](https://lifehacker.com/how-to-making-smashing-mashed-potatoes-1820225954) 或者 [洋葱蘸酱](https://lifehacker.com/just-add-store-bought-french-onion-dip-to-mashed-potato-1839621708) ，我会经常用微波炉 [煮土豆](https://lifehacker.com/how-to-make-perfect-mashed-potatoes-in-the-microwave-1846629900) ，特别是如果我做的土豆少于两磅的话。
 

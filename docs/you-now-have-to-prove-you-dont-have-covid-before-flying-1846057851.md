@@ -4,7 +4,7 @@
 
 随着 [新冠肺炎病例在美国和国外](https://covid19.who.int/?gclid=Cj0KCQiA9P__BRC0ARIsAEZ6irh51Vbt9245M7awBh4rsiJkds86HAjeRHuCbn52F3GqPcL4K23ZJf4aAq5fEALw_wcB) 激增，现在真的没有正当理由去国际旅行取乐。但是如果你有不可避免的需要去不同的国家旅行，你需要在你回来之前证明你没有 COVID。疾病控制中心制定了一项新政策，要求任何从国外返回美国的人在登机前提供阴性 COVID 测试(或病毒康复证明)。
 
-Watch
+
 
 该政策将于 1 月 26 日生效，将把拒绝为不遵守或不符合要求的乘客安排座位的责任完全推给航空公司。
 

@@ -4,7 +4,7 @@
 
 是的，Android 通常带有某种古怪的复活节彩蛋。你真的认为谷歌，这个著名的"、 [恐龙游戏](https://lifehacker.com/chromes-dinosaur-game-is-even-better-with-mods-1844835092) 以及其他各种奇怪的小东西的创造者，真的会放弃在它的移动操作系统中犯傻的机会吗？ *Pfft。*
 
-Watch
+
 
 我们之前已经讨论过 Android 10 隐藏的乐趣，所以如果你还没有跳到 Android 11——或者不能——至少你会有 [一个非常迷人的小益智游戏](https://lifehacker.com/how-to-access-googles-secret-easter-eggs-in-android-9-a-1837877288) 让你忙个不停。对于其他人，让我们开始挖掘 Android 11 被埋没的宝石吧。
 

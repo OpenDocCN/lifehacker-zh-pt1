@@ -4,7 +4,7 @@
 
 我们最近一直在这里谈论挡风玻璃——在 [之间，这是除雾](https://lifehacker.com/use-this-method-from-a-former-nasa-engineer-to-defog-yo-1845817132)的技巧，这些说明是 [清洁挡风玻璃的内部](https://lifehacker.com/how-to-clean-the-inside-of-your-windshield-even-at-its-1846163421)，即使它充满了污垢、灰尘和其他碎片。今天，我们谈论的是当外面变得超级冷的时候防止你的挡风玻璃破裂。以下是你需要知道的。
 
-Watch
+
 
 ### 为什么天冷的时候挡风玻璃会裂开？
 

@@ -4,7 +4,7 @@
 
 如果说 In-N-Out 汉堡有什么出名的话——除了它不那么秘密的 [【秘密】菜单](https://thetakeout.com/secret-menu-hacks-mcdonalds-chipotle-starbucks-in-n-out-1847884423) ，它的 [备受争议的松脆薯条](https://thetakeout.com/in-n-out-has-terrible-french-fries-heres-why-1846514613) ，以及它杯子上的 [圣经经文](https://eu.usatoday.com/story/money/2019/10/08/in-n-out-owner-lynsi-snyder-interview-bible-verses/3906363002/)——那就是这个品牌所吹嘘的有限地理半径。为了确保食材的最佳新鲜度，任何餐厅都不能位于距离公司加州或科罗拉多州配送中心一天车程以外的地方。这种对美国西部的排他性是该连锁店获得如此狂热追随者的原因之一(包括我，一个前加州人)。
 
-Watch
+
 
 那么 In-N-Out 到底在柏林做什么？
 

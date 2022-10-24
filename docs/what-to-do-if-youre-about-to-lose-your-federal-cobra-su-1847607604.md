@@ -4,7 +4,7 @@
 
 一项扩大的 COBRA 补贴暂时覆盖您因失业而产生的 100%医疗保险费，该补贴于 10 月 1 日 结束 [。该计划允许你保留前雇主的医疗保险计划至少 18 个月，但通常你必须支付全部费用，许多人认为这太贵了。随着补贴的结束，你可能会寻找一个更便宜的替代品，所以这里有一些选择。](https://www.natlawreview.com/article/it-s-not-over-til-it-s-over-cobra-premium-subsidy-ending) 
 
-Watch
+
 
 ## **为什么没有补贴的 COBRA 项目没有那么好**
 

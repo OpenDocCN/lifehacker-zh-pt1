@@ -4,7 +4,7 @@
 
 无论你对自己的心理健康有什么样的体验，当你关心的人正与抑郁症作斗争时，找到一个完美的话题来说都是令人畏惧的。但更容易弄清楚什么不该说。
 
-Watch
+
 
 太多时候，抑郁的人会“感到羞耻”并且“错误地认为他们应该能够仅凭意志力克服它”，梅奥诊所的[写道。不幸的是，我们的话语有能力加剧那些羞耻感，这会让一些人在抑郁中陷得更深。综合心理健康专家](https://www.mayoclinic.org/diseases-conditions/depression/in-depth/depression/art-20045943)[Roseann Capanna-Hodge](https://drroseann.com/)[对游行者](https://parade.com/1287614/shelby-deering/what-not-to-say-to-someone-with-depression/) 说，当有人抑郁时，他们在思维、感觉和身体上都不是他们自己，“这意味着你对他们说的每一句话都很重要”。
 

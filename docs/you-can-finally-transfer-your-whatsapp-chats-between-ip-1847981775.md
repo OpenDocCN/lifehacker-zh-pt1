@@ -4,7 +4,7 @@
 
 在过去，从 iPhone 切换到 Android(反之亦然)意味着失去应用程序内的 WhatsApp 对话。但现在，无论是 [Android 12 设备](https://blog.google/products/android/whatsapp-chat-history/) 还是[iphone 手机](https://wabetainfo.com/mark-zuckerberg-announces-the-ability-to-move-chats-to-ios/) 都可以在操作系统之间传输 WhatsApp 消息。无论你是想从 iPhone 切换到 Android，还是从 Android 切换到 iPhone，你的 WhatsApp 信息也可以实现这种切换。
 
-Watch
+
 
 三星 Galaxy 手机是第一个允许这种传输的手机:不久之后，WhatsApp 向谷歌像素开放了传输，然后是运行 Android 12 的设备。当我们这些转用 iPhone 的人不得不使用变通方法而不是官方方法时， [马克·扎克伯格最近宣布，](https://www.facebook.com/zuck/posts/10114524731478481) 该应用程序支持将聊天记录从 Android 移动到 iOS。现在，谢天谢地，不管你换成什么类型的手机，你都不会丢失你的 WhatsApp 聊天记录。
 

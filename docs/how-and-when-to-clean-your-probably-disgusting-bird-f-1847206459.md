@@ -4,7 +4,7 @@
 
 喂鸟者对鸟类来说可能是一个宁静而友好的环境——除非他们没有得到适当的照顾。据 [科罗拉多公园&野生动物](https://cpw.state.co.us/Documents/Viewing/Bird-Feeder-Diseases-Fact-Sheet.pdf) 报道，喂鸟者传播沙门氏菌病、滴虫病、鸽子副粘病毒、禽痘等疾病。在其他情况下，旧湿种子可以 [生长霉菌](https://www.wildbirdscoop.com/how-to-clean-bird-feeders.html) 和霉变，伤害以它们为食的鸟类。所有这些情况对鸟类来说都是威胁生命的，所以保持喂食器清洁是这个过程的重要部分。
 
-Watch
+
 
 以下是清洁喂食器的频率和正确完成的最佳方法。
 

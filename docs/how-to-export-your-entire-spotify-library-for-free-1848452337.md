@@ -4,7 +4,7 @@
 
 远离 Spotify 有很多原因。Apple Music 现在以更便宜的价格提供无损音频。如果你使用亚马逊 Prime，Prime 音乐是免费的；如果你有一个智能音箱，这是最便宜的播放音乐的方式。Spotify [没有尼尔·杨或乔尼·米切尔](https://gizmodo.com/joni-mitchell-joins-neil-young-in-fight-against-covid-1-1848447755) 的音乐。不管是什么原因，音乐流媒体服务之间从来没有过竞争。
 
-Watch
+
 
 遗憾的是，流媒体服务并不完全渴望让你导出你的图书馆，这样你就可以带着它—b 但是有许多第三方网站、应用和服务可以填补这一空白。
 

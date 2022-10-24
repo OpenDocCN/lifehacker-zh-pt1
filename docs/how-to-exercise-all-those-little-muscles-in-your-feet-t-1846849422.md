@@ -4,7 +4,7 @@
 
 锻炼你能看到的肌肉很容易——你的二头肌，你的四头肌——但是你身体里的肌肉不仅仅是大块的。我们之前已经谈论过你手和前臂的肌肉，它们有助于给你强有力的抓地力，今天我想把你的注意力带到你的脚上。
 
-Watch
+
 
 你的脚包含比你可能意识到的 更多的小肌肉 [，包括脚底的四层独立的小肌肉。这些“内在”肌肉有助于支撑你的足弓，移动你的脚趾，等等。](https://www.acefitness.org/education-and-resources/professional/expert-articles/6997/how-strong-is-your-foot-s-core/)
 

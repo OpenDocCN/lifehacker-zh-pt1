@@ -4,7 +4,7 @@
 
 我来第一个指出这一点: [太热了](https://gizmodo.com/weather-heatwave-europe-u-s-climate-change-1849199051) 。随着全国许多地区遭受 [过热警告，](https://lifehacker.com/what-to-do-when-theres-an-excessive-heat-warning-1849148961) 确保你的空调尽可能有效运行至关重要。当然，这是假设你已经 [采取了](https://lifehacker.com/how-to-keep-your-ac-unit-working-all-summer-1849027071) 的步骤让你的空调设备准备好运行整个夏天。毕竟，我们将面临一场大热天。
 
-Watch
+
 
 当你已经在处理热的时候，你最不想要的就是一个有故障的空调设备的挫败感。有时你的空调打开了，你的恒温器设置到了理想的温度，但它仍然感觉不到这个单元实际上是在给你的家降温。虽然许多空调问题需要专业人员来解决，但你很有可能自己就能解决这个问题。以下是当你的空调可以打开，但不能有效冷却你的家时应该做的事情。
 

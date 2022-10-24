@@ -4,7 +4,7 @@
 
 你刚刚在一场大型团队战斗杀戮比赛中取得了一场扣人心弦的胜利吗？用一个燃烧的头骨砸你的斯巴达同伴的脑袋？在完全控制中捕获大量的目标，把大量的数字放在黑板上让你所有的 PVP 伙伴看到？*光环无限*的战斗通不在乎。它看不见你。抱歉，你没有分数。
 
-Watch
+
 
 *光环无限*多人游戏的 [惊喜试玩](https://kotaku.com/surprise-halo-infinite-s-multiplayer-is-out-now-1848057791) 开局火爆，仅昨晚在 Steam 上就发布了超过 200，000 次并发，并因其手感、平衡性和趣味性赢得了广泛好评。然而，它的战斗通行证可能是一个例外。这当然是最大的。这是因为，与几乎所有其他战斗通行证玩家所习惯的不同，在*光环无限*中的进展受到完成挑战的严格控制。其他游戏只是奖励你玩，而 343 Industries 的最新游戏让你完成晦涩和不自然的壮举，如 PVP 中的“ [用 Sidekick 手枪杀死 15 名敌人斯巴达人。”](https://www.fanbyte.com/guides/halo-infinite-weekly-challenges-list-guide-tips-for-quick-completion/)
 

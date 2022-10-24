@@ -4,7 +4,7 @@
 
 如果你正在寻找一个庭院旧货出售的在线版本，那么 Facebook Marketplace 很可能是你近年来的首选。但是这个街区的竞争越来越激烈: [隔壁](https://help.nextdoor.com/s/article/How-to-sell-an-item?language=en_US) 。这两个平台都很受欢迎，是 Craigslist 或易贝等市场的本地化替代品，这些市场覆盖面更广，但众所周知，嗯，不够全面。如果你要从网上购物中被骗，那也可能是某个住在附近的人，对吗？
 
-Watch
+
 
 在深入研究 Facebook Marketplace 和 Nextdoor 之间的细微差别之前，让我们从每个人都喜欢的东西开始:广泛的编辑免责声明。
 

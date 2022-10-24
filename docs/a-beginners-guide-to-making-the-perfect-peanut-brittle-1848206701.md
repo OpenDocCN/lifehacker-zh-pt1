@@ -4,7 +4,7 @@
 
 说到糖果制作，我倾向于不需要糖果温度计就能制作的糖果，最好是用微波炉。[骗子的软糖](https://lifehacker.com/make-this-fudge-without-a-candy-thermometer-1821225720)[懒人焦糖](https://lifehacker.com/make-quick-and-easy-homemade-caramels-with-your-microwa-1678361155) 和 [杜松子酒球](https://lifehacker.com/boozy-balls-are-the-seasons-classy-answer-to-the-jell-o-1821022742) 是我最喜欢制作、食用和赠送的几种零食，但今年我将花生糖加入了我的保留节目(和我的礼品盒)。
 
-Watch
+
 
 花生糖对任何想要建立糖果制作信心的人来说都是完美的糖果。配料便宜，食谱简短，而且制作过程让人习惯用一罐融化的糖浆。
 

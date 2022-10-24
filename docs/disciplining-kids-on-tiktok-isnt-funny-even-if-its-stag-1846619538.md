@@ -4,7 +4,7 @@
 
 抖音是一个多变的地方，充满了可爱的舞蹈动作， [令人不安的](https://offspring.lifehacker.com/stop-with-the-new-teacher-challenge-1844916659)[挑战](https://offspring.lifehacker.com/warn-your-teens-about-the-benadryl-challenge-1844927737) ， [怪异的食物技巧](https://skillet.lifehacker.com/should-you-add-cheetos-to-your-macaroni-1846383754) ， [认真的育儿小贴士](https://lifehacker.com/there-are-some-good-parenting-hacks-on-tiktok-actually-1845226861) 。在抖音另一个奇怪的角落里，生活着一种我们绝对不需要的视频类型:父母公开惩罚或羞辱他们孩子的观点和喜好的做法(通常是假的)。
 
-Watch
+
 
 这些所谓的惩戒技巧中的一些看起来很明显是排练过的，如果不是完全伪造的话。孩子们似乎经常知道他们正在被录音，并且可能对卧室门被从铰链上取下、一张沙发被掀翻(当他们在沙发上的时候)、或者电子产品被锤子砸成碎片并不感到惊讶。
 

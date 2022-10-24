@@ -4,7 +4,7 @@
 
 媒体机构 [驳斥了](https://www.12newsnow.com/article/news/verify/money-verify/users-of-cash-apps-will-get-a-1099-form-but-that-doesnt-mean-extra-taxes/536-04e9ffd7-82e0-4685-9ec0-4dc08c0b3d01) 的说法，称对总额为 600 美元或以上的现金应用交易征收新税。虽然这确实不是一些病毒式社交媒体帖子声称的“新”税，但美国国税局的新规定*确实*让该机构更容易对以前通过 Venmo 或 PayPal 等应用支付的未公开收入征税。以下是你需要知道的。
 
-Watch
+
 
 ## **新的现金应用规则如何运作**
 

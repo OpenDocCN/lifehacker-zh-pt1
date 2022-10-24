@@ -4,7 +4,7 @@
 
 假设你还没有举起双手， [要求退还](https://lifehacker.com/how-to-get-a-refund-for-cyberpunk-2077-1845881035) [*公爵核弹*](https://kotaku.com/the-problem-with-releasing-duke-nukem-forever-after-all-5812816) 的——比如游戏体验，也就是*【赛博朋克 2077】*，有很多 mod 你可以抓取，解决一些问题，我敢说，让它玩起来更有趣。至少，他们会帮你渡过难关，直到开发商 CD Projeckt Red 在接下来的几周内发布前两个 [*认错*](https://www.cyberpunk.net/en/news/37298/our-commitment) 更新——尽管即使这样也不会让游戏*像*一样酷，不会让游戏的视觉风格变成 [*边境*](#blands) *。*
 
-Watch
+
 
 ### [赛博引擎调整](https://www.nexusmods.com/cyberpunk2077/mods/107)
 

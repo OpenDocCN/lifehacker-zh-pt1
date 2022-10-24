@@ -4,7 +4,7 @@
 
 Zoom[是 2020 年世界上下载量最大的应用](https://www.usatoday.com/story/tech/2020/12/02/zoom-apple-top-iphone-ipad-app-2020/3785601001/)——的流行使其成为网络钓鱼攻击的目标，商业改善局现在 [警告用户](https://www.bbb.org/article/news-releases/23421-bbb-scam-alert-that-zoom-invite-is-really-a-phishing-scam) 避免粗略的会议邀请，这实际上可能会使你的系统感染恶意软件。以下是你需要知道的。
 
-Watch
+
 
 ### **网络钓鱼骗局的工作原理**
 

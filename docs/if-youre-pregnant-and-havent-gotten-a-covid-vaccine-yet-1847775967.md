@@ -4,7 +4,7 @@
 
 在美国上市的所有三种 COVID 疫苗(Pfizer、Moderna 和 J & J)被认为在怀孕期间使用是安全的，并且数据 [强烈支持如果您再次怀孕、最近怀孕或打算很快怀孕，就接种疫苗](https://lifehacker.com/new-data-shows-not-getting-vaccinated-in-pregnancy-is-t-1847475082) 。但是只有 31%的孕妇接种了疫苗，所以美国疾病控制中心最近发布了一份“紧急健康咨询” 以确保每个人都知道风险和好处。
 
-Watch
+
 
 当疫苗首次被批准时，是基于排除怀孕人群的试验。专家没有任何理由说明人们不应该在怀孕期间使用疫苗，因此 2020 年 12 月的官方建议是，如果你怀孕了，由你和你的医生决定你是否应该接种疫苗。与此同时， [关于疫苗影响生育](https://lifehacker.com/heres-your-covid-vaccine-rumor-roundup-1845935618) 的毫无根据的神话在社交媒体上爆发。
 

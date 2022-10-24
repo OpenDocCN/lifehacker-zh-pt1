@@ -4,7 +4,7 @@
 
 Audacity 是一款开源音频编辑器，深受播客和音乐人的欢迎。2021 年 5 月，Audacity 被缪斯集团收购，故事从这里开始。
 
-Watch
+
 
 7 月 2 日，Muse Group 悄悄更新了 Audacity 的 [隐私政策](https://www.audacityteam.org/about/desktop-privacy-notice/) ，新条款直接抄袭了 Muse Group 自己的隐私政策。新的隐私政策规定，该应用程序将收集有限的个人信息以改进应用程序，并指出该公司可能会与执法部门共享您的个人数据，并将其出售给潜在买家。
 

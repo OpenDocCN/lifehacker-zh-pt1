@@ -4,7 +4,7 @@
 
 继最近 [召回 49 款被认为与沙门氏菌爆发有关的 Jif 花生酱产品](https://lifehacker.com/throw-out-these-recalled-jif-peanut-butters-immediately-1848962436?rev=1653316610184) 之后，根据 [美国美国食品药品监督管理局](https://www.fda.gov/safety/recalls-market-withdrawals-safety-alerts) (FDA)的消息，几家在零食和甜点中使用花生酱的公司也发布了他们自己的召回。
 
-Watch
+
 
 在这一点上，还不清楚是否有人在吃了最近召回的含有 Jif 花生酱(可能含有沙门氏菌)的零食或甜点后生病了，但你不想冒险。下面是关于这一轮召回需要了解的内容。
 

@@ -4,7 +4,7 @@
 
 你最喜欢 [AirPods Pro](https://lifehacker.com/21-clever-airpods-pro-settings-everyone-should-be-using-1847590845) 的哪一点？对于我们这些需要在听音乐时保持清醒的人来说，透明模式可能是最好的选择。幸运的是，对我们来说，苹果公司已经将透明模式 s *o* 做得比好得多，仅仅是这个功能就值得挑选一双。
 
-Watch
+
 
 ## AirPods 的透明模式如何工作？
 

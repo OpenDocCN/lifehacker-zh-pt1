@@ -4,7 +4,7 @@
 
 如果你一直期待着期待已久的夏季旅行，你可能担心的一个方面是在机场 [最后一分钟的行李费](https://lifehacker.com/how-to-avoid-a-last-minute-extra-baggage-fee-at-the-air-1848901536) 。你已经被迫为 [WiFi](https://lifehacker.com/which-airlines-offer-free-wifi-or-free-messaging-and-w-1848899990) 、 [选座](https://lifehacker.com/how-to-avoid-an-airlines-bullshit-seat-selection-fee-1847345736) 支付额外费用，有时甚至是耳机——说到你的行李，可以肯定的是，所有航空公司都会想方设法增加额外费用。
 
-Watch
+
 
 当然，你可以利用互联网上提供的所有打包 的最佳技巧来优化你的手提箱策略。(你上次后 [做了装箱单*？)但一旦你把行李箱拖到机场，唯一重要的就是磅秤上的数字。*](https://lifehacker.com/why-you-should-make-a-packing-list-after-your-trip-1848699664)
 

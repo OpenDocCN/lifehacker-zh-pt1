@@ -4,7 +4,7 @@
 
 当你在深夜使用 iPhone 或 iPad 时，自动黑暗模式是舒缓眼睛的好方法。但是当你在 Safari 中打开一个网页时会发生什么呢？一道眩目的白光不知从哪里射来，就是这样，因为不是所有的网站都支持黑暗模式。如果你使用的是 [iOS 15](https://lifehacker.com/36-of-the-best-new-ios-15-features-for-iphone-1847674175) 或者 iPadOS 15，然而你现在可以使用 [黑暗阅读器扩展](https://apps.apple.com/app/dark-reader-for-safari/id1438243180#?platform=iphone) 到*强制*所有网站屈从于你的意愿，并且以黑暗模式(或者棕褐色模式，或者不同的主题)打开。
 
-Watch
+
 
 黑暗阅读器扩展是一个稳定的、众所周知的扩展，多年来一直在 Safari 桌面浏览器上流行。现在，你可以在 iPhone 或 iPad 上使用它。不是免费的，也不是便宜的。但一次性 4.99 美元的购买可以让你在所有苹果设备上使用它。如果你不想花 4.99 美元，你也可以尝试 2.99 美元的 [黑色](https://apps.apple.com/app/noir-dark-mode-for-safari/id1581140954) 扩展，其工作方式类似。
 

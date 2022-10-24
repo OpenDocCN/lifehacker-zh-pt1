@@ -4,7 +4,7 @@
 
 所以，你买了一部全新的 iPhone 13，13 mini，13 Pro，或者 13 Pro Max。恭喜你！你喜欢新的和改进的相机吗？120 赫兹专业显示器？或者你是因为你戴着面具时价值 1000 美元的 iPhone 无法解锁而生气，尽管你的旧 iPhone 运行良好？让我们来帮你修复这个“ [用 Apple Watch](https://lifehacker.com/unlock-your-iphone-with-your-apple-watch-when-wearing-a-1846181593) 解锁”的 bug。
 
-Watch
+
 
 ## 什么是‘用 Apple Watch 解锁’？
 

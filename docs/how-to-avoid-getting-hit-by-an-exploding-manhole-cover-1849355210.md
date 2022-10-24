@@ -4,7 +4,7 @@
 
 虽然被爆炸的井盖击中的几率很低，但也不是零。 [根据 2021 年纽约市长管理报告](https://www1.nyc.gov/assets/operations/downloads/pdf/mmr2021/2021_mmr.pdf) 显示，纽约消防局在 2021 财年共应对了 261 起井盖被爆炸力移位的事例。这不是纽约独有的问题；井盖爆炸遍布全国。 [自 2016 年以来，芝加哥已经收到超过 3500 起关于井盖和格栅丢失的投诉](https://www.cbsnews.com/news/chicago-drivers-manhole-covers-dangers/) 。波士顿 近日发生一起井盖爆炸 [被摄像头拍到。还有一个井盖爆炸甚至最近在迈阿密](https://www.nbcboston.com/news/local/watch-flames-explode-from-manhole-in-boston/2737236/) [毁了一辆车](https://www.nbcmiami.com/news/manhole-blast-destroys-car-windshield-in-edgewater/2559826/) 。
 
-Watch
+
 
 那么，你如何确保爆炸的井盖不会砸到你的头上呢？通过寻找一些蛛丝马迹，你将能够在井盖爆炸发生前发现它，并提醒那些有能力阻止它的人。
 

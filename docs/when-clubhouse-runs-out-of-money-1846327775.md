@@ -4,7 +4,7 @@
 
 会所大得惊人。仅仅一年多前，这个独家的、只接受邀请的应用程序还没有一个正式的网站，甚至没有一个应用程序可以在一个以上的操作系统上运行。然而，app store 排行榜冠军弥补了可用性方面的不足，它拥有 [名人缓存](https://www.elle.com.au/culture/clubhouse-app-24657#:~:text=Clubhouse%20members%20could%20wander%20into,are%20also%20on%20the%20platform.)[数百万](https://www.statista.com/statistics/1199871/number-of-clubhouse-users/#:~:text=Created%20in%20April%20in%202020,listen%20to%20other%20users%20talking.) 用户，以及似乎永无止境的资金来源。
 
-Watch
+
 
 该平台提供纯音频聊天室，主持人发言，多达数千名客人收听——有点像观众参与封闭在线社区的直播播客。对于很多人来说，会所迅速崛起的现象和正在进行的全球疫情的背景有些不可分割。
 

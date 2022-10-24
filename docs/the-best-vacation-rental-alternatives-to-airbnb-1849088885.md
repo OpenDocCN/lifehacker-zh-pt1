@@ -4,7 +4,7 @@
 
 上周，喜剧演员 Caleb Hearon 在 Twitter 上直言不讳地表达了他对 Airbnb、[proclaiming](https://twitter.com/calebsaysthings/status/1536559315460337664)T8】的不满，“我受够 airbnb lmao 了，这些混蛋现在有宵禁、安静时间和家务清单。我会在一家酒店。”这条推文引起了一点争议(33K 转发和攀升)，其中 [一条 ctress 茶色纽森齐明，说](https://twitter.com/TrondyNewman/status/1536559836942548992) ，“我住的最后一家(Airbnb)，店主拒绝了我的送货员，理由是她的‘不接待客人’政策。作家凯茜·圣·昂格讲述了一次，她的 Airbnb 主人让她 [帮她抓住她逃跑的猫。](https://twitter.com/Caissie/status/1536561795590082562) 
 
-Watch
+
 
 Airbnb 的系统性批评(及其对当地房地产市场 的 [影响)并不新鲜，但越来越多的是，隐藏的预订费用、不合理的规则和清洁要求使得这项服务对租房者来说不再像过去那样有用——它的主要竞争对手也是如此，比如 Vrbo，它也承担着类似的高额附加成本。尽管 Airbnb 及其同类公司无处不在，但它们并不是城里唯一的游戏。这里有三种预订选择，下次你安排旅行时可以考虑一下。](https://www.curbed.com/2022/05/new-york-more-airbnb-listings-apartments-rentals.html)
 

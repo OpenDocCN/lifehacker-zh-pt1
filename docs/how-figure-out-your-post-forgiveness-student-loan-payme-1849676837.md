@@ -4,7 +4,7 @@
 
 如果你 [符合拜登全面的](https://lifehacker.com/how-to-tell-if-youre-eligible-for-student-loan-forgiven-1849458572) [学生贷款豁免计划](https://lifehacker.com/everything-you-need-to-know-about-the-student-loan-forg-1849648709) 的 ，那么你可以——也应该——[现在就申请](https://lifehacker.com/how-to-apply-for-student-loan-forgiveness-right-now-1849667092) 。本周早些时候，美国教育部为联邦学生贷款债务减免推出了一个测试版的表格。但是在你递交申请后会发生什么呢？以下是如何找出申请学生贷款减免后你的新余额和每月还款情况。
 
-Watch
+
 
 ## 债务减免将如何应用于你的贷款
 

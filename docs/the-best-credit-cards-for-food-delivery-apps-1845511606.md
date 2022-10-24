@@ -4,7 +4,7 @@
 
 现在 [没有人再兑现他们的旅行奖励](https://twocents.lifehacker.com/should-you-cancel-your-travel-rewards-credit-card-durin-1844724886)信用卡发行商越来越多地向他们的持卡人提供在家福利。美国运通刚刚 [宣布](https://ca.finance.yahoo.com/news/american-express-uber-expand-partnership-160300988.html)[为其持卡会员提供为期一年的优步](https://about.ubereats.com/us/en/how-it-works/uber-eats-pass)最新趋势卡提供送餐应用额外津贴。
 
-Watch
+
 
 持有绿卡、金卡或白金卡的美国运通用户将获得长达 12 个月的和免费优步餐券会员资格(通常每月花费 9.99 美元)。为了获得资格，卡会员必须在 2021 年 12 月 31 日前注册 l。此外，从明年年初开始，美国运通金卡和美国运通白金卡会员将分别获得每年 120 美元和 200 美元的优步现金，这些现金可用于优步 Eats 订单或优步国内乘车。
 

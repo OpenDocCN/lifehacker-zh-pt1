@@ -4,7 +4,7 @@
 
 第一次(或者每次)购买毛巾时，你可能会根据 1)最便宜的和 2)是不是毛巾来选择。但事实证明，如果你的毛巾预算有一定的灵活性(记住这是一项投资)，你可能会有兴趣了解更多不同类型的毛巾。
 
-Watch
+
 
 以下是如何挑选一个最适合你独特沐浴需求的，由《纽约时报》 的文章 [中 Wirecutter 的 Jackie Revere 提供。](https://www.nytimes.com/2021/05/18/realestate/tips-buying-bath-towels.html)
 

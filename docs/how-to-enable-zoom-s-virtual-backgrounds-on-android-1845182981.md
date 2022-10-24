@@ -4,7 +4,7 @@
 
 2020 年 的远程工作不会比从热带地区接到一个变焦电话更令人兴奋——即使你并不真的在那里。作为一个额外的奖励，Zoom 广受欢迎的虚拟背景功能可以让你向同事隐藏你凌乱的在家工作的房间——，现在可以在 Android Zoom 应用程序上使用。
 
-Watch
+
 
 虚拟背景是该应用程序最近更新的一部分，它还增加了方便的功能，如会议室和日历集成，以及大量的错误修复和较小的调整。你现在可以从 Google Play 下载 [。](https://play.google.com/store/apps/details?id=us.zoom.videomeetings&hl=en_US) 
 

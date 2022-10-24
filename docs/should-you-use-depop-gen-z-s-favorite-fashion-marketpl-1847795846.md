@@ -4,7 +4,7 @@
 
 Depop 是最受 Z 世代欢迎的时尚市场应用程序之一，它可以帮助 Z 世代寻找流行的复古款式或通过出售物品赚取现金。 [报道显示](https://www.theverge.com/22580446/depop-online-vintage-sales-business-algorithm-dangers) 年轻人正在利用像 Depop 这样的网站作为他们的副业赚真钱。探索抖音 上的 [#depop 标签，你会发现许多来自时尚影响者的评论、赚钱技巧以及关于所谓骗局的“故事时间”咆哮。因此，在你跳下在 Depop 上买卖之前，有很多东西要学；以下是你应该知道的。](https://www.tiktok.com/@holly_laing/video/6855273096627178758?is_from_webapp=v1&lang=en) 
 
-Watch
+
 
 ## 什么是 Depop？
 

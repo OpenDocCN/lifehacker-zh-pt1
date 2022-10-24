@@ -4,7 +4,7 @@
 
 信用评分应用程序是追踪信用评分的一种流行方式——但它们实际上并没有那么好。答根据最近的 [消费者报告分析](https://www.consumerreports.org/credit-protection-monitoring/hidden-costs-of-credit-score-apps-a5900455243/) ，这些应用使用的分数不同于贷方实际使用的分数，它们收集不必要的个人信息，它们向你追加销售你已经可以免费获得的信用监控信息。
 
-Watch
+
 
 ## **你应该知道的流行信用评分应用**
 

@@ -4,7 +4,7 @@
 
 2018 年， [美国最高法院推翻了一项关于体育博彩的联邦禁令](http:// https://www.cbssports.com/general/news/supreme-court-lets-states-legalize-sports-betting-rules-federal-ban-unconstitutional/) ，将博彩规则和法规留给了各州。从那以后，体育博彩在全国范围内兴起，但不是在每个州。下面是一个列表，列出了哪些地方可以合法赌博，哪些地方不可以。
 
-Watch
+
 
 ## **体育赌博在线和离线都合法的州**
 

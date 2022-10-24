@@ -4,7 +4,7 @@
 
 我爱我的蛋白瓶。(我甚至已经知道要用 [在里面调鸡尾酒](https://skillet.lifehacker.com/the-blender-bottle-makes-an-excellent-cocktail-shaker-1843967431) 。)这是我傻瓜生活中的主食，因为我发现蛋白质奶昔帮助我实现了锻炼肌肉的目标。但是如果你正在举重，蛋白质奶昔并不是必然的必需品，所以让我们来谈谈你如何知道你是否真的需要它。
 
-Watch
+
 
 ### 蛋白质对每个人都很重要
 

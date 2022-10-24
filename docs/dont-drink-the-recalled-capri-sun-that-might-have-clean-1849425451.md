@@ -4,7 +4,7 @@
 
 自 1981 年首次出现在美国杂货店货架上以来，Capri Sun 果汁饮料一直是午餐盒的主食。但是在你为你的孩子明天的(或你自己的)午餐打包一个标志性的锡箔袋之前，花一分钟检查一下它是否是由于含有清洁液的风险而被召回的产品之一。
 
-Watch
+
 
 据 [美国美国食品药品监督管理局](https://www.fda.gov/safety/recalls-market-withdrawals-safety-alerts/kraft-heinz-announcing-voluntary-recall-capri-sun-wild-cherry-flavored-juice-drink-blend-beverages) (FDA)报道，在北美生产和经销 Capri Sun 产品的卡夫亨氏公司宣布自愿召回他们的部分果汁饮料，因为它们可能含有化学污染物。以下是需要了解的内容。
 

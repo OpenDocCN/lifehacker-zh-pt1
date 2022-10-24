@@ -4,7 +4,7 @@
 
 孩子们，他们要摔跤了。如果你有一个孩子——尤其是不止一个——你可能已经注意到了他们极度运动的倾向。也许你自己也和他们打过交道——[可能会很有趣](https://lifehacker.com/you-should-wrestle-with-your-kid-1834204895) ！但是现在，我们已经进入这个疫情 72 年了，面对漫长、黑暗、寒冷的冬天(对不起，它就要来了)，你可能会对所有这些从墙上跳下来并相互碰撞的骚动感到不安。这个问题的解决方案当然来自 Reddit。
 
-Watch
+
 
 [Reddit 用户 u/itworkssalem](https://www.reddit.com/r/Parenting/comments/jes22u/calmhousing)解释道:
 

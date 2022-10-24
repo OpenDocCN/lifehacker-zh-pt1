@@ -4,7 +4,7 @@
 
 你打算在这个假期烤些饼干吗？如果这已经是你接下来几天的节日议程，你也可以把你的作品加入到另一个“梦想工作”竞赛中来——具体来说，是一个带有现金、饼干和羊皮纸的竞赛。成功的申请者/获胜者将被命名为 [雷诺厨房饼干鉴赏家](https://www.reynoldskitchens.com/tips/reynolds-kitchens-looking-cookie-connoisseur/) 。这是什么意思，以及如何进入。
 
-Watch
+
 
 ### 这个职位需要什么
 

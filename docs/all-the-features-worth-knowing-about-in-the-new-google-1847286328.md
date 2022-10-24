@@ -4,7 +4,7 @@
 
 谷歌刚刚发布了一款新的用于 Windows 和 Mac 的 Google Drive 桌面应用，以取代 10 月 1 日关闭的备份和同步以及驱动文件流工具。 [谷歌建议](https://support.google.com/drive/answer/10309431) 所有用户在 9 月前迁移到 Drive desktop 应用程序，以避免任何同步中断，但不要哀叹那些尘封的旧应用程序的丢失——t 新的 Drive for desktop 将备份、同步和驱动文件流的功能结合到一个应用程序中，甚至添加了浏览器版本和谷歌照片应用程序的一些额外功能。
 
-Watch
+
 
 以下是谷歌官方的并列总结:
 

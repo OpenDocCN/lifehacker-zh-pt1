@@ -4,7 +4,7 @@
 
 今年的全国墨西哥卷饼日是在愚人节，但谢天谢地，餐馆没有玩他们的交易。从明天开始，像 Pollo Loco 和 Moe's Southwest Grill 这样的餐馆提供买一送一、5 美元的墨西哥卷饼等优惠。 [Chipotle](https://newsroom.chipotle.com/2021-03-30-Burritos-Or-Bitcoin-Chipotle-To-Give-Away-200k-In-Free-Burritos-And-Bitcoin-To-Celebrate-National-Burrito-Day) 不太有用，但仍然不错，它邀请人们在 4 月 1 日全天参加在线挑战，破解密码，赢得免费墨西哥卷饼和其他奖品。这里有一些交易和免费赠品，可以在全国玉米煎饼日利用。
 
-Watch
+
 
 ### 疯狂鸡 BOGO 交易
 

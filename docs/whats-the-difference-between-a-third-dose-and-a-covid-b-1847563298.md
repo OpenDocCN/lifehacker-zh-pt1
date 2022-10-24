@@ -4,7 +4,7 @@
 
 加强剂量的新冠肺炎疫苗 [可能在今年秋天](https://lifehacker.com/will-we-need-a-covid-booster-shot-after-all-1847509675) 上市，这取决于现有的数据和政府官员决定做出的判断。另一方面，免疫系统虚弱的 [人已经可以使用第三剂](https://lifehacker.com/why-immunocompromised-people-should-get-an-extra-covid-1847494704) 。那么，w 有什么区别呢？
 
-Watch
+
 
 用医学术语来说，区别在于，在你接种疫苗并产生免疫力之后，加强免疫会在某个时间发生，通常是一年或更久。助推器的想法是“提高”你的免疫力，因为它开始消退。
 

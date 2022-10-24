@@ -4,7 +4,7 @@
 
 在 E3 2021 上， [微软展示了](https://kotaku.com/10-new-xbox-game-pass-titles-shown-at-e3-2021-1847072899) 一大堆即将在 Xbox 游戏通行证库中发布的游戏。除了像*《光环无限》*这样的第一方游戏之外，该服务还将在未来几个月推出一些较小的游戏。亮点包括*黑貂*、 *12 分钟*，以及一个名为 [*碎纸机*](https://kotaku.com/im-amped-for-this-rad-e3-snowboarding-game-1847094951) 的写实单板滑雪 sim。但是这些游戏都还没有上市，游戏通行证机器必须继续运行。
 
-Watch
+
 
 [一切都来了](https://news.xbox.com/en-us/2021/06/23/xbox-game-pass-coming-soon-june-2021/) 未来几周 Xbox 游戏通:
 

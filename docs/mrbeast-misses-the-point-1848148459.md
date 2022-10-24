@@ -4,7 +4,7 @@
 
 本周，YouTuber MrBeast 发布了一个视频，其中有一个 [精心制作的，无死亡重建的](https://kotaku.com/mrbeasts-irl-squid-game-sees-contestants-just-running-t-1848134062) 挑战从热门韩剧 [*乌贼游戏*](https://gizmodo.com/seeing-how-squid-game-got-made-is-both-relieving-and-in-1848055193) 到他的，截至本文写作时，8290 万追随者。这个视频受到了许多人的批评，他们认为这是一个音盲的噱头，完全没有抓住节目关于收入不平等的要点。作为回应，MrBeast 的粉丝指出，在整个视频中，他如何赠送大量现金，甚至向那些被淘汰的人赠送，并且通常被视为人道主义者。
 
-Watch
+
 
 “野兽先生真的捐了很多钱，给无家可归的人送饭，拯救海洋等等，所以让这个人开心吧，”他的一个捍卫者在 [推特](https://twitter.com/NicoGestalt/status/1463968952418283522) 上写道。
 

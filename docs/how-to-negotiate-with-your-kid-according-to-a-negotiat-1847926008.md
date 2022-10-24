@@ -4,7 +4,7 @@
 
 每个父母都知道，孩子是谈判高手，他们善于发现(并利用)你的弱点。“孩子们善于捕捉信号，”[gatan Pellerin、](https://u7061146.ct.sendgrid.net/ls/click?upn=4tNED-2FM8iDZJQyQ53jATUUXtEzB5BaFONI8TyrUMgK9cUUSYw0D6Iyb54M9Ge2ZdrcZg_1o4CPbVHWy6LPjvvoCiRc13eR1qbyZUBpG-2BmEB84gQaaoKtusUKqou4Ur4YVc-2Be1kgyxOkXx4LkmHi70e8JcBxH7vFsMOGil-2FKO8-2BoBZFCcaIzvlW5FnEFyOBAWYj0qgMrBfriZ-2BBYkgwKuK7SK-2BD-2BQTnzRM6H3b7WQr3y1ZuZTGosifhzhpqtxHEmivFrVCh7bzc9VJPynXcyNRrthJG1VLwcK8DxR-2BvRMjubgUFunmZBDEcA1Yef7195oHs9CIXIYJpa0nSW-2B6AngYpzhSQ4dmPRUuM59vAtdcwRzwD5irnri2qfWjtp5gN1vbhitjbPSJuDfSyLezYwinSsxz3wUjCTdpYJP-2FKJgLYdbAdnc-3D) 谈判专家、《专注谈判:时刻保持清醒，战胜自我，让每个人都得到他们真正想要的 》一书的作者说道
 
-Watch
+
 
 对你的孩子来说，你的情感联系和 24/7 的育儿本质使谈判变得更加复杂，没有休息。即使在最好的情况下，谈判也是一场高压力、快节奏的考验，会打击你内心深处的不安全感。
 

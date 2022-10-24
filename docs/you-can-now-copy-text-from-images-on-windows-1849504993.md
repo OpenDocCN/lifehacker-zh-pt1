@@ -4,7 +4,7 @@
 
 微软的 PowerToys 有一个新的实用程序，可以让你从图像中复制文本:如果有人给你发送了他们的名片照片或他们银行账户详情的截图，你可以使用 PowerToys 在 Windows 上快速复制。新的实用程序叫做文本提取器，与[PowerToys 0.62 版本更新](https://github.com/microsoft/PowerToys/releases/) 一起提供。可以从 GitHub 下载最新版本的 PowerToys 安装完成后，打开 PowerToys 并点击左侧窗格中的**文本提取器**。
 
-Watch
+
 
 ## 如何在 Windows 上使用文本提取器
 

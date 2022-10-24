@@ -4,7 +4,7 @@
 
 我这辈子拿过很多头衔:厨师、作家、 [美食评论家](https://thetakeout.com/review-tgi-fridays-circus-menu-donut-sandwiches-chur-1846713769) 、 [热口袋味觉测试员](https://thetakeout.com/hot-pocket-rankings-best-flavors-pretzel-pizza-1841002175) ，两个孩子的母亲。三年前，我给自己多重身份的生活添加了一个我认为是迄今为止最令人印象深刻的头衔:县博览会烘焙师官方评委。(向我的孩子们道歉，如果他们时不时给我做一个漂亮的 [babka](https://thetakeout.com/the-best-babka-recipe-blueberry-cinnamon-sour-cream-sw-1843111216) 的话，他们的排名会更高。但是，他们没有。)
 
-Watch
+
 
 作为一个城市女孩，除了在电影中看过或在外卖网站上读到的，我对县城集市一无所知。( [黄油做的牛](https://thetakeout.com/leave-me-alone-with-my-butter-cow-cam-1847482273) ？一尊真人大小的凯文·科斯特纳雕像， [也是用黄油做的](https://thetakeout.com/the-surprisingly-lofty-history-of-american-butter-sculp-1821827196) ？真是个世界！)由于我对县集市的理解大多涉及嘉年华游乐设施和在油炸锅里插东西，我错过了这个过程中一个非常重要的元素:参与者争夺蓝丝带的非常严肃的比赛。对于成千上万的业余面包师来说，县集市本质上就是奥运会，他们参赛作品的策划、练习和完善绝非易事。
 

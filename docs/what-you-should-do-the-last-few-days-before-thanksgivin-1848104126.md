@@ -4,7 +4,7 @@
 
 经过数周的准备和计划，我们只差几天就可以烹饪这只鸟，以及节日所需的所有其他菜肴和馅饼。我很兴奋。
 
-Watch
+
 
 在我们继续本周的任务之前，花一分钟时间回顾一下我们的指南，包括第[两个](https://lifehacker.com/what-you-should-do-two-weeks-before-thanksgiving-1848016466) 和 [三个](https://lifehacker.com/what-to-do-the-week-before-thanksgiving-1848059419) ，以确保我们都在同一页面上。你应该已经收集好了你的配料，购买了任何需要的服务器皿，并且规划好了你的烤箱和炉灶的使用方法，但是如果你没有:不要惊慌。你还有将近整整三天的时间去采购最后一分钟的食材和供应品。
 

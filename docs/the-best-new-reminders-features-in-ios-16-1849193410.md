@@ -4,7 +4,7 @@
 
 虽然 Apple Notes 已经成为大多数 iPhone 用户的默认笔记应用，但是提醒应用是经常被忽视的。但是在过去的几年里，Reminders 已经用分组、自然语言输入和 [智能列表](https://lifehacker.com/you-should-definitely-be-using-smart-lists-on-your-ipho-1847657547) 建立了一个强大的基础。随着 [iOS 16](https://lifehacker.com/the-best-new-features-in-ios-16-and-ipados-16-1849023814) ，苹果正在这些功能的基础上进行建设，使提醒更容易使用，修复了一些长期存在的烦恼，并使其最常用的功能更容易找到。
 
-Watch
+
 
 ## 将列表固定在顶部
 

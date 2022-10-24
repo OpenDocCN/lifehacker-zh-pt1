@@ -4,7 +4,7 @@
 
 南瓜香料生活是一种没有限制的生活。想在夏天的狗狗身上开始啜饮 PSLs 吗？你可以这么做。把你的 [速食拉面](https://thetakeout.com/pumpkin-spice-nissin-cup-noodles-review-1847423271) 或者 [垃圾食品](https://thetakeout.com/best-pumpkin-spice-dessert-spam-cheerios-1847564233) 的南瓜调味怎么样？往前走。一个 [芝士馅南瓜](https://thetakeout.com/roasted-pumpkin-stuffed-with-mushrooms-and-cheese-a-sh-1844933063)——馅儿南瓜 [南瓜包](https://thetakeout.com/recipe-char-siu-turkey-pumpkin-bao-cranberry-hoisin-1845584676) 泡在 [南瓜汤](https://thetakeout.com/pumpkin-curry-spice-soup-recipe-1838184621) 里，配上 [南瓜沫](https://thetakeout.com/homemade-pumpkin-sauce-recipe-pumpkin-spice-latte-foam-1847719326) 怎么样？不要让任何事情阻止你追寻你的梦想。
 
-Watch
+
 
 南瓜香料是一种不受季节限制的风味。另一个季节性的最爱也是如此:coquito。
 

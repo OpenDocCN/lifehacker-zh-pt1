@@ -4,7 +4,7 @@
 
 我以为我把它弄丢了，因为我前几天贴在 Lifehacker 的 Slack 上的网址感觉有些不对劲。它们不是以普通网址——类似于*https://skillet . life hacker . com/6-tips-for-making-gravy-with-non-panic-1845739196*——的形式出现，只有标题和域名链接:
 
-Watch
+
 
 这是相同的 URL 从不同的浏览器粘贴时的样子，回到正常的:
 

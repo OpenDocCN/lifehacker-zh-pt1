@@ -4,7 +4,7 @@
 
 当你认真对待你的健身目标时(无论是力量- 还是体重- 相关)，通常第一步是让你的营养有序。你想要获得足够的蛋白质 [来支持你的肌肉](https://lifehacker.com/heres-how-much-protein-you-really-need-1830878049)[水果和蔬菜促进健康](https://lifehacker.com/eating-fruits-and-vegetables-is-more-important-than-eat-1837658224)[碳水化合物作为燃料](https://lifehacker.com/what-to-eat-before-and-after-a-strength-training-workou-1798556343) ，以及支持你的活动和目标的总热量，而不会吃得不足或过量。
 
-Watch
+
 
 如果你曾经在一天结束的时候意识到你离你的日常目标还很远，你就会明白计划你的膳食甚至提前准备它们背后的想法。一个每天午餐吃老一套的鸡肉和西兰花的健美运动员可能会对他的饭菜感到厌倦，但他甚至不用想就知道自己摄入了多少蛋白质。
 

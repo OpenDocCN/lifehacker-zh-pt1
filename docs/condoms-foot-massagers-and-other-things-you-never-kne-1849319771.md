@@ -4,7 +4,7 @@
 
 [弹性支出账户](https://lifehacker.com/use-your-fsa-money-to-donate-street-medic-supplies-1843907657) 都是狗屎。这是你通过员工福利留出的税前美元，用于支付医疗费用，主要是。你可以取消 [共付额，用它来支付你的免赔额](https://lifehacker.com/all-the-health-insurance-words-you-need-to-know-but-wer-1848688048) ，你可以支付药物和其他与健康相关的必需品——所有这些都不会影响你的支票账户。唯一真正吸引人的是，这是一种“要么使用，要么失去”的好处。你必须在你的受益期结束前用完你留出的所有钱，因为它不会滚入新的一年。不过，好消息是，你可以用 FSA 的钱买到很多意想不到的东西。以下是几个最意想不到的。
 
-Watch
+
 
 ## **“有趣”的东西你可以用你的 FSA 购买**
 

@@ -4,7 +4,7 @@
 
 如果你觉得你总是被要求更新 Chrome， [你没有错](https://lifehacker.com/update-chrome-immediately-to-patch-these-security-vulne-1848853708) 。谷歌一直在为其网络浏览器发布新的更新，通常是为了在发现新的安全漏洞时进行修补。在这次最新的更新中，你确实是为 32 个这样的缺陷 获得了 [补丁，而且还有一些](https://chromereleases.googleblog.com/2022/05/stable-channel-update-for-desktop_24.html) [有趣而有用的新功能](https://www.howtogeek.com/806934/whats-new-in-chrome-102/)——所有这些都让更新到 Chrome 102 变得不需要动脑筋。
 
-Watch
+
 
 虽然我们看到在必要时发布独立的安全补丁，但谷歌倾向于每四周更新一次 Chrome。最新版本 [Chrome 101](https://www.howtogeek.com/800007/whats-new-in-chrome-101/) 于 4 月 26 日发布，对的用户界面进行了微小的调整，并增加了在 Chrome 的密码管理器中为条目添加注释的功能。虽然 102 不是一个充满特性的更新，但它肯定比 101 版本有更多的。
 

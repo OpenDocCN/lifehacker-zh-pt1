@@ -4,7 +4,7 @@
 
 如果你需要跟踪网站的微小变化，Visual Ping 可以帮上忙。Visual Ping 是一个网站和浏览器扩展，可以跟踪网站上您指定的任何文本、视觉和格式更改。在某种程度上，这就像使用 [互联网档案馆的返程机](https://lifehacker.com/find-lost-websites-with-wayback-machines-browser-extens-1841955779) ，只是实时的。
 
-Watch
+
 
 我们之前提到过可视 Ping 是一种跟踪受欢迎商品的股票和价格变化的手段，如 [个人电脑组件和游戏控制台](https://lifehacker.com/why-graphics-card-prices-are-dropping-and-how-much-the-1848830151) ，但该服务还有许多其他应用。
 

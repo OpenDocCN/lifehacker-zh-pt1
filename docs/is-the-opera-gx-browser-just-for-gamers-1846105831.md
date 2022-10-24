@@ -4,7 +4,7 @@
 
 Opera [最近收购了 YoYo Games](https://www.engadget.com/opera-buys-gamemaker-studio-2-developer-yoyo-games-160045897.html) ，游戏开发引擎 Game Maker Studio 的创造者，以建立其新的“Opera Gaming”部门。Opera 尚未宣布其与游戏制造商 Studio 的合作计划，但此次收购提供了一个很好的机会来检查 Opera 的另一款专注于游戏的产品:[Opera GX 网络浏览器。](https://www.opera.com/gx)
 
-Watch
+
 
 Opera GX 于 2019 年 6 月在“早期访问”中发布，因此技术上仍在开发中。乍看之下，它看起来也像是一款小众游戏应用。虽然它目前的形式最适合 PC 玩家，但即使你不玩游戏，也有充分的理由尝试 Opera GX。
 

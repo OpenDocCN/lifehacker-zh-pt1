@@ -4,7 +4,7 @@
 
 大多数人的生活中至少有一个古怪的人，无论是朋友、家人还是同事。这些人答应来做某事，但在最后一刻却忘记或取消了。人们古怪的原因有很多，但共同点似乎是他们中的大多数人都有 [说不](https://www.bustle.com/articles/158893-flaky-people-have-this-one-thing-in-common-with-each-other-according-to-science) 的难处。
 
-Watch
+
 
 当他们说“是”或时，他们可能有最好的意图，但说“不、”时，他们可能会感到不舒服，但结果是一样的:他们会同意某事，只是在最后一分钟食言。
 

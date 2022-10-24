@@ -4,7 +4,7 @@
 
 多年来，Lifehacker 已经洒了很多数字墨水，试图帮助你控制浏览器标签问题。 [如何在 Chrome 上更高效地使用标签](https://lifehacker.com/boost-chrome-tab-groups-with-this-beta-feature-1843542912) 。 [浏览器崩溃后如何重新打开标签页](https://lifehacker.com/how-can-i-restore-closed-tabs-after-accidentally-quitti-1452314285) 。 [如何对自己的标签成瘾进行干预](https://lifehacker.com/how-to-konmari-your-browser-tabs-1832760171) 。 [如何在关闭标签页前保存所有标签页](https://lifehacker.com/organize-your-browser-tabs-with-onetab-but-back-them-u-1837740779) 。 [最好的浏览器扩展，让打开新标签页更好](https://lifehacker.com/the-15-best-new-tab-extensions-for-google-chrome-fans-1832040696) 。但是今天我分享一个大胆的想法，你可能不喜欢:你应该定期关闭你所有的标签页，而不是先仔细阅读它们。把它们都关上。
 
-Watch
+
 
 这话我不是随便说的。众所周知，我会连续几周甚至几个月打开浏览器标签，直到最终浏览完《纽约客》的长篇读物，或者把年度最佳专辑加入我的亚马逊音乐队列。但是，由于今天有望获得一台新的工作笔记本电脑，我决定在周末做一点浏览器维护，在关闭之前，我花了 10 分钟试图处理每个标签，最后我只是说了句“去他妈的”，然后关闭了所有标签...我立刻感到自由了。(嗯，比较自由。 [一切依旧可怕](https://lifehacker.com/now-more-than-ever-you-need-to-put-down-your-phone-1845324789) 。)
 

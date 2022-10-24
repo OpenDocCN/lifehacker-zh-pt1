@@ -4,7 +4,7 @@
 
 贝塞斯达工作室，许多流行系列如《上古卷轴》、*《毁灭战士》*和*《辐射尘》*的发行商，将于 5 月 11 日关闭其 PC 发布平台。这意味着你将不再能够通过该应用程序购买、下载或玩 Bethesda 游戏。然而，该公司正在让玩家将他们购买的 Bethesda 发布的游戏、DLC、保存文件和某些特定账户数据(如游戏中的货币)完全免费地移植到 Steam 上。
 
-Watch
+
 
 虽然 Bethesda Launcher 将于 5 月 11 日关闭，但该公司很清楚 [这不是一个转移截止日期](https://bethesda.net/en/article/2RXxG1y000NWupPalzLblG/sunsetting-the-bethesda-net-launcher-and-migrating-to-steam) ，即使在 Launcher 应用程序关闭后，你也可以转移你的游戏和数据。
 

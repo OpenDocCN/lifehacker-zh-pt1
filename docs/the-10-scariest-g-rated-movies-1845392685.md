@@ -4,7 +4,7 @@
 
 [万圣节](https://io9.gizmodo.com/these-are-2020s-worst-halloween-costumes-1845090653) 是恐怖、闹鬼、血腥 [电影](https://io9.gizmodo.com/the-top-10-horror-movies-of-the-last-10-years-1838494128) 的时间。有时人们很容易忘记，最恐怖的电影是那些被认为对所有年龄段都“安全”的电影。以下是我们挑选的现代史上 10 部最恐怖的 G 级电影。
 
-Watch
+
 
 在很大程度上，我们坚持在 [PG-13 级](https://gizmodo.com/a-brief-history-of-the-movie-rating-system-1676334900) 确立后上映的电影，因为这巩固了我们今天所知道的现代普通观众评级。然而，这条规则至少有一个例外——主要是因为我不相信在它出现的时候，它被认为是小孩子可以接受的。一定要在评论中留下其他让你害怕的 G 级电影的注释——无论是在你小时候，还是几十年后。
 

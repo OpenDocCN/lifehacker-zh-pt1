@@ -4,7 +4,7 @@
 
 所以，你想建一个核辐射掩蔽所。你并不孤单:民用[炸弹](https://risingsbunkers.com/) [防空洞](http://ultimatebunker.com/) [建筑](http://www.utahsheltersystems.com/) [工业](http://www.hardenedstructures.com/) 在过去十年里一直在稳步增长，以满足需求，过去的事件点燃了 [全面的市场繁荣](http://www.chicagotribune.com/business/ct-bomb-shelter-business-20170828-story.html) ，更不用说疫情和选举了。
 
-Watch
+
 
 无论你走的是 D.I.Y .路线，还是选择配备防爆门和空气过滤系统的定制选项，你都需要食物——而且是大量的食物——才能生存。你的掩体的餐具区需要凉爽、黑暗、通风良好；它还应该包括各种各样的干货、罐头食品和预制食品，如。这里有一些让你开始的建议。
 

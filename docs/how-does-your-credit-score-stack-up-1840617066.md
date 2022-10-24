@@ -4,7 +4,7 @@
 
 尽管有疫情，美国人正在偿还他们的债务，贷款拖欠率也下降了——这两个因素导致了自 2016 年以来平均信用评分的最大跃升。根据最近的数据，[FICO 平均得分为 711](https://www.cnbc.com/2021/01/19/the-best-ways-to-raise-your-credit-score-how-your-fico-number-works.html) ，比 2019 年增加了 8 分，这促使许多人的信用评分达到“非常好”的范围。以下是你可能累积的情况。
 
-Watch
+
 
 ### **不均衡的复苏**
 

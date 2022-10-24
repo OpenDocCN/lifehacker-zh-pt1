@@ -4,7 +4,7 @@
 
 凉拌卷心菜可能是一件棘手的事情。糟糕的沙拉味道淡而无味，但好的沙拉则提供了一种完美的香甜和松脆，可以与各种丰富和咸的烧烤食物相媲美，我最喜欢的是 [猪肉](https://lifehacker.com/how-to-smoke-your-first-pork-shoulder-on-a-charcoal-gri-1847204124) 。好的沙拉取决于好的技术——你可以 [在这里](https://lifehacker.com/stop-making-bad-coleslaw-1826269204) 阅读所有相关内容——最好的沙拉通常是最简单的，就配料而言。
 
-Watch
+
 
 然而，我最喜欢的沙拉是我继母做的——因为她在里面放了一点胡椒果冻。对于那些不熟悉这种果冻的人来说:它就像它听起来的那样——一种甜而辣、轻摇的酱料，当 [倒在一块奶油奶酪](https://lifehacker.com/the-anatomy-of-the-perfect-cheese-plate-1793682048) 上，和小麦薄片一起吃时，它是超凡的。它也是一种很棒的 [火腿酱](https://lifehacker.com/glaze-your-holiday-ham-with-pepper-jelly-1840509510) ，而且——你现在知道了——是一种奇妙的凉拌卷心菜。
 

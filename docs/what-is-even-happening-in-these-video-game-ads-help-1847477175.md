@@ -4,7 +4,7 @@
 
 我们都有过，等着在一个手游里免费收点东西，换取看另一个手游的广告。这通常是一个伸展身体或喝一杯饮料的机会，但有些广告实在是太疯狂了，以至于每当它们在轮换中出现时，你都会忍不住去看它们。
 
-Watch
+
 
 去年，一款名为*百合花园* [的手机游戏凭借与游戏本身无关的无意义、基于故事的广告吸引了全世界](https://nymag.com/intelligencer/2019/09/what-is-the-story-behind-the-lilys-garden-ads.html) 。虽然对*百合花园*的关注已经平息，但一款新游戏已经准备好取而代之:*来自芬兰工作室 Metacore Games 的 Merge Mansion* 。
 

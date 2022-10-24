@@ -4,7 +4,7 @@
 
 既然 COVID 呈下降趋势，我们就假装这只是一场噩梦，然后兴高采烈地回到之前的状态，而不要以任何方式改变我们的行为，这一点至关重要。这意味着回到电影中去！去看电影意味着重温我们偷偷吃零食的技巧。
 
-Watch
+
 
 斯普恩大学 最近的这篇 [文章概述了一些将食物偷偷带进电影院的屡试不爽的方法。它充满了坚实的建议，如:](https://spoonuniversity.com/lifestyle/the-best-way-to-sneak-food-into-the-movie-theatre) 
 

@@ -4,7 +4,7 @@
 
 天花是我们在人类中唯一彻底根除的疾病；自 1980 年以来，它在世界上任何地方都不存在。但是它的近亲猴痘仍然存在。猴痘远没有天花危险，但是最近的一些爆发让公共卫生官员担心。
 
-Watch
+
 
 最近几周，西班牙 出现了 [23 例疑似病例，都在马德里或马德里附近。葡萄牙有 15 例疑似病例，5 例确诊病例，英国有 7 例。美国今天出现了两例](https://www.theguardian.com/world/2022/may/18/monkeypox-alert-spain-men-show-symptoms)[](https://www.npr.org/sections/goatsandsoda/2022/05/18/927043767/rare-monkeypox-outbreak-in-u-k-and-europe-what-is-it-and-should-we-worry)。美国疾控中心 [关注](https://www.statnews.com/2022/05/17/cdc-expresses-concern-about-possibility-of-undetected-monkeypox-spread-in-u-k/) 。
 

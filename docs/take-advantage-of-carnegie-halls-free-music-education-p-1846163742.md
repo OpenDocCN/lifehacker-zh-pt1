@@ -4,7 +4,7 @@
 
 如果说我们从 20 世纪 90 年代的经典作品如*《第二幕姐妹:重拾习惯》*和*荷兰先生的作品*中学到了什么，那就是音乐教育可以改变孩子们的生活(剧透一下:也可以改变他们的老师)，但它往往资金严重不足。资金状况并没有真正改善，但在近一年的时间里，学校为全国各地的学生提供了不同的服务。
 
-Watch
+
 
 无论你的孩子是幸运地进入了一所仍然有音乐教育的学校，还是处于你独自负责他们学习的位置，你可能需要一些支持。幸运的是，目前有一套免费的在线音乐教育课程和材料，不是别人，正是 [传奇的卡耐基音乐厅](https://www.carnegiehall.org/Education/Programs/Musical-Explorers/For-Families?utm_source=wordfly&utm_medium=email&utm_campaign=stix-aag-01-26-2021&utm_content=version_A&sourceCode=35027#artists) 提供的。以下是访问它们的方法。
 

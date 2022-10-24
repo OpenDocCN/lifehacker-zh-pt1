@@ -4,7 +4,7 @@
 
 一个没有疫苗的疫情，长期的经济衰退，现在大量的邮寄选票威胁着将选举日变成选举月。在这一片混乱中，个人投资者该如何处理自己的投资组合:调整美国股票配置，还是坚持到底？
 
-Watch
+
 
 “虽然与选举有关的噪音可能令人担忧，但我们不认为任何潜在的选举结果都应该成为违背市场基本面因素并大幅改变投资组合配置的理由，”Principal Global Investors[在最近的一份分析师报告](https://www.principalglobal.com/knowledge/insights/positioning-2020-us-presidential-election) 中建议。
 

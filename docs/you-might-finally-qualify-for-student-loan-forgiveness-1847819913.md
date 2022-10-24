@@ -4,7 +4,7 @@
 
 多年来，公共服务贷款免除(PSLF)项目一直在努力免除学生贷款债务。B ut 昨天，拜登政府 [宣布变革](https://www.ed.gov/news/press-releases/us-department-education-announces-transformational-changes-public-service-loan-forgiveness-program-will-put-over-550000-public-service-workers-closer-loan-forgiveness) 将立即免除大约 22，000 名借款人的学生贷款债务——和将帮助数十万人比预期更快获得贷款豁免。以下是这些变化可能会如何影响你的学生贷款。
 
-Watch
+
 
 ## **放宽对 PSLF 项目的要求**
 

@@ -4,7 +4,7 @@
 
 已经 [淡化了自己的耻辱](https://kotaku.com/maybe-your-pile-of-shame-is-a-problem-1846648396) 的 Epic Games Store 客户可以通过在本周免费获得三款广受好评的独立冒险游戏来重建它们。
 
-Watch
+
 
 首先是 [*德普尼亚:完整旅程*](https://www.epicgames.com/store/en-US/p/deponia-the-complete-journey) ，它将游戏*德普尼亚*、*德普尼亚上的混乱、*和*再见德普尼亚*汇集成一个单一版本*。*玩家扮演 Rufus 的角色，他试图带着他单恋的兴趣和目标逃离垃圾星球 Deponia。这部科幻点击冒险系列因其幽默的对话和富有挑战性的谜题设计而备受好评，并将吸引任何喜爱老卢卡斯艺术 PC 冒险游戏的人。
 

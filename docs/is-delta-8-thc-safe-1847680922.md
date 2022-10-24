@@ -4,7 +4,7 @@
 
 δ-8 THC 是一种新流行的获得快感的方式， [，因为它在许多地方是合法的，而普通的大麻不是](https://lifehacker.com/how-you-can-legally-get-high-on-thc-anywhere-in-the-u-s-1846592514) 。但是仅仅因为它钻了法律的空子并不意味着它是绝对安全的，最近食品药品监督管理局和疾病控制和预防中心警告 [消费者](https://www.fda.gov/consumers/consumer-updates/5-things-know-about-delta-8-tetrahydrocannabinol-delta-8-thc) 和 [健康提供者](https://emergency.cdc.gov/han/2021/han00451.asp) 关于一些潜在的负面影响。
 
-Watch
+
 
 ## 什么是德尔塔-8？
 

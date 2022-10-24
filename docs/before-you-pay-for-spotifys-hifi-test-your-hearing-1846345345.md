@@ -4,7 +4,7 @@
 
 作为一个喜欢摇滚的人，我承认，我很高兴我选择的流媒体服务——Spotify——宣布它将为 [无损音频流](https://gizmodo.com/spotify-will-launch-a-hifi-streaming-tier-later-this-ye-1846326342) 推出一个新的服务层。当然，这比我现在支付的要贵，但是放弃每月 20 美元的完美音频听起来很棒，不是吗？我未来的公路旅行变得好了十倍。
 
-Watch
+
 
 也许吧。
 

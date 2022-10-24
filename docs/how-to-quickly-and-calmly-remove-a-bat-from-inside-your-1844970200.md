@@ -4,7 +4,7 @@
 
 看，我们知道网上有多少可爱蝙蝠 的 [照片在飞。但是，除非你被它们在你脸正上方盘旋的瘦骨嶙峋而又毛茸茸的翅膀唤醒，否则你可能不会真正理解家里有一只这样的鸟是什么感觉。(我也曾被蝙蝠飞过房间、挂在门框上、在浴室里呆上一段时间的场景吓了一跳，我可以证明，这些都不是遇到狡猾的蝙蝠室友的理想方式。)](https://www.google.com/search?q=cute+bats&sxsrf=ALeKk00N8We8ujLxYceBdCUAGz5Twu1ZFA:1599421654267&source=lnms&tbm=isch&sa=X&ved=2ahUKEwj1mLH8pdXrAhVGk1kKHVLNB_YQ_AUoAXoECA4QAw&biw=1400&bih=718)
 
-Watch
+
 
 所以，如果你发现自己处于这些情况中的一种，确切地说，你应该如何把蝙蝠从你的房子里拿出来？《纽约时报》的 [刊登了一篇关于这个主题的文章](https://www.nytimes.com/2020/09/02/us/remove-prevent-bats.html) 。以下是你应该知道的。
 

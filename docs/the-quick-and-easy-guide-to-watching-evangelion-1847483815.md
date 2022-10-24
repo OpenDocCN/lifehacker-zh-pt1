@@ -4,7 +4,7 @@
 
 今天 *Evangelion 3.0+1.0:曾几何时* [在日本国外](https://gizmodo.com/the-final-evangelion-movie-is-finally-coming-to-the-wes-1847211445) 正式上映，结束了 [制作](https://gizmodo.com/the-first-footage-for-evangelion-3-0-1-0-is-here-and-i-1836150586) 近十年的等待，以及重新想象 [有史以来最受欢迎的机甲动画之一](https://gizmodo.com/why-the-original-finale-to-evangelion-is-the-only-one-t-1468195502) 的旅程，这一旅程甚至延续了更长时间——至少现在是这样。这也意味着，如果你是一个新人，这是一个深入该系列的最佳时机，所以这里有我们的指南，让你理解这些令人困惑的标题，并从哪里开始。
 
-Watch
+
 
 ## 福音战士有多少钱？
 

@@ -4,7 +4,7 @@
 
 如果你认为你将来可能想要怀孕，但是你现在还没有准备好，你可以考虑冷冻你的卵子以备将来使用。几年前，脸书和苹果因 [向员工](https://jezebel.com/facebook-and-apple-will-pay-for-female-employees-to-fr-1646070808) 提供卵子冷冻福利而成为头条新闻，大概这样他们就可以专注于他们的职业*现在*并且仍然有一个孩子*以后*。但现实更复杂。
 
-Watch
+
 
 冷冻最初被视为一种实验性技术，用于可能失去生育能力的人——可能是即将开始癌症治疗的女性。这与一个人 [捐赠他们的卵子](https://lifehacker.com/how-to-get-paid-to-donate-your-eggs-1797725922) 的过程类似。但在过去的一二十年里，它被宣传成了一种“女主之举”,一种你可以专注于自己的事业或慢慢寻找合适伴侣的方式。(我们在 Jezebel [的朋友有更多关于有问题的营销](https://jezebel.com/is-boutique-egg-freezing-a-scam-1840046192) 。)
 

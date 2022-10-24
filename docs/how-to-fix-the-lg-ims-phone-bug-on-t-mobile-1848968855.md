@@ -4,7 +4,7 @@
 
 如果你有一部 LG 手机并使用 [T-Mobile](https://lifehacker.com/the-latest-t-mobile-data-breach-effects-everyone-not-j-1847512002) ，你可能会注意到你的设备，因为缺乏更好的词，坏了。许多 LG 用户报告了一个重复出现的错误信息，上面写着“不幸的是，LG IMS 已经停止。”关闭后不久，该消息会再次弹出，使这些设备几乎无法使用。如果这听起来像你的经历，不要再担心了:有一条出路。
 
-Watch
+
 
 传统的解决方法，比如关机再开机或者重新插入 SIM 卡，都不能解决这个问题。飞行模式似乎确实阻止了通知的发送，但这显然不是长久之计。幸运的是， [现在有一个修复程序](https://www.androidauthority.com/lg-phones-t-mobile-bug-fix-3168264/) 应该可以解决这个问题。
 

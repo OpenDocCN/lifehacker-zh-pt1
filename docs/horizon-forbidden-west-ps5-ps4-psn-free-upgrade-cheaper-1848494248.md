@@ -4,7 +4,7 @@
 
 这是一个小小的 PSA，它指出，如果你通过 PlayStation 4 而不是 PlayStation 5 版本预购， *Horizon Forbidden West，* Guerrilla Games 备受期待的广受好评的 *Horizon Zero Dawn* 的续集，将便宜 10 美元。
 
-Watch
+
 
 虽然 PlayStation 5 版本的 *Horizon Forbidden West* 上市价格为 69.99 美元，但你可以花 59.99 美元购买游戏的 PS4 版本，之后再升级到 PS5 版本，作为免费的数字升级。你可以通过 PlayStation 4 自己的商店应用程序或索尼的网络商店来实现这一点。然而，这是最后一款将享受这一免费升级政策的跨代 PS4/PS5 游戏。
 

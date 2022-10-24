@@ -6,7 +6,7 @@
 
 [在过去，草药花](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC2995283/#:~:text=Chamomile%20preparations%20are%20commonly%20used,%2C%20rheumatic%20pain%2C%20and%20hemorrhoids.) 用于治疗风湿疼痛、月经不适和溃疡，并作为伤口的局部应用。虽然当用于这些目的时它是否真的有效还存在争议，但是有一些聪明的方法可以让这种草药在你的花园里得到很好的利用——既能让种子生长，又能让你的植物保持健康。
 
-Watch
+
 
 ### **给你的种子一个良好的开端**
 

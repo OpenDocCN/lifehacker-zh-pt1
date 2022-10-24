@@ -4,7 +4,7 @@
 
 Spotify 在其 Android 和 iOS 应用程序中有一个全新的语音助手。对着你的设备大喊“嘿，Spotify ”,你就可以不用手来控制 Spotify 应用程序的各个方面——这在你开车或打扫房间时非常有用。美国的第一批用户现在应该可以使用这项功能，该公司表示，未来几周将在更多设备上推出这项功能。
 
-Watch
+
 
 虽然你可以通过 Android Audio 和 Android 上的谷歌助手用语音控制 Spotify，也可以通过苹果设备上的 Siri 和 CarPlay 以有限的方式控制 Spotify，但“嘿 Spotify”可以直接与 Spotify 应用程序进行交互。这意味着你可以使用语音控制，而不必训练你的设备的数字助理识别 Spotify 特定的命令。
 

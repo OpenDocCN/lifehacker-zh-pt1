@@ -4,7 +4,7 @@
 
 就像生活的其他方面一样，房地产市场在过去几年里变得非常疯狂，因为基本上每个市场的价格都以两位数的速度上涨。2021 年 11 月的房屋销售价格中位数比不到两年前的 高出了[25%，这也是*疯狂*。没有任何迹象表明这种情况会很快改变。同时，你可能已经注意到了，通货膨胀是巨大的，这意味着](https://www.bloomberg.com/news/articles/2022-02-04/in-sizzling-u-s-housing-market-normal-is-a-long-way-off)[利率可能会上升](https://www.cnbc.com/2021/12/15/the-majority-of-fed-members-forecast-three-interest-rate-hikes-in-2022-to-fight-inflation.html)。
 
-Watch
+
 
 所有这一切意味着许多计划今年搬到新家的人正在重新考虑这个计划。一些人认为市场调整是应该的，不想在价格见顶时买入。其他人则没有- 出局，仅仅是因为他们的价格已经超出了。不管怎样，那个太小或者缺少梦想中的便利设施的房子突然变得看起来舒适了。
 

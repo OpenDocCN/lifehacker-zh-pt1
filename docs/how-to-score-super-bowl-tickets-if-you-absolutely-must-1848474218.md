@@ -4,7 +4,7 @@
 
 超级碗是这个国家最后的真正公共事件之一。从音乐到电视，其他娱乐形式正越来越多地被细分为拥有少量观众的特定领域，而体育仍保持着普遍的吸引力，足球占据着至高无上的地位。有多至高无上？2021 年，超过 9100 万人观看了超级碗 LV 2021 年——这比 2020 年下降了 9%。
 
-Watch
+
 
 每个人都喜欢一场精彩的超级碗派对，包括小吃、赌桌，当然还有广告。但是真正的球迷梦想着亲自去看比赛——这在身体上和经济上都是一个挑战。实际上，最多只有 [10 万个](https://www.hksinc.com/what-we-do/case-studies/sofi-stadium/) 座位，数百万人不介意坐在其中。美国橄榄球联盟也不容易做到这一点。联盟通常 [将 75%的可用门票分配给球队、合作公司和内部人士](https://www.cbssports.com/nfl/news/super-bowl-2020-chiefs-and-49ers-will-get-35-percent-of-tickets-heres-how-the-rest-are-distributed/) ，这严重限制了你获得门票的机会。
 

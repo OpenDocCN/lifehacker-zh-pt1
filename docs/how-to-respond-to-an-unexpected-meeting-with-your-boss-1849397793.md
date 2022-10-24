@@ -4,7 +4,7 @@
 
 有什么比你的老板让你知道他们想和你开一个临时会议更令人反胃的吗？即使你在工作中表现得非常出色，你也可能会突然感到紧张。难道是 [一顿训斥](https://lifehacker.com/how-to-save-your-career-after-screwing-up-at-work-1848818330) ？ [裁员](https://lifehacker.com/what-to-do-and-not-do-if-you-ever-get-fired-or-laid-o-1849003222) ？据你所知，这可能是为了表扬或更高的薪水，但这并不能阻止这种经历的可怕。
 
-Watch
+
 
 正如职业教练 [阿什利·斯塔尔](https://www.instagram.com/ashleystahl/) 告诉 Lifehacker，“一对一的会议*可以是简单的签到，以确保你没事，检查工作量，或者询问你是否需要任何进一步的资源。”她的建议是尽量不要让你的思绪游离到灾难性的事情上——特别是因为现代混合工作模式意味着看似无计划的会议可能不是那么自然的。如果你或你的老板一直在家工作，有时在短时间内给某人发送一个虚拟会议链接会更容易(尽管这很烦人，也有些不体贴)。*
 

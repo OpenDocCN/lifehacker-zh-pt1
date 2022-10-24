@@ -4,7 +4,7 @@
 
 感觉好像我们终于告别了冬天，但是伴随着温暖的天气而来的是飓风季节。在预期中，美国国家海洋和大气管理局(NOAA)最近发布了他们对 2021 年飓风季节 的 [预测，该飓风季节将于 6 月 1 日开始。](https://www.noaa.gov/media-release/noaa-predicts-another-active-atlantic-hurricane-season)
 
-Watch
+
 
 首先，坏消息是:NOAA 预测另一个活跃的飓风季节。但好消息是，气象学家预计今年不会像去年那么糟糕。以下是关于 2021 年飓风季节需要知道的事情，包括你需要做哪些准备和保持安全。
 

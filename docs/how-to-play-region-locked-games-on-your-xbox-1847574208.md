@@ -4,7 +4,7 @@
 
 像任天堂 Switch 和索尼的 PlayStation 4 和 5 游戏机一样，Xbox Series X| S 和它的老兄弟 Xbox One 是不受地区限制的设备。这意味着你可以购买和玩在其他国家发行的 Xbox 游戏，并在你的主机上玩。
 
-Watch
+
 
 但是当 [任天堂](https://lifehacker.com/how-to-play-japanese-and-european-eshop-games-on-your-r-1847556998) 和 [索尼要求](https://lifehacker.com/how-to-play-playstation-games-that-arent-available-in-t-1847567325?rev=1630013630442) 地区账户从另一个国家的店面购买和下载数字游戏，甚至在线玩某些游戏时，微软就宽松多了。
 

@@ -4,7 +4,7 @@
 
 如果你一直在计划买房子，你可能已经注意到，它最近变得有点更具挑战性。随着通货膨胀吓坏了政治家和经济学家， [美联储本月加息 0.75%](https://www.cnbc.com/2022/06/15/fed-hikes-its-benchmark-interest-rate-by-three-quarters-of-a-point-the-biggest-increase-since-1994.html)，虽然这看起来不算多，但对抵押贷款市场产生了巨大影响。住房抵押贷款利率已跃升至十多年来的最高水平。
 
-Watch
+
 
 和 [出贷款](https://lifehacker.com/use-the-28-36-rule-to-decide-whether-you-can-afford-a-m-1847475764) 是一回事。 [排位为它的是另一个](https://moneywise.com/mortgages/mortgages/mortgage-loan-denied-in-underwriting-what-to-do) 。如果在激动人心的三年疫情生活后，你的信用评分一塌糊涂，你现在负债累累，或者银行存款不足，你将很难申请到抵押贷款。简而言之，买你梦想中的房子变得更加困难了。幸运的是，即使你在申请抵押贷款时遇到了麻烦，或者当前的利率让你头晕，你也不必在可预见的未来承诺租房或住在现在的房子里。在没有抵押贷款的情况下，业主融资可能是一种前进的方式——但前提是条件合适。
 

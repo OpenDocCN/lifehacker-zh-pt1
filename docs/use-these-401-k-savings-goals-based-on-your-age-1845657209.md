@@ -4,7 +4,7 @@
 
 说到你的 401(k)计划，开始存钱永远不会晚——但是你应该存多少呢？随着年龄的增长，你的储蓄往往会增加，如果你依靠 401(k)计划退休，看看不同年龄组的平均储蓄可以帮助跟踪你的进展。根据 Fidelity 的报道，我们来看看 2020 年 的一些 [新数字。](https://communications.fidelity.com/wi/savings-stack-up/)
 
-Watch
+
 
 然而，值得注意的是，这不是对你退休准备的全面评估，也不考虑你的储蓄、可能的遗产或其他退休账户。正如只有 32%的美国人拥有 401(k)，一个 [](https://www.nerdwallet.com/investing/retirement-calculator)[退休计算器](https://smartasset.com/retirement/retirement-calculator#Lwuxm6tHBw) 会对你的整体退休储蓄进度提供更准确的评估。此外，富达提供的是平均数字，而不是中值，这意味着由于数据集中百万富翁的人数较少，他们会偏高。
 

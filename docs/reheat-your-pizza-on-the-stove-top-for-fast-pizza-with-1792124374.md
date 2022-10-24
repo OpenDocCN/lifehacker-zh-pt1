@@ -4,7 +4,7 @@
 
 很少有剩菜像披萨一样受欢迎——这就是为什么 [练习聪明的披萨数学并订购一个大号](https://lifehacker.com/an-engineer-explains-why-you-should-always-order-the-la-1532897984) 从来都不是一个坏主意。虽然我永远不会责怪你直接从冰箱里吃一片冷的备用片(可能是在凌晨 2:30 穿着内衣站在黑暗中)，但如果你喜欢吃滚烫的披萨，我恳求你不要用微波炉加热。有一个更好的方法——实际上是几个。
 
-Watch
+
 
 Reddit 的 r/lifehacks subreddit 是 [目前正在兴奋](https://www.reddit.com/r/lifehacks/comments/ngxp2e/heat_leftover_pizza_in_a_frying_pan_over_low_heat/) 关于我们大约十年前第一次写的一种方法:煎锅。虽然它没有微波炉加热那么快，但把你的切片放入煎锅 [中火加热大约八分钟](https://www.epicurious.com/expert-advice/best-way-to-reheat-leftover-pizza-article) (无论如何，根据美食家的要求；一些 Redditors 表示，这一壮举可以在低火上短短两分钟内完成，所以实验一下)将恢复酥脆的外壳，同时一直加热它——尽管如果你想让奶酪融化，你也可以在烹饪时盖上盖子。但是，如果八分钟听起来像是漫长的等待一份热腾腾的比萨饼，Lifehacker 的高级食品编辑 Claire Lower 倾向于两种替代方法，每一种都保证产生比你将从微波炉中取出的软萨尔瓦多·达利切片更令人满意的结果:空气油炸和华夫饼。空气油炸与在对流烤箱中重新加热披萨并没有太大的不同——这种设备只是一种更小、更高效的设备——同样，在 375 度的温度下，3-4 分钟后，你的披萨就会恢复到新鲜的状态。
 

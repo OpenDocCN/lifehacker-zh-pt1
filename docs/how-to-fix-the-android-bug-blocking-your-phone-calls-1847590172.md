@@ -4,7 +4,7 @@
 
 我们喜欢开玩笑说，在 2021 年，没有人会用智能手机打电话。即使这是真的，我们显然需要这些设备能够打电话和接电话。当这种功能陷入危险时，我们的手机开始变得不那么可靠，更加令人沮丧。这就是为什么 Android 设备上出现了一种新的拦截电话的 bug，令人如此担忧。
 
-Watch
+
 
 [据哔哔声电脑](https://www.bleepingcomputer.com/news/google/google-app-bug-blocks-android-users-from-receiving-making-calls/) 报道，谷歌应用程序现在存在一个漏洞，可以阻止某些安卓设备拨打和接听电话。据谷歌社区经理称，该漏洞影响了“Android 上谷歌搜索应用的最新更新”，他没有证实哪个版本的软件包含该漏洞。
 

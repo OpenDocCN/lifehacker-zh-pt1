@@ -4,7 +4,7 @@
 
 新 CFPB 报道 称，一些抵押贷款人在 COVID 期间未能遵守抵押延期法。贷款人在权利方面误导借款人，强加未经授权的处罚，和 [错误地驱逐房客](https://www.usatoday.com/story/news/nation/2020/11/18/despite-federal-law-protecting-them-hundreds-renters-may-have-been-wrongfully-evicted-during-pandemi/6338228002/) 。以下是你需要知道的，以及如何举报无良贷款人。
 
-Watch
+
 
 ### **了解你作为借款人的权利**
 

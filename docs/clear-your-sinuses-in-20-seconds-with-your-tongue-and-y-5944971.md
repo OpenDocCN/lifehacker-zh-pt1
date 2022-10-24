@@ -4,7 +4,7 @@
 
 鼻窦堵塞可不好玩——尤其是在疫情期间，每次季节性的流鼻涕或鼻窦头痛都会引发新一轮的“是过敏还是 COVID？”处理鼻窦充血的方法经常需要你服用一片(或几片)药片，其中一些有副作用，可以起到很强的威慑作用。
 
-Watch
+
 
 但是有一个聪明的指压按摩技巧可以帮助你在 20 秒内解决问题。它来自于用户 [gymfork](https://www.reddit.com/user/gymfork) :
 的一个 [老套但又老套的 Reddit 线程](http://www.reddit.com/r/LifeProTips/comments/107omk/lpt_how_to_clear_a_blocked_nose)

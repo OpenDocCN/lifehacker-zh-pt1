@@ -4,7 +4,7 @@
 
 像 [Telegram](https://lifehacker.com/why-you-probably-shouldnt-pay-for-telegram-premium-1849104588) 和 [WhatsApp](https://lifehacker.com/how-to-finally-hide-your-whatsapp-last-seen-status-from-1849092145) 这样的消息应用程序会定期更新新功能，但苹果的 Messages 应用程序每年只有一次重大更新，即新版 iOS 发布时。幸运的是，今年的更新很大:随着 iOS 16 的推出，我们终于可以*编辑和撤销已发送的消息，这两项功能在其他平台上已经存在了一段时间。* 
 
-Watch
+
 
 不过，这些特性并不是没有星号，而且有好几个。首先，这些功能仅适用于 iMessages。短信(绿色气泡)文本不能编辑或发送，这意味着任何发送到 Android 设备的文本仍然是永久的。也许有一天， [苹果将采用 RCS](https://lifehacker.com/whats-rcs-messaging-and-why-should-you-care-1832235783) ，这将允许信息在 iOS 和 Android 上不被发送和编辑。目前，iMessage 仍然无法与 Android 兼容。
 

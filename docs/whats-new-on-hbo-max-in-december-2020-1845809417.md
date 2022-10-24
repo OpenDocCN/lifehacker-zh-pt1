@@ -4,7 +4,7 @@
 
 当华纳兄弟公司 [宣布*神奇女侠 1984* 将放弃今冬](https://variety.com/2020/film/news/wonder-woman-1984-hbo-max-release-1234804411/) 的独家影院合约和流媒体服务 HBO Max 的 premier，即使它在 [少数几家尚未被愤怒的疫情](https://en.wikipedia.org/wiki/Impact_of_the_COVID-19_pandemic_on_cinema) 关闭的影院播放，这标志着某种转折点。在这之后，去看电影可能永远不会一样了。
 
-Watch
+
 
 当然，我很兴奋能尽快看到派蒂·杰金斯 2017 年超级英雄大片的续集，尽管我很希望这发生在电影院的大屏幕上... [不谢](https://covid.cdc.gov/covid-data-tracker/#cases_casesper100klast7days) 。12 月 25 日流媒体上映后不久，我会坐在沙发上看它——它将在 HBO Max 的上播放 31 天——心情复杂，最近宣布同样的模式将在华纳兄弟的整个 2021 年电影名单 中重复，这让心情更加复杂。想象一下，在笔记本电脑上看丹尼斯·维伦纽瓦的《沙丘》(T10)，或者在看约翰·朱(John Chu)根据林·曼努尔·米兰达的《高地》(T12)改编的《不丑》时当众哭泣，会令人感到压抑。
 

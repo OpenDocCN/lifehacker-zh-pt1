@@ -4,7 +4,7 @@
 
 在过去的四年里，许多设备都抛弃了耳机插孔，而任天堂 Switch 却反其道而行之；该公司*只有*支持有线耳机，没有像 AirPods 一样轻松连接蓝牙耳机或耳塞的选项。您过去需要昂贵的解决方案才能在交换机上获得无线音频；但是现在，很洒脱。
 
-Watch
+
 
 在过去，如果你想将你的开关音频传输到蓝牙耳机或耳塞，你需要购买一个蓝牙适配器，像 [HomeSpot 的产品](https://www.amazon.com/dp/B07L9SL7ZT/?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-finally-easily-connect-airpods-to-your-nintend-1847681921&asc_source=&tag=kinjalifehackerlink-20) 。根据您的游戏方式，您可以将适配器插入交换机本身或您的 dock。虽然您仍然可以使用这些设备作为解决方案，但它们已经没有必要了。
 

@@ -4,7 +4,7 @@
 
 过去十年的一个流行主题是社会和政治两极分化的加剧。从国会两院到感恩节餐桌，政治分歧的双方越来越难找到共同点，即使是在看似微不足道的事情上。
 
-Watch
+
 
 也不仅仅是我这么说:学术研究人员花费数小时试图找到我们暴躁的根源，著名作家在他们的书 的 [标题中提出这个问题，社交媒体平台有意](https://www.amazon.com/Why-Were-Polarized-Ezra-Klein/dp/147670032X?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/why-it-s-worth-listening-to-people-outside-your-politic-1845941390&asc_source=&tag=kinjalifehackerlink-20) [将用户隔离到他们自己的过滤气泡](https://www.npr.org/sections/alltechconsidered/2016/07/24/486941582/the-reason-your-feed-became-an-echo-chamber-and-what-to-do-about-it) ，一次又一次的调查 [强化了我们是如何分裂的](https://www.pewresearch.org/politics/2019/12/17/in-a-politically-polarized-era-sharp-divides-in-both-partisan-coalitions/) 。
 

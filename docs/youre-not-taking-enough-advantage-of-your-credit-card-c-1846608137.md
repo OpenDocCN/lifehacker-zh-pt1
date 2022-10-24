@@ -4,7 +4,7 @@
 
 随着 [疫苗接种的加速](https://www.nytimes.com/live/2021/03/12/world/covid-19-coronavirus)[旅行限制的解除](https://twitter.com/josh_wingrove/status/1378004942720544776?s=20) ，你可能会对刷掉信用卡、出门去餐馆、参加活动、或旅行更有信心。一项经常被忽视但突然变得相关的信用卡福利是礼宾服务，它可以帮助你计划旅行、购物或买到很难买到的活动门票。
 
-Watch
+
 
 ### 礼宾服务是如何运作的？
 

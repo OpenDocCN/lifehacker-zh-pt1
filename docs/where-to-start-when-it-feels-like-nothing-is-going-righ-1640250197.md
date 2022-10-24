@@ -4,7 +4,7 @@
 
 糟糕的一天可能会不时发生，但更长的时间可能会变成几周或几个月的感觉 [没有动力、失落、或无望](https://lifehacker.com/how-to-do-the-impossible-task-when-youre-depressed-1828942797) 。生活可能会越来越多，但这里有一些起点，可以帮助你爬出洞穴，回到正轨。
 
-Watch
+
 
 这是一个非常大的话题，所以我们 [向你询问个人经历](http://lifehacker.com/how-did-you-or-someone-you-know-recover-from-a-rut-in-1639099594/all) ，你提供了。有这么多伟大的贡献，所以感谢所有讲述你的故事的人。这些都是来自像你一样的读者的精彩故事和建议——混合了我们自己的建议和策略，以及研究——表明如何有可能摆脱你生活中的任何常规。
 

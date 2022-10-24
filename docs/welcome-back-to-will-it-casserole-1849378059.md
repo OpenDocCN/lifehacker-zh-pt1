@@ -4,7 +4,7 @@
 
 大家好，欢迎回到 [*会砂锅*](https://lifehacker.com/tag/will-it-casserole) [*？*我已经有一段时间——将近两年——没有采纳读者提供的概念，把它变成一盘砂锅菜，我怀念被人指手画脚的日子。](https://lifehacker.com/tag/will-it-casserole)
 
-Watch
+
 
 我做的最后一个砂锅是这个 [塔特托普牧羊人馅饼](https://lifehacker.com/crown-your-shepherds-pie-with-tater-tots-1845154781) ，它很好，但我需要一个挑战，一个深奥的概念，一个美食狂热梦想来转变成一个多层次的热菜。类似于 [加思的早餐碗](https://lifehacker.com/i-turned-garth-brooks-breakfast-bowl-into-a-casserole-a-1840541163)[一个奶酪盘](https://lifehacker.com/this-cheese-plate-casserole-is-a-gooey-hot-masterpiece-1828255068) ，或者 [一整个野炊](https://lifehacker.com/theres-an-entire-cookout-in-this-casserole-1827321119) 。
 

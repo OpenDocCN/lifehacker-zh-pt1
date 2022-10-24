@@ -4,7 +4,7 @@
 
 即使你真的热爱你的工作，总会有一些方面让你比其他人更害怕——无论是回复某类邮件、回电话还是记录费用。也许你在早上把这些都敲出来，或者有一些其他的系统。或者也许你把它们拖到你再也不能拖的时候，然后不得不抢着把所有的事情都做完。
 
-Watch
+
 
 不管怎样，作家兼职业教练迈克尔·汤普森说，有一个更好的方法:安排一个指定的“讨厌日”，当你做了所有你真正讨厌的工作。在一篇文章 [中，他首先发表在 Medium](https://medium.com/simple-pub/the-german-idea-of-hate-days-helps-me-power-through-my-most-annoying-tasks-59f05eb6c9f1) 上，然后在 Business Insider 上发表 [，他向我们展示了“讨厌的一天”是如何运作的，以及为什么它能让你一周过得更好，更有效率。以下是需要了解的内容。](https://www.businessinsider.com/german-hate-day-can-help-motivate-annoying-tasks-productivity-2021-11)
 

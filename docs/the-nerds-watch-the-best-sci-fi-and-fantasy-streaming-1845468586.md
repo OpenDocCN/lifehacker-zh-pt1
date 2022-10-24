@@ -4,7 +4,7 @@
 
 由于全球疫情，观众比以往任何时候都更多地转向流媒体娱乐，过多的服务可以作为急需的逃避。 [每个月](https://io9.gizmodo.com/the-nerds-watch-the-best-sci-fi-and-fantasy-streaming-1845134754) 月初，大部分飘带都会做一点洗牌，增加新电影，拿走一些，io9 在这里帮你做决定。
 
-Watch
+
 
 欢迎来到*书呆子的观察*，我们的每月专栏，在这里我们策划最有趣的科幻、奇幻和 [恐怖电影](https://io9.gizmodo.com/the-10-scariest-g-rated-movies-1845392685) 来到最大的流媒体服务。网飞、Hulu、亚马逊和 Disney+都已经为 11 月份准备好了大量的假日内容，所以让我们开始吧。
 

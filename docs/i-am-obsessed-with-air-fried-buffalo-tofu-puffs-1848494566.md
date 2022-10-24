@@ -4,7 +4,7 @@
 
 我的好朋友(也是 Lifehacker 的定期撰稿人) [当她](https://lifehacker.com/author/aanewton) [向我介绍](https://lifehacker.com/tofu-freaking-rules-1843024412) 预炸豆腐泡芙时，牛顿 改变了我与豆腐的整个关系。如果你从来没有吃过，它们值得你专门去一趟你当地的亚洲市场。( [顺便拿点味噌。)](https://lifehacker.com/your-super-bowl-party-needs-tender-miso-steak-bites-1848493012)
 
-Watch
+
 
 蓬松的豆腐实质上是一种轻微油腻的酱海绵，你只需做很少的工作就可以变脆。这种特殊的品质组合使他们成为优秀水牛的完美候选人。将它们切成两半，露出它们蜂窝状的内部，快速空气油炸，让它们的油脂流动并开槽，拌上酱汁，然后将泡芙放回空气油炸锅进行最后一次松脆。整个过程从开始到结束大约需要 7 分钟，如果你磨蹭的话。
 

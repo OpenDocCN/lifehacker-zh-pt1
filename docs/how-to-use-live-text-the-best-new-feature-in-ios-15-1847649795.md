@@ -4,7 +4,7 @@
 
 在 [iOS 15 和 iPadOS 15](https://lifehacker.com/the-10-coolest-ios-15-features-announced-at-wwdc-2021-1847048865) ， f rom 小功能比如 [背景音](https://lifehacker.com/how-to-enable-background-sounds-in-ios-15-and-why-you-1847553765) 到横幅功能比如 FaceTime SharePlay。但是，将对你的日常生活产生巨大影响的一个功能是实时文本。
 
-Watch
+
 
 如果你使用兼容的 iPhone 或 iPad(任何运行 A12 仿生芯片或更高版本的设备)，你的设备将自动可靠地使用光学字符识别()从 iPhone 取景器、照片、截图、快速查看和 Safari 中提取文本，我甚至会为你转录手写文本。
 

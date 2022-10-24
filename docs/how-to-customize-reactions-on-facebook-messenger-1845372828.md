@@ -4,7 +4,7 @@
 
 脸书刚刚更新了它的 Messenger 应用，当看到 [那个明亮的、刷新过的紫红 logo](https://www.engadget.com/facebook-messenger-app-redesign-140445037.html) 的时候，大概就意识到了。可爱的新 ook 更像是一个先驱:不久，Facebook Messenger 将与 Instagram 集成，无论你使用哪个应用程序，你都可以在两个平台上与你的朋友聊天。
 
-Watch
+
 
 无论你喜欢它，讨厌它，还是已经准备离开一个“真正的诀窍是离开脸书，混蛋”评论这篇文章，当你等待脸书的奇点形成并吸收它所涉及的所有内容时，Messenger 实际上有一些*微小的*变化值得了解。第一点，也是最重要的一点，是消除那种难看的竖起大拇指的反应。
 

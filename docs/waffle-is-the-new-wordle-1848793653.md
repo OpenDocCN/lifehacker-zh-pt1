@@ -4,7 +4,7 @@
 
 到目前为止， [所有的](https://lifehacker.com/you-should-try-quordle-if-youre-too-good-at-wordle-1848540319) 我的 [最爱的](https://lifehacker.com/i-hate-antiwordle-and-thats-why-i-play-it-every-mornin-1848756496)Wordle[variations](https://lifehacker.com/6-wordle-esque-games-that-are-just-as-good-or-better-1848426197)都保持了和原来一样的游戏棋盘形状:五个字母，每个猜测都作为一个格子中的新行出现。你可以看到你之前猜了什么，也可以看到你还剩下多少次猜测。 [华夫饼](https://wafflegame.net/) 以有趣的方式改变了游戏，因此，它激起了我的兴趣。
 
-Watch
+
 
 ## 如何玩华夫饼
 

@@ -4,7 +4,7 @@
 
 一个多世纪前，当杰根斯润肤露第一次投放市场时，它一炮而红——多亏了跨代的品牌忠诚度，它今天仍然存在。如果你发现自己属于这一类——或者只是因为你的手在这个冬天很干而购买了一些杰金斯乳液——美国 [【美国食品药品监督管理局】](https://www.fda.gov/safety/recalls-market-withdrawals-safety-alerts/kao-usa-conducts-voluntary-recall-jergensr-ultra-healing-moisturizer) (FDA)正在敦促你检查该产品，因为它可能是自愿召回的一部分。以下是需要了解的内容。
 
-Watch
+
 
 ## 为什么乳液会被召回？
 

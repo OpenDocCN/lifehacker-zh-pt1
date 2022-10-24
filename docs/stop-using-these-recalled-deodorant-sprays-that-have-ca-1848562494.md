@@ -4,7 +4,7 @@
 
 对于一些最大的健康和美容产品制造商来说，这几个月是艰难的几个月——特别是那些气雾剂形式的产品。首先， [宝洁(P & G)在 11 月主动召回](https://lifehacker.com/get-rid-of-these-antiperspirants-that-have-cancer-causi-1848149010) 的一批喷雾止汗剂，接着一个月后又进行了 [类似的喷雾护发产品](https://lifehacker.com/throw-out-these-procter-gamble-hair-care-products-wit-1848238126) 召回。
 
-Watch
+
 
 这一次，是 Sure 和 Brut 气雾剂的制造商，根据食品药品监督管理局 (FDA)的一份公告， [最近主动召回了他们的一些产品。就像宝洁公司回忆的那样，这一次是因为喷雾中发现的一种令人担忧的致癌化学物质苯。以下是需要了解的内容。](https://www.fda.gov/safety/recalls-market-withdrawals-safety-alerts/tcp-hot-acquisition-llc-dba-hrb-brands-issues-voluntary-nationwide-recall-sure-and-brut-aerosol?utm_medium=email&utm_source=govdelivery)
 

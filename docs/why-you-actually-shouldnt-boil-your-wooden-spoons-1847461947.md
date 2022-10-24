@@ -4,7 +4,7 @@
 
 Tik Tok 是 [充斥着清洁黑客](https://lifehacker.com/10-of-the-cleverest-ways-to-clean-your-house-according-1847460666) ，但并不是所有都屡试不爽。例如，有一个病毒攻击是关于煮沸你的木勺来保持它们的清洁..。但是你真的不应该这么麻烦。以下是为什么你不应该用煮你的木勺。
 
-Watch
+
 
 ## 为什么人们首先要煮他们的木勺？
 

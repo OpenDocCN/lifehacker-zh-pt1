@@ -4,7 +4,7 @@
 
 当我写这篇文章的时候，我在宾夕法尼亚州东部的家外面正在下雪。又来了。雪断断续续地下了很长时间，这几乎很滑稽——除了我们经过“我们到底把这些东西放在哪里？”许多天前的阶段，它仍然继续下跌。不过，我知道这场雪的意思是，很快我丈夫就会穿上外套和靴子，出去打扫。因为如果你有合适的扫帚，当你有几英寸厚的粉状物时，它甚至会比铲子更好。
 
-Watch
+
 
 在适当的条件下，清扫比铲挖更有效率，对你的背部也更轻松。开始，你需要一把硬鬃毛的扫帚，比如推帚或者玉米扫帚， [像这个](https://www.staples.com/coastwide-professional-10-standard-corn-broom-natural-cw57732/product_24420776?ci_src=17588969&ci_sku=24420776&KPID=24420776&cid=PS:H2H:GS:SBD:PLA:FAC&gclid=Cj0KCQiA4L2BBhCvARIsAO0SBdaGcemWZhNAt26VsoGIfI-HcmOvJWxsgVSvxpCkHLv2EkOGWSOu0Q4aAtUpEALw_wcB) 。一把软毛扫帚，就像你可能用来清扫厨房的那种，在紧要关头可能有用，但在人行道和车道等有纹理的表面上就没那么有效了。
 

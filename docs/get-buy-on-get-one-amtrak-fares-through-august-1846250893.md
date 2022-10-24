@@ -4,7 +4,7 @@
 
 紧随西南航空公司的买一送一信用卡交易之后，美国国家铁路客运公司刚刚推出了一项新的促销活动， [情人节买一送一](https://c212.net/c/link/?t=0&l=en&o=3065401-1&h=1514939730&u=https%3A%2F%2Fwww.amtrak.com%2Fvdaysale&a=Valentine%27s+Day+Buy+One+Get+One+Free+Sale) ，允许同伴在大多数火车线路上免费乘车。以下是你需要知道的。
 
-Watch
+
 
 ### **如何免费乘车**
 

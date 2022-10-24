@@ -4,7 +4,7 @@
 
 谷歌最近在桌面版 Chrome 上添加了实时字幕。启用实时字幕后，Chrome 会自动转录浏览器中播放的任何音频，即使声音被静音。
 
-Watch
+
 
 该功能类似于 YouTube 的自动转录功能，但适用于通过 Chrome 播放的所有音频，包括视频、播客和语音通话。它也适用于 Chrome 渐进式网络应用程序(PWAs) [，如 YouTube 和 YouTube Music](https://lifehacker.com/how-to-install-youtube-as-a-progressive-web-app-on-wind-1846137659) — ，该功能也可用于部分 Android 设备。
 

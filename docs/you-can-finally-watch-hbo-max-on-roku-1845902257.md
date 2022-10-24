@@ -4,7 +4,7 @@
 
 我们漫长的国家噩梦结束了。不，不是那个。我要说的是，你终于可以在 Roku [上观看 HBO Max，而不用求助于变通方法](https://lifehacker.com/how-to-watch-hbo-max-on-a-roku-1845690477) 。
 
-Watch
+
 
 昨天，Roku 和 HBO [宣布，他们已经达成协议](https://gizmodo.com/roku-users-are-finally-getting-hbo-max-1845898770) 为前者的 4600 万月活跃用户提供流媒体服务。加上亚马逊和 HBO 上个月签署的类似长期协议，HBO Max 终于为发布日做好了准备... [半年后](https://lifehacker.com/what-hbo-max-lacks-1843710742) 。
 

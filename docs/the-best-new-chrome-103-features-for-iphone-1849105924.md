@@ -4,7 +4,7 @@
 
 本周早些时候，我们报道了 Chrome 103 ，以及谷歌最新版桌面网络浏览器的所有新功能。事实证明，该公司还 [将其 iOS Chrome 应用](https://9to5google.com/2022/06/23/chrome-103-iphone-ipad/) 更新至版本 103。然而，这不是一个复制粘贴的场景:iPhone 的 Chrome 103 为平台引入了一些独特的新功能，值得你花时间去看看。
 
-Watch
+
 
 如果你仔细阅读 iPhone 上的 App Store，你会发现除了 Safari 之外还有很多网页浏览器选项。如果你更喜欢使用 Chrome，可以下载，但下载方式与 Mac 不同:苹果强制 iOS 上的所有第三方浏览器使用 WebKit，这与 Safari 构建的浏览器引擎相同。因此，iOS 上的 Chrome 实际上是 Safari 的谷歌版。尽管如此，像谷歌这样的开发者可以为 Chrome 这样的浏览器添加你在 iOS 默认选项中找不到的有趣功能，比如以下 Chrome 103 的新选项。
 

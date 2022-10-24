@@ -4,7 +4,7 @@
 
 同伴通行证是西南航空 [快速奖励计划](https://www.bankrate.com/finance/credit-cards/frequent-flyer-guide-southwest-rapid-rewards/) 中最令人垂涎的特权之一，允许在航班上免费“加一人”,作为大通消费者信用卡新的欢迎奖励的一部分。以下是你需要知道的，以及其他值得注意的交易。
 
-Watch
+
 
 ### **如何获得同伴通行证的资格**
 

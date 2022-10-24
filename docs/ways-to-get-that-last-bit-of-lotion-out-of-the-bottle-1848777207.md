@@ -4,7 +4,7 @@
 
 在一个通货膨胀和经济不确定性不断上升的时代，曾经被认为是“第一世界”问题的清单一天比一天短。例如:泵瓶乳液停止工作，底部至少留有一两英寸的皮肤保护胶。
 
-Watch
+
 
 不是说没有那最后一点乳液就活不下去。这是嘲笑企业的傲慢:联合利华非常清楚他们的乳液泵瓶效率低下，他们根本不在乎。事实上， [超滑瓶技术*是存在的，*](https://www.fastcompany.com/90668887/the-inside-of-these-bottles-are-coated-with-something-so-slippery-you-can-get-all-the-lotion-out) 却没有普遍使用，我觉得非常可疑。
 

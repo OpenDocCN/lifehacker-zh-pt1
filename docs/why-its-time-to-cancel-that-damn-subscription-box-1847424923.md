@@ -4,7 +4,7 @@
 
 大多数消费者注册订阅盒子是为了 [的便利、节省成本，或者发现](https://www.profitwell.com/recur/all/subscription-based-economy-trends) 的刺激，但是他们*也* [低估了他们订阅的总体成本](https://www.westmonroe.com/perspectives/point-of-view/americas-relationship-with-subscription-services) ，并且在新鲜感消退后很久还会为东西多付钱。毕竟，你真的需要每个月花 100 美元买三双黑袜子吗？记住这一点，这里有一些关于何时取消订阅框的指南。
 
-Watch
+
 
 ## **只订阅你已经购买的东西**
 

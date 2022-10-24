@@ -4,7 +4,7 @@
 
 虽然长期以来一直有复古和古董家具的铁杆粉丝，但整个新冠肺炎疫情的 [家具短缺以及由此导致的](https://www.cnn.com/2021/07/30/business/vietnam-covid-furniture-delays/index.html) 交货延迟，使得高端二手购物变得更具竞争力。随着需求的增加，假货如潮水般涌来，悉尼·戈尔在《建筑文摘》的 [中写道。](https://www.architecturaldigest.com/story/vintage-furniture-authentication-guide)
 
-Watch
+
 
 即使你考虑购买一件古董家具是因为你喜欢它的外观和/或它符合你的需求，并且不一定在乎是谁做的，你仍然希望避免购买仿制品，因为它们可能质量很差。例如，如果你花大价钱买了一把正宗的 Knoll 椅子，那么你肯定想确定它是真的。
 

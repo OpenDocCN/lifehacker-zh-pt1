@@ -4,7 +4,7 @@
 
 那些住在冬天寒冷的 [地方](https://lifehacker.com/winterize-your-car-for-safe-and-repair-free-winter-driv-5692218) 的人知道天气会对你的车造成损害。事实上，仅温度一项就影响了从轮胎气压到电池续航时间的方方面面——是的，包括炎热的天气。下面是美国汽车协会(AAA)专家提供的几种让你的车在极端高温下保持运转的方法。
 
-Watch
+
 
 ## 如何让您的车辆为极端高温做好准备
 

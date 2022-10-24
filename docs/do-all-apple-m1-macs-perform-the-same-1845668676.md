@@ -4,7 +4,7 @@
 
 苹果 [上周加班加点](https://lifehacker.com/all-the-changes-apple-didnt-share-at-todays-m1-event-1845634030) 说服科技界为其最新的芯片创新而兴奋，大胆宣称其新的机器比上一代快。B 但是有一点需要考虑:苹果的所有新 M1 芯片都是平等的吗？
 
-Watch
+
 
 不像英特尔和 AMD 和 T2 的标准做法，苹果基本上是 T4 推出一个 M1 芯片。你不能真的选择用一个比另一个提供更快时钟速度或更多加速能力的 M1 芯片来升级你的新 Mac。一个例外是[MacBook Air](https://www.apple.com/shop/buy-mac/macbook-air)，因为最便宜的型号只有一个七核 GPU，而不是标准的八核 GPU。
 

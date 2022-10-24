@@ -4,7 +4,7 @@
 
 [Windows 11](https://gizmodo.com/you-dont-really-need-to-upgrade-to-windows-11-but-its-1847779289) 的推出正在进行中，全新的个人电脑和更新的硬件首先登场。如果你用的是旧机器，你可能要等几个月才能看到升级选项。
 
-Watch
+
 
 提醒:在安装之前，请务必查看我们的 [Windows 11 升级指南](https://gizmodo.com/heres-your-windows-11-upgrade-guide-1847562545) 。虽然您的所有应用程序和文件都应该可以安全地通过软件更新，但如果在此过程中发生了意外情况，仔细检查您是否已经准备好了备份总是一个好主意。总是值得等待一段时间来升级，以防有未在 OS beta 中发现的未解决的错误。
 

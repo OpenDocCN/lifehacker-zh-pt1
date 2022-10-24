@@ -4,7 +4,7 @@
 
 最近旅游法规的两项变化意味着人们现在可以出于非必要的原因访问美国，即使他们不是美国公民。这两项政策都于 11 月 8 日生效(如果你想哭的话，可以看看的任何一段视频，看看的 T3 和 T4 的家庭在分开近两年后再次团聚的 T5 和 T6)。
 
-Watch
+
 
 第一个重要的变化是，美国 [将不再根据谁来自](https://www.whitehouse.gov/briefing-room/presidential-actions/2021/10/25/a-proclamation-on-advancing-the-safe-resumption-of-global-travel-during-the-covid-19-pandemic/) 哪个国家来决定谁可以入境。相反，来自白宫的一份声明称政府将“采取主要依靠疫苗接种的航空旅行政策，以促进安全恢复前往美国的国际航空旅行。”该命令意味着人们将不再因国家而被拒绝入境，但他们*可以*因未接种疫苗而被拒绝入境。
 

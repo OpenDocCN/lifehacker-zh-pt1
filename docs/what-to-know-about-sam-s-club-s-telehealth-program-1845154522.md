@@ -4,7 +4,7 @@
 
 山姆会员店与西雅图的健康创业公司 [98point6](https://www.98point6.com) 合作，推出新的 [远程健康服务](https://www.samsclub.com/pharmacy/virtual-care) 。根据昨天的 [新闻稿](https://corporate.samsclub.com/newsroom/2020/09/22/sams-club-teams-up-with-98point6-to-offer-exclusive-subscription-plan-options-with-the-98point6-mobile-app) ，该服务通过一个人工智能支持的基于短信的应用程序，提供对现场医生和虚拟初级保健医生的全天候访问——无需预约。
 
-Watch
+
 
 山姆会员店的会员可以以每人 20 美元的价格购买 3 个月的 98 点 6 订阅，外加每次 1 美元的访问费。这比该公司正常的 [3 个月的介绍费](https://98point6.zendesk.com/hc/en-us/articles/360043139171-How-much-does-98point6-cost-)30 美元，外加那 1 美元的拜访费要便宜。这段时间过后，你可以以每季度 33.50 美元(每年 134 美元)或每年 120 美元(同样，不包括每次单独访问的 1 美元费用)的价格注册 98point6。
 

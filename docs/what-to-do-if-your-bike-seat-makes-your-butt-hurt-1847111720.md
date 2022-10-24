@@ -4,7 +4,7 @@
 
 骑自行车时臀部或腹股沟疼痛是常见的，即使你在室内骑 Peloton 或 Airdyne，甚至是你的 [DIY 自行车教练](https://lifehacker.com/build-your-own-peloton-style-exercise-bike-and-save-mon-1844446863) 。第一天有一点不适可能是正常的，但是如果这种不适持续存在或者变得严重，你可能需要对你的自行车和骑自行车的方式做出一些改变。以下是一些你可以尝试的事情。
 
-Watch
+
 
 ## 调整你的座位
 

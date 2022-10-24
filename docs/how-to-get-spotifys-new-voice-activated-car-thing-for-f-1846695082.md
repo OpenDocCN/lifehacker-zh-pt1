@@ -4,7 +4,7 @@
 
 你听说了吗？Spotify 正在做一个 [汽车的东西](https://newsroom.spotify.com/2021-04-13/spotify-launches-our-newest-exploration-a-limited-release-of-car-thing-a-smart-player-for-your-car/) 。是的，说真的，这叫车的事情。它充当连接到手机和汽车的中间设备，这样即使设备通常不兼容，你也可以通过汽车的立体声系统收听 Spotify。
 
-Watch
+
 
 车载设备的屏幕会显示正在播放的内容，并配有一个大转盘用于导航菜单和改变音量，还有一个按钮用于选择。它还能响应“嘿，Spotify”的语音命令，该公司最近在智能手机 上推出了这一功能。(请注意，这项功能*会收集你的语音数据，Spotify 会将这些数据用于定向广告。许多其他应用程序也在做同样的事情，但如果你被这种做法吓跑了，还是值得一提的。)*
 

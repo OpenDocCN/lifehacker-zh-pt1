@@ -4,7 +4,7 @@
 
 我家总是备有 [至少两种不同的](https://skillet.lifehacker.com/you-need-two-types-of-butter-in-your-kitchen-1837837122) 黄油:我有炒菜和烘焙用的烹饪黄油，其中大多是廉价商店品牌，还有一种单独食用的黄油，通常是 Kerrygold，用于涂抹。
 
-Watch
+
 
 而两种黄油都是 [总是加盐](https://skillet.lifehacker.com/salted-butter-has-always-been-the-secret-to-better-cook-1822776571) ，t 他吃的黄油是放在室温下以便更容易涂上，哦，我怎么涂。我把它涂在面包上(很明显)，但最近我扩展了我的曲目，包括三种有点不寻常，但美味的食物，我认为你应该开始涂类似的东西。
 

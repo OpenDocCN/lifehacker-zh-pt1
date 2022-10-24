@@ -4,7 +4,7 @@
 
 本周，所有的 Zoomers 都在谈论神秘的不朽蜗牛和/或坐在 Mountain Goats 的 John Darnielle 的脚边汲取 X 世代的 lo-fi 桂冠诗人的智慧。他们是一群兼收并蓄的人。
 
-Watch
+
 
 ## 不死蜗牛是什么(还有它为什么跟着我)？
 

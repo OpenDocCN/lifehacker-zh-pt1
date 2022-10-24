@@ -4,7 +4,7 @@
 
 音乐节从 1969 年伍德斯托克泥泞的露天市场走过了漫长的道路。最初作为反主流文化的一种表现，已经变成了一个价值数十亿美元的主流产业。根据 [尼尔森的音乐节](https://www.nielsen.com/us/en/insights/article/2015/for-music-fans-the-summer-is-all-a-stage/#:~:text=According%20to%20Nielsen's%20Audience%20Insights,reach%20the%20coveted%20Millennial%20demographic.) 观众洞察报告，每年大约有 3200 万美国人至少参加一次美国音乐节。吸引力很简单:你可以在同一时间同一地点看到所有你喜欢的表演，只需一个标价。但是这些节日真的值得它们的高价吗？让我们来看看这个国家最大的三个音乐节，找出答案。
 
-Watch
+
 
 ## 科切拉
 

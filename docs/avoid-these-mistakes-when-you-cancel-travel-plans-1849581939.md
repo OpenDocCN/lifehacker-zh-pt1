@@ -4,7 +4,7 @@
 
 夏季已经 正式结束([终于结束，如果你问我](https://lifehacker.com/have-you-tried-doing-nothing-1849316346) )，这意味着如果你是那种喜欢秋天旅行 而不是在炎热中与人群搏斗的人，这是你的时间。然而随着不确定性围绕着[COVID](https://lifehacker.com/these-covid-facts-are-no-longer-true-1849165352)[秋冬季](https://www.washingtonpost.com/health/2022/09/03/fall-covid-surge-booster-2022/) 激增，旅行计划也越来越。一线希望:疫情迫使航空公司、酒店和旅行者学会如何以及何时取消即将到来的旅行。在过去几年取消行程后，当你需要改变你的假期计划时，这里是我们减少时间、金钱和理智损失的最佳方法。
 
-Watch
+
 
 ## **不要以为你一定要拿优惠券**
 

@@ -4,7 +4,7 @@
 
 在现代游戏领域，不付费玩游戏很容易逃脱惩罚。在某种程度上，这是因为电影公司制作了非常非常好的免费电影。但这也是因为像 [Epic 这样的财大气粗的公司不断赠送甚至是付费的](https://kotaku.com/heres-what-epic-paid-to-give-away-all-those-free-games-1846815064) 。今年 Epic Games 商店的年度假日销售也不例外，到 2021 年底，将有无限量的 10 美元优惠券和 15 款免费游戏。
 
-Watch
+
 
 拍卖于 12 月 16 日上周四开始，赠送了 2019 年 Kickstarter 成功故事的*神木三*，通常为 30 美元。今天的 catch 也是令人难以置信的值得关注:*循环英雄*。今年早些时候发布的搭建甲板的 roguelite 很快成为我和许多其他人的最爱之一，部分原因是它的 [令人满意的联锁系统](https://kotaku.com/loop-hero-is-a-wonderful-new-rpg-about-overcoming-despa-1846409109) ，部分原因是它是一个关于 [试图重建一个被虚空](https://www.vice.com/en/article/n7vpjw/loop-hero-review) 超越的世界的令人不寒而栗的虚无主义故事。最棒的是，你可以在几乎任何还有脉搏的 PC 硬件上玩它。
 

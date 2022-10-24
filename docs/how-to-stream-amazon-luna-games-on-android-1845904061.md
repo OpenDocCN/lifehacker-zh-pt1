@@ -4,7 +4,7 @@
 
 亚马逊的 [Luna 云游戏服务](https://lifehacker.com/how-to-preorder-everything-new-and-creepy-from-amazons-1845174436) 现在可以在美国的安卓系统上使用，为在智能手机上的任何地方玩主机质量的游戏增加了又一个选择。在 Android 上使用 Luna 很简单，但在开始使用之前，有几个要求需要满足。
 
-Watch
+
 
 首先，你需要一部兼容的手机。Luna 只能在运行 Android 9 或更高版本的特定设备上运行，包括:
 

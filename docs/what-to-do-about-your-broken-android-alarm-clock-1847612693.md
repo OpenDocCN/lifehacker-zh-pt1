@@ -4,7 +4,7 @@
 
 我们大多数人都依赖智能手机在早上醒来。除非你的电池*真的*烂透了，否则我们不会经常遇到 [*独自在家*的情况](https://youtu.be/rX9FbcuGlKI?t=62) 。但是当你的闹钟不可靠，而你有重要的地方要去的时候，你就有大问题了。这就是 Android 的时钟应用程序正在发生的事情，因为一个新的错误打破了我们许多人每天使用的闹钟功能。
 
-Watch
+
 
 有许多关于不开心(但可能睡得很好)的安卓时钟用户抱怨他们的闹钟没有响的报道。该应用在 Play Store 中的页面是 [充斥着一星评论](https://play.google.com/store/apps/details?id=com.google.android.deskclock) ， [一个 Reddit 线程](https://www.reddit.com/r/GooglePixel/comments/pdenpy/alarm_being_missednot_showing_at_all/) 展示了各种各样困惑、沮丧、寻找答案的 Android 用户。虽然像素线是最常见的问题之一，但一加和 Oppo 等其他设备的用户也有抱怨。
 

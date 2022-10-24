@@ -4,7 +4,7 @@
 
 说到厨房电器，我们通常不认为冰箱对我们的安全构成最大威胁。(我们在看你，*火炉*。)但最近，六个通用电气冰箱型号的主人有了不同的经历，这要归功于一个有故障的冰箱把手，它在使用时会脱落。
 
-Watch
+
 
 正如你可能想象的那样， [海尔](https://www.haierappliances.com/)——拥有通用电器的公司——已经发布召回这些冰箱， [消费者产品安全委员会(CPSC)报道](https://www.cpsc.gov/Recalls/2022/GE-Appliances-a-Haier-Company-Recalls-Bottom-Freezer-French-Door-Refrigerators-Due-to-Fall-Hazard) 。以下是需要了解的内容。
 

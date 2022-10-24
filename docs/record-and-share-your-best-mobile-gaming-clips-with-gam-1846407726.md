@@ -4,7 +4,7 @@
 
 尽管手机游戏越来越受欢迎，但录制或传输智能手机游戏比游戏机游戏要困难得多。为了帮助弥合这一差距，亚马逊推出了 GameOn，这是一个类似 YouTube 的社交媒体平台和移动游戏视频应用程序。用户可以在应用程序中观看和关注内容创作者，或者使用它来录制、编辑和上传自己的剪辑。
 
-Watch
+
 
 该应用程序在 Android(通过 [亚马逊](https://www.amazon.com/gp/product/B08LKG7XQT?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/record-and-share-your-best-mobile-gaming-clips-with-gam-1846407726&asc_source=&tag=kinjalifehackerlink-20) 或 [Google Play](https://play.google.com/store/apps/details?id=com.amazon.muse&referrer=utm_source%3Damazon%26utm_medium%3Dwebsite) )和 [iOS/iPadOS](https://apps.apple.com/us/app/id1457912496) 上可用，支持超过 1000 款手机游戏。亚马逊没有所有游戏的官方列表，但像 *PUBG、Mario Kart Tour、*和 *Genshin Impact* 这样的热门游戏都支持 GameOn，你可以用它来录制苹果街机游戏。您还可以在桌面浏览器 上 [观看 GameOn 内容。](https://gameon.amazon.com/?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/record-and-share-your-best-mobile-gaming-clips-with-gam-1846407726&asc_source=&tag=kinjalifehackerlink-20) 
 

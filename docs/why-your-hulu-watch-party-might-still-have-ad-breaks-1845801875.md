@@ -4,7 +4,7 @@
 
 Hulu 的观看派对功能现在对所有订阅者开放 [。](https://press.hulu.com/news/2020/12/02/hulu-watch-party-holiday-season/) 这项功能最初是在 5 月份为 Hulu 的高级无广告计划的订户推出的，但现在是所有 Hulu 计划的标准内容——包括独立的、广告支持的订阅以及无广告用户和那些拥有迪士尼+/ESPN Now/Hulu 捆绑包的用户。然而，如果你的聚会上挤满了使用不同订阅类型的人，你将会遭受同样的烦恼。
 
-Watch
+
 
 ### Hulu 观察派对:基础
 

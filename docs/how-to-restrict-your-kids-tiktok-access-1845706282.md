@@ -4,7 +4,7 @@
 
 今年早些时候，抖音实施了所谓的“家庭配对”，这是一种父母控制工具，让父母将孩子的抖音账户与自己的账户关联起来，让他们直接控制孩子的隐私设置。现在，这个短格式视频平台应用程序进一步扩展了父母的方式，通过这个工具，他们可以限制孩子与谁交流，他们搜索什么，以及谁可以看到他们的内容。
 
-Watch
+
 
 抖音家庭配对 下的 [原始功能包括控制孩子每天在应用上花费多长时间的能力，限制他们接触潜在不当内容的“受限模式”，以及限制或禁用与其他用户直接通信的能力。这些特征仍然存在；](https://offspring.lifehacker.com/what-parents-need-to-know-about-tiktoks-new-parental-co-1842921219) [新增功能](https://newsroom.tiktok.com/en-us/supporting-youth-and-families-on-tiktok) 包括:
 

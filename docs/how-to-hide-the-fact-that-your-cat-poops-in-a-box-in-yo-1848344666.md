@@ -4,7 +4,7 @@
 
 猫让每个家都变得更好——这是不可否认的事实。但是每只猫都有一个难看的猫砂盒(或两个)，以及存放猫砂盒的古老习俗。当然，你可以买一件家具， [，就像这个【储物长凳】](https://www.petco.com/shop/en/petcostore/product/unipaws-cat-washroom-storage-bench-white-29l-x-21w-x-20h-3073117)那是专门用来藏猫砂盒的，为你最喜欢的猫咪提供一点隐私——或者你可以省钱，用这些简单聪明的 DIY 方法中的一种来代替。
 
-Watch
+
 
 ## **改变橱柜用途**
 

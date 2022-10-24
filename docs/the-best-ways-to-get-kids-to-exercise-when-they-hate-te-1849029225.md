@@ -4,7 +4,7 @@
 
 我们通常把孩子与快乐的玩耍、 [在院子里的嬉戏、](https://lifehacker.com/6-great-energy-burning-backyard-games-for-little-kids-1844203883) 在 [夏天的三伏天](https://lifehacker.com/how-to-get-sunscreen-on-your-kid-without-a-battle-1834947424) 以及激烈的课间游戏联系在一起。然而，并不是所有的孩子都一样，他们中的一些人不喜欢运动或者我们传统上认为的锻炼。无论是对努力的整体厌恶还是对团队运动的厌恶，孩子们可能不会去流汗——但显然 [锻炼对他们来说仍然重要](https://lifehacker.com/how-much-exercise-kids-really-need-1830410104) 。你可以鼓励你的孩子四处活动，而不是强迫他们加入他们讨厌的棒球联盟。
 
-Watch
+
 
 ## **厌恶运动的孩子的体育活动选择**
 

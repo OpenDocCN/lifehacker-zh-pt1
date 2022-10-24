@@ -4,7 +4,7 @@
 
 由于美属维尔京群岛(USVI)是美国领土，在疫情期间，它一直是的热门度假目的地，因为旅行规定不如 [国际旅行](https://www.cdc.gov/coronavirus/2019-ncov/travelers/international-travel-during-covid19.html) 严格。一些地方仍然要求大陆游客入住 [授权的检疫酒店](https://www.canada.ca/en/public-health/services/diseases/2019-novel-coronavirus-infection/latest-travel-health-advice/mandatory-hotel-stay-air-travellers.html) 或别墅，或者要求 [定期检测](https://www.forbes.com/sites/alexledsom/2021/06/01/europe-is-opening-june-eu-travel-restrictions-covid-19-test-requirements-quarantine-by-country/?sh=113832852104) 。但是随着疫苗接种和不断变化的 [疾病预防控制中心的建议，](https://www.cdc.gov/coronavirus/2019-ncov/travelers/map-and-travel-notices.html) 计划一次旅行是相当复杂的，所以这里有一些建议来计划从大陆到 USVI 的假期。
 
-Watch
+
 
 ## 提前两个月开始计划你的海岛度假
 

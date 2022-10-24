@@ -4,7 +4,7 @@
 
 Google Drive 终于推出了期待已久的“阻止用户”选项。虽然以前可以从 [共享文档中删除用户，或者阻止他们下载和共享他们合作的](https://support.google.com/docs/answer/2494893?hl=en&co=GENIE.Platform%3DDesktop&oco=1#zippy=%2Cstop-sharing-a-file-or-folder%2Crestrict-link-sharing%2Cdelete-a-shared-file) 文件，但现在 [可以直接在驱动器](https://cloud.google.com/blog/products/workspace/new-security-capabilities-for-google-workspace) 中阻止所有交互。
 
-Watch
+
 
 根据谷歌的公告帖子，在 Drive 中阻止某人将:
 

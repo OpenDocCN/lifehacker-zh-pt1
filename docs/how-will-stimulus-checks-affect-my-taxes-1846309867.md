@@ -4,7 +4,7 @@
 
 最后一笔[【600 美元的刺激支票由国税局](https://www.nytimes.com/2021/02/16/business/if-the-checks-not-in-the-mail-youll-have-to-get-your-stimulus-money-on-your-taxes.html) 寄出，所以你现在应该已经收到你的了。但是如果你的支票没有到呢？你怎么能声称这些资金是退税呢？你必须为你的刺激支票缴税吗？以下是你需要知道的。
 
-Watch
+
 
 ### 我还没有收到我的刺激付款，我如何得到它？
 

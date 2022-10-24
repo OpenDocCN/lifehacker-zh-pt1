@@ -4,7 +4,7 @@
 
 当谈到新技术时，大而华而不实的功能抢尽了风头。 [iPhone 14 Pro 的](https://lifehacker.com/should-you-buy-the-iphone-14-or-14-pro-1849506382) 当然是动态岛，这是一个摄像头截图，实际上可以根据你如何使用 iPhone 进行调整。虽然苹果公司宣传该岛是警报和后台任务的中心，但其真正的潜力可能来自第三方开发者提出的独特用途。例证:你可以把你 14 Pro 上的动态岛变成一只类似 T4 的阿马格奇宠物的家。
 
-Watch
+
 
 当然，这不是苹果在设置中提供的东西(尽管他们完全应该提供)。相反，它是由 iOS 开发者克里斯蒂安·塞利格 创造的一个功能，他最出名的是他的 Reddit 客户端、 [阿波罗](https://lifehacker.com/the-best-apps-and-extensions-you-should-install-if-you-1848459916) 和 [Amplosion](https://lifehacker.com/use-this-app-to-get-rid-of-google-amp-urls-in-safari-1847716159) ，一个用于将 AMP 链接转化为普通 URL 的应用程序。为了这个受电子鸡启发的功能，塞利格在动态岛的顶部放了一只猫，它的唯一目的是跑来跑去，看起来可爱，睡觉，活在梦里。
 

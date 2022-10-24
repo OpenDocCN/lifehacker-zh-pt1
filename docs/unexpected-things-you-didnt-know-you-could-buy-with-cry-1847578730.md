@@ -4,7 +4,7 @@
 
 大多数人 [购买和*持有*加密货币](https://lifehacker.com/what-is-dogecoin-and-why-are-people-buying-it-1846161671) ，希望它有一天会取代法定货币，从而变得更有价值。然而，越来越多的人也开始期待*花费* it，根据 [最近的一项调查](https://coinmarketcap.com/alexandria/article/40-of-consumers-plan-to-use-crypto-in-next-12-months-mastercard-survey-suggests) 显示，40%的加密持有者计划在明年购买。
 
-Watch
+
 
 虽然这样做的选择仍然有限(而且令人费解)，但零售商正在提供越来越多的方式来真正将你的密码用作货币。
 

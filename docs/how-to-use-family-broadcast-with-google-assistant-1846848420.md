@@ -4,7 +4,7 @@
 
 你现在可以使用谷歌助手的家庭广播功能 [向使用谷歌助手应用的安卓设备和 iPhones 发送消息](https://blog.google/products/assistant/plan-perfect-weekend-new-google-assistant-features/) 。然后，你的家人可以从他们的设备上回复，创造一个有趣的来回，这比打电话给别人要方便得多(至少对于小的请求)。
 
-Watch
+
 
 以前，您只能将这些广播发送到同一 wifi 网络上的特定 Google Home 扬声器和智能显示器，但扩展的设备支持使广播可以随时与您的整个家庭有效沟通。使用它们让你的家人知道晚餐准备好了，如果你迟到了，或者用一个简单的谷歌助手命令向每个人的设备发送重要信息。
 

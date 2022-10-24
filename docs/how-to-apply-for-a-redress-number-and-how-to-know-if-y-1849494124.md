@@ -4,7 +4,7 @@
 
 购买机票时，你需要填写一些基本信息，如你的法定姓名、出生日期和电话号码。您可能还注意到了预订表单中的另一个字段，您可以选择输入已知的旅行者号码(KTN)或赔偿号码。
 
-Watch
+
 
 虽然您可能知道美国国土安全部(DHS)的 [向那些已经获得美国运输安全管理局预检或全球入境许可的人签发 ktn](https://help.cbp.gov/s/article/Article1852?language=en_US#:~:text=A%20Known%20Traveler%20Number%20(KTN,appear%20on%20your%20boarding%20pass.)，但您可能并不熟悉赔偿号码。以下是关于这种政府发放的号码的一些信息，包括谁需要一个号码，以及如何申请一个救济号码。
 

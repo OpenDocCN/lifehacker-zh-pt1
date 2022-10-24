@@ -4,7 +4,7 @@
 
 在疫情沉寂了九个月后，美国最受唾骂和崇拜的甜点 即将回归。糖果制造商 Just Born Quality 糖果公司昨天宣布，Peeps 将于 2021 年迎来辉煌的复活节回归。
 
-Watch
+
 
 是的，就像一只甜蜜的凤凰从 COVID 地狱之火中升起，Peeps 回来了。据美国有线电视新闻网报道，该公司去年 4 月停止生产，理由是工厂员工、 [的安全问题。](https://www.cnn.com/2021/02/03/business/peeps-resumes-production/index.html)
 

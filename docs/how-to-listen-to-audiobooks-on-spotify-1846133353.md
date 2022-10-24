@@ -4,7 +4,7 @@
 
 当你在工作和生活中导航时，你可能已经使用 Spotify 提供全天候的音乐和播客，但该平台通过一种新的产品提供了另一个让其应用程序全天开放的理由:有声读物。
 
-Watch
+
 
 这并不是 Spotify 第一次涉足有声读物领域——去年，该公司 [推出了《哈利·波特在家》、](https://www.mugglenet.com/2020/12/harry-potter-at-home-videos-will-be-leaving-wizarding-world-digital-in-2021/) ，一群明星在其中朗读了著名的奇幻系列小说的第一部——但它的最新努力无疑是迄今为止最雄心勃勃的尝试 [进军 15 亿美元的产业](https://www2.deloitte.com/us/en/insights/industry/technology/technology-media-and-telecom-predictions/2020/rise-of-audiobooks-podcast-industry.html/) 。该公司周一发布了九本公共领域的书籍，包括玛丽·雪莱的*弗兰肯斯坦、*查尔斯·狄更斯的*远大前程*和简·奥斯汀的*劝导*，所有这些书籍都由一批明星阅读。
 

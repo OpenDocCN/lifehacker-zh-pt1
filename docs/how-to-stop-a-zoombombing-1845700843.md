@@ -4,7 +4,7 @@
 
 可怕的“”缩放组合对所有缩放会议来说都是一种风险，即使是有密码和 [数据加密](https://lifehacker.com/how-to-turn-on-zooms-new-end-to-end-encryption-1845499757) 保护的私人房间。你所需要做的就是让邀请函落入坏人之手，然后突然有人在你的工作会议上大喊大叫——或者更糟。
 
-Watch
+
 
 虽然 Zoom 一直有一些旨在防止会议受到恶意攻击的 [*隐私和报告工具*](https://lifehacker.com/how-to-make-your-video-chats-more-secure-1843242780)，但该公司正在 [增加新的反 Zoombombing 功能](https://blog.zoom.us/new-ways-to-combat-zoom-meeting-disruptions/) ，让主持人暂停所有会议活动，并移除捣乱的客人。新的安全选项现在面向 Mac、PC、Linux、iOS 和 Android 上的免费和付费用户推出。
 

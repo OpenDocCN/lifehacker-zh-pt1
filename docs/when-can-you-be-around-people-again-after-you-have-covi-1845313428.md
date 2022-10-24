@@ -4,7 +4,7 @@
 
 住院医生 [表示](https://www.cnbc.com/2020/10/08/president-trump-says-hes-not-contagious-at-all-days-after-leaving-hospital-with-coronavirus-.html) 由于一个新冠肺炎病例在医院呆了一段时间后，他“完全没有传染性”,并希望在下周出现在一场面对面的辩论中。(辩论委员会曾表示，这场辩论将会很遥远。)他可能是对的吗？很复杂。
 
-Watch
+
 
 ### 计算症状首次出现后的天数
 

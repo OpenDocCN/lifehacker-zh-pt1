@@ -4,7 +4,7 @@
 
 iOS 16 充满了令人敬畏的新功能，从 [即时从图像复制主题的能力](https://lifehacker.com/apples-new-ios-16-photo-feature-is-straight-up-magic-1849169945) 到全新的 [可定制的带有小部件的锁屏](https://lifehacker.com/all-the-ways-you-can-customize-your-iphone-s-lock-scree-1849310427) 。但当谈到新的操作系统版本时，没有十全十美的东西。虽然新的版本是挤满了一些伟大的东西，也有一对夫妇的旧车在那里...所以如果你最近更新了你的 iPhone iOS 16，花点时间考虑禁用其中的一些功能。
 
-Watch
+
 
 ## 移除耀眼的搜索图标
 

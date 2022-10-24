@@ -4,7 +4,7 @@
 
 民主党控制的众议院 [今天投票批准了最新的 COVID](https://www.usatoday.com/in-depth/news/politics/2021/03/04/how-much-money-each-state-would-receive-if-joe-biden-covid-stimulus-bill-passes/6892464002/) [救助方案](https://www.cnn.com/2021/03/10/politics/covid-relief-bill-house-vote/index.html) ，拜登总统预计将于周五签署该法案成为法律。但是，你多久能收到作为 1.9 万亿美元立法一部分的 1400 美元支票，你还会得到什么救济？这里有一个你可以期待什么和什么时候期待的总结(剧透:没有最低工资上调)。
 
-Watch
+
 
 ### 第三轮刺激检查
 

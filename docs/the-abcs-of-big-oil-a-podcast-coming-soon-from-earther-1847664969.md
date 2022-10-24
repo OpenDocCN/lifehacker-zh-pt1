@@ -6,7 +6,7 @@ Earther 正在使用播客带你去学校。
 
 在 Earther，我们经常写关于 ssil 燃料行业长达几十年的错误信息运动 的[；尽管了解使用他们的产品的危险，像](https://gizmodo.com/exxon-predicted-2019-s-ominous-co2-milestone-in-1982-1834748763) [埃克森](https://gizmodo.com/were-finally-going-to-learn-how-much-exxon-knew-about-c-1791137298) 和 [壳牌](https://gizmodo.com/exxon-isn-t-the-only-oil-company-that-knew-about-climat-1749498557) 这样的能源巨头已经花费数十亿美元在电视、报纸和 [社交媒体](https://gizmodo.com/facebook-is-awash-in-oil-money-1847424514) 上进行宣传，以促进对气候危机的质疑。但是大石油公司以一种更加阴险的方式发动了这场关于气候科学的战争，向一个更加脆弱的群体——孩子——传递支持化石燃料的信息。
 
-Watch
+
 
 在新的播客中，我将与艾米·韦斯特韦特(Amy Westervelt)合作，艾米·韦斯特韦特是一位获奖的气候调查记者，在一个迷你系列的真实犯罪气候播客中，。这个节目将会揭示石油工业从小学到大学，对孩子们灌输亲化石燃料课程计划的悠久历史。该行业渗透社会科学课程的运动是一种特别阴险的宣传形式。
 

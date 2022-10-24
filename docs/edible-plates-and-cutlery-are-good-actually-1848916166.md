@@ -6,7 +6,7 @@
 
 是的，现在有了叉子、勺子、杯子和碗，你可以在吃完饭后吃——有点像冰淇淋蛋卷。甚至有理由认为，e 可食用的盘子和餐具解决了很多你甚至不知道自己存在的问题，越来越多的公司正在生产它们。轻点鼠标就可以买到可食用的 [碗](http://biotrem.pl/en/) 和盘子 [勺子](https://incredibleeats.com/)[叉子](https://twentyfiftyfork.com/)[杯子](https://cupffee.me/)[吸管](https://wearesorbos.com/?lang=en) 。这就是你为什么想这么做的原因。
 
-Watch
+
 
 ## 环境效益
 

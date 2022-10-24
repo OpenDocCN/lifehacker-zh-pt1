@@ -4,7 +4,7 @@
 
 苹果今年早些时候宣传了一个名为 SharePlay 的新 FaceTime 功能，但随后引人注目的是，它被排除在官方发布的[IP ados 15](https://gizmodo.com/apples-big-ipad-software-upgrade-is-here-what-to-try-f-1847706582)和 [macOS Monterey](https://gizmodo.com/15-things-you-can-do-in-macos-monterey-that-you-couldnt-1847686556) 之外。但是 SharePlay 是作为 iOS 15.1 中的一项功能发布的，现在已经在 macOS Monterey 12.1 中推出，所以现在每个人都可以利用完整的 SharePlay 体验。
 
-Watch
+
 
 你可能已经注意到了诸如 Disney+、Twitch 等应用程序已经为你增加了一个通过互联网与朋友一起观看内容的选项。你不再需要在电影之夜与你爱的人见面，因为一切都可以虚拟地发生。
 

@@ -4,7 +4,7 @@
 
 每个借款人都想有一个高信用评分，但如何才能有一个超过 800 的 FICO 信用评分？一项新的 [LendingTree 调查](https://www.lendingtree.com/debt-consolidation/what-it-takes-to-earn-an-excellent-credit-score/) 提供了一些关于可能得分最高的借款人的消费习惯的见解——其中一些你可以效仿以提高自己的*得分*。
 
-Watch
+
 
 ## **如何获得超过 800 分的信用评分**
 

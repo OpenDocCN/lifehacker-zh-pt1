@@ -4,7 +4,7 @@
 
 最近， [佐治亚州成为全国第 13 个](https://www.cnbc.com/2022/04/28/georgia-is-now-the-latest-state-to-mandate-personal-finance-education.html) 强制高中学生接受个人理财教育的州。根据 [下一代个人理财](https://www.ngpf.org/blog/advocacy/how-many-states-require-students-to-take-a-personal-finance-course-before-graduating-from-high-school-is-it-6-or-is-it-21/?gclid=CjwKCAjwve2TBhByEiwAaktM1Myqj5p1Q7BcJJ6oPNkVhySxjV9zVcSYgV23KuNWGa7FGA2J5v9wVBoCPXUQAvD_BwE) 的报道，乔治亚州加入了阿拉巴马州、佛罗里达州、爱荷华州、密西西比州、密苏里州、内布拉斯加州、北卡罗来纳州、罗德岛州、俄亥俄州、田纳西州、犹他州和弗吉尼亚州的行列，要求青少年在毕业之前至少学习一个学期的个人理财。
 
-Watch
+
 
 虽然各州要求在高中教授基本金融知识的趋势令人鼓舞，但这仍然意味着只有“35%的美国学生将有机会参加金融知识课程”，美国消费者新闻与商业频道 称。大多数儿童和青少年仍然需要在其他地方接受教育。
 

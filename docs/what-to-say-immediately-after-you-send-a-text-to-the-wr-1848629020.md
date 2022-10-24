@@ -4,7 +4,7 @@
 
 没有什么比意识到你发错了短信更让你心跳加速的了。它发生在我们每个人身上，这是一个你无法挽回的错误——收件人会读到它。这些都是事实，你无法改变。
 
-Watch
+
 
 (嗯，你*可以*在一些平台上实际取消发送信息——比如 Instagram 和[Gmail](https://lifehacker.com/extend-your-undo-send-window-in-gmail-we-beg-of-you-1847430661)；如果你发送了一条无意发送的 iMessage 信息，你可能会在信息发送前将手机调至飞行模式。这可能行不通，但值得一试。)
 

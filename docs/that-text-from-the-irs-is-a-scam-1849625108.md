@@ -4,7 +4,7 @@
 
 收到一条来自“国税局”的短信，声称要对你的可疑行为提起诉讼，这是非常令人担忧的，而阻止逮捕令的唯一方法就是马上发送你的个人信息。但是你不应该这样做。九月下旬， [国税局警告公众](https://www.irs.gov/newsroom/irs-reports-significant-increase-in-texting-scams-warns-taxpayers-to-remain-vigilant) 以国税局为主题的“smishing”有所增加，目的是窃取你的个人和财务信息。美国国税局今年已经正式确认了数千个欺诈性的原始域名，过去几周的案例呈指数级增长。
 
-Watch
+
 
 “最近几个月，美国国税局报告了多次大规模的窃密活动，在几个小时或几天内传递了数千条甚至数十万条以国税局为主题的信息，远远超过了以前的活动水平，[国税局专员查克·雷蒂格在上个月的新闻稿中说](https://www.irs.gov/newsroom/irs-reports-significant-increase-in-texting-scams-warns-taxpayers-to-remain-vigilant)。
 

@@ -4,7 +4,7 @@
 
 最近的 [研究](https://read.dukeupress.edu/environmental-humanities/article/10/2/473/136689/The-Influence-of-Climate-FictionAn-Empirical) 表明，对明显“环保”的娱乐不感兴趣的人会避开它，无论是因为他们不同意它的观点，还是因为他们只是在寻求娱乐。这就是为什么我们需要更多像 [*泰德拉索*](https://gizmodo.com/ted-lasso-actor-brett-goldstein-bravely-breaks-silence-1847606926) 这样的节目。
 
-Watch
+
 
 《苹果电视+秀》讲述了一个有名无实的角色，一个被雇来执掌英国一支苦苦挣扎的足球队的美国足球教练，以及他的球队和周围的角色阵容。尤其是在疫情期间，该剧一直是 [迎宾](https://observer.com/2021/07/apple-tv-plus-ted-lasso-season-2-viewership-ratings-audience/) 轻松娱乐 [大范围吸引](https://www.politico.com/news/magazine/2021/05/02/ted-lasso-charlie-baker-485105) 的观众。这使得它在这一季突然关注环境不公正——及其完美的执行——如此令人惊讶。
 

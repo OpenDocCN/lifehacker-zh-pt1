@@ -4,7 +4,7 @@
 
 动物们的时间到了！上世纪 90 年代最奇怪的卡通现象 [Hulu 的重新启动](https://variety.com/2020/tv/news/animaniacs-reboot-steven-spielberg-premiere-date-hulu-1234728702/#!#:~:text=The%20%E2%80%9C%20Animaniacs%20%E2%80%9D%20will%20be%20back%20on,Hulu%20handed%20the%20revival%20a%20two-season%20series%20order.) 将于 11 月 20 日在流媒体服务上首映，给你至少一件在假期值得感谢的事情。也就是说，如果你成年了，或者看了几十年前福克斯电视台播出的这个节目。我看了，即使在那时，我也觉得它非常令人讨厌——当然是一部基于滑稽模仿 [杂耍套路](https://www.youtube.com/watch?v=zR-HObd4s4I)[黑帮电影](https://www.youtube.com/watch?v=QZPwdGbxwNU)[超现实主义](https://www.youtube.com/watch?v=HCMohCREiN8) 、政治和 [萧条时期的萎靡不振的电视剧，对于小学场景来说似乎是一种怪异的适合，现在仍然如此。只需看看重启的预告片，它重现了一部接近 30 岁的电影中的一个场景。](https://www.youtube.com/watch?v=VLCrw_CIMtk)
 
-Watch
+
 
 我的意思是，我仍然会看，如果只是为了看看这部剧的感性如何为 20 年代更新(或不更新)。(第 *20* 20s。)所有熟悉的老角色会回来吗？即使是那些让你立刻切换到迪士尼午后的？(或者其他人真的都喜欢好羽毛乐队的*？)我们走着瞧。*
 

@@ -4,7 +4,7 @@
 
 自 2011 年以来，Scuf Gaming 因生产一些最高质量的第三方控制台控制器和拥有数量惊人的控制器专利而闻名。Scuf Instinct 和 Instinct Pro 是该公司首次尝试为 Xbox 系列 X/S 游戏机创建精英级控制器，并且几乎成功了。
 
-Watch
+
 
 ## **什么是 Scuf 游戏？**
 

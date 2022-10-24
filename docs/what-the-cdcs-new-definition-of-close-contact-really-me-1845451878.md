@@ -4,7 +4,7 @@
 
 根据对疾病预防控制中心定义的调整，与同一个人反复短暂相遇现在被认为是密切接触。以前，要成为“密切接触者”，他们必须在你六英尺之内保持至少 15 分钟。根据 [最近的研究](https://www.cdc.gov/mmwr/volumes/69/wr/mm6943e1.htm?s_cid=mm6943e1_e&ACSTrackingID=USCDC_921-DM40859&ACSTrackingLabel=MMWR%20Early%20Release%20-%20Vol.%2069%2C%20October%2) ，这种改变认识到，你不必一下子和同一个人呆上 15 分钟。如果你一天多次见到同一个人，每次几分钟，如果这些会面加起来*达*15 分钟，他们仍被视为密切接触者。
 
-Watch
+
 
 以下是目前的官方定义:
 

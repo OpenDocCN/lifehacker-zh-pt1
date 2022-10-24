@@ -4,7 +4,7 @@
 
 如果你有一台苹果电脑、 iPhone 或者 iPad ，并且你正在从你的网络浏览器中寻找新的东西，你应该看看猎户座。新浏览器允许你运行谷歌 Chrome 扩展和火狐插件，同时声称不会牺牲你的隐私。Orion 基于 WebKit，这是 Mac 上的 Safari 和 iPhone 上所有浏览器使用的浏览器引擎。
 
-Watch
+
 
 由于 Orion 最近才进入公测，它仍然有一些粗糙的边缘，但总的来说，它似乎是一个有前途的替代品，你现在可以尝试。不是每个扩展都能在猎户座上工作，但是最受欢迎的，像 uBlock Origin，Dark Reader，和 SponsorBlock，都能完美工作。
 

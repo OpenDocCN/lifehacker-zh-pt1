@@ -4,7 +4,7 @@
 
 在宣布猴痘为国际关注的公共卫生紧急事件时，世界卫生组织周一承认，目前这种爆发集中在男男性行为者中。随后， [世卫组织总干事的声明](https://www.who.int/news-room/speeches/item/who-director-general-s-statement-on-the-press-conference-following-IHR-emergency-committee-regarding-the-multi--country-outbreak-of-monkeypox--23-july-2022) 称“耻辱和歧视可以像任何病毒一样危险。”
 
-Watch
+
 
 许多人对猴痘是如何传播的有误解，某些新闻报道无助于澄清困惑。医学专业人士 [一直在网上](https://twitter.com/Arrianna_Planey/status/1550866549673807877) 打鼓，对抗将该病毒与其他性传播感染混为一谈的错误信息的传播。然而，说猴痘不是性传播感染的努力有矫枉过正的危险。
 

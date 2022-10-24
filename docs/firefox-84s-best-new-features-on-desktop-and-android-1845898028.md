@@ -4,7 +4,7 @@
 
 最新的火狐更新， [版本 84](https://www.mozilla.org/en-US/firefox/84.0/releasenotes/) ，现已面向桌面和安卓发布。在您更新浏览器的同时，让我们快速浏览一下所有新内容，如果您使用的是全新的 MacBook Pro、MacBook Air 或 Mac Mini，这一点尤为重要。
 
-Watch
+
 
 最新的版本在 Android 上增加了新功能，并修复了所有平台上的错误，但最值得注意的更新是对运行苹果 M1 CPU 的 Mac 电脑和笔记本电脑的原生支持。这使得 Firefox 成为第三个在苹果 M1 处理器上运行的主流桌面浏览器；结果，Mozilla[提升了浏览器的性能](https://www.mozilla.org/en-US/firefox/84.0/releasenotes/):“Firefox 启动速度提高了 2.5 倍，网络应用程序的响应速度也提高了一倍(根据速度计 2.0 测试)。”
 

@@ -4,7 +4,7 @@
 
 你可能已经注意到现在的房价非常昂贵——根据 Zillow 家庭价值指数，在这个资本主义天堂，一个典型的家庭现在要花费近 35 万美元 。很明显，有很多房子以更低的价格出售(也有更多的价格出售)，但如果你是许多梦想拥有自己第一套房子的人之一，这可能仍然是一个令人沮丧的统计数字。因为即使你有很好的信用，你可以借一大笔钱，你还是要付首付。
 
-Watch
+
 
 而一套房子的首付[可以低至房屋成本的 3%](https://lifehacker.com/how-to-buy-a-house-with-just-12-000-down-1848411297)在特定情况下，首付 20% 更为典型的是 [。这意味着一个“典型的”家庭仅仅是开始就要花费你 7 万美元——不算费用和结算成本。这还没有考虑到所谓的“](https://lifehacker.com/follow-the-20-rule-when-saving-for-a-down-payment-on-a-5900232) [评估差距](https://www.rocketmortgage.com/learn/appraisal-gap#:~:text=An%20appraisal%20gap%20is%20the,the%20home%20out%20of%20pocket.) ”这是*额外的*钱——与首付款分开——你承诺你的报价，以防房子被高估，它不会评估全部销售成本，这意味着银行不会为房子的全部成本提供贷款。
 

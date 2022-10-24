@@ -4,7 +4,7 @@
 
 铸铁煎锅非常适合从早餐到烘烤的任何东西，但缺点是它们比普通的锅或平底锅需要更多的维护。我们已经在 Lifehacker 这里讨论了[季节铸铁](http://lifehacker.com/season-cast-iron-pans-by-putting-them-in-the-oven-while-5882564) (包括 [一些违背“公认的智慧”](https://lifehacker.com/why-you-should-season-your-cast-iron-the-wrong-way-1843447192))的几种方法，但是如果你的室友让你的铸铁在水里泡了一夜，或者天理不容，把它放在洗碗机里呢？拿一块研磨垫和一些白醋。只要稍加修理，你的铸铁就会像新的一样。
 
-Watch
+
 
 首先，如果你有一个带自动清洁功能的烤箱， [这是一个去除铁锈和“重置”你的铸铁锅](http://lifehacker.com/remove-rust-from-cast-iron-cookware-in-your-oven-5845822) 的好方法。如果你不这样做， [Bon Appétit 指出](https://www.bonappetit.com/test-kitchen/how-to/article/cast-iron-pan-rust) 你所需要的只是一些白醋、一些水、和一个磨砂擦洗器，让你生锈、受损的铸铁闪闪发光，如同新的一样。
 

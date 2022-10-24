@@ -4,7 +4,7 @@
 
 由于新冠肺炎疫情的爆发，迪士尼 [关闭其主题公园](https://www.cnn.com/2020/03/12/media/disney-world-close-coronavirus/index.html) 已经一年了。这不是一件小事——就在 2016 年， [迪士尼的公园占了其年收入的 40%](https://www.statista.com/statistics/193140/revenue-of-the-walt-disney-company-by-operating-segment/) ，所以该公司渴望尽快重新开放是可以理解的——特别是考虑到 2019 年其主要的新《星球大战》景点 [银河边缘](https://www.starwars.com/news/star-wars-galaxys-edge-now-open-at-walt-disney-world-resort#:~:text=Star%20Wars%3A%20Galaxy's%20Edge%20is%20now%20open%20at%20Disneyland%C2%AE,Star%20Wars%2C%20all%20the%20time.) 在双海岸开放后不久就关闭了，该景点预计将吸引成千上万的额外游客前往加利福尼亚州和佛罗里达州的公园。
 
-Watch
+
 
 2020 年 6 月 [迪士尼重新开放了其位于佛罗里达州的四个主题公园中的两个](https://www.usatoday.com/story/travel/experience/america/theme-parks/2020/07/11/walt-disney-world-reopens-after-4-month-covid-19-shutdown/5412790002/) ，吸引了成千上万的游客，最后一个 [两个公园在不久后开放](https://www.nbcmiami.com/news/local/disney-worlds-last-two-theme-parks-reopen-to-visitors/2262583/) 。当佛罗里达州看到新冠肺炎案例的记录数字时，游客们仍然愿意为了一点迪斯尼的魔力而冒险。现在，随着 [疫苗分发量的增加](https://vitals.lifehacker.com/there-are-three-covid-vaccines-now-and-theyre-all-good-1846381855) 以及公园容量限制的降低，公园门票再次售罄。即使你还没有准备好面对拥挤的人群，如果你的后 COVID 愿望清单上有旅行，也是时候开始提前计划了:现在是时候在不可避免的旅游热潮之前预订你的 2022 年迪士尼之旅了。
 

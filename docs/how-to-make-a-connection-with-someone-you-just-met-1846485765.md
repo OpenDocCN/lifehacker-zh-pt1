@@ -4,7 +4,7 @@
 
 当遇见一个新的人时，基本上每个人都会有一种冲动。在随意的交谈中，人们很大程度上更倾向于分享他们自己的主观体验，而不是就其他人的兴趣提出后续问题。
 
-Watch
+
 
 这是人的本性，它遵循一个熟悉的模式，丹尼尔·贝亚德·杰克森 (又名友谊专家)在 [《抖音》中对此有清晰的描述。在下面的视频中，你会看到谈话的天平多么容易向一边倾斜。](https://www.tiktok.com/@thefriendshipexpert/video/6935157389146541317?_d=secCgYIASAHKAESMgow%2Br0e2VR9AUtdExzFjiWRs9oPe0X7BRGK2dRf5yMzkZ14qgLdzFpojKkxxOZWx0uEGgA%3D&language=en&preview_pb=0&sec_user_id=MS4wLjABAAAA-urxM-eTO3o8kR1ItylBD6a_tG6hhnYeYQq7vAjNlWDwmNAEzPWJxl_Su2Vq-eWo&share_item_id=6935157389146541317&share_link_id=F5479AE2-33E2-4631-8654-EEC06F964D5E&timestamp=1615823901&tt_from=copy&u_code=d7mej85ij7dc28&user_id=6727451730230952965&utm_campaign=client_share&utm_medium=ios&utm_source=copy&source=h5_m&is_copy_url=1&is_from_webapp=v2)
 

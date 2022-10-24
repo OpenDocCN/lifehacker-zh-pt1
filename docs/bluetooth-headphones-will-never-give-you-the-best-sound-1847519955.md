@@ -4,7 +4,7 @@
 
 还有一些 [*很棒的*蓝牙耳机](https://gizmodo.com/the-best-wireless-headphones-you-can-buy-right-now-1830336665)T5】摆在那里。 [AirPods Pro](https://www.amazon.com/Apple-MWP22AM-A-AirPods-Pro/dp/B07ZPC9QD4/?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/bluetooth-headphones-will-never-give-you-the-best-sound-1847519955&asc_source=&tag=kinjalifehackerlink-20) ， [索尼 WF-1000XM4](https://www.amazon.com/Sony-WF-1000XM4-Industry-Canceling-Headphones/dp/B094CLC7WK/?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/bluetooth-headphones-will-never-give-you-the-best-sound-1847519955&asc_source=&tag=kinjalifehackerlink-20) ，[Jabra Elite Active 75t](https://www.amazon.com/Jabra-Active-Wireless-Earbuds-Charging/dp/B08L3FFKC3/?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/bluetooth-headphones-will-never-give-you-the-best-sound-1847519955&asc_source=&tag=kinjalifehackerlink-20)称霸耳塞市场，而 [索尼 WH-1000XM4](https://www.amazon.com/Sony-WH-1000XM4-Canceling-Headphones-Phone-Call/dp/B08MVGF24M/?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/bluetooth-headphones-will-never-give-you-the-best-sound-1847519955&asc_source=&tag=kinjalifehackerlink-20) 和 [Bose 降噪耳机 700](https://www.amazon.com/Bose-Cancelling-Wireless-Bluetooth-Headphones/dp/B07Q9MJKBV/?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/bluetooth-headphones-will-never-give-you-the-best-sound-1847519955&asc_source=&tag=kinjalifehackerlink-20) 则是挂耳式品种中的佼佼者。尽管如此，尽管所有这些耳机在各种情况下听起来都很好，但它们永远不会像有线耳机那样好。原因如下。 
 
-Watch
+
 
 流媒体服务最近提高了音频质量。Tidal 是首批以额外价格提供 CD 质量的基于 FLAC 的无损流媒体服务的公司之一，但就在去年，其他服务如 Apple Music、Amazon Music 和 Spotify(即将发布)也提供类似的高比特率无损服务，所有这些服务的成本都与之前相同。
 

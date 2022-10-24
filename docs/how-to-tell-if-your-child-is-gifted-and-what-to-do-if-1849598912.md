@@ -4,7 +4,7 @@
 
 教育中最有争议的话题之一是 T2 的天才教育。甚至——[天才——这个词本身也引起了](https://motherwellmag.com/2020/01/08/perspective-its-time-we-stopped-with-the-phrase-gifted-and-talented/) 的争论。天才节目 的功效和 [公平性在 2021 年遭到抨击，当时](https://fordhaminstitute.org/ohio/research/ohios-lost-einsteins-inequitable-outcomes-early-high-achievers#:~:text=Ohio's%20Lost%20Einsteins%3A%20The%20inequitable%20outcomes%20of%20early%20high%20achievers,-Scott%20Imberman&text=To%20shed%20more%20light%20on,or%20English%20language%20arts%20exams.) [纽约市 m 市长比尔·白思豪(Bill De Blasio)推出了一项彻底淘汰纽约天才节目](https://www.nytimes.com/2021/10/08/nyregion/gifted-talented-nyc-schools.html)——[的计划，该计划后来被悄悄搁置](https://ny.chalkbeat.org/2022/4/6/23013451/nyc-gifted-and-talented-programs-admissions-changes) 。
 
-Watch
+
 
 那些自己小时候可能参加过天才项目的父母，以及那些自己的孩子符合或不符合资格的父母，对于不一致的政策感到困惑，有时甚至愤怒，这些政策是关于谁可以被称为天才，以及这个“地位象征”可以给予被贴上这个标签的人什么特权。但是“有天赋”意味着什么？你应该让你的孩子接受测试吗？如果他们合格，你应该接受服务吗？从长远来看，如果你的孩子参加天才项目或者在年轻时被认定为天才，他们会“过得更好”吗？
 

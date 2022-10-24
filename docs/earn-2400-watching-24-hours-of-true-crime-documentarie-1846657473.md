@@ -4,7 +4,7 @@
 
 我们现在进入真正的犯罪成为流行文化现象已经有几年了，虽然我们已经过了为下一季系列播客或制作谋杀纪录片而数着日子的点，但它仍然是一种流行的类型。
 
-Watch
+
 
 如果你发现自己整个周末都粘在电视上，因为你无法停止观看某个特定的节目，那么你就会知道被这些故事吸引是多么容易。(虽然有各种 [其他心理原因](https://www.psychologytoday.com/us/blog/school-thought/202102/4-reasons-we-love-binging-crime-shows) 为此。)
 

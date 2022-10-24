@@ -4,7 +4,7 @@
 
 在我的生活中，我把许多不同的东西放进炒鸡蛋里。 [玉米淀粉](https://lifehacker.com/have-you-heard-the-good-news-about-cornstarch-eggs-1835699803)[鞑靼奶油](https://lifehacker.com/get-fluffier-scrambles-by-adding-cream-of-tartar-1842128443)[米林](https://lifehacker.com/you-should-definitely-add-mirin-to-your-scrambled-eggs-1838015440)[凤尾鱼](https://lifehacker.com/four-secret-ingredients-to-give-your-scrambled-eggs-mor-1849196670) 和橄榄汁只是我尝过并喜爱的几个鸡蛋插件。但与第戎芥末相比，它们都相形见绌，第戎芥末刚才真的让我大吃一惊。
 
-Watch
+
 
 这个想法不是 Claire Lower 的原创，但现在是 Claire Lower 的首选。这个小贴士是由作者兼编辑亚历山大·奇(Alexander Chee)发布在推特上的(比起抖音，我还是更喜欢推特)，我很高兴我立即尝试了一下。
 

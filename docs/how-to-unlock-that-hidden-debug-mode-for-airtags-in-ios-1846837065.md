@@ -4,7 +4,7 @@
 
 苹果的 AirTags 有一个隐藏的调试模式，你可以在你的连接设备(理想情况下，是 iPhone)上非常容易地访问它。虽然其中的功能不会给你神奇的追踪能力，但你至少可以享受一些与 AirTag 追踪相关的数据。那，你也可以改变一些颜色。
 
-Watch
+
 
 为了开始使用 [调试模式](https://www.reddit.com/r/apple/comments/n5vtle/frustration_lead_to_airtag_hidden_dev_mode/) ，你将需要一个连接到你的设备的 AirTag。接下来，打开**查找我的**应用程序，选择要定位的 AirTag，点击绿色的**查找**图标，打开 [**精确查找**](https://support.apple.com/en-us/HT210967) 。一旦你这样做了，你应该看到传统的“哪里是我的东西”屏幕，否则你可以使用它在你的环境中导航，以查看上述 AirTag 跑到哪里:
 

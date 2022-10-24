@@ -4,7 +4,7 @@
 
 如果你已经习惯于在 Fitbit、Garmin、Apple Health 或任何其他活动追踪器或应用程序上监控你的“有氧健身”分数，你可能已经注意到分数最近下降了——或者可能没有你预期的那样上升。但是，如果你一直坚持训练，这种下降实际上可能并不代表健康状况的下降。
 
-Watch
+
 
 我特别是指那些生活在现在是夏天的气候中的人，那里的热量介于强烈和压抑之间。换句话说，现在美国的大部分地区。自然地，当天气炎热时， [我们都跑得更慢，当天气炎热时，](https://lifehacker.com/how-to-get-used-to-exercising-in-the-heat-and-why-you-1716804690) ， [更慢，当炎热和潮湿结合在一起时，](https://lifehacker.com/here-s-how-much-slower-you-run-when-it-s-humid-1785580170) 使户外活动变得格外艰难。
 

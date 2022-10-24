@@ -4,7 +4,7 @@
 
 如果你喜欢盯着各种设备的操作系统中明亮的白色背景，这篇文章不适合你。我个人无法忍受。我白天盯着足够多的屏幕，切换到黑暗模式对我的眼睛来说是一种几乎无法形容的放松。再加上，是*超级* [哥特](https://skillet.lifehacker.com/kick-off-the-weekend-with-an-ice-cold-obituary-1844883471) 。下面介绍如何在你所有的 app 中设置黑暗模式——官方模式 [恶周](https://lifehacker.com/c/evil-week)——。
 
-Watch
+
 
 ### [如何在 Windows 10](https://lifehacker.com/how-to-set-up-and-customize-dark-mode-in-windows-10-1844340183) 中启用“黑暗模式”
 

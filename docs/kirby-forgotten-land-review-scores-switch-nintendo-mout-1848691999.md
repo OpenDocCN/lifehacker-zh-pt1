@@ -4,7 +4,7 @@
 
 对 [*【柯比】*](https://kotaku.com/kirby-and-the-forgotten-land-trailer-shows-off-new-abil-1848344637) 评论的禁令已经解除，对 HAL 实验室最新平台的意见如潮水般涌来。到目前为止，大多数评论家对科比的新冒险感觉积极，任天堂 Switch 独家在 Metacritic 上轻松获得 85 分。从事情的发展来看，*遗忘之地*可能会成功。
 
-Watch
+
 
 可爱的 3D 游戏的部分吸引力在于新的满嘴模式[，受到许多评论的称赞。这种能力让今年 30 岁的 Kirby 张开他已经呈胶状的嘴，吞下巨大的物体——如交通锥和自动售货机——来解决难题。这是](https://kotaku.com/kirby-forgotten-land-mouthful-mode-car-switch-nintendo-1848629518) [的混乱和可怕的](https://kotaku.com/kirby-forgotten-land-mouthful-mode-switch-nintendo-thro-1848511534) ，然而，满嘴模式是如此迷人，当科比的身体符合他嘴里的任何形状时，你很难移开视线。这真的让你想知道他的消化道是什么样的…如果他甚至有一个。
 

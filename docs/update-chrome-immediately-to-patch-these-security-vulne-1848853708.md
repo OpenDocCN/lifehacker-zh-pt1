@@ -4,7 +4,7 @@
 
 [不到两周](https://lifehacker.com/why-you-need-to-update-google-chrome-as-soon-as-you-can-1848798753) ，我们已经在谈论另一个关键的 Chrome 更新了。不过，说实话，谷歌在这些事情上保持领先还是有好处的:有时，我们发现一家公司在关键的安全漏洞上坐了*几个月*，却没有发布新的更新。至少在这里，我们有一个很好的机会来保护我们的 Chrome 免受潜在黑客的攻击。
 
-Watch
+
 
 谷歌在 4 月 26 日星期二的 [博客文章](https://chromereleases.googleblog.com/2022/04/stable-channel-update-for-desktop_26.html) 中宣布了这一更新。这个新的版本的 Chrome 是 101.0.4951.41，可用于 Windows、Mac 和 Linux。此次更新修补了 30 个安全漏洞，其中 7 个被评为“高”其中五个漏洞(加上另外六个评级为“中等”)是“释放后使用”漏洞，由于内存重新分配问题，黑客可以将任意代码传递给程序。
 

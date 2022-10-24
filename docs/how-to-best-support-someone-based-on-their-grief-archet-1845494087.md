@@ -4,7 +4,7 @@
 
 在很大程度上，我们的社会对悲伤的定义非常狭隘，理解也很肤浅。我们知道，当我们亲近的人去世时，我们应该感到悲伤，在哀悼期间穿上黑衣吃几天砂锅菜，然后继续我们的正常生活，就像什么都没发生一样。
 
-Watch
+
 
 但事实上，悲伤并没有固定的时间表或形式。当然，有著名的伊丽莎白·库伯勒-罗斯(Elisabeth kubler-Ross)提出的 [“悲伤的五个阶段”，但是那些](https://www.psycom.net/depression.central.grief.html) [从来就不是一份清单](https://www.rollingstone.com/culture/culture-features/coronavirus-grief-pandemic-emotional-fatigue-981847) ，在完成后，一个人不再悲伤。
 

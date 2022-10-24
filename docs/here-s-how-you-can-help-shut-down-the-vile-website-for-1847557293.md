@@ -4,7 +4,7 @@
 
 即使你不住在得克萨斯州，你也可能听说过该州严厉的堕胎限制，该限制于周三 正式生效 [。所谓的“心跳法案”，又名](https://www.usatoday.com/story/news/politics/2021/09/01/texas-abortion-law-what-to-know/5679581001/) [参议院法案 8](https://legiscan.com/TX/bill/SB8/2021) ，使得德克萨斯州的任何人——朋友、家人、医生——在怀孕六周后帮助妇女堕胎完全非法。
 
-Watch
+
 
 你可能也看到过 [数字举报电话](https://prolifewhistleblower.com/) ，它是用来举报任何违反新法律的人的。该网站于大约一个月前由德克萨斯生命权组织发起，该组织是反堕胎政治世界中资金雄厚的玩家。
 

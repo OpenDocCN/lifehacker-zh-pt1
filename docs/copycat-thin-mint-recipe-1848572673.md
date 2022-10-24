@@ -4,7 +4,7 @@
 
 [女童军饼干季](https://thetakeout.com/2022-girl-scout-cookie-season-new-flavors-where-to-buy-1848300204) 正在如火如荼地进行中，所以我们真诚地希望你已经掌握了一切，并且已经在它们消失之前订购了 [冒险家](https://thetakeout.com/new-adventurefuls-girl-scout-cookie-review-taste-test-1847500707) 、 [柠檬](https://thetakeout.com/girl-scout-cookie-season-new-packaging-1848495129)、以及你所有的 [其他](https://thetakeout.com/discontinued-girl-scout-cookies-you-want-to-try-1848533739) [最爱](https://thetakeout.com/most-popular-girl-scout-cookies-in-us-by-state-1848360100) (这里的“消失”，我们指的是“退回到 ALDI 的货架上，那里有它们)虽然我们知道一盒薄薄荷糖的成本有助于支持美国女童子军的重要计划，但有些年我们会在大规模生产的饼干上花费 5-6 美元，等到我们耸耸肩说:“好吧，我们会为孩子们做的，毕竟他们是我们的未来，”珍贵的饼干已经消失了，好像在责备我们的犹豫不决。幸运的是，无论何时发生这种情况，我们都有一个很棒的**薄薄荷糖模仿配方**可以全年享用。
 
-Watch
+
 
 ## 为什么薄薄荷糖是最好的女童子军饼干
 

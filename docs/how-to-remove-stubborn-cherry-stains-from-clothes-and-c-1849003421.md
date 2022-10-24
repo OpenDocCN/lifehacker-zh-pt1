@@ -4,7 +4,7 @@
 
 我不能忍受樱桃。不是它们的味道——它们很好——尽管我从未想过，“哦，伙计，我等不及要吃一碗樱桃了。”它们在水果中无与伦比的能力，几乎一眼就能染到表面、衣服、脸、和手指，这真的让我很不舒服。(尤其是在小孩子的手里，他们在我的房子里做了大多数非常草率的吃樱桃的事情。第一口真的要咬到你的衬衫上*和裤子上*吗？来吧，伙计。冷静点。)
 
-Watch
+
 
 为什么他们会有这样的污点？“就像红酒和许多其他浆果一样，樱桃含有丹宁酸，这种化学物质经常被用作织物染料的试剂，”贝卡·内佩尔鲍姆在 [的助理汉迪](https://www.handy.com/lp/home-cleaning?coupon=GUS39&iv_=__iv_p_1_g_47444548239_w_kwd-13475551_h_9003944_ii__d_c_v__n_g_c_593210096528_l__t__e__r__vi__&utm_campaign=Global_Branded_City_All_All&utm_source=google&utm_medium=cpc&gclid=Cj0KCQjwnNyUBhCZARIsAI9AYlGNOqoaEq-yUDAePwTD5_lEEwOrQEyckYN0fjGgFv8eCRlrADalXfIaAvyJEALw_wcB) ，告诉 [厨房](https://www.thekitchn.com/the-best-way-to-remove-cherry-stains-from-your-clothes-and-your-kitchen-246507) 。这使得樱桃污渍和红酒污渍一样难以去除。
 

@@ -4,7 +4,7 @@
 
 牙膏一般是由化学物质 制成的 [，可以对抗蛀牙，去除牙菌斑，增加味道。碳酸钙等成分有助于分解牙菌斑，但用于口腔卫生的相同化学物质也可以清洁你房子周围的无尽物品。这里有一些不太可能的用途，一团牙膏可以用很长时间。](https://www.deltadentalins.com/oral_health/whats-in-your-toothpaste.html)
 
-Watch
+
 
 ### 去除肥皂泡沫
 

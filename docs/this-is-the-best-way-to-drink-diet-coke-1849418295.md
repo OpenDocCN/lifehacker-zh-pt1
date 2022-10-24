@@ -4,7 +4,7 @@
 
 如果对健怡可乐 的 [崇拜是一个真正的崇拜，我将是它的吱吱叫的 Fromme(完全投入，出奇的热)。我最早的一些美食家记忆是在假期圣经学校将健怡可乐和奥利奥搭配，但我没有意识到这种无卡路里饮料和我的年龄如此接近。银罐本周将满 40 岁，这看起来既太老又太年轻。(巧合的是，这正是我想象的 40 岁的感觉。](https://lifehacker.com/can-i-just-enjoy-this-damn-diet-coke-without-being-heal-1797073517)
 
-Watch
+
 
 在排列图上，健怡可乐是一个混乱的中性物。它的酸味、起泡、振奋人心的性质与甜味和咸味成对——甚至 [感恩节晚餐](https://lifehacker.com/why-diet-coke-is-the-perfect-thanksgiving-beverage-1845688227)——和狂热的健怡可乐爱好者已经知道在早餐、午餐和晚餐享受她。
 

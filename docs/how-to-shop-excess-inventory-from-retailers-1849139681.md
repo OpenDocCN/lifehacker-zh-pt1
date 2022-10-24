@@ -4,7 +4,7 @@
 
 两年多来，一直不缺好，缺。从新冠肺炎疫情之初的 [卫生纸和洗手液](https://lifehacker.com/if-you-need-coronavirus-supplies-try-using-nowinstock-1842429563) ，到现在的 [婴儿配方](https://lifehacker.com/how-to-navigate-the-ongoing-baby-formula-shortage-1848873787) 和 [卫生棉条](https://lifehacker.com/how-to-navigate-the-tampon-shortage-1849077433) ，供应链问题和劳动力短缺使得一些必需品难觅。
 
-Watch
+
 
 但是，尽管零售商正在经历一些商品的短缺，但不断上升的通货膨胀和一些与大流行相关的限制的取消(因此，人们实际上离开了他们的家)的结合，使他们有过多的一些产品，包括服装和家具和电器等大件商品。
 

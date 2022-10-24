@@ -4,7 +4,7 @@
 
 尽管日落很早，冬天寒冷刺骨，我们的朋友太阳仍然在努力工作，充满活力，可以照亮你沉闷的夜晚。天体感觉到我们在地球上感觉很低，甚至释放了一场非常大的磁暴，增加了本月占据天空的 [天体活动的拥挤计划。【T2](https://lifehacker.com/theres-a-lot-going-on-in-space-this-month-1845807595?rev=1607102250492)
 
-Watch
+
 
 由于 12 月 7 日的太阳耀斑和日冕物质抛射(CME)——基本上，当太阳的日冕 [猛烈喷出数十亿吨等离子体](https://www.swpc.noaa.gov/phenomena/coronal-mass-ejections) 以及磁场将物质冲向地球时——北极光将于本周出现在美国的某些角落。
 

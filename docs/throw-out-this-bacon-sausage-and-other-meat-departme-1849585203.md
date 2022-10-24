@@ -4,7 +4,7 @@
 
 美国农业部的 [食品安全和检验局(FSIS)敦促消费者](https://www.fsis.usda.gov/recalls-alerts/behrmann-meat-and-processing-inc--recalls-various-ready-eat-meat-products-due?permalink=DD2E9674145837E231B043D0C327E8A9AD2C83B3523583798EF66E348FF68EF1) 检查他们的储藏室、冰箱和冰柜，看看它们是否含有可能被有害细菌污染的大约 87，00 磅各种即食肉制品。
 
-Watch
+
 
 ## 为什么这些肉会被召回？
 

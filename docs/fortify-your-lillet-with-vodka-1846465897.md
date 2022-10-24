@@ -4,7 +4,7 @@
 
 波特兰和许多其他城市目前正在经历第一波人造春天，它似乎对集体情绪产生了奇迹。就我个人而言，阳光重新唤醒了我对天井 pounders 的渴望——相对低酒精含量的饮料，具有明亮、新鲜的味道，可以狂饮而不会有任何真正不幸的后果。Lillet 恰好是这种鸡尾酒的基础。
 
-Watch
+
 
 Lillet 清爽、香甜、提神，是一种强化的芳香葡萄酒，但这并不意味着它不能用一点伏特加和少量苦味酒来进一步强化。通过混合适量的白百合和少量的伏特加，你会得到一种非常春天般的倒置 [袋鼠情境](https://skillet.lifehacker.com/hop-into-the-weekend-with-a-lemongrass-kangaroo-1827929590) ，除了你用的是白百合而不是苦艾酒。(完全披露: T 虽然我已经买过并且 [写过几次关于](https://lifehacker.com/lillet-and-tonic-is-the-perfect-low-proof-summer-sipper-1834827625) Lillet，但我用来制作这种饮料的这种特殊的瓶子是免费送给我的。)
 

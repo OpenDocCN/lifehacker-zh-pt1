@@ -4,7 +4,7 @@
 
 美国宪法规定，如果总统“无法行使权力和履行职责”,应如何罢免总统。这可能是由于精神疾病或严重的健康问题，但现在也在讨论作为一种可能的方式来剥夺特朗普总统的权力，因为他对大规模选举舞弊的无根据指控引发了暴力。
 
-Watch
+
 
 另一个选择可能是弹劾总统，他仍然任职 [到 2021 年 1 月 20 日中午](https://en.wikipedia.org/wiki/Twentieth_Amendment_to_the_United_States_Constitution) 。弹劾通常需要时间，并涉及听证会，使其在紧急情况下用处不大，尽管众议员伊尔汉·奥马尔 1 月 6 日宣布，弹劾条款正在起草中。我们这里有更多关于 [弹劾过程的](https://lifehacker.com/how-to-impeach-a-president-1834123053) 。
 

@@ -4,7 +4,7 @@
 
 我有一些个人消息:大约三四个月前，我开始吃素。考虑到我已经写了几千字关于 [我有多爱豆腐](https://skillet.lifehacker.com/tofu-freaking-rules-1843024412)[黑豆汉堡](https://skillet.lifehacker.com/how-to-make-a-killer-black-bean-burger-in-30-minutes-1846792837) ，这个“新闻”算不上惊世骇俗，但是随着肉类话语达到狂暴的新高度( [还是深度？](https://earther.gizmodo.com/the-meatless-movement-could-become-a-class-war-1846821660) )每一天，似乎都太相关*而不是*分享。
 
-Watch
+
 
 老实说，这是一个漫长的过程。我从来没有在道德或伦理上反对吃动物——我仍然没有——但资本主义是另一回事，在这一点上，两者没有区别。你不需要我告诉你，工业化肉类生产是全球变暖的巨大促成因素( [和气候否定主义](https://earther.gizmodo.com/how-big-meat-is-funding-climate-denial-and-polluting-th-1846620142) )或者肉类加工公司剥削低薪、通常无证件的劳动力，这几乎是漫画般的邪恶。事实摆在那里，全世界都有目共睹，这可能就是为什么越来越多的人选择少吃肉。
 

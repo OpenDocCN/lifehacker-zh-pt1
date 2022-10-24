@@ -4,7 +4,7 @@
 
 如果你已经多年没有拿出急救箱了，让我祝贺你的好运。但是为了帮助你继续好运，让我也这么说:你应该去检查你的装备，确保它没有过期。美国标准急救箱中的几种产品要么有有效期，要么随着时间的推移会失效。这里列出了你应该多久更换一次 [红十字会批准的急救包](https://www.redcross.org/get-help/how-to-prepare-for-emergencies/anatomy-of-a-first-aid-kit.html) 中的物品。
 
-Watch
+
 
 **绷带。**绷带本身通常没有有效期，但随着时间的推移会失效。根据 [安全设备供应商 EFAS](https://efassafety.com/safety-news/how-long-do-bandages-last/#:~:text=Though%20most%20bandages%20technically%20do,environment%20it%20is%20stored%20in.) 的说法，旧绷带失去了粘合性、吸收性和无菌性。为了避免这种情况，建议您每三到五年更换一次。
 

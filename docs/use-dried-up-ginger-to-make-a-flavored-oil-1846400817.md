@@ -4,7 +4,7 @@
 
 仿佛就在昨天，我把一大块生姜 [扔进我的空气油炸锅](https://lifehacker.com/toss-a-hunk-of-ginger-in-your-air-fryer-1846221741) 里烤它，但这实际上是整整一个月前的事了。尽管我能在几片 [小番茄吐司](https://skillet.lifehacker.com/you-should-make-tiny-tomato-toast-1846239535) 上磨碎它，但我无法在它变成坚硬干瘪的外壳之前吃完整个烤过的根。
 
-Watch
+
 
 这显然并不理想，但是干姜——无论是烤的还是新鲜的——仍然有许多味道滞留在细胞壁内。你所要做的就是把滚烫的油倒在它干瘪的身体上。
 

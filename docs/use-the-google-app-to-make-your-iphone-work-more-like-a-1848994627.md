@@ -4,7 +4,7 @@
 
 iPhone 的 [谷歌应用](https://www.google.com/url?sa=t&rct=j&q=&esrc=s&source=web&cd=&ved=2ahUKEwjj29jmiYn4AhUGp1YBHSBIDBIQFnoECAwQAQ&url=https%3A%2F%2Fapps.apple.com%2Fus%2Fapp%2Fgoogle%2Fid284815942&usg=AOvVaw38l8mLDBJ-zJRyJYQsjza0) 没有得到足够的信任。不，这是会突然把你的 iPhone 变成一个 Android 旗舰，但它*会*让你即时访问一些让 Android 旗舰如此伟大的谷歌功能，你可以调整你的设置，让你的苹果手机更像一个运行 Alphabet 软件的手机。
 
-Watch
+
 
 这样做至少有一个很好的理由:谷歌助手。谷歌助手在几乎所有可以想象到的方面都比 Siri 好(唯一的例外是当你单独执行任务时类似于苹果操作系统的 la ，比如给某人面部计时或者设置闹钟)。
 

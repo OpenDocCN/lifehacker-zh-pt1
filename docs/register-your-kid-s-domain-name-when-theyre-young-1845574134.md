@@ -4,7 +4,7 @@
 
 当你的孩子还小的时候，你不可能知道他们将来会成为什么样的人。但是不管他们将来追求什么样的才能、技能或兴趣，他们很有可能会想要一个个性化的网站来支持或推广某些东西。他们可能想在网上收藏自己的绘画作品、业余电影或畅销小说。也许他们会想避开 LinkedIn，转而使用自己的在线简历。但如果他们的名字是萨姆·布鲁尔，而 sambrewer.com 已经名花有主，他们会很失望。
 
-Watch
+
 
 (我编造了这个名字，但后来 [我变得很好奇，搜索了](https://www.godaddy.com/domainsearch/find?checkAvail=1&domainToCheck=sambrewer.com) 和 [已经有人用了](https://www.sambrewer.com/) ，所以如果你一直在等那个，那就太晚了。)
 

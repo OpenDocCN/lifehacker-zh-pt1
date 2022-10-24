@@ -4,7 +4,7 @@
 
 对于向需要更好网络的朋友或家人推荐网状 wifi 解决方案，我总是很谨慎。自从搬到一所房子后，网状 wifi 显著改善了我的生活，因此我觉得有责任带领他人充分利用他们的互联网。但是，即使是像 [Eero 6](https://gizmodo.com/amazons-eero-6-is-the-cure-for-your-stuck-at-home-inter-1845690149) 这样的入门级网状设备，三个一包的价格也要 280 美元，这让许多人望而却步，尤其是那些可能已经难以支付所需宽带费用的人。
 
-Watch
+
 
 这就是为什么我对检验 [Vilo Mesh Wi-Fi 系统](https://www.viloliving.com/) 感兴趣。这是一个网状 wifi 路由器，价格仅为 20 美元，但功能和性能与价格高得多的 Eero 或 TP-Link Deco 设备相似。 [Vilo Mesh Wi-Fi 系统](https://www.amazon.com/dp/B095RJBKTN?asc_campaign=InlineText&asc_refurl=https://gizmodo.com/this-is-the-cheapest-way-to-get-good-mesh-wifi-in-your-1847248491&asc_source=&linkCode=ogi&psc=1&smid=A1UVUD6114IWOI&tag=kinjagizmodolink-20&th=1) 没有太多的天赋，但不要把它的简单误认为无用。网状网路由器系统令人印象深刻地能够用于价格低于 100 美元 的 [产品。](https://www.amazon.com/dp/B09252352F?asc_campaign=InlineText&asc_refurl=https://gizmodo.com/this-is-the-cheapest-way-to-get-good-mesh-wifi-in-your-1847248491&asc_source=&linkCode=ogi&psc=1&smid=A1UVUD6114IWOI&tag=kinjagizmodolink-20&th=1)
 

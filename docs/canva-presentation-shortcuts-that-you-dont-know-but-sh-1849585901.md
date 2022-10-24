@@ -4,7 +4,7 @@
 
 做一个 p 演讲卡牌可能很难，但是在你演讲的时候做一个引人入胜、富有知识性、有趣的可能更难。你可能会求助于 PowerPoint 或 Google Slides ，但你也应该考虑一下 [Canva](http://www.canva.com) ，它最近一直在推广新的命令功能。当然，如果 [你赶时间](https://lifehacker.com/how-to-make-a-last-minute-presentation-deck-1849530466) 千万不要换新软件，但是如果你有时间摆弄新程序，你应该检查一下这些命令，看看它们是否适合你希望给出的演示风格。
 
-Watch
+
 
 ## **使用 Canva 的命令快捷键**
 

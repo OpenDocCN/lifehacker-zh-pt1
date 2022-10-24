@@ -4,7 +4,7 @@
 
 世界正处于地缘政治模式转变的边缘，同时仍在全球疫情中蹒跚前行。传统市场 [变得不安](https://www.fool.co.uk/2022/02/22/could-growing-economic-uncertainty-cause-a-stock-market-crash/) 而新兴市场看起来已经处于 [自由落体模式](https://www.forbes.com/sites/billybambrough/2022/02/21/peak-stupid-cataclysmic-market-warning-issued-as-the-price-of-bitcoin-and-ethereum-crash/?sh=1af51315317f) 。正如他们所说，这是有趣的时代。
 
-Watch
+
 
 "这将如何影响我的 401(k) ？"这可能看起来是一个愚蠢的问题，但是如果你像我一样是一个普通的小投资者，焦虑是一个合理的反应——我不想在退休后挨饿。因此，我在网上寻找一些建议，如何应对在有趣的时期投资的紧张恐惧，并带回以下内容与你分享。
 

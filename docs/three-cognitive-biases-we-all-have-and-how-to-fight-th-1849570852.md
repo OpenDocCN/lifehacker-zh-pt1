@@ -4,7 +4,7 @@
 
 尽管我们可以感觉到，但头脑能够以多种方式欺骗我们，其中一种方式是通过 [认知偏差](https://www.verywellmind.com/what-is-a-cognitive-bias-2794963) 。认知偏差是一种系统性思维错误，当大脑试图简化它正在处理和解释的信息时发生，这可能会影响我们做出的决定和判断。正如耶鲁大学心理学教授[Woo-Kyoung Ahn](https://psychology.yale.edu/people/woo-kyoung-ahn)最近向[【NPR】](https://www.npr.org/2022/09/13/1122660697/3-common-thinking-traps-and-how-to-avoid-them-according-to-a-yale-psychologist)解释的那样，认知偏见可能帮助我们的祖先做出快速决策以生存——但是现在，这些偏见可能对我们不利。
 
-Watch
+
 
 ## 最常见的认知偏差是什么？
 

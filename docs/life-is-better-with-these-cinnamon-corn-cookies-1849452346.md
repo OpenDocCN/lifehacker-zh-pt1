@@ -4,7 +4,7 @@
 
 世界上有这么多美味的玉米，我想是时候增加甜点了。玉米有多种用途，可以做 [、香草沙拉](https://www.epicurious.com/recipes/food/views/herby-corn-salad-51242030) 、 [、裹着玉米酱](https://lifehacker.com/savor-the-summer-with-mexican-street-corn-1796746553) 、放在排骨旁边或，但不可否认它也很甜。我本质上是一个甜点女孩，所以多抓一只耳朵或一袋冷冻的东西，让我们做一些饼干。
 
-Watch
+
 
 我开始琢磨玉米和肉桂的混合口味。对我来说，他们似乎是合适的组合，就像库尔特·拉塞尔和戈尔迪·霍恩——有一会儿令人惊讶，但一点也不奇怪。肉桂和玉米是中美洲和南美洲甜点的流行组合，在我的研究中，我受到了的启发，这是一种稠玉米饮料，配方略有不同，来自多个国家，包括 [墨西哥](https://www.curiouscuisiniere.com/mexican-atole/) 、 [危地马拉](https://www.saveur.com/atol-de-elote-sweet-corn-milk-drink-recipe/) 和 [萨尔瓦多](https://www.elsalvadortips.com/atol-de-elote) 。它被一遍又一遍地描述为极其舒适，这正是我所寻找的。我不想做像 [玉米冰淇淋](https://www.baking-sense.com/2016/08/07/sweet-corn-ice-cream/) 这样的甜点，或者其他需要浸泡和过滤的冷玉米牛奶甜点，我想要一些容易接近和手持的东西。一些你可以坐在沙发上半躺着吃的东西(我喜欢的吃相)。
 

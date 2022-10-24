@@ -4,7 +4,7 @@
 
 很少有孩子能够拒绝一个好的科学实验，我总是发现最好的实验是那些容易建立的实验，使用你家里已经有的材料，对你来说就像对他们来说一样有趣。这也是我忍不住尝试这个来自 [PBS Kids](https://www.pbs.org/parents/crafts-and-experiments/experiment-with-walking-water) 的“走水”实验的原因——果然没有让人失望。
 
-Watch
+
 
 要开始，你需要最简单的材料:
 

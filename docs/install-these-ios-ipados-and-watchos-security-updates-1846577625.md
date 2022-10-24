@@ -4,7 +4,7 @@
 
 苹果在周末发布了 iPhone、iPad 和 Apple Watch 的补丁，所有用户都应该立即安装。这些补丁修复了黑客正在积极利用的危险的零日漏洞。
 
-Watch
+
 
 谷歌威胁分析团队的 Clement Lecigne 和 Billy Leonard 发现了苹果所有产品上 Safari 浏览器引擎的一个漏洞。
 

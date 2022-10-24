@@ -4,7 +4,7 @@
 
 你被 Instagram 上的“我正在竞选一个影响者计划 [的大使职位”的骗局击中过吗？这是一个计划，其中你的一个 Instagram“朋友”要求你通过在一个虚假的比赛中为他们投票来帮助他们——骗子们在欺骗人们的尝试中变得越来越复杂。](https://windsor.ctvnews.ca/instagram-scam-using-real-accounts-to-trick-victims-seemingly-on-the-rise-1.5909619#:~:text=Using%20a%20personal%20account%2C%20the,click%20on%20the%20link%20itself.) 
 
-Watch
+
 
 风险来自投票:骗子会通过给你发送一个个性化的链接来要求你投票...这实际上是你账户的重置密码网址。骗子会要求你发回链接的截图，但不要点击。如果你同意，他们将在他们那端手动输入 URL 并访问你的帐户，此时他们可以重置你的密码，将你锁定，并与你的朋友和家人重复该过程。
 

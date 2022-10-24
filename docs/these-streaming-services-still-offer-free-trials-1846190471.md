@@ -4,7 +4,7 @@
 
 人们看了很多流媒体电视(平均每人订阅五个流媒体服务),但我们越来越多的人也成为了“打了就跑”的订户，在过去的六个月里至少取消了一个服务，根据德勤 的说法是 [。其中一部分是与成本相关的——所有的月租费。另外，当你在其他地方获得免费试用时，为什么要为内容付费呢？以下是主要流媒体服务免费试用的现状。](https://www2.deloitte.com/us/en/insights/industry/technology/video-streaming-services-churn-rate.html/#endnote-10) 
 
-Watch
+
 
 ## 提供免费试用标准的服务
 

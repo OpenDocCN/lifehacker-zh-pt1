@@ -4,7 +4,7 @@
 
 微软正在其 Authenticator 应用程序中测试一种新的密码管理功能，这使得前者作为所有帐户相关信息的一站式商店更加有用。它非常容易设置，而且你可以在 iOS 和 Android 上同步你的密码，也可以在你的桌面上同步 Chrome 和 Edge。
 
-Watch
+
 
 要开始，抓取(或更新) [**微软认证器**](https://www.microsoft.com/en-us/account/authenticator) app。使用你的 Microsoft 帐户登录，你现在可以将应用本身用作基于密钥的验证器(或点击允许验证器)。我已经是粉丝了。
 

@@ -4,7 +4,7 @@
 
 我们都知道洗碗精在对付盘子、罐子和餐具上的变硬的食物、油脂和污垢时的荣耀(你们都 [爱你的黎明](https://lifehacker.com/20-name-brand-products-worth-choosing-over-the-generic-1847929610/slides/2) )。但是你知道它在房子周围的无数潜在的其他用途吗？从去除污渍到控制果蝇，看看液体洗洁精的诸多神奇之处。
 
-Watch
+
 
 ## 去除衣服和地毯上的油渍
 

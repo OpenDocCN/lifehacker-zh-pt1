@@ -6,7 +6,7 @@
 
 **7-Eleven** 顾客可以花 1 美元购买一杯小思乐冰饮料，通过他们的应用程序订购时， [可以免费获得四个迷你玉米卷](http://www.elpasoinc.com/news/state/7-eleven-spices-up-cinco-de-mayo-with-dollar-slurpee-free-mini-taco-deal-in/article_d7727764-edc8-5b74-8740-cdbf3609172b.html) 。
 
-Watch
+
 
 **阿布罗的**是 [提供](https://www.prnewswire.com/news-releases/abuelos-celebrates-cinco-de-mayo-2021-with-festive-drink-specials-all-day-and-a-fundraiser-to-help-end-childhood-hunger-301280262.html) 全天特色饮品，包括 8.95 美元的国旗玛格丽塔酒和 5 美元的玛格丽塔酒，外加一个免费的摇酒器购买 El Jefe 玛格丽塔酒可以带回家。
 

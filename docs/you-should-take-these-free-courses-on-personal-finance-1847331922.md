@@ -8,7 +8,7 @@
 
 这个 LinkedI n 课程很容易开始，因为它只有一个多小时，解释了关于银行、信用评分、股票市场、保险和退休储蓄的基础知识。30 天的 LinkedI n 学习试用期是免费的，之后你每月支付 29.99 美元，或每年订阅 19.99 美元(如果你只对这一门课程感兴趣，别忘了取消试用)。 [点击这里了解更多信息](https://www.linkedin.com/learning/financial-basics-everyone-should-know) 。
 
-Watch
+
 
 ## **Alison.com 的金融素养课程**
 

@@ -4,7 +4,7 @@
 
 受人喜爱的社交媒体音乐网站 Turntable.fm 在 2013 年被关闭近八年后，出人意料地卷土重来。其实有*两个*新版本:最初的 [Turntable.fm](https://turntable.fm/) ，最近由创始人比利·蔡森复活，以及专注于移动的[Turntable.org](https://turntable.org/)，由几位 Turntable.fm 校友创建。
 
-Watch
+
 
 虽然这两种服务都允许用户创建个性化的头像，主持或加入在线收听聚会，但它们在商业模式、功能和可用性方面有所不同。
 

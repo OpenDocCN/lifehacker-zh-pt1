@@ -6,7 +6,7 @@
 
 以下是 2022 年需要预订的一些最受欢迎的国家公园的详细信息。
 
-Watch
+
 
 ## [冰川国家公园](https://www.nps.gov/glac/planyourvisit/gtsrticketedentry.htm)
 

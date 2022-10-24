@@ -4,7 +4,7 @@
 
 我不相信声称不喜欢意大利面沙拉的人。面食不错，[mayonnaise](https://lifehacker.com/9-ways-to-unlock-the-power-of-mayonnaise-1847114226)也是。通常还会有其他成分，不是意大利面或蛋黄酱，它们也很好。有时候天气太热，吃不下一碗热气腾腾的意大利面，但我该怎么办呢？六月底到九月初不吃面食？不，我要吃意大利面沙拉。
 
-Watch
+
 
 就形状而言，我是经典通心粉肘子的忠实粉丝，但任何面条都可以(特别是如果你 [过度烹饪](https://lifehacker.com/imperfect-pasta-is-the-secret-to-perfect-pasta-salad-1834981171) )。但是一种新的面食威胁着沙拉的宝座，这种面食就是 T4 汤团。
 

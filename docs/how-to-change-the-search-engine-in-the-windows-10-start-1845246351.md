@@ -4,7 +4,7 @@
 
 如果你不喜欢 Bing，那么你一定非常讨厌 Windows 10 开始菜单的网页搜索。 [你可能甚至有它完全禁用](https://lifehacker.com/how-to-disable-bing-search-in-windows-10s-start-menu-1720761074) 。我们不怪你，但是有第二种选择可以让你两全其美:从你的开始菜单使用完全不同的搜索引擎搜索网页。
 
-Watch
+
 
 是的，你可以在开始菜单中用谷歌(或另一个搜索引擎)而不是进行搜索，但你需要第三方软件的帮助才能到达那里。有少数开源应用程序可以做到这一点，但[**Search Deflector**](https://github.com/spikespaz/search-deflector)是少数仍然受到积极支持且使用简单的应用程序。
 

@@ -4,7 +4,7 @@
 
 [最新的 Xbox Insider 计划更新](https://www.onmsft.com/news/select-xbox-insiders-can-play-free-to-play-games-without-xbox-live-gold-starting-today) 取消了 Xbox Insider Alpha&Alpha Skip Ahead ring 中用户免费玩(F2P) Xbox 游戏的 Xbox Live 金牌要求。这一变化将在未来几周内推广到其他 Xbox 内部人员级别，并希望很快推广到其他所有人。
 
-Watch
+
 
 这对玩家来说是一个巨大的好处——毕竟，如果你必须支付订阅费才能在线玩游戏，那么游戏就不是真正免费的。它还将使微软与任天堂和索尼保持同步，这两家公司允许玩家在 F2P 游戏中进入多人模式，而无需订阅各自的在线服务。
 

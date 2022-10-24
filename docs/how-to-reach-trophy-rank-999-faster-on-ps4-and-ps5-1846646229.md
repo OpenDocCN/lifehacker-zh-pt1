@@ -4,7 +4,7 @@
 
 想要提高您的 PlayStation 奖杯排名并证明您的游戏实力吗？然后你需要收集白金奖杯。白金奖杯是许多玩家的荣誉徽章，标志着你完成了游戏提供的每一个挑战。
 
-Watch
+
 
 它们还会提升你的 PlayStation Network 的奖杯排名，使其高于铜牌、银牌或金牌奖杯。继去年索尼 [对奖杯系统的彻底改革](https://blog.playstation.com/2020/10/07/upcoming-trophy-levelling-changes-detailed/) 之后，它们比以往任何时候都更有价值——但同样难以获得。
 

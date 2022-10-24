@@ -4,7 +4,7 @@
 
 T-Mobile [证实了一个安全漏洞](https://www.t-mobile.com/news/network/additional-information-regarding-2021-cyberattack-investigation) 泄露了超过 4800 万当前、以前和未来用户的信息。T-Mobile 表示，它关闭了黑客用来访问文件的服务器漏洞，但泄露的信息现在在网上出售。
 
-Watch
+
 
 据出售数据库的黑客称，该数据库包括 780 多万后付费用户、85 万预付费客户和 4000 多万“过去或潜在”客户的姓名、出生日期、社会保险号和驾照号，以及 780 万后付费用户中一些人的帐户 pin。
 

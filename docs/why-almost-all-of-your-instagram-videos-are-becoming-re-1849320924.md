@@ -4,7 +4,7 @@
 
 如果你没有注意到，Instagram 正在非常努力地推动 Reels——它的应用内抖音克隆— *。自从 Reels 在 2020 年推出以来，Meta 拥有的图片分享应用几乎一直在恳求人们使用这一功能(并且 [不只是在那里转发他们自己的 TikToks](https://lifehacker.com/think-twice-before-reposting-your-tiktok-to-instagram-r-1846242508) )。无论你是否真的创造了任何卷轴，你很快就没有选择了:在接下来的几周内，如果你发布一个不到 15 分钟的视频， [它将是一个卷轴](https://about.instagram.com/blog/announcements/introducing-new-ways-to-collaborate-and-create-with-reels) 。以下是你需要知道的。* 
 
-Watch
+
 
 ## **什么是卷轴？**
 

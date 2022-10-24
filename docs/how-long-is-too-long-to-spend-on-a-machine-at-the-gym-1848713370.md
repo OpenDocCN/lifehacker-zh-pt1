@@ -4,7 +4,7 @@
 
 如果你是去健身房的新手，我们有 [一整套基本的，可能会在你脑海中出现的尴尬问题的指南](https://lifehacker.com/what-to-expect-the-first-time-you-go-to-the-gym-1848315805) 。但是今天我们要关注一个更普遍的问题:在一台机器上花费多长时间是可以的？
 
-Watch
+
 
 ## 人们在有氧健身器上花费多长时间？
 

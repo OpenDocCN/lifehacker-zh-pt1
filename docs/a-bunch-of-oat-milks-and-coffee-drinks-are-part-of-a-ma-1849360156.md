@@ -4,7 +4,7 @@
 
 **更新，8 月 17 日:**下面描述的召回再次扩大到包括流行燕麦牛奶品牌 Oatly 的两种产品——标准和巧克力燕麦牛奶。该品牌的“咖啡师版”燕麦牛奶于 7 月底被列入最初召回的。
 
-Watch
+
 
 这次召回之前的 [于 8 月 11 日扩大到](https://www.fda.gov/safety/recalls-market-withdrawals-safety-alerts/lyons-magnus-expands-voluntary-recall-include-additional-nutritional-and-beverage-products-due) ，包括里昂咖啡师风格的甜奶油 Frappé Base、Cafe Grumpy、Tone It Up、rainbut、Organic Valley、Sated、renaissance 等等。你可以在 [FDA 的公告上点击](https://www.fda.gov/safety/recalls-market-withdrawals-safety-alerts/lyons-magnus-voluntarily-recalls-53-nutritional-and-beverage-products-due-potential-microbial) 阅读召回产品的完整列表及其批号。原文如下。
 

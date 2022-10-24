@@ -4,7 +4,7 @@
 
 上周是 [氟罗娜](https://lifehacker.com/what-is-flurona-and-should-we-be-worried-about-it-1848320894)T3。本周的主题是“deltacron”当我们听到一个新的变种时，我们已经准备好去“哦，妈的”,因为我们已经被相当多的变种烧伤了。但是这些可怕的名字比我们*实际上需要害怕的东西还要多。* 
 
-Watch
+
 
 不久前，我们被警告说“ [”德尔塔加上](https://lifehacker.com/the-difference-between-delta-delta-plus-and-lambda-a-1847423234)“T3。”这最终不了了之。另一方面，德尔塔是真实的，它的尖峰信号尤其糟糕，至今仍未消失。奥米克隆是真实的，而且肯定仍然是一个问题。那么，我们如何知道需要担心哪些变体呢？ 
 

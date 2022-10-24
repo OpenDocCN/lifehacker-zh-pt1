@@ -4,7 +4,7 @@
 
 在经历了一个我们许多人都待在家里的假期之后(咳咳，2020 年)，2021 年的感恩节是 [预计会为各种旅行](https://www.nytimes.com/2021/11/02/travel/holiday-travel-tips.html) 而忙碌。这意味着高速公路和机场可能比最近记忆中的任何时候都更加拥挤，延误和中断是不可避免的。
 
-Watch
+
 
 不过，如果你开车，并且在旅行计划上有一定的灵活性，你也许可以通过在非高峰时间上路来避免最糟糕的交通状况。以下是这个假期周末最糟糕的旅行时间， [根据 AAA](https://newsroom.aaa.com/2021/11/buckle-up-aaa-predicts-thanksgiving-travel-to-rebound-almost-to-pre-pandemic-levels/) :
 

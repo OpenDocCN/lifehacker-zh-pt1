@@ -4,7 +4,7 @@
 
 这可能会让我们觉得，在疫情，我们已经到了这样的地步，我们已经想不出如何改变现状，如何在我们的四面墙内变出一些新鲜的欢乐。但是如果你还没有建造你自己的室内球坑，你至少还有一个锦囊妙计。
 
-Watch
+
 
 我从 [的 Shari Medini 那里得到这个想法，Adore Them Parenting](https://adorethemparenting.com) (也是即将出版的书[*Parenting While work From Home*](https://adorethemparenting.com/book))的合著者)。她写信给我，给有小孩的父母提出了这个想法:“用一个充气的儿童游泳池和你放在房子周围的任何球来创造一个室内球坑。初学走路的孩子特别喜欢把球扔进扔出，然后在里面爬行。”
 

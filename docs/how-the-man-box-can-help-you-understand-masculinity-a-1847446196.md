@@ -4,7 +4,7 @@
 
 许多男人是 [被社会对男性](https://www.theatlantic.com/health/archive/2019/02/toxic-masculinity-history/583411/) 的期望所困扰。这就是为什么 [许多男人拒绝治疗，](https://lifehacker.com/why-men-resist-going-to-therapy-and-why-we-shouldnt-1846328708) 让他们的情感斗争在表面下冒泡直到不可避免地沸腾， [有时以虐待行为的形式](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC3532855/) 。男人必须成为勇敢、力量、决心的典范，而且绝不能表现出伤害或脆弱，这种想法听起来很老套，但它仍然非常明显，建立在几个世纪的社会制约之上——你可以把所有这些有害的规范视为存在于的一个形象化的盒子里。
 
-Watch
+
 
 ## 什么是' m an b ox？
 

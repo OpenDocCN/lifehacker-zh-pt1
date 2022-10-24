@@ -4,7 +4,7 @@
 
 Spotlight Search 是 Mac 的内置搜索功能。当你使用 Command + Space 键盘快捷键时，或者当你点击菜单栏中的搜索图标在你的机器的某个地方寻找一个文件时，它就会出现。
 
-Watch
+
 
 就内置搜索功能而言，Spotlight Search 相当不错。它可以很好地打开应用程序、文件和文件夹。你可以用它来 [搜索网页](https://lifehacker.com/google-directly-from-macos-spotlight-using-this-keyboar-1828089195) ，做计算和转换，查定义等等。
 

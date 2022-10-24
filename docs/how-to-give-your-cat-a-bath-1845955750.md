@@ -4,7 +4,7 @@
 
 拥有一只猫有很多事情是容易和没有压力的。猫是独居动物，通常不像狗那样需要持续的关注和情感支持。他们是流浪者，他们的夜间睡眠周期在深夜给他们带来令人讨厌的能量爆发。它们在角落里的一个盒子里便便，不会要求在早上 5 点被带到外面撒尿，但是给猫洗澡——任何猫——可能会感觉像是一项永无止境的任务，因为你的猫朋友会扭动、蠕动，并在第一次看到水和肥皂水晃动的迹象时伸出爪子表示抗议。
 
-Watch
+
 
 这与其说是一种可能性，不如说是一种给定的可能性； [大多数猫咪不喜欢洗澡](https://www.purina.co.uk/cats/health-and-nutrition/grooming-and-daily-care/do-cats-need-baths#:~:text=Most%20cats%20really%20dislike%20baths,getting%20their%20entire%20body%20wet.&text=However%2C%20if%20your%20cat%20needs,them%20to%20the%20vet%20first.) ，所以你用肥皂和温水给它们洗澡的努力很可能会遭到激烈的反对。猫总是自己洗澡，所以一定要花些时间考虑一下你是否有必要给你的猫洗澡。如果这件事必须要做，这里有一些让它变得相对容易的方法。 [鱼。](https://www.youtube.com/watch?v=DTcC7BvD7cw)
 

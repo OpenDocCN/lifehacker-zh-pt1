@@ -4,7 +4,7 @@
 
 美国食品药品监督管理局【FDA】报道，至少有四名婴儿因与雅培、Alimentum 和 EleCare 婴儿配方奶粉有关的细菌感染而住院，促使他们自愿召回。还报告了一例死亡，但目前尚未确认仅是由于细菌感染。
 
-Watch
+
 
 FDA 目前正在调查雅培营养品公司位于密歇根州斯特吉斯的工厂——所有召回产品都是在那里生产的——但与此同时， [已经发布了一项建议](https://www.fda.gov/food/outbreaks-foodborne-illness/fda-investigation-cronobacter-and-salmonella-complaints-powdered-infant-formula-february-2022) 告诉人们停止使用和购买召回的配方奶粉。这发生在 [婴儿配方奶粉由于劳动力短缺已经供不应求的时候](https://www.healthychildren.org/English/tips-tools/ask-the-pediatrician/Pages/Are-there-shortages-of-infant-formula-due-to-COVID-19.aspx) 。
 

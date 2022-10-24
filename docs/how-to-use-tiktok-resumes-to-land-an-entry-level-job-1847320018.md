@@ -4,7 +4,7 @@
 
 抖音想给你提供的不仅仅是简单的无脑娱乐——现在它还想通过邀请用户提交来自 Chipotle 或 Target 等参与公司的视频简历来 [帮你找工作](https://newsroom.tiktok.com/en-us/find-a-job-with-tiktok-resumes) 。这个名为“抖音简历”的试点项目主要面向那些在大学毕业后寻找初级职位的 Z 世代求职者。以下是你需要知道的。
 
-Watch
+
 
 ## **什么是抖音简历？**
 

@@ -4,7 +4,7 @@
 
 当你在杂货店购买食物时，你会充满信心地认为它已经过检验，因此对你来说 [或许](https://lifehacker.com/c/refunds-and-recalls) 是安全的。当然，食品生产和分配涉及许多不同的步骤——每一步都有出错的可能——所以总有一些东西可能会被遗漏。目前，这种东西是由 Avanza Pasta 有限责任公司生产的冷冻面食产品。总部设在伊利诺伊州埃文斯顿。
 
-Watch
+
 
 周六， [该公司召回了](https://www.fsis.usda.gov/recalls-alerts/avanza-pasta-llc-recalls-beef-and-poultry-products-produced-without-benefit) 大约 2237 磅肉类和家禽面食产品，因为它们——正如美国农业部食品安全和检验局(FSIS)委婉地指出的那样——“没有经过联邦检验就生产出来了。”以下是关于此次召回需要了解的内容，包括受影响的具体品牌以及在哪里销售。
 

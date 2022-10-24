@@ -4,7 +4,7 @@
 
 当我为我的第一艘皮艇购物，并讨论从 250 美元起的选择时，我偶然发现了一艘 99 美元的充气皮艇，它似乎好得令人难以置信。我想，那里的*一定会有*成为抢手货。*不可能*这是一艘真正的船。后来，在我买了真正的皮艇后，我注意到充气皮艇降价到了 50 美元。我抢购了它。我必须知道。
 
-Watch
+
 
 我买的是一辆 [Intex K1 挑战者](https://intexcorp.com/products/sporting-goods/sport-series-boats/challenger-k1-kayak/) 。在我得到它的两三年里，我注意到越来越多的充气皮艇出现在当地的湖边，其中大多数与我的是同一个品牌。双人 [K2 探险者](https://intexcorp.com/products/sporting-goods/sport-series-boats/explorer-k2-kayak/) 也是热门；我见过孩子们用它们钓鱼，情侣们喜欢用它们在湖边戏水。
 

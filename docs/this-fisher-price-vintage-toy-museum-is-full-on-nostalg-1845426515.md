@@ -4,7 +4,7 @@
 
 现在世界上有很多丑陋的事情，尤其是对我们这些即将迎来近年来最可怕的选举的美国人来说。(不过，我已经投票了，所以当一切结束时，请有人叫醒我。)然而，你不需要我来提醒你现在充斥的仇恨和无知。不，你需要我帮你转移注意力。所以这里有一些 [老式费雪玩具](https://www.instagram.com/fisherprice.toymuseum) 会让你怀念我们现在意识到要简单得多的——如果不一定是*更好的*——时代。
 
-Watch
+
 
 费雪创建了一个 [“玩具博物馆”Instagram 账户](https://www.instagram.com/fisherprice.toymuseum) ，展示该公司每十年最受欢迎的玩具，从 20 世纪 30 年代开始，一直到 21 世纪 10 年代。许多这样的玩具今天仍在生产，尽管样式更时髦、更现代。这就是为什么看 1968 年玩具制造商的 [原始农场](https://www.instagram.com/p/CGOTiMEAUAP) (那头牛比今天的 [牛](https://www.fisher-price.com/en-us/product/little-people-caring-for-animals-farm-glt78) 更可爱，尽管，我必须说)。
 

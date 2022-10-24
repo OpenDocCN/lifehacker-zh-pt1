@@ -4,7 +4,7 @@
 
 iOS 14.6 更新引入了很酷的新东西 ，比如用语音命令解锁你的 iPhone，以及面向家庭群体的 Apple Pay 新功能。它似乎还会破坏你的 iPhone 的电池性能。
 
-Watch
+
 
 在 iOs 14.6 推出后的几天里，大量 iPhone 用户报告电池寿命突然下降，甚至过热。从社交媒体 的 [苹果支持论坛](https://discussions.apple.com/thread/252800088)[Reddit](https://www.reddit.com/r/apple/comments/nkw7dr/ios_146_causing_excessive_battery_drain_heat/)和 [上的许多帖子来看，这个问题非常普遍。](https://twitter.com/iAppleBytes/status/1399436495589720075) 
 

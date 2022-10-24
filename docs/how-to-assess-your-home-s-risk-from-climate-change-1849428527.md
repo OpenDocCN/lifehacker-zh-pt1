@@ -4,7 +4,7 @@
 
 似乎我们几天之内都不会没有关于气候危机的令人担忧的头条新闻——从加州的 [即将到来的“大风暴”](https://www.nytimes.com/interactive/2022/08/12/climate/california-rain-storm.html)到犹他州酝酿的 [【环境核弹】](https://www.nytimes.com/2022/06/07/climate/salt-lake-city-climate-disaster.html)到 [数据表明](https://www.washingtonpost.com/climate-environment/interactive/2022/extreme-heat-risk-map-us/) 极端温度(超过 100 华氏度)很可能在未来更长时间内更频繁地发生，并遍及美国更多地区
 
-Watch
+
 
 虽然这些环境问题影响到每个人，但预计它们也会对人口增长热点地区产生重大影响。例如，危险的热浪预计将特别严重地袭击亚利桑那州、德克萨斯州和佛罗里达州。(得克萨斯 [过去十年增加了最多的居民](https://www.pewtrusts.org/en/research-and-analysis/articles/2022/04/25/a-third-of-states-lost-population-in-2021) )。)
 

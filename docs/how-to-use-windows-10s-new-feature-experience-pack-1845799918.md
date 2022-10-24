@@ -4,7 +4,7 @@
 
 准备好接受更多 Windows 10 功能了吗？微软现在正在测试一个新的“功能体验”程序，它将在常规的可能会破坏你的电脑的大更新节奏之外，给 Windows 10 添加一些小的额外功能。换句话说，这是微软给你新玩具玩的一种方式，除了它为 Windows 10 发布的一年两次的更新。
 
-Watch
+
 
 微软首个 Windows 10“功能体验包”目前面向 Windows 10 内部人员。我在“beta channel”赛道，昨天刚看到在 Windows Update 弹出的包；我怀疑对于那些在 Windows Insider“开发”频道中生活在野外的人来说也是如此，但是那些在“发布预览”频道 [中最小化风险的人还不会有包装](https://blogs.windows.com/windows-insider/2020/11/30/releasing-windows-feature-experience-pack-120-2212-1070-0-to-the-beta-channel/) 。
 

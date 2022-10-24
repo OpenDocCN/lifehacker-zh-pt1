@@ -4,7 +4,7 @@
 
 大家好，欢迎回到 Prix Fixed， [Lifehacker 的菜单-规划建议栏目](https://lifehacker.com/food-drink/cooking/prix-fixed) 。
 
-Watch
+
 
 本周的电子邮件是关于父亲节晚餐的请求，可以由三(3)个 12 岁的孩子准备，我对此非常兴奋:
 

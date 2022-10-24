@@ -4,7 +4,7 @@
 
 面具可能会脱落，镜头可能会进入武器，但我们仍能感受到新冠肺炎疫情对制造业和航运业的影响。除了像 [电器](https://www.bobvila.com/articles/appliance-shortage/)[木材](https://www.bobvila.com/slideshow/9-building-materials-with-the-biggest-pandemic-price-increase-and-what-that-means-for-diyers-578671) 之类的东西，游泳池用的氯药片也短缺。以下是发生这种情况的原因，以及你可以用什么来代替难以获得的平板电脑。
 
-Watch
+
 
 ## 2021 年为什么会出现氯荒？
 

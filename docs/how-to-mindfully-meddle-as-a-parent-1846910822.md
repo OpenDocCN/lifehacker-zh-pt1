@@ -4,7 +4,7 @@
 
 在这种育儿方式的一端是“ [”直升机父母](https://offspring.lifehacker.com/how-to-stop-helicopter-parenting-1845091145) ”,他们时刻保持警惕，试图保护他们的孩子免受任何事情的伤害。在另一端，我们有“ [”自由放养的父母](https://offspring.lifehacker.com/how-to-start-a-neighborhood-pack-for-your-kids-1834213951) ”，他们让自己的孩子四处游荡——就像我们在美好的旧时光里所做的那样，那时我们只是偶尔回家吃点三明治，或者在黄昏时街灯亮起。但是在这两个极端之间有一个中间地带，正如一位儿科神经心理学家所描述的，是父母有意干预。
 
-Watch
+
 
 ## 什么是正念干涉？
 

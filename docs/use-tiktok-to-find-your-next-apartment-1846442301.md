@@ -4,7 +4,7 @@
 
 从用餐计划到高端时尚，一切都在社交媒体上出售，所以你可能不会惊讶于美国广播公司新闻报道的千禧一代正在使用视频应用程序抖音寻找公寓。我想起了 Craigslist 如何成为廉价在线租赁的领导者，然后因充满骗局的房源而获得了的恶名，但抖音并没有充斥着粗略的房地产交易，在这些交易中，你可能会觉得有必要带一个保镖去看房子——至少目前没有。相反，它正在成为一个寻找高端公寓出租的地方。
 
-Watch
+
 
 Highline Residential 的经纪人麦迪逊·萨顿(Madison Sutton)告诉 [彭博财富](https://www.bloomberg.com/news/articles/2021-03-05/manhattan-s-real-estate-agents-take-up-tiktok-to-find-renters) 在隔离期间，通过 TikTo k 获得的交易占了她的全部业务。无论你是在寻找一个新的住处，还是像 Zillow 网站上那样浏览橱窗，以下是如何将抖音加入你的找房子行列的方法。
 

@@ -4,7 +4,7 @@
 
 提交 2021 年纳税申报表的申报截止日期即将到来，即 2022 年 4 月 18 日星期一。我们中的一些人尽快提交了，而其他人目前正忙于在未来两周内完成。购买 f 或所有人，问题依然存在:你要等多久才能拿到联邦退税？
 
-Watch
+
 
 正如 [此前报道](https://lifehacker.com/how-to-get-your-tax-refund-as-fast-as-possible-this-yea-1848500370) 一样，财政部 [在今年年初](https://www.washingtonpost.com/us-policy/2022/01/10/treasury-irs-filing-season/) 警告称，美国国税局将面临“巨大的挑战”，这主要是由于去年未处理的申报表仍在积压，以及其他问题。许多美国人仍在等待他们 2020 年的回归，2022 年的季节预计也会同样充满重大延误。
 

@@ -4,7 +4,7 @@
 
 加密货币继续获得主流认可，因为 [PayPal 宣布](https://lifehacker.com/what-you-need-to-know-about-buying-cryptocurrency-on-pa-1846585705) 他们已经在其 Venmo 应用程序中添加了比特币、以太坊、比特币现金和莱特币。拥有 7000 万用户群，这一举措肯定会让人们更容易购买 crypto——但这也是一种不稳定的投资，像财产税一样征税，所以你应该在涉足之前衡量风险和税收负担。
 
-Watch
+
 
 ### **工作原理**
 

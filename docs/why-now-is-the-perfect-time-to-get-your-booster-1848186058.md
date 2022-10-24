@@ -4,7 +4,7 @@
 
 对于我们许多人来说，加强剂量的新冠肺炎疫苗仍然是可选的，但越来越多的证据表明，如果你还没有接种，你可能会更好。
 
-Watch
+
 
 其中一个重要原因就是 [Omicron](https://lifehacker.com/what-you-need-to-know-about-the-omicron-variant-1848158084) 。这种新变种可能对我们从疫苗中获得的免疫力不太敏感；它肯定不容易受到我们从先前感染中获得的免疫力的影响。
 

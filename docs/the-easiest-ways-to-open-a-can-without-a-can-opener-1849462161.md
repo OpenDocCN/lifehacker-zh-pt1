@@ -4,7 +4,7 @@
 
 生活的一个基本规则是，有了合适的工具，一切都很容易，没有工具，几乎不可能。一个很好的例子就是开罐器:尽管我们从 1962 年起就有了 [拉环设计，你仍然可以在杂货店的货架上找到很多罐头食品，但却没有这种简单的进步——如果你有一个罐头食品，却缺少一个](https://industrialphysics.com/knowledgebase/articles/history-of-the-can-timeline/#:~:text=1960%20%E2%80%93%20Easy%2Dopen%20can%20introduced,the%20aluminium%20easy%2Dopen%20end.) [开罐器](https://lifehacker.com/filling-meals-you-can-make-with-a-can-opener-and-a-micr-1844871517) ，你会很快明白无用的定义。
 
-Watch
+
 
 这并不意味着这是不可能的——毕竟，罐头是被设计来打开的，即使在你花了 15 分钟去敲打和诅咒它之后，它看起来不太像是真的。毕竟，开罐器只是一个锋利的刀片轮，可以切开罐盖上的封口——大多数没有开罐器的开罐器的主要问题是，他们采用了错误的物理力量。锤子会对你的罐子造成很大的伤害，但它可能不会以任何有用的方式打开它。以下是不用开罐器打开罐头的最聪明和最简单的方法(并且在这个过程中不会切掉手指)。
 

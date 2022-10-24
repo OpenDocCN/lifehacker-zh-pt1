@@ -4,7 +4,7 @@
 
 在把你的真实电子邮件地址给一个随机的企业或网站之前，你应该三思而行。它不仅会导致垃圾邮件，而且您的电子邮件地址也可能会出现在营销数据库中。
 
-Watch
+
 
 这就是 [一次性电子邮件(假邮件)服务](https://lifehacker.com/make-fake-email-accounts-for-website-signups-using-the-1826627262) 派上用场的地方。但是如果你已经在为 iCloud 付费(或者如果你正在使用 Firefox，你也可以使用[Firefox Private Relay](https://lifehacker.com/how-to-get-free-email-forwarding-from-mozilla-1843240900))，你不必担心选择一个新的服务来信任 。iCloud+(任何付费的 iCloud 计划)有一个内置的隐藏我的电子邮件功能，可以让你免费生成唯一的一次性电子邮件地址。
 

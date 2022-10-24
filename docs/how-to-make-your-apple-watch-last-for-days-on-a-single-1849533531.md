@@ -4,7 +4,7 @@
 
 说到 Apple Watch，“全天电池续航时间”是苹果的宣传口号——，但这个*真正的意思是*18 小时的电池周期。如果你想一天把它推过，你需要坚持轻装上阵(而不是戴着它上床)。但是现在，带着 [watchOS 9](https://lifehacker.com/the-best-new-features-in-watchos-9-1849027953) ，苹果第一次向 w atch 推出了新的低功耗模式。
 
-Watch
+
 
 从 Series 4 开始的每一款 Apple Watch 都将能够访问该功能。苹果公司表示，在这种模式下， [你可以预期 36 小时的电池寿命](https://www.tomsguide.com/news/apple-watch-low-power-mode-how-it-works) ，基本上是典型 Apple Watch 使用时间的两倍。如果你有一个 [的苹果手表 Ultra](https://lifehacker.com/you-don-t-need-the-apple-watch-ultra-1849510364?rev=1662643589266) ，这个数字会跳到 60 小时。实际上，如果你晚上不戴 Apple Watch，你可以轻松地延长电池寿命几天。
 

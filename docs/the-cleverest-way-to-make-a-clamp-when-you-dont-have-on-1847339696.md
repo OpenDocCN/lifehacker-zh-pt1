@@ -4,7 +4,7 @@
 
 夹子 [是一种重要的工具](https://www.ccohs.ca/oshanswers/safety_haz/hand_tools/clamps.html) 用于在木工、木工、家具制作和其他项目中临时将木材固定在一起——有多少用途就有多少 [不同类型的夹子](https://www.homestratosphere.com/types-of-clamps/) 。 [将几块木头熔合在一起，形成牢固的结合](https://www.ccohs.ca/oshanswers/safety_haz/hand_tools/clamps.html) 。不过，如果你没有合适的夹子，有一种替代方法可以用来固定你的木头。
 
-Watch
+
 
 ## 如何制作一个简单的 DIY 夹子
 

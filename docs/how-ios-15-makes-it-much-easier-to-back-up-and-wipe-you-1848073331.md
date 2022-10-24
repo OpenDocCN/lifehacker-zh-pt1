@@ -4,7 +4,7 @@
 
 是时候放下你的 iPhone 或者 iPad 了吗？你是要升级到更新更好的型号，还是要传给家人？也许它只是需要修理一下。在你做任何事情之前，你首先要彻底清除你的 iPhone 或 iPad，以安全地删除你的个人数据、Apple ID 和激活锁细节。
 
-Watch
+
 
 从 [iOS 15](https://lifehacker.com/36-of-the-best-new-ios-15-features-for-iphone-1847674175) 和 iPadOS 15 开始，苹果简化了这个过程。现在，你只需要做一件事情，而不是做三件不同的事情(老实说，这个特性早就应该做了)。
 

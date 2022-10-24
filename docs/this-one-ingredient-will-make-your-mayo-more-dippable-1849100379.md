@@ -4,7 +4,7 @@
 
 上周，我去参加了备受期待的杰弗里·摩根塔勒和本杰明·安伯格新开的酒吧“太平洋标准酒吧”的开业典礼。(如果你经常阅读这个网站，你可能会熟悉杰夫的一些 [技巧](https://lifehacker.com/the-best-eggnog-is-made-with-tequila-1840348883) 和 [食谱](https://lifehacker.com/leave-the-workweek-behind-with-an-irish-goodbye-1829716083) 。)空间很美，饮料很好，食物菜单充满了杰夫主义:汉堡上的美国奶酪、薯条和蘸酱(可选的 [鱼子酱升级版](https://lifehacker.com/caviar-belongs-on-potato-chips-1849073840) )、 [巧克力片饼干](https://jeffreymorgenthaler.com/chocolate-chip-cookies/) ，还有一份洋蓟配“鲜味蛋黄酱”。鲜味蛋黄酱？
 
-Watch
+
 
 我要了一杯马丁尼酒，炒鸡蛋和朝鲜蓟。我在鲜味蛋黄酱里蘸了一片叶子。正如我所怀疑的:它是在我的好朋友味精的帮助下制成的。"这个蛋黄酱里有味精吗？"我问杰夫。他眨了眨眼。
 

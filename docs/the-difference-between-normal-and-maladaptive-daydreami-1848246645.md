@@ -4,7 +4,7 @@
 
 我们所有人偶尔都会走神。事实上，据估计，从 [到](https://behavioralscientist.org/daydreaming-might-make-you-more-creative-but-it-depends-on-what-you-daydream-about/#:~:text=Daydreaming%2C%20also%20known%20as%20mind,even%20notice%20when%20it%20happens.) 我们醒着的时间有四分之一到一半是在做白日梦，因为我们的意识从我们目前正在做的或正在经历的事情中游离出来，完全专注于另一个话题。
 
-Watch
+
 
 [研究显示](https://www.science.org/doi/10.1126/science.1192439) 相比不愉快或中性的事情，我们更容易做关于愉快事情的白日梦，并表明这种习惯 [可能会积极影响我们的创造力、](https://www.psychologytoday.com/us/blog/fulfillment-any-age/201901/why-daydreaming-can-improve-your-mental-health) 情绪和生产力。但是有些人经历了比“正常”更强烈的走神，频率更高，持续时间更长——这种模式被称为适应性不良白日梦。
 

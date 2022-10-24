@@ -6,7 +6,7 @@
 
 越来越多的公司屈服于消费者的压力(尽管有时只是在当地 [政府](https://www.edie.net/uks-right-to-repair-laws-come-into-force-in-bid-to-cut-electrical-waste/)的逼迫下)，最新的一家是三星。没错:如果你有一台最新的 Galaxy 设备，公司会给你开绿灯让你自己修理。理论上。
 
-Watch
+
 
 ## 为什么维修权利很重要
 

@@ -4,7 +4,7 @@
 
 对任何旅行者来说，通过的第一个仪式就是拿到护照。虽然有些人从小就开始国际旅行，但许多人从未有过护照，也不知道如何开始这个过程。这些信息是给他们的。(请注意:下述程序适用于在正常情况下获得护照；和其他一切一样，疫情是 [继续把曾经典型的时间线扔进剧变](https://www.azcentral.com/story/travel/destinations/2021/07/07/passport-application-status-why-its-taking-so-long/7828677002/) ，被修改的时间线被标明。
 
-Watch
+
 
 ## 申请护照需要什么文件和资料
 

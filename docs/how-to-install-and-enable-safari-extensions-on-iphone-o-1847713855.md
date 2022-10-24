@@ -4,7 +4,7 @@
 
 Safari 在 [iOS 15](https://lifehacker.com/36-of-the-best-new-ios-15-features-for-iphone-1847674175) 和 iPadOS 15 中进行了多方面的改进。有一个 [新标签栏](https://lifehacker.com/you-should-embrace-safaris-new-search-bar-actually-1847709642) ，一个 [全新起始页](https://lifehacker.com/another-good-reason-to-use-safari-on-your-iphone-1847569724) ，支持 Safari 扩展。浏览器扩展是桌面浏览体验的一个重要部分，但在移动平台上仍然很少见。Mac 上的 Safari 扩展生态系统远不如谷歌 Chrome 或 Firefox，但随着这一功能在 iPhone 和 iPad 上的推出，这些附加软件在移动设备上的受欢迎程度可能会很高。
 
-Watch
+
 
 毕竟，iOS 和 iPadOS 是世界上最受欢迎的移动设备平台，而且由于它们都预装了 Safari，因此开发者可以挖掘的市场非常巨大。让我们来看看如何在 iPhone 或 iPad 上安装和启用 Safari 扩展，这样你就可以开始充分利用现在可用的一些优秀的附加组件。
 

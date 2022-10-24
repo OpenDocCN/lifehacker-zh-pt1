@@ -4,7 +4,7 @@
 
 你的下一个窗口单位空调是在未来十年的一些大的变化。美国环境保护署上周最终确定了一项 [规则](https://gizmodo.com/the-epa-takes-first-step-to-reduce-some-of-the-most-dan-1846814417) 以逐步淘汰空调中的化学物质，这些化学物质可以让你的房间保持凉爽，但会破坏气候。
 
-Watch
+
 
 氢氟碳化合物是大多数冷却技术的基础。除了空调之外，从冰箱到汽车引擎，它们也随处可见。几十年前, [世界认识到](https://gizmodo.com/saving-the-ozone-layer-also-helped-buy-us-time-to-addre-1847507875) 需要逐步淘汰一种不同类型的化学物质——氯氟烃，或 CFCs——之后，这些化学物质开始广泛使用，氯氟烃对臭氧层造成了严重破坏。
 

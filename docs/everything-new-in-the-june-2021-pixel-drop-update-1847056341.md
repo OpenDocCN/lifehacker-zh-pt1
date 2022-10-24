@@ -4,7 +4,7 @@
 
 作为 2002 年 6 月 1 日 Android 安全更新的一部分，谷歌推出了最新的像素下降。对于那些不知道的人来说，Pixel Drops 全年都在发布，在所有安卓手机都收到的常见安全补丁之外，还增加了针对 Pixel 的功能。
 
-Watch
+
 
 这个月，Pixel 用户获得了几个有用的功能，如谷歌照片中的锁定文件夹，新的夜视视频模式，以及一堆新的骄傲月主题壁纸(其中 [你可以在这里查看](https://blog.google/products/pixel/feature-drop-starry-videos-pride-wallpapers) ) 。
 

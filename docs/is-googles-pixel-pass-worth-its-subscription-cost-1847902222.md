@@ -4,7 +4,7 @@
 
 本周，在宣布新的 Pixel 6 和 Pixel 6 Pro 的同时， [谷歌还推出了 Pixel Pass](https://fi.google.com/about/pixel-pass)——一个将订阅服务捆绑包和上述 Pixel 6(或 Pixel 6 Pro)结合在一起的程序。如果您正试图决定该捆绑包是否适合您，这里有一些事情需要考虑。
 
-Watch
+
 
 ## 什么是 Pixel Pass，费用是多少？
 

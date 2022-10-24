@@ -4,7 +4,7 @@
 
 对许多美国人来说，无消费日不是疫情期间的预算练习——而是每天的现实。但也有人大肆挥霍被称为“”的购物疗法，根据贷款比较网站可信的数据显示， [最近可自由支配项目](https://www.credible.com/blog/data-insights/the-pandemic-changed-personal-loan-borrowing-habits) 的贷款有所增加。如果你的消费感觉过度有益，那么“无消费日”可能是合适的。
 
-Watch
+
 
 ### **无消费日的好处**
 

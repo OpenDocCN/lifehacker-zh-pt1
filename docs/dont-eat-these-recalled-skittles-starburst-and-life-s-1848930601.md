@@ -4,7 +4,7 @@
 
 大约一个月后，由于担心该公司一些产品中的“大块”实际上是金属碎片，几个品种的 Skippy 花生酱被召回 ，玛氏箭牌现在处于类似的情况。
 
-Watch
+
 
 根据 公司发布的一份新闻稿，该糖果公司已主动召回其 13 种产品，包括一些标志性品牌，如彩虹糖、星爆糖和救生圈，因为它们可能含有薄金属，该新闻稿已被 [美国美国食品药品监督管理局](https://www.fda.gov/safety/recalls-market-withdrawals-safety-alerts/mars-wrigley-confectionery-us-llc-issues-voluntary-recall-specific-varieties-skittlesr-gummies) (FDA)分享。以下是需要了解的内容。
 

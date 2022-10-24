@@ -4,7 +4,7 @@
 
 实话实说:我们喜欢分享 Spotify 收听数据的一个原因是为了比赛。有一些应用程序可以帮助 [炫耀你的兼收并蓄的音乐库，或者证明你是某个乐队的最高听众比例](https://lifehacker.com/you-should-make-your-own-spotify-pie-chart-1849035508) 之一，但是现在你可以通过创建一个 Spotify 冰山来展示你默默无闻的音乐品味的深度，这要归功于 Icebergify web 应用程序。
 
-Watch
+
 
 Spotify Iceberg 借用了“冰山理论”的模因格式，这种格式经常在社交媒体、R eddit 和 YouTube 视频上使用，以显示特定主题的深度，鲜为人知或超级特定的信息显示在图像的更下方。Icebergify webapp 对你的 Spotify 收听历史做了同样的事情，根据流行程度对你收听的乐队进行排名；你越深入冰山的底层，乐队或艺术家就越不为人知。
 

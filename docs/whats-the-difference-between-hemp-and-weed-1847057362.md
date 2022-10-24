@@ -4,7 +4,7 @@
 
 当我还是个孩子的时候，用大麻这个词只是一种听起来很复杂的谈论大麻的方式，但是当大麻和大麻是 [相关](https://www.nccih.nih.gov/health/cannabis-marijuana-and-cannabinoids-what-you-need-to-know) 的时候，它们有一些相当不同的用途。大麻是一种快速生长的植物，是纸张和衣服等日常用品的可持续选择，它不会让你兴奋，而阿里华纳显然以其精神活性和药用价值而闻名。然而，几十年来，和 [一直被视为同一个](https://www.brookings.edu/blog/fixgov/2018/12/14/the-farm-bill-hemp-and-cbd-explainer/) ，现在是时候澄清事实了。
 
-Watch
+
 
 ## 为什么大麻会被混淆为大麻
 

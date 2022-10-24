@@ -4,7 +4,7 @@
 
 苹果倾向于同时更新他们的设备，所以我 n 除了它的 [大规模的 macOS Monterey 更新](https://lifehacker.com/31-new-macos-monterey-features-youll-actually-want-to-u-1847900965) 之外，该公司还发布了 iOS 15.1。随着 iOS 15，iPhone 已经拥有了它的 macOS Monterey moment，但这并不意味着 iOS 15.1 是一个不容小觑的更新。事实上，这个软件中打包了一些令人敬畏的新功能。
 
-Watch
+
 
 当然，iOS 15.1 不会像 iOS 15 那样功能丰富。苹果在 15.0 等重大更新中打包了数百项新功能，并在后续版本中提供了一些新变化。15.1 没有什么不同；这次更新增加了一些新功能，修复了一些错误，但并不是对你的整体 iPhone 体验的彻底革新。
 

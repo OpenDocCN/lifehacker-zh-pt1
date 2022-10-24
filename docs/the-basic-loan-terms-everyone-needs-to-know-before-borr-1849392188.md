@@ -4,7 +4,7 @@
 
 如果你想买房子或接受高等教育，你可能需要贷款。这里有很多不同的贷款类型，它们可能会让人混淆。以下是你应该了解的的(你也应该 [阅读这个经济术语](https://lifehacker.com/what-a-recession-is-exactly-and-other-economic-terms-1849343863))。
 
-Watch
+
 
 ## **贷款的基础知识**
 

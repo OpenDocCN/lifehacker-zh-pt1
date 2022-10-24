@@ -4,7 +4,7 @@
 
 本周，在好莱坞声乐教练丹尼斯·伍兹的帮助下，我们对乐器进行了微调。丹尼斯是一名超过 20 年的专业声乐和方言教练，曾与威尔·史密斯、哈莉·贝瑞、蕾切尔·薇姿、杰西卡·查斯坦和马赫沙拉·阿里等明星合作。听听丹尼斯给出的建议，告诉你如何改掉“嗯”、“啊”和“喜欢”的坏习惯，找出你独特的“声纹”，并学会在说话时控制呼吸的力量。
 
-Watch
+
 
 丹尼斯的新书叫做， [*声音的力量:让自己被听到的指南*](https://www.amazon.com/Power-Voice-Guide-Making-Yourself-ebook/dp/B088RDHVMT?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-find-your-voice-with-hollywood-vocal-coach-deni-1846280709&asc_source=&tag=kinjalifehackerlink-20) 。
 

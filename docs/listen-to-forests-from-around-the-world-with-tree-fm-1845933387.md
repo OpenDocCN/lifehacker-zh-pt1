@@ -4,7 +4,7 @@
 
 在森林里简单的散步可以是一种感官享受:除了你看到的一切，还有你脚下土地的感觉，鸟儿的声音，树枝上的风。
 
-Watch
+
 
 虽然享受自然(如果你喜欢，可以称之为 [森林沐浴](https://lifehacker.com/i-went-forest-bathing-in-central-park-and-it-didn-t-fee-1797481392) )在冬天可能会更难，如果你附近没有方便的自然景观，那就更难了，但实际上仍然有办法享受森林。我们之前已经向你展示了 [如何在虚拟森林中沐浴](https://vitals.lifehacker.com/its-time-to-reduce-stress-with-some-virtual-forest-bath-1844408868?rev=1608650029189) ，现在有一个工具可以让你即时获得世界森林的声音。
 

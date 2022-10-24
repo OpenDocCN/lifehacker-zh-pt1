@@ -4,7 +4,7 @@
 
 精神和身体压力的体验会对身体造成损害，导致突然心悸和呼吸急促，随后(希望)随着压力的过去，会有一段时间的放松。短暂的紧张和放松是有益的——在某些情况下，战斗或逃跑的反应真的可以拯救你的生命。但是 [慢性压力不是](https://lifehacker.com/how-to-deal-with-the-effects-of-long-term-stress-1843178914) ，如果不处理，它会导致严重的问题，如 [抑郁症、高血压和心脏病](https://www.webmd.com/balance/stress-management/qa/what-are-the-consequences-of-longterm-stress) 。
 
-Watch
+
 
 虽然我们当然推荐像 [疗法](https://lifehacker.com/how-to-select-the-right-therapist-for-you-1833246447) 和 [冥想](https://lifehacker.com/how-to-get-the-most-out-of-meditation-1843713254) 这样的治疗选择，但是在压力时刻，你可以求助于一些更简单的工具——玩具。据《大西洋月刊》报道，纽约大学理工学院 的一项 [研究表明，摆弄小玩具实际上可以帮助你缓解压力，提高工作效率，甚至增强你的记忆力。这里有一些建议可以帮助你重新开始深呼吸。](https://www.theatlantic.com/business/archive/2015/07/stress-toys-focus-work/398453/)
 

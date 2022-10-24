@@ -4,7 +4,7 @@
 
 曾经有一段时间，COVID 检测呈阳性带来了几个月内不会再次感染的信心。可惜，我们 [不再有那种短暂的保护意识](https://lifehacker.com/these-covid-facts-are-no-longer-true-1849165352) 。除了用一个 [合身的口罩](https://lifehacker.com/how-long-can-you-keep-using-the-same-n95-mask-1848345117) 来保证自己的安全，明智的做法是通过邮件 兑换你的 [免费 COVID 测试，并定期测试。](https://lifehacker.com/you-can-now-get-eight-more-free-covid-tests-by-mail-1848937728) 
 
-Watch
+
 
 好消息是:家庭 COVID 测试从未如此容易获得。坏处:你可能已经听说过(如果没有亲身经历的话)，家庭抗原测试并不完全可靠。
 

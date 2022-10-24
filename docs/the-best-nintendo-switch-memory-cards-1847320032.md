@@ -4,7 +4,7 @@
 
 任天堂 Switch 储物一直是，也将永远是一个笑话。在任天堂的混合主机于 2017 年初发布之前，当时未发布的*龙之任务英雄* [被披露为](https://kotaku.com/theres-already-a-game-too-big-for-the-nintendo-switchs-1792602032) 大于可用的 32GB 内部存储容量。 [两年后发布的 Switch Lite](https://kotaku.com/nintendo-switch-lite-the-kotaku-review-1838237417) ，根本没有对其进行改进。然后是即将推出的 [任天堂 which 有机发光二极管型号](https://kotaku.com/nintendo-just-announced-the-new-switch-1847234109) ，它仅仅是将这东西的内部存储翻倍。
 
-Watch
+
 
 换句话说，无论你如何分割它，如果你有一个任何类型的任天堂 Switch，你都会想要投资额外的存储空间。是的，Switch 上的游戏往往比 PC 或其他游戏机上的小。尽管如此，没有人喜欢玩一个永无止境的存储空间游戏*俄罗斯方块*。这里有最好的开关存储卡。
 

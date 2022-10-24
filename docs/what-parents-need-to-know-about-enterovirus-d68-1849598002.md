@@ -4,7 +4,7 @@
 
 疾病预防控制中心最近向医疗服务提供者发布了一份关于肠道病毒 D68 的 ale[rt](https://emergency.cdc.gov/han/2022/han00474.asp?ACSTrackingID=USCDC_511-DM89761&ACSTrackingLabel=HAN%20474%20-%20General%20Public&deliveryName=USCDC_511-DM89761)，该病毒出现在因严重呼吸道疾病住院的儿童身上。这种病毒也能导致一种叫做急性弛缓性脊髓炎的瘫痪。大多数这种病毒引起的疾病不会导致瘫痪，但供应商最好注意到这一点。作为父母，这对你来说意味着什么呢？
 
-Watch
+
 
 ## 肠病毒 D68 是什么？
 

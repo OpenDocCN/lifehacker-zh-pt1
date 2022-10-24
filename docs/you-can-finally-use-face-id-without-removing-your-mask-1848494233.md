@@ -4,7 +4,7 @@
 
 Face ID 是 iPhone 的一大特色——当你的 iPhone 可以看到你的脸时。虽然戴口罩有助于保护你和你周围的人免受 COVID 的伤害，但它也阻止了你用脸解锁手机。 [苹果为我们这些拥有苹果手表](https://lifehacker.com/unlock-your-iphone-with-your-apple-watch-when-wearing-a-1846181593) 的人增加了一个解决这个问题的方法，但是我们这些没有拥有该公司智能手表的人呢？
 
-Watch
+
 
 你再也不需要在昂贵的 iPhone 上戴着昂贵的 Apple Watch，戴着口罩快速给你的朋友发短信。苹果现在允许你用面部覆盖物解锁 iPhone，只要满足两个条件。
 

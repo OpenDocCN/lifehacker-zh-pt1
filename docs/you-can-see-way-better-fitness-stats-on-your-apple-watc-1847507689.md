@@ -4,7 +4,7 @@
 
 如果你没有把苹果手表 [用于健身](https://lifehacker.com/how-to-set-up-your-apple-watch-for-maximum-fitness-moti-1831435461)，你可能就没有充分利用它。当你探索这个话题时，你应该考虑调整手表向你显示的统计数据，还有。
 
-Watch
+
 
 因为是的，当你使用默认的锻炼应用程序记录锻炼时，你可以更改 Apple Watch 显示的统计数据。我们将向你展示如何做到这一点，，并分享一些其他有用的技巧，。
 

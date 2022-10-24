@@ -4,7 +4,7 @@
 
 YouTube Vanced 是一个受欢迎的 YouTube 应用程序的修改版本，它让我们可以使用免费版本的 YouTube 应用程序所不具备的功能(更不用说一些有趣的附加功能，如主题和滑动控制)。不过，它受欢迎主要是因为它有广告拦截器、离线下载、画中画和背景回放。—你通常需要每月支付 9.99 美元才能得到的东西。它在 Android 社区相当受欢迎，但可惜， [再也不是](https://www.theverge.com/2022/3/13/22975890/youtube-vanced-app-discontinued-shutting-down-legal-reasons) 了。
 
-Watch
+
 
 但因为谷歌要求 Vanced 停止业务，并不意味着你不能享受无广告的 YouTube 后台播放。还有很多其他选择。
 

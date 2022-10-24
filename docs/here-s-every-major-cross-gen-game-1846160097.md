@@ -4,7 +4,7 @@
 
 主机游戏正处于十字路口，发现自己处于主机代之间的过渡阶段 的中心 [。许多游戏同时登陆上一代和下一代硬件。考虑到想要得到一台 PlayStation 5 或者一台](https://kotaku.com/you-can-upgrade-some-big-fall-games-to-next-gen-but-th-1383775591) [Xbox 系列无论什么](https://kotaku.com/i-can-t-with-these-confusing-xbox-names-1844988456) 都几乎是不可能的，这在任何地方都是一件好事。
 
-Watch
+
 
 但是三个月后的下一代，跨代游戏的状态仍然处于一种模糊的状态。有哪些游戏是跨代可用的？那些更时髦、 [有时](https://kotaku.com/some-ps5-games-will-be-70-1845084603) [更昂贵的](https://kotaku.com/how-much-call-of-duty-black-ops-cold-war-will-cost-i-1844859606) 版本到底能提供什么，而那些最新一代的科技产品却不能？
 

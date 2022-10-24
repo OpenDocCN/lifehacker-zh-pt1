@@ -4,7 +4,7 @@
 
 战争是地狱，我们每天都能从乌克兰看到这种视觉提醒。再加上发生在美国和世界各地的创伤性事件，我们在试图了解新闻时，甚至在滚动社交媒体试图放松时，可能会偶然发现大量的图像和视频。
 
-Watch
+
 
 其中一些图像和视频可能会令人不安，但与创伤幸存者打交道的精神病学教授 Arash Javanbakht 注意到，人们经常继续寻找创伤图像。他们觉得忽视这些图片会让他们变得不敏感或不知情——但是 [他有一些关于处理令人心烦的图片的提示](https://theconversation.com/how-to-protect-your-family-from-horrific-news-images-and-still-stay-informed-181818) 而不会让你觉得需要完全注销。
 

@@ -4,7 +4,7 @@
 
 左倾政策书呆子 称之为我们这个时代最大的政治上篮。在充满敌意的政治分裂时期，它享有 [罕见的两党支持](https://www.vox.com/policy-and-politics/2019/11/14/20964802/marijuana-legalization-pew-gallup-poll-survey-public-support) 。它将降低有色人种的监禁率，并在监狱工业综合体中逐渐消失。
 
-Watch
+
 
 那么，为什么大麻在 T2 还没有合法化，或者至少在 T4 还没有合法化呢？
 

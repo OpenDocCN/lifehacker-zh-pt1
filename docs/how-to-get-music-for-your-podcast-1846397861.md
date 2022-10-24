@@ -4,7 +4,7 @@
 
 播客的受欢迎程度直线上升。爱迪生研究公司和 Triton Digital 的统计数据显示，2020 年，55%的 12 岁及以上的美国人收听播客。根据 2021 年全球播客统计，目前全球有[175 万](https://podcasthosting.org/podcast-statistics/?gclid=Cj0KCQiAhP2BBhDdARIsAJEzXlGffLz5uYoBDNRQoA2WTUZPabH6aYmpXXiHzq9Korad_ahkMiuvVW0aAufZEALw_wcB) 活跃播客。似乎每个人都和他们的表弟在隔离期间开始了播客，为什么不呢？你带上几个朋友和几个麦克风，想出一个有趣的话题，然后你就可以开始了。
 
-Watch
+
 
 但是有一些关键因素会让你的播客在开始前就停下来。其中一个是音乐:播客介绍、片段过渡和结尾是享受聆听体验的重要组成部分。但是未经批准在你的播客中使用歌曲或音乐可能会有侵犯版权的风险，可能会让你被踢出托管平台，或者阻止你上传到该平台。以下是为你(即将)成功的播客采购音乐时要考虑的一些事情。
 

@@ -4,7 +4,7 @@
 
 在三月、、[，我已经试着弄清楚我是否能、把伸展运动融入我的健身计划中，并且喜欢做、](https://lifehacker.com/how-to-finally-touch-your-toes-maybe-even-today-1848668349)、。差不多三周后，我仍在做我在 [上一篇帖子](https://lifehacker.com/im-finally-stretching-and-i-kind-of-like-it-1848700419) 中描述的几乎相同的例行工作。这段时间我最大的关注点是一致性——我知道我最大的挑战实际上是*做*拉伸练习(大约需要 15 分钟)，因为我觉得拉伸很无聊，会找任何借口不做。但是我学到了一些东西，帮助我保持日常生活。
 
-Watch
+
 
 ## 找一天中你可以放松的时间
 

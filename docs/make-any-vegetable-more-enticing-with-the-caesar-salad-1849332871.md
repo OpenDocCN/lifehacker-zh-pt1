@@ -4,7 +4,7 @@
 
 凯撒沙拉酱是一种令人难以置信的调味品，充满了各种口味:丰富的蛋黄，鲜味(和盐)来自凤尾鱼和帕尔马，酸来自柠檬，辛辣来自大蒜和新鲜胡椒。为什么，那么，当可以用来使任何蔬菜更诱人的时候，我们却认为它仅仅是生菜的配料？
 
-Watch
+
 
 这正是黑莓农场的这位 [西葫芦凯撒沙拉](https://food52.com/recipes/72755-blackberry-farm-s-zucchini-caesar-salad-with-cheese-crisps) 提出并回答的问题(精选自 [Food52](https://food52.com/blog/20374-genius-zucchini-caesar-salad-blackberry-farm) )。沙拉很简单:薄薄的切片(或曼陀林)西葫芦撒上一点盐和胡椒，然后浇上香草凯撒酱，再浇上弗里科奶酪(因为 [奶酪是油炸面包丁](https://lifehacker.com/cheese-is-a-crouton-1849051473) )。这是一个很棒的模板，没有理由你不能把它应用到任何你喜欢的蔬菜上。这是一个用掉西葫芦意外收获的好方法，但用芦笋、一碗圣女果、一堆青豆，甚至一些起泡的 shishito 辣椒也可以。只要拌上调料，再加点奶酪就行了。
 

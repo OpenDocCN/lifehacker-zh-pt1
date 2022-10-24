@@ -4,7 +4,7 @@
 
 大约两周前，我的空气油炸锅停止工作。幸运的是，即时锅能够寄给我一个新的(谢谢，保修！)，但没有我的 Vortex Mini 的半个月让我意识到我是多么依赖它。
 
-Watch
+
 
 重新加热外卖、烤面包和烹饪完美的小“额外服务”:这些只是我被迫在我的大而低效的“大烤箱”中做的几件事，当我的新桌面对流烤箱到来时，我大大松了一口气。我不仅可以继续享受我的 [脆皮豆腐](https://skillet.lifehacker.com/im-obsessed-with-air-fried-tofu-1846146173) 配以 [油炸葱](https://skillet.lifehacker.com/air-fry-your-scallions-for-the-perfect-garnish-1846184934) 的碗，我终于可以测试我的计划，做一些松脆的小咸肉——也就是油炸马槟榔。
 

@@ -4,7 +4,7 @@
 
 新冠肺炎疫情的许多意想不到的方面之一是被迫(或有机会——取决于你如何看待它)思考你想在余生做什么。也许你失去了工作，并想利用这个机会弄清楚你可能更喜欢什么类型的工作。或者也许在过去的几个月里，你比以往任何时候都工作得多，这让你考虑这是否真的是你想要继续谋生的方式。
 
-Watch
+
 
 当然，在找工作时，这并不总是可能的——或者说 [甚至是可取的](https://lifehacker.com/why-finding-your-passion-isnt-enough-1826996673)—[【跟随你的激情】](https://lifehacker.com/why-follow-your-passion-isnt-always-the-best-advice-1781772879) 。但是弄清楚什么对你来说有意义和目的是很有用的。结果可能不一定是与职业相关的顿悟，但它可以帮助你找出如何给生活的不同部分(包括你的工作)带来意义和目的。这里有 [两个问题来问你自己](https://ideas.ted.com/dont-have-a-single-purpose-or-passion-thats-ok/) 来确定你生活中的驱动力。
 

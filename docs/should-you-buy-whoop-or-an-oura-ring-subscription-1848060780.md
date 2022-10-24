@@ -4,7 +4,7 @@
 
 两个最著名的恢复跟踪设备，Whoop 和 Oura，最近推出了新的硬件。现在有了一个 [呐喊 4.0](https://gizmodo.com/whoops-weird-recovery-tracker-is-getting-smarter-and-mo-1847631004) 表带和一个 [乌拉 gen3](https://gizmodo.com/the-famous-oura-smart-ring-is-getting-even-smarter-1847931146) 戒指。但是随着硬件的变化，新的定价计算也随之而来:两者都需要订阅。那么，哪种交易更好呢？
 
-Watch
+
 
 直到最近，这两家公司的商业模式还截然相反。Oura 会以 299 美元的价格卖给你一个戒指，你可以免费使用，而 Whoop 会免费给你硬件，只要你注册至少六个月的订阅(如果你按月付费，每月 30 美元)。Oura 的新戒指和旧的价格一样，但是现在有一个 5.99 美元/月的订阅。
 

@@ -4,7 +4,7 @@
 
 抖音的创造者和妈妈，正如她在简历中所说，一个似乎永无止境的金发少女、[【Fiddely _】【mom Jess】](https://www.tiktok.com/@fiddely_momjess)组成的“女孩帮”，发布了她和她的女儿们玩这个[坏单词字母游戏的视频有些人认为他们很搞笑，而有些人则认为她不负责任。](https://vm.tiktok.com/ZTdG4gRPj/?k=1)
 
-Watch
+
 
 ## 什么是“坏单词字母表”游戏？
 

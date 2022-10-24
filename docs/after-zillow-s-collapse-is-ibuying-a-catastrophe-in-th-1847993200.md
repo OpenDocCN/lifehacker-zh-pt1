@@ -4,7 +4,7 @@
 
 房地产行业上周被推到了聚光灯下，当时数字房地产上市公司[宣布](https://gizmodo.com/zillow-quits-home-flipping-business-laying-off-25-of-1847985910) 将关闭其“iBuying”部门“Zillow Offers”。在一份糟糕的收益报告中，该公司宣布，由于该部门的崩溃，它将损失数亿美元，并将被迫裁员四分之一(据该公司称，大部分裁员将与要约有关)。这是对房地产业强大力量的一个不礼貌的终结。在破产之前，Zillow [是市场上第二大“买家”,几个月来一直在进行贪婪的购房狂欢。](https://www.latimes.com/business/story/2021-11-03/ibuyers-zillow-opendoor-home-sales-southern-california-housing-institutional-investors)
 
-Watch
+
 
 不出所料，对房地产业知之甚少的普通人可能会感到疑惑:到底什么是*iBuying，为什么它价值数亿美元？*
 

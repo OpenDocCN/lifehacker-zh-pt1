@@ -4,7 +4,7 @@
 
 有些事情你想“磨练”*和*有些事情你想“专注”，但这些事情是不一样的。然而，它是那些听起来如此相似并且具有相似含义(如 [更远和更远](https://lifehacker.com/how-to-remember-when-to-use-further-versus-farther-1846649794) 或 [然后比](https://lifehacker.com/how-to-stop-mixing-up-than-and-then-1846581788) )的成对单词和短语中的一种，很容易将它们混淆。但是为了努力磨练我们的语法技能，我们将把重点放在正确的用法上。
 
-Watch
+
 
 ### 首先，一些定义
 

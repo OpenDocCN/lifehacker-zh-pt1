@@ -4,7 +4,7 @@
 
 你不能拿起一个陌生人的 iPhone 当成自己的: [认证措施](https://lifehacker.com/you-can-finally-use-face-id-without-removing-your-mask-1848494233) ，像 Face ID、触控 ID，还有 passcodes，确保只有我们和我们信任的人才能访问我们的 iPhone。然而，即使你不先解锁手机就不能查看某人的信息或打开他们的 Instagram，你也有可以*做*的事情。这是完整的清单。
 
-Watch
+
 
 这些选项中的一些将取决于正在讨论的 iPhone 上启用的某些安全设置。如果有人在锁的屏幕上禁用了这些选项中的一个，它就不会为你工作。如果你想在阅读了你的 iPhone 允许人们在锁定时使用的内容后做出一些改变，请滚动到这篇文章的底部。我还会记下您可以在锁定屏幕上禁用的选项。
 

@@ -4,7 +4,7 @@
 
 如果你独自跑步或徒步旅行，让别人知道你的计划和你预计什么时候回来总是明智的。B 更好的是， [的位置共享应用](https://lifehacker.com/how-to-share-your-location-in-whatsapp-and-other-apps-1819658511) 可以让你的伴侣或朋友随时知道你在哪里。但是有一种方式甚至超越了 Strava 的功能，现在甚至对我们这些免费用户都可用。
 
-Watch
+
 
 其他正在运行的应用程序也提供位置跟踪，具有不同的功能集。例如， [Runtastic 免费提供他们的跟踪功能，](https://help.runtastic.com/hc/en-us/articles/202022801-LIVE-Tracking) ，但是你的联系人也需要 Runtastic 应用程序来查看你在哪里。 [Runkeeper 可以通过文本](https://support.runkeeper.com/hc/en-us/articles/201109836-Live-Tracking) 向非 Runkeeper 用户发送您的跟踪信息，但您需要高级订阅才能打开它。
 

@@ -4,7 +4,7 @@
 
 想让你的 iPhone 主屏幕布局焕然一新？幸运的是，iOS 15 的让这一切变得简单。您现在可以轻松地重新排列主屏幕页面的顺序，甚至可以快速隐藏或删除整个主屏幕。以下是如何快速定制你的 [iOS 15](https://lifehacker.com/36-of-the-best-new-ios-15-features-for-iphone-1847674175) 主屏幕。
 
-Watch
+
 
 ## 如何在 iOS 15 中重新排列主屏幕页面
 

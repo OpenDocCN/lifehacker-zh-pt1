@@ -4,7 +4,7 @@
 
 很少有什么事情比获胜更能让个人感到满足。篮球比赛和总统选举都是如此。
 
-Watch
+
 
 但是，如果你刚刚赢得的比赛是一次情感枯竭的经历，对手一再侮辱你， [指责你欺骗](https://foreignpolicy.com/2020/11/05/election-2020-trump-biden-false-claims-voter-fraud/) ，甚至对你的家人提出 [可疑的指控](https://www.nbcnews.com/politics/meet-the-press/blog/meet-press-blog-latest-news-analysis-data-driving-political-discussion-n988541/ncrd1181136#blogHeader) ，优雅地获胜可能是一个挑战。
 

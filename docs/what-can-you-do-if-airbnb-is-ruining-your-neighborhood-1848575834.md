@@ -4,7 +4,7 @@
 
 罗马被蛮族攻陷，不是一朝一夕的事。同样的事情也可以说是因为像 Airbnbs 这样的短期租赁而被毁掉的社区。当你买了房子或签了公寓租约时，你可能认为你买了一个避难所，一个你可以放松、充电和过上最好生活的地方。你成为一个社区的一部分，因为你们都粘在一起，每个人通常都试图保持尊重。
 
-Watch
+
 
 然后，野蛮人以 Airbnb、Vrbo 和其他短期租赁平台的形式出现，这些平台允许人们短期出租他们的房屋或部分房屋。一方面，这一创新让数百万美国人获得收入或自由旅行，这是好事。另一方面，它也将许多住宅和公寓变成了基本上不受监管的迷你酒店。在你家附近短期租房会导致一长串的不幸: [喧闹的聚会，堵塞的停车场，以及财产损失](https://www.airbnbhell.com/tag/airbnb-neighbors/) 。如果你没有听过很多噩梦般的故事，那可能是因为 Airbnb [花了很多钱让那些看不见的](https://www.bloomberg.com/news/features/2021-06-15/airbnb-spends-millions-making-nightmares-at-live-anywhere-rentals-go-away) 。
 

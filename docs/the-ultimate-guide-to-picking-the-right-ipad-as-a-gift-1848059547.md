@@ -4,7 +4,7 @@
 
 所以，你生命中有人想要一台 iPad。听起来很简单，直到你看一看苹果的网站，并意识到该公司目前销售五种不同的 iPad，其中一种叫做“iPad”。iPad Air、iPad mini、iPad Pro 和 iPad 都在争夺你的钱，你怎么知道哪些该送，哪些不该送呢？
 
-Watch
+
 
 ## [iPad——大多数人的 iPad](https://www.amazon.com/2021-Apple-10-2-inch-iPad-Wi-Fi/dp/B09G9FPHY6/?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/the-ultimate-guide-to-picking-the-right-ipad-as-a-gift-1848059547&asc_source=&tag=kinjalifehackerlink-20)
 

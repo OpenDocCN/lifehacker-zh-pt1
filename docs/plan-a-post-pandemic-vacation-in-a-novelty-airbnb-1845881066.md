@@ -4,7 +4,7 @@
 
 独特的住宿一直是 Airbnb 选择的一部分，从树屋到露营，但如果你想住在童话里，现在你可以:目前的房源包括北极和森林中的 [姜饼屋](https://www.airbnb.com/rooms/1385692?checkin=&checkout=&adults=1&children=0&infants=0&source_impression_id=p3_1607613568_TH60LOC3LLAZCtji) 的住宿。现在我们距离公开分发新冠肺炎疫苗还有几个月，你可能会兴奋地开始一些异想天开的旅行计划。谁能责怪你呢？这里有几个新奇的航空站，一旦再次旅行度假安全了，你就可以在那里过童话般的冒险生活。
 
-Watch
+
 
 ### 预订在 FAO Schwartz 玩具店入住一晚
 

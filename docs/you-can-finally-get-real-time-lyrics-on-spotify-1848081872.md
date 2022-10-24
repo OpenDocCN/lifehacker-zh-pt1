@@ -4,7 +4,7 @@
 
 即使这些天有许多音乐流媒体选项可供选择，Spotify 仍然是数百万用户的国王。虽然这款应用长期以来运行良好，但它并没有在每个类别中都大放异彩。值得注意的是，Spotify 的功能中没有实时歌词已经有一段时间了，因为苹果音乐(Apple Music)和亚马逊音乐(Amazon Music)等竞争服务。幸运的是，现在情况有所改变。
 
-Watch
+
 
 Spotify[终于向所有用户](https://techcrunch.com/2021/11/18/spotify-finally-rolls-out-real-time-lyrics-to-global-users/?guccounter=1&guce_referrer=aHR0cHM6Ly93d3cueGRhLWRldmVsb3BlcnMuY29tL3Nwb3RpZnktYnJpbmdzLXJlYWwtdGltZS1seXJpY3MtdG8taXRzLWFwcHMv&guce_referrer_sig=AQAAACllPp0cXX8NnTNdPNuRvSkOLYiJduIspXSIRTeP-8g4hJjHIsH-WVRmehD3tBKFOoo79cpjbYmjcRk3OUABEiGQNGCSlovD8y8W7rUBkvAJH3OgZQIrK-3_ydJE9uFPllSZKIoqXugJ5lHIwfp0ZLbCLk-sLnCu8hTqHCljGmEG) 推出了实时歌词功能，包括免费和收费，今天，11 月 18 日星期四。然而，有可能你看到了新闻，打开了你的 Spotify 应用程序，却没有任何反应。如果是这样，有几个技巧可以让这个特性更快地出现。
 

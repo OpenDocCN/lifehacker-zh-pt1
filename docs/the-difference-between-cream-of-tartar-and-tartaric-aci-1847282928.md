@@ -4,7 +4,7 @@
 
 酒石是一种非常有用的成分。有了它，你可以稳定鲜奶油，自制 [泡打粉](https://lifehacker.com/if-youre-out-of-baking-powder-or-baking-soda-try-these-1843314311) ，煮出 [超蓬松的炒鸡蛋](https://lifehacker.com/get-fluffier-scrambles-by-adding-cream-of-tartar-1842128443) 。然而，对于什么是 T8，有一个相当普遍的误解。
 
-Watch
+
 
 如果你在一个流行的搜索引擎中输入“什么是酒石”,你会得到大量的文章和博客，告诉你它是酒石酸。这在技术上是不正确的，但没关系，因为这给了我一个机会谈论盐，这是我最喜欢的话题之一。虽然酒石本身不是纯酒石酸，但它是酒石酸的钾盐*，这意味着在氢原子所在的位置出现了一个钾原子。奶油或酒石和酒石酸的化学分子式分别为 KC <sub>4</sub> H <sub>5</sub> O <sub>6</sub> 和 C<sub>4</sub>H<sub>6</sub>O<sub>6</sub>。(注意酸多了一个 h。)*
 

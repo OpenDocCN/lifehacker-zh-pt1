@@ -4,7 +4,7 @@
 
 我们最近谈到了帮你付房租的信用卡，但是帮你付学生贷款的信用卡呢？有一种 [新卡](https://www.laurelroad.com/press/laurel-road-releases-credit-card-with-the-reward-millennials-really-want-cashback-to-pay-student-loans/) 就可以做到这一点 **—** 提供 2%的购物返现，这种卡可以应用于一系列学生贷款服务机构。下面就来看看是不是适合你的好牌。
 
-Watch
+
 
 ## 如果你非常关注学生贷款，这张卡是个不错的选择
 

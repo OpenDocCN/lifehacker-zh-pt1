@@ -4,7 +4,7 @@
 
 显然赫兹在西海岸有太多的出租汽车闲置，所以他们 [提供一种新的交易](https://www.hertz.com/rentacar/rental-car-deals/one-way-west-to-east-special) 全国单程旅行，每天只要 9.99 美元。这至少与飞机或火车的价格相当，而且它提供了一种在疫情旅行的替代方式。
 
-Watch
+
 
 ### **交易如何进行**
 

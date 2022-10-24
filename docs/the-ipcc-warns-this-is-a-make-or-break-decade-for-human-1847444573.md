@@ -4,7 +4,7 @@
 
 你不一定需要一个科学家来知道 [气候](https://gizmodo.com/earther/climate-change) 有麻烦了。但政府间气候变化专门委员会的最新报告于周一出炉，这是对气候危机已经显现的现实世界影响的一个惊叹号。
 
-Watch
+
 
 在一个前所未有的夏天[野火](https://gizmodo.com/here-are-the-5-major-regions-literally-on-fire-right-no-1847389046)[洪水](https://gizmodo.com/the-worst-european-floods-in-100-years-have-left-120-de-1847306704) ，以及所有随之而来的死亡和苦难，世界顶尖的气候科学家发出了他们迄今为止最严厉的警告。报告警告说，人类对气候的影响是“明确的”，然后列出了一系列气候影响，如果我们不采取行动，这些影响将成倍恶化。
 

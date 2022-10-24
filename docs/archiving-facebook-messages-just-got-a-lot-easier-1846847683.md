@@ -4,7 +4,7 @@
 
 脸书最近在其应用程序上宣布了 Messenger 和 Instagram DMs 的一系列新功能。媒体信息现在已经简化，聊天更容易存档(和取消存档)，Instagram DMs 现在包括阅读回执。让我们研究一下所有的新特性以及如何使用它们。
 
-Watch
+
 
 ### Messenger 和 Instagram 中更简单的音频信息
 

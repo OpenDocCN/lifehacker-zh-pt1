@@ -4,7 +4,7 @@
 
 当我们的国会大厦昨天被叛乱分子占领时，我去散步了。几个小时后，在粘在推特上试图理解这一切的时间比我愿意承认的要长得多之后，我去跑步了。很有帮助。
 
-Watch
+
 
 我从不认为锻炼足以满足每个人的心理健康需求，但它胜过许多其他应对机制，比如喝酒、在淋浴时大哭大闹。(讽刺网站 Reductress 大概说得最好:“ [说锻炼像治疗的女人一定有些相当轻的外伤](https://reductress.com/post/woman-who-says-exercise-is-like-therapy-must-have-some-pretty-light-trauma/) 。”)
 

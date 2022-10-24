@@ -4,7 +4,7 @@
 
 参议院 [批准延长](https://www.cnn.com/2021/03/25/politics/paycheck-protection-program-extension-senate-vote/index.html) 两个月的第二轮工资保障计划(PPP)减税贷款，该贷款旨在帮助企业主支付日常开支。新的截止日期 5 月 31 日被认为是必要的，因为有越来越多的业主需要更多的时间来提交申请。以下是你需要知道的，以及如何申请。
 
-Watch
+
 
 ### **什么是购买力平价？**
 

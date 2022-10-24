@@ -4,7 +4,7 @@
 
 从一代游戏机到下一代游戏机的跨越仍然是一个值得探索的谜题:不太令人费解，但肯定比你想象的更复杂。最近的一个例子是《神秘 T2:盗贼遗产》，这是一款带有埃舍尔风格的游戏，即将推出的 PlayStation 5 捆绑包中包含了 PlayStation 4 *神秘地图*游戏的重新版本。嘿，至少 [你得到一张](https://blog.playstation.com/2021/12/07/uncharted-legacy-of-thieves-collection-details-on-the-remastered-bundle/) 的免费电影票。
 
-Watch
+
 
 遵循好莱坞试图榨取流行视频游戏特许经营权的伟大传统，明年,*《神秘海域》*将获得游戏改编成电影的权利。这部电影将由《T2》中的《永远的魔鬼》中的《T3》中的汤姆·赫兰德饰演内森·德雷克，被宣传为奥运会的前传。奇怪的是，至少从最初的预告片来看，这部电影似乎以游戏 中的六个场景为特色。虽然我并没有屏住呼吸，但电影 [实际上看起来很有趣](https://kotaku.com/first-uncharted-movie-trailer-offers-a-great-look-at-to-1847907622) 。
 

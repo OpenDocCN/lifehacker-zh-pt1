@@ -4,7 +4,7 @@
 
 FDA [周四晚些时候](https://www.fda.gov/news-events/press-announcements/fda-statement-vaccines-and-related-biological-products-advisory-committee-meeting-0) 宣布，将为 Moderna 的 COVID 疫苗颁发紧急使用授权(EUA)，使我们的免疫武库达到两个。这种疫苗类似于上周获得 EUA 奖的辉瑞/生物技术公司的疫苗。
 
-Watch
+
 
 这是一个好消息，我们现在有两种疫苗，尽管它们很相似，因为这意味着两家公司现在能够生产和销售疫苗。供应仍然有限，所以到目前为止只有少数人接种了疫苗——主要是医生和其他医护人员。
 

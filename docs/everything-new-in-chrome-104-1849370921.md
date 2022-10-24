@@ -4,7 +4,7 @@
 
 谷歌最新更新，Chrome 104 来了。假设你有 [惊人慷慨的系统需求](https://support.google.com/chrome/a/answer/7100626?hl=en) ，你今天就可以更新你的浏览器来利用它的新特性和变化。最大的 UI 变化是针对运行 Chrome OS 的 Chromebook 用户，但所有 Chrome 用户都将受益于安全补丁。
 
-Watch
+
 
 ## 新的 Chrome 更新带有 27 个安全补丁
 

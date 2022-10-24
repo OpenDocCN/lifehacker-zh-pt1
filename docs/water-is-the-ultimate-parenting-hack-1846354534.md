@@ -4,7 +4,7 @@
 
 本周我们一直在谈论 [、你收到过的*最好的*育儿建议](https://offspring.lifehacker.com/what-is-the-best-parenting-advice-you-ever-received-1846336148) (以及 [最差的*育儿建议*](https://offspring.lifehacker.com/what-is-the-worst-parenting-advice-you-ever-received-1846329078) )，从这些讨论中，我发现了一颗闪亮的宝石，凭良心说，我不能藏在心里。这让我们想起了所有育儿窍门中最基本也是最自然的一点:水。
 
-Watch
+
 
 人们很容易忘记水是最有效的育儿工具之一，尤其是在寒冷的冬天，把小孩扔进后院的婴儿池，打开洒水器，或者给水球充水都不是一个选择。但是，正如我们的 [后代脸书群体](https://www.facebook.com/groups/2018785615043946) 中的一位家长提醒我们的那样，当一个年幼的孩子吓坏了，失去控制，或者只是度过了糟糕的一天，他们需要的是某种形式的 H2O。正如 Shruti 所说:
 

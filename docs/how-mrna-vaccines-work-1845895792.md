@@ -4,7 +4,7 @@
 
 辉瑞和 BioNTech 在美国推出的第一种 COVID 疫苗是一种 mRNA 疫苗。第二个可能也是:Moderna 的疫苗本周将被考虑。我们以前从未有过普遍使用的 mRNA 疫苗，所以如果你想知道这到底是什么技术，以及它是否与 DNA 有关，你不是一个人。
 
-Watch
+
 
 回答最常见的问题:不，它不会改变你的 DNA。不，它不是一项未经证实的技术(它实际上是已经工作了几十年的)。疾病控制和预防中心在这里有 [一份说明书](https://www.cdc.gov/coronavirus/2019-ncov/vaccines/different-vaccines/mrna.html) 提供你需要了解的关于新技术的基本知识。
 

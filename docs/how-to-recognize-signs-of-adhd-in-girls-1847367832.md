@@ -4,7 +4,7 @@
 
 注意力多动障碍 [通常被称为多动症](https://lifehacker.com/the-parents-guide-to-adhd-1832794766) ，是一种缺乏治疗的疾病，可能会产生许多终身影响。通常，当人们想到多动症时，他们会想到一个坐不住的小男孩。然而， [ADHD 的症状在女孩](https://knowablemagazine.org/article/mind/2020/adhd-in-girls-and-women) 身上往往看起来非常不同，这意味着许多人将会多年— 甚至一生— 得不到诊断或治疗。
 
-Watch
+
 
 “如果你心目中多动症的形象是一个极度活跃，不安分的男孩，那么很多女孩都会在你的雷达下飞来飞去，”心理学家阿里·塔克曼 说，他是《患有多动症的成年人的成功策略[](http://adultadhdbook.com/)*一书的作者。*
 

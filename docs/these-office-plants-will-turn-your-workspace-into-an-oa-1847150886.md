@@ -4,7 +4,7 @@
 
 如果你曾经在办公室工作的时候幻想去热带度假，你并不孤单。虽然你可能无法在任何渴望自然的时候离开你的家或办公室，但让自己周围有一点(或很多)绿色植物可能是退而求其次的好事情。如果你在寻找不仅能完美摆放在办公桌上，而且即使在繁忙的工作日忘记浇水或在漫长的周末忽视它们也能存活的植物，有很多选择。如果你想要一个有点时髦的，我们也有一个 [的鱼缸](https://www.chewy.com/penn-plax-aquaponics-betta-bowl/dp/316032?utm_source=google-product&utm_medium=cpc&utm_campaign=hg&utm_content=Penn-Plax&utm_term=&gclid=Cj0KCQjwlMaGBhD3ARIsAPvWd6gA_tEFy-y9LH7fK-EPsdPGyFbiToZ8N2bbdwx8B0gkyuymfHyE0qsaAnlrEALw_wcB)，有人要吗？
 
-Watch
+
 
 这里有一些植物你会发现它们是有弹性的、、大小合适，并且*有趣*就像你创造你自己的工作场所绿洲*。*
 

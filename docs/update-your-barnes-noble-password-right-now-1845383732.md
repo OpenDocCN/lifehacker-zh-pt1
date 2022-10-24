@@ -4,7 +4,7 @@
 
 在最近的一封电子邮件中，Barnes & Noble 告知其客户，10 月 12 日的一次安全漏洞可能暴露了电子邮件地址和其他账户信息。
 
-Watch
+
 
 黑客影响了商店系统， [据报道导致收银机在一段时间内](https://www.engadget.com/barnes-noble-cyberattack-nook-corporate-takedown-110359048.html) 无法使用，也影响了 Nook 应用和设备。用户无法查看他们的收藏，加载过去的购买，或购买新书，本周有几天 Nook 相关的网页暂时无法访问。到目前为止，Nook 的大部分功能似乎已经恢复，但泄露的严重程度还不清楚。
 

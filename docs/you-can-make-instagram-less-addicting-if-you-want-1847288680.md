@@ -4,7 +4,7 @@
 
 [退出 Instagram](https://lifehacker.com/how-to-quit-that-addictive-app-1821745028) 并不容易——你可能甚至不想*彻底*退出 app。毕竟，迷因、更新和卷轴对你很重要。但是我们中的许多人可以在 Instagram 上少花一点时间。
 
-Watch
+
 
 如果你觉得你的 Instagram 使用率正在失控(或者你只是想把它调回到一个更合理的水平)，这里有一些你可以尝试的技巧。
 

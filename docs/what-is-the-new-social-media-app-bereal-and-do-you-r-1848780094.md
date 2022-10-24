@@ -4,7 +4,7 @@
 
 不断有新的社交媒体平台推出，但很少有像脸书、Instagram、Twitter、Snapchat、抖音、 ~~Truth Social、~~ W hatsApp 和 Telegram 这样有持久力的。每天似乎都在向我们许诺一些新的平台，其中大部分我们都忽略了，或者在最终忽略之前使用了一小段时间；其他人也有闪光的时候，但最终失败了。(倒一个给 Bebo 、 MySpace、Friendster、Google+、和 Parler。 )
 
-Watch
+
 
 O 一个新的应用程序现在正受到一些积极的关注，不过根据 [Apptopia](https://blog.apptopia.com/social-app-of-the-moment-bereal-grows-users-315-ytd) 的说法，自去年 12 月以来下载量稳步上升，根据 [Axios](https://www.axios.com/bereal-gen-zs-favorite-app-authenticity-b9809ab6-2199-47ae-9b2e-2dee4f2bb301.html) 的说法，它是“Z 一代的新宠应用程序”好吧，但这到底是什么——它会成为你的“新宠应用”吗？
 

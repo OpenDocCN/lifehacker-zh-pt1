@@ -4,7 +4,7 @@
 
 去年年底，当美国国家航空航天局(NASA)发射了期待已久的詹姆斯·韦伯太空望远镜(James Webb Space Telescope)进行为期一个月的旅程，前往近百万英里外的目的地时，我们都屏住了呼吸。成功部署后，JWST 一直在努力进行测试和校准，是时候看看望远镜在宇宙中看到了什么。
 
-Watch
+
 
 来自韦伯的第一张图像是 [定于 7 月 11 日星期一在白宫的预览活动中展示](https://webb.nasa.gov/content/webbLaunch/countdown.html) ，乔·拜登总统和美国宇航局局长比尔·纳尔逊出席。这一事件定于美国东部时间下午 5 点，将在美国宇航局电视台 直播 [。一旦图像被公开，它还将被发布在](https://www.nasa.gov/multimedia/nasatv/#public) [美国宇航局的网站和社交媒体源](https://www.nasa.gov/webbfirstimages) 。
 

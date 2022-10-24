@@ -4,7 +4,7 @@
 
 在过去的几年里，任天堂一直处于停滞状态。当然，Switch 最近已经看到了 [不缺乏令人恐怖的游戏](https://kotaku.com/it-turns-out-the-nintendo-switch-s-fall-lineup-actually-1847773671) ，但是任天堂的年度候选名单中缺少了 [白炽灯](https://kotaku.com/super-mario-odyssey-the-kotaku-review-1819856086)[marquees](https://kotaku.com/the-legend-of-zelda-breath-of-the-wild-the-kotaku-rev-1792885174)[即](https://kotaku.com/mario-kart-8-deluxe-the-kotaku-review-1794746789) [定义的](https://kotaku.com/super-smash-bros-ultimate-the-kotaku-review-1830891333) 混合主机的第一两年。连续干旱将在 2022 年戛然而止，这将成为任天堂潜在的辉煌一年——这一年甚至会看到一些值得注意的独家新闻落在财政可靠的续集、翻拍和翻拍帐篷之外*。我们来分解一下。* 
 
-Watch
+
 
 * * *
 

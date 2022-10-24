@@ -4,7 +4,7 @@
 
 2022 年的飞行教练是一次令人讨厌和掏空钱包的经历。根据你乘坐的航空公司，你可能需要为 [支付一切费用，从 WiFi](https://lifehacker.com/which-airlines-offer-free-wifi-or-free-messaging-and-w-1848899990) 和耳机到苹果汁以及提前选座的 [特权](https://lifehacker.com/how-to-avoid-an-airlines-bullshit-seat-selection-fee-1847345736) 。当你不用支付任何行李费就可以离开的时候，这确实是一次罕见的飞行，不管是因为你的行李箱过大还是仅仅因为它的存在。
 
-Watch
+
 
 但是一些旅行者找到了一个创造性的方法，绕过航空公司向我们收取最基本的旅行必需品的费用。
 

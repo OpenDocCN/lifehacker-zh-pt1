@@ -4,7 +4,7 @@
 
 今天是世界旅游日，虽然我们全年的旅游选择都非常有限，但这并不意味着我们不应该庆祝这个日子。是的，我们正在谈论虚拟旅行。(又来了。像其他人一样，我们在疫情开始的时候对数字旅行进行了猛烈的抨击，当时它似乎是一个短暂的新事物。但是几个月后，我们在这里，仍然大部分时间被困在家里。
 
-Watch
+
 
 即使你很早就骑行过 [博物馆](https://lifehacker.com/you-can-virtually-tour-these-500-museums-and-galleries-1842343589)[公园](https://lifehacker.com/how-to-virtually-visit-31-national-parks-using-google-m-1834189792) 和 [国际空间站](https://lifehacker.com/virtually-visit-the-international-space-station-1843943438) ，你也会很高兴地听到，虚拟旅行的选择比以往任何时候都多。正好赶上世界旅游日，Google Arts&Culture[汇集了世界各地的文化目的地](http://g.co/culturaltravel) ，你不用离开你的客厅就可以参观。这是可用的。
 

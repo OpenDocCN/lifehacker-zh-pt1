@@ -10,7 +10,7 @@
 
 即使对 Find My 的保护有所加强(更不用说因不想丢失昂贵的耳塞而产生的焦虑引起的警惕)，我仍然很可能会丢失我最新的耳塞——所以我也会利用最近 Lifehacker 帖子的评论中出现的一个提示，关于 [你的 AirPods Pro 可以做的所有很酷的事情](https://lifehacker.com/21-clever-airpods-pro-settings-everyone-should-be-using-1847590845) :
 
-Watch
+
 
 我不知道 Roncore 是否创新了这个想法，但对我来说这是个新闻，而且非常聪明。在你的蓝牙设置中，重命名你的 AirPods，AirPods Pro，或者，就我而言，Beats Studio Buds，是极其容易的。不要称它们为可爱的东西(我以前的耳塞绰号包括“smolpods”和前面提到的“l'il buddies”)，而是重命名它们，以匹配你的电子邮件地址。下一次耳塞连接到你的手机时，你会看到新的名称——它们也应该以这种方式显示在它们连接的任何其他设备上。
 

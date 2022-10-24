@@ -4,7 +4,7 @@
 
 想在情人节给某人买花吗？你最好快点，因为越接近 2 月 14 日，价格只会越贵。
 
-Watch
+
 
 根据交易搜索网站 [Brad's Deals](https://www.bradsdeals.com/blog/why-are-roses-so-expensive-on-valentines-day) 的一项研究，在盛夏时节，当你从五大送货品牌之一订购玫瑰时，它们的平均价格为 32 美元，你会得到最低的价格(当然是按打计算)。相比之下，峰值平均价格——情人节前一周 49.98 美元。根据供需情况，那辆的[可以秒杀到近 100 美元](https://moneywise.com/a/the-cost-of-love-valentines-day-prices-in-2019)的 ( *之前的*送货费！)在当天作为最后一分钟的订单购买。
 

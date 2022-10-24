@@ -4,7 +4,7 @@
 
 当去年 [Windows 11](https://lifehacker.com/how-to-install-windows-11-right-now-even-if-you-dont-h-1847799922) 推出时，那是一次彻底的更新。它用一个新的中央任务栏和更新的用户界面元素改变了几十年前的操作系统的面貌。但是 [它并没有完全完成](https://lifehacker.com/7-frustrating-new-features-in-windows-11-and-how-to-fi-1848626828) : 它的黑暗模式缺乏，任务栏令人沮丧，新的开始菜单留下了一大堆有待改进。Windows 11 的第一次重大更新(2022 年)是为了弥补这些缺点。
 
-Watch
+
 
 这是一个更新，有很多修复(包括功能和 UI 元素)，以及一些很棒的新特性。如果你已经在运行 Windows 11，这个很容易推荐。进入**设置> Windows 更新**开始该过程。在你等待的时候，尝试所有新的东西。
 

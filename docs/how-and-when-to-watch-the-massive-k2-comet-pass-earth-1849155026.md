@@ -8,7 +8,7 @@
 
 彗星 C/2017 K2(panstars)——或简称“K2”——五年前首次被发现，时间是 2017 年 5 月，由哈勃太空望远镜， [美国宇航局报道](https://apod.nasa.gov/apod/ap220630.html) 。该机构分享了一张 2022 年 6 月 20 日拍摄的彗星图像，当时它(相对)靠近疏散星团 IC 4665 和亮星β蛇夫座，靠近银河系的一个星空边缘。
 
-Watch
+
 
 美国宇航局解释说，这是 K2 彗星首次从昏暗而遥远的奥尔特云[进入内太阳系。当它在 2017 年 5 月首次被观测到时，它是迄今为止发现的距离太阳大约 24 亿公里的，在天王星和土星的](https://solarsystem.nasa.gov/solar-system/oort-cloud/overview/) [轨道距离](https://hubblesite.org/contents/media/images/2017/40/4071-Image.html?news=true) 之间。
 

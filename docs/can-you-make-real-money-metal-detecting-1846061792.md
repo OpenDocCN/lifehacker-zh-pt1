@@ -4,7 +4,7 @@
 
 关于人们使用金属探测器发现珍贵文物——[古钱币](https://www.kiro7.com/news/trending/treasure-hunt-man-finds-222-year-old-coin-using-metal-detector/56U5OI4DDZC35BZJ7Z3BVFE2TQ/)[珍贵珠宝](https://nypost.com/2020/12/12/mysterious-gold-jewelry-washes-up-on-venezuelan-beach/)[金块](https://www.newsweek.com/retired-man-finds-huge-gold-nugget-his-metal-detector-1132856)甚至 [一块查理一世的皇冠](https://www.telegraph.co.uk/men/thinking-man/has-detectorist-uncovered-part-charles-lost-epiphany-crown/) 的新闻已经有很多了？(英国人总是有最好的发现)。尽管这些发现令人兴奋，但找到这些东西的几率很低，这取决于你的经验、你使用的金属探测器、你探索的地点，以及最重要的，你的奉献精神。你可以用金属探测器赚点外快，但不要指望以此为生——也许一周只有 20 美元。话又说回来，大发现的前景也很诱人，但是如果你希望这样做的话，你必须投入时间和金钱，开发一些技术诀窍，并准备好在这个过程中发现许多生锈的旧钉子。
 
-Watch
+
 
 ### **金属检测如何支付**
 

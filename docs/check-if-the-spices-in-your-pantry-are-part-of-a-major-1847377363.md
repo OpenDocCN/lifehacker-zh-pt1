@@ -4,7 +4,7 @@
 
 多样性可能是生活的调味品，但你可能不希望沙门氏菌混入其中。这就是为什么今天看看你的香料收藏是个好主意:三种受欢迎的混合调料因可能被沙门氏菌污染而被自愿召回，美国食品药品监督管理局[(FDA)](https://www.fda.gov/safety/recalls-market-withdrawals-safety-alerts/voluntary-recall-notice-mccormick-italian-seasoning-products-and-franks-redhot-buffalo-ranch)报道。以下是需要了解的内容。
 
-Watch
+
 
 ## 哪些香料是召回的一部分？
 

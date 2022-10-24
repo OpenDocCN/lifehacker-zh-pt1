@@ -4,7 +4,7 @@
 
 WhatsApp 刚刚放弃了对另一轮旧版本 iOS 和 Android 的支持。如 WhatsApp 的 [最近更新的系统要求](https://faq.whatsapp.com/general/download-and-installation/about-supported-operating-systems) 中所述，2021 年 11 月 1 日之后，你的设备必须至少运行 iOS 10 或 Android 4.1 才能访问 WhatsApp。
 
-Watch
+
 
 如果你有一段时间没有进行系统升级，一些用户可能会升级他们手机的操作系统以重新获得访问权限，但一些受影响的设备已经使用了 6 到 10 年，不再支持操作系统更新本身——所以如果你仍然拿着一部旧 iPhone，这可能是该升级的另一个信号。
 

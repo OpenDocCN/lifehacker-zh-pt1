@@ -4,7 +4,7 @@
 
 考虑到迄今为止 2021 年的生活是以 为特征的无处不在的混乱和不确定性，你可能会觉得不得不在大吃一盒美味的冰淇淋中寻求慰藉。但是今年，就连冰淇淋都想杀了你。
 
-Watch
+
 
 来自[Weis Markets](https://www.weismarkets.com/)的两种冰淇淋产品可能充斥着有害物质:根据本月早些时候发布的一份 [FDA 公告，目前在市场上销售的该公司产品的 11，000 个容器都带有窒息危险警告，因为“金属灌装设备部件”被楔入其糖果中。](https://www.fda.gov/safety/recalls-market-withdrawals-safety-alerts/weis-markets-issues-recall-possible-foreign-matter-contamination-weis-ice-cream-products#recall-announcement)T11】
 

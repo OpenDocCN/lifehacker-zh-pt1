@@ -4,7 +4,7 @@
 
 尽管过去几个总统选举周期发生了剧变，但美国最常见的选举形式无疑是简单的...理论上:选民选择他们最喜欢的候选人，在计票结束时谁的票数最多谁就获胜。( [)除非他们不](https://www.independent.co.uk/news/world/americas/us-politics/donald-trump-lost-popular-vote-hillary-clinton-us-election-president-history-a7470116.html) 。)
 
-Watch
+
 
 尽管表面上看起来很简单，但问题显然普遍存在，批评者继续反对我们制度的许多定义机构，从选民身份法，到竞选财务法，再到选举团。
 

@@ -4,7 +4,7 @@
 
 上周， [索尼宣布了](https://lifehacker.com/should-you-cancel-or-upgrade-your-playstation-plus-su-1848721975) 其改进的“PlayStation Plus”订阅服务，提供三个不同的等级，让你在线玩游戏，以及访问独家游戏。如果你想访问所有提供的游戏，包括 PS2、PS3 和 PSP 选项，你需要支付 120 美元的年费。当然，除非您使用这种变通方法。
 
-Watch
+
 
 PlayStation Plus Premium 本质上结合了当前的 PlayStation Plus 和 PlayStation Now 服务:前者让你可以在线播放一些独家游戏，而后者让你可以访问一系列游戏。因此，当这项服务在 6 月份推出时，索尼将自动将任何现有的 PlayStation Now 帐户注册到 PlayStation Plus Premium 帐户中。
 

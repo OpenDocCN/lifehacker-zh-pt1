@@ -4,7 +4,7 @@
 
 既然介绍像和 [Dimensional](https://lifehacker.com/do-you-need-dimensional-the-social-media-app-for-perso-1849125369) 这样时髦的新应用程序是我现在的专长，那么我很有必要为你带来 NGL 的新闻，这是一个与你的 Instagram 帐户配对的应用程序，它让人们能够向你发送完全匿名的消息。
 
-Watch
+
 
 ## 什么是 NGL？
 

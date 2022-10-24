@@ -6,7 +6,7 @@
 
 根据 [Spotify 的隐私政策](https://www.spotify.com/us/legal/privacy-policy/) ，公司追踪:
 
-Watch
+
 
 *   你的名字
 *   电子邮件地址

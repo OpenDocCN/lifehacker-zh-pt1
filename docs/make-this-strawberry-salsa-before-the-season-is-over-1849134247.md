@@ -4,7 +4,7 @@
 
 我没有拉丁血统。我来自在黑暗中发光的俄罗斯血统，但我是一个严重的墨西哥食物势利者。我在亚利桑那州呆了三十年，在那里我们把墨西哥食物理解为一个超越墨西哥卷饼的完整的烹饪生态系统。欣赏[Silvana Salcido Esparza](https://www.barriocafe.com/about-1)的美食 Gran Reserva 可以与任何 [Berto 的](https://www.phoenixnewtimes.com/restaurants/the-best-bertos-style-fast-food-and-drive-thru-mexican-restaurants-in-metro-phoenix-8910887) 免下车餐馆的凌晨 2 点墨西哥卷饼相平衡。我为那些永远无法体验山谷中的 [波索尔](https://galloblancocafe.com/) 和 [埃洛特](https://alebrijephx.com/) 的人哭泣，在一些非常高档的地方用餐后，我仍然会叫一份午夜 [索诺拉犬](https://www.facebook.com/NogalesHotDogsNo2) ，从停车场的帐篷里购买，一顿独特的完美大餐。
 
-Watch
+
 
 所以毫不奇怪，我仍然一直在发现墨西哥食物的新方面——五年前，我发现了[La Santisma](https://lasantisimagourmet.com/)——凤凰城中部的一个令人放松的地方，那里的菜单让你头晕目眩。萨尔萨酒吧就像一次美妙的迷幻之旅——一道 [彩虹](https://www.placestoseeinarizona.com/wp-content/uploads/2014/01/la-santisima-taco-phoenix-salsa-bar.jpg) 以传统的番茄和西红柿为主的选择，辅以墨西哥辣酱、山核桃辣酱和草莓辣酱以及 20 种其他选择，每五分钟就会让你回到酒吧尝试一些新的东西。我多年来一直在想那个草莓沙拉。
 

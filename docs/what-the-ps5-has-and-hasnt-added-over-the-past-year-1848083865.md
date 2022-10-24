@@ -4,7 +4,7 @@
 
 一年前，视频游戏世界发生了两件值得注意的事情。首先，11 月 12 日，索尼在某些市场发布了 PlayStation 5——这是其七年来第一款全新的游戏主机。然后，几天后， [*Kotaku* 评估了新系统的功能](https://kotaku.com/dear-sony-here-s-our-playstation-5-wishlist-1845693490) ，探索如何让硬件感觉完全充实起来。
 
-Watch
+
 
 **阅读更多:** [亲爱的索尼，这是我们的 PlayStation 5 愿望清单](https://kotaku.com/dear-sony-here-s-our-playstation-5-wishlist-1845693490)
 

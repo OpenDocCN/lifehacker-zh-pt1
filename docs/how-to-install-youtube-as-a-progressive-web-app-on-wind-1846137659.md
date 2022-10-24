@@ -4,7 +4,7 @@
 
 现在，您可以将 YouTube 作为渐进式 web 应用程序(PWA)安装在 Windows 上。这是什么意思？pwa 就像是网站的桌面快捷方式，在它们自己单独的应用程序窗口中运行。它们不会占用太多空间，加载速度也比在 Chrome 或 Edge 中导航到网站快。pwa 在任务栏上也有自己的图标，不会添加到你的 [打开的浏览器标签](https://lifehacker.com/close-all-your-tabs-just-close-em-1845775727) 的沼泽中。
 
-Watch
+
 
 (技术上你也可以将 YouTube 作为 PWA 安装在 Android 上，但是在我们的体验中，它还不如标准的 YouTube Android 应用，所以让我们把重点放在桌面版上)。
 

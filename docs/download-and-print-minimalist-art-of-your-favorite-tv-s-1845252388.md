@@ -4,7 +4,7 @@
 
 在看了几年电视节目并了解了这些角色后，我们开始觉得他们的家是我们自己的延伸。事实上，过去几十年中一些最突出的室内设计趋势是 [，至少部分受到情景喜剧场景](https://www.architecturaldigest.com/story/golden-girls-friends-influence-on-design-trends) 的启发，包括莫妮卡·盖勒在《老友记》中的公寓中使用的特定紫色色调的流行(那将是 [潘通 18-3838 TCX 紫外线](https://www.pantone.com/color-finder/18-3838-TCX) )。现在，你可以通过一位艺术家以一种古怪的方式展示你对这些虚构住所的积极感受，这位艺术家创作了极简主义艺术，展示了电视史上一些最具标志性的场景。以下是如何用你最喜欢的电视剧集 [来装饰你的墙壁，就像帕姆](https://www.youtube.com/watch?v=rAixASB9dEg) 一样。
 
-Watch
+
 
 ### 如何下载和打印这种受电视启发的艺术
 

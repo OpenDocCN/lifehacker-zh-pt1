@@ -4,7 +4,7 @@
 
 大家可能都在看 [*鱿鱼游戏*](https://www.netflix.com/title/81040344)——但他们真的*得到*了吗？这部由黄东赫创作的韩国反乌托邦剧已经在网飞 90 个国家登上榜首，并被译成 31 种语言，成为全球轰动的电影。这是一个更大趋势的一部分，特别是说英语的观众正在进入翻译内容。答:根据网飞的 [自有数字](https://about.netflix.com/en/news/what-we-watched-2020-on-netflix) (众所周知 [比公开的](https://www.independent.co.uk/arts-entertainment/tv/news/netflix-ratings-films-tv-shows-figures-publication-refusal-why-a9179516.html) 要少)，2020 年非英语标题的浏览量上升了 50%以上，法语*【鲁邦】*是其有史以来最受关注的系列 之一。
 
-Watch
+
 
 然而，翻译是一门艺术，在网上，许多双语和多语言的韩国人指出了网飞为《乌贼游戏》提供的隐藏字幕“搞糟”了这场秀。《感受亚洲》播客 [Youngi Mayer](https://twitter.com/ymmayer?ref_src=twsrc%5Egoogle%7Ctwcamp%5Eserp%7Ctwgr%5Eauthor) 的漫画和联合主持人在一个病毒式 [Twitter 帖子](https://twitter.com/ymmayer/status/1443615642385592324) (以及的后续)中引发了关于那些韩语不流利的人是否“真的看了同一部剧”的辩论从那以后，梅耶尔对许多 [新闻媒体](https://www.nbcnews.com/news/asian-america/translators-experts-weigh-squid-game-subtitle-debate-rcna2568) 谈到了翻译意义和隐喻而不是字面意思的重要性。
 

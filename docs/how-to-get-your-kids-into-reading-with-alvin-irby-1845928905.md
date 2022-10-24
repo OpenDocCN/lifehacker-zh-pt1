@@ -4,7 +4,7 @@
 
 本周，我们邀请到了教育家、活动家和单口相声家阿尔文·艾尔比，他告诉我们如何让孩子阅读。根据阿尔文的说法，这一切都归结于他们“阅读身份”的发展听听艾尔文与乔丹和资深生活黑客健康编辑(也是家长)贝丝·斯克沃茨基的谈话，谈谈如何让你的孩子更多地接触书籍，以及家长和老师可以用来激励孩子阅读的不同方法。
 
-Watch
+
 
 艾尔文是非营利性扫盲项目的创始人， [理发店书籍](https://barbershopbooks.org/) ，以及儿童书籍 [*格罗斯格雷戈*的作者。](https://www.amazon.com/Gross-Greg-Alvin-Irby/dp/0997781807?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-get-your-kids-into-reading-with-alvin-irby-1845928905&asc_source=&tag=kinjalifehackerlink-20)T9】
 

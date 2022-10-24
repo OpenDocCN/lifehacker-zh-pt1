@@ -4,7 +4,7 @@
 
 本周我们学习如何在短短 30 天内写出你一直想写的那本书，作者是格兰特·福克纳。格兰特是全国小说写作月(又名 NaNoWriMo)的执行主任，著有《给作家打气的[*:52 种见解和行动来提升你的创意魔咒*](https://www.amazon.com/Pep-Talks-Writers-Insights-Creative/dp/1452161089?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-write-a-book-in-30-days-with-author-grant-faulk-1845484058&asc_source=&tag=kinjalifehackerlink-20) 》一书。请听 Grant 与 Jordan 和 Alice 谈论 NaNoWriMo 社区的意外好处、无需编辑的写作过程以及为什么 writer's block 是一个神话。
 
-Watch
+
 
 [https://art19.com/shows/96bf1671-b079-4f44-b7d2-e95d655de263/episodes/ebcc614a-b3ed-427d-bdc6-48aa384693c8/embed](https://art19.com/shows/96bf1671-b079-4f44-b7d2-e95d655de263/episodes/ebcc614a-b3ed-427d-bdc6-48aa384693c8/embed)
 

@@ -4,7 +4,7 @@
 
 大约一年前，当微软发布其新一代游戏机 Xbox 系列 X 和 Xbox 系列 S 时，很难对有太多的要求。毕竟，这两款机器都使用了与 7 年前的 Xbox One 相同的界面和用户界面。熟悉给欲望留下了很小的空间。为什么要改变(大部分)有效的方法？
 
-Watch
+
 
 **阅读更多:** [亲爱的微软，这是我们的 Xbox 系列 X(和 S)愿望清单](https://kotaku.com/dear-microsoft-here-s-our-xbox-series-x-and-s-wishli-1845718212)
 

@@ -4,7 +4,7 @@
 
 2020 年奥运会— 将于 2021 年— 举行，在运动员 [新冠肺炎](https://www.usatoday.com/story/sports/olympics/2021/07/22/tokyo-olympics-team-flight-investigation-covid-cluster-czech-team/8052341002/) 检测呈阳性，以及许多日本公民表示 [他们不希望奥运会继续](https://www.latimes.com/world-nation/story/2021-05-25/tokyo-olympics-loom-fears-mount-over-thousands-visitors) 的不安定气氛的背景下，今天正式开始了一个可疑的开端。
 
-Watch
+
 
 但是，尽管有许多小插曲，奥运会正在东京举行，这意味着你可能应该观看他们，因为即使这是一个阴郁的、冲淡的奥运会，它仍然是奥运会。如果你没有有线电视，你仍然可以观看大量的活动。
 

@@ -4,7 +4,7 @@
 
 iPhone 有一个很棒的辅助功能，许多流行的应用程序都采用了这个功能——动态类型，让你增加或减少操作系统和所有支持的应用程序的文本大小，就是一个很好的例子。从 [iOS 15 和 iPadOS 15](https://lifehacker.com/the-10-coolest-ios-15-features-announced-at-wwdc-2021-1847048865) 开始，你将能够独立地为每个应用程序(甚至是主屏幕)指定文本大小，这要归功于设备的控制中心中一个方便的新文本大小控制。(iOS 15 和 iPadOS 15 是 [目前在公测](https://lifehacker.com/how-to-install-ios-15-and-ipados-15-public-betas-1847209002) ，稳定版应该会在秋季出来。)
 
-Watch
+
 
 ## 如何将文本大小控件添加到控制中心
 

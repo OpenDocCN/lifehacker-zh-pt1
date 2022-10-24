@@ -4,7 +4,7 @@
 
 我不知道当你想知道如何变得更有男子气概时，是谁决定听塔克·卡尔森的(可能是塔克·卡尔森)，但这个家伙最近在 [取笑了一部即将上映的纪录片](https://www.huffpost.com/entry/tucker-carlson-testicle-tanning_n_625cd22ee4b0be72bff7a25f) 关于这个主题的剪辑，其中包括“睾丸晒黑”的概念
 
-Watch
+
 
 我不时会遇到人们在健身或健康或 [生物黑客论坛](https://lifehacker.com/what-is-biohacking-and-is-any-of-it-not-stupid-1848469897) 上谈论的事情，这些事情似乎是揭穿真相的时机成熟了，只是这个想法还没有主流到足以让 Lifehacker 报道。晒晒你的蛋蛋——或者更好的是，把它们暴露在 [一个价值 1649 美元的红灯面板](https://joovv.com/products/joovv-solo-3-0)——是逃避我的“至少我不用写这个”心理清单的最新方法。
 

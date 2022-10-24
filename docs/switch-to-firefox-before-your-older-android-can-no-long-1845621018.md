@@ -4,7 +4,7 @@
 
 我知道这种想法很奇怪，但这是真的:从明年 9 月开始，Android 7.1 或更早版本的用户——这大约是目前使用 Android 的三分之一——可能无法连接到任何使用 SSL 证书的网站。为了保持一致，这大概是万维网的 [三分之一](https://www.androidpolice.com/2020/11/07/many-websites-will-stop-working-on-older-android-versions-in-2021/) 。
 
-Watch
+
 
 至于为什么，简而言之就简单了。大约 95%的网络 [使用如今的 HTTPS](https://transparencyreport.google.com/https/overview?hl=en)——这是一个很好的浏览器安全指标。然而，启动一个新的认证中心的过程有点痛苦，这个认证中心负责发布数字证书，网站使用 [作为【HTTPS】](https://howhttps.works/)的一部分。正如雅各布·霍夫曼-安德鲁斯在《让我们加密:
 

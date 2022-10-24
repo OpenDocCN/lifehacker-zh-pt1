@@ -4,7 +4,7 @@
 
 脸书举报者弗朗西丝·豪根(Frances Haugen)是公民诚信小组(也是前雇员)的前雇员， [最近泄露了](https://gizmodo.com/facebooks-leaked-docs-heres-what-you-need-to-know-1847931642) 数千份内部文件，包括内部员工讨论、备忘录、研究和演示文稿，作为一个项目的一部分，这些文件被新闻媒体财团统称为“ [【脸书文件】](https://www.latimes.com/world-nation/story/2021-10-25/explain-facebook-papers-whistleblower-frances-haugen) ”Gizmodo 有这些文件，我们渴望与你分享。
 
-Watch
+
 
 有很多原因导致我们没有看到所有这些文件公开发布——至少现在还没有。首先，简单介绍一下格式:大多数(如果不是全部的话)“文档”实际上是用某人的手机拍摄的电脑屏幕照片。虽然 Haugen 与证券交易委员会分享了未经编辑的版本，作为她的 [举报人投诉](https://www.protocol.com/policy/frances-haugen-sec-facebook) 的一部分，但我们收到的副本已经由她的法律团队进行了编辑。所有的内部聊天和其他文件都经过了编辑，删除了“低级”脸书员工的名字，这意味着我们无法联系他们进行评论。
 

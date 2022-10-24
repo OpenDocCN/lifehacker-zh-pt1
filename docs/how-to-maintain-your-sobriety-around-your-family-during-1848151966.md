@@ -4,7 +4,7 @@
 
 有很多理由可以让你在这个假期及以后保持清醒。尽管如此，没有什么能像你所爱的人那样考验你的决心，比如一场政治演说，或者询问你的人生决定，或者以只有家人才能做到的方式触动你的按钮。对我们许多人来说，家庭时间就像饮酒:最好小心适度。
 
-Watch
+
 
 你的家人考验你的耐心或者造成压力，不代表你不爱他们；仅仅因为他们喝酒或者质疑你戒酒的理由，并不意味着他们不支持你。不管怎样，制定一个策略来度过一个和家人在一起的清醒的假期是有帮助的。根据[Deni Carise 博士，美国康复中心的 chief sscientific oof America](https://recoverycentersofamerica.com/blogs/protect-your-recovery-4-tips-on-staying-sober-over-the-holidays/)的说法，重要的是“承认【饮酒诱因】在你的生活中，识别它们是什么或者是谁，并据此制定计划。”
 

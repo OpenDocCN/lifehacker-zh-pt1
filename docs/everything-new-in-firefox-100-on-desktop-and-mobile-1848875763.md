@@ -4,7 +4,7 @@
 
 Mozilla 刚刚放弃了 [Firefox 版本 100](https://blog.mozilla.org/en/mozilla/celebrating-firefox-100/) ，有几个新功能标志着浏览器的里程碑式更新，包括新的辅助功能选项、更容易的支付、更强的浏览安全性等等。Firefox 的桌面版和移动版的特性是分开的，所以我们将在各自的章节中介绍它们。
 
-Watch
+
 
 ## 桌面版 Firefox 100 的新特性
 

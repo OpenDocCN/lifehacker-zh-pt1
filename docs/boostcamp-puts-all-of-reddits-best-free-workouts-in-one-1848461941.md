@@ -4,7 +4,7 @@
 
 有很多很棒的免费锻炼项目，它们并不难找到，尤其是当你开始浏览像 Reddit 上的健身论坛时。但是，即使这些程序是免费的，入门仍然有障碍，比如如何从电子表格中获取一个程序到你的手机中(或者，如果你像我一样，在健身房里随身携带一个 [珍贵的日记](https://www.theonion.com/guy-at-gym-has-precious-little-diary-to-keep-track-of-a-1819578810) )。
 
-Watch
+
 
 我知道我不是唯一一个选择不太好的初学者程序的人，因为它附带了一个易于使用的应用程序。我的错误发生在几年前。好在今天，有 [Boostcamp](https://www.boostcamp.app) 。
 

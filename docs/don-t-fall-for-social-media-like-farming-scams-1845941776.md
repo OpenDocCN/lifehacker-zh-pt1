@@ -4,7 +4,7 @@
 
 商业改善局 [警告人们](https://www.bbb.org/article/news-releases/23522-scam-alert-how-to-spot-a-fake-social-media-giveaway) 不要陷入“喜欢农业”的社交媒体骗局，这些骗局提供奖励来换取参与，如喜欢或评论。棘手的是，有些比赛是合法的，所以你需要知道如何识别假的。
 
-Watch
+
 
 ## **骗局如何运作**
 

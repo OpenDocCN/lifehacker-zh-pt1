@@ -4,7 +4,7 @@
 
 我已经写过几次关于蛋黄酱、鸡肉和鸡肉上的蛋黄酱的文章了。我喜欢将 [刷在整个烘烤器](https://lifehacker.com/brush-your-chicken-with-mayo-before-roasting-it-1843608730) 上，以促进皮肤褐变， [用它作为面包屑基质](https://lifehacker.com/use-mayo-to-bread-chicken-nuggets-1835096685) 制作鸡块，但我从未尝试过用它作为无骨无皮乳房的卤汁，主要是因为我没有吃这些的习惯。对于我颓废的味觉来说，苍白的肉块通常太实用了。(我知道，在我的大脑中,“食物是燃料”,但我最近才开始这么想，这要感谢举重，它比我以前需要更多的燃料。)
 
-Watch
+
 
 在我看来，鸡胸肉总是与饮食文化紧密联系在一起，这要归功于它们低脂肪、低热量的名声(实际上， [大腿的热量并没有那么高，](https://lifehacker.com/chicken-thighs-are-healthy-too-1848954478) 和味道要好得多)。但是有些人理所当然地喜欢鸡胸肉，这些人也应该受到批评，所以我决定最终尝试一下" mayonade" 。
 

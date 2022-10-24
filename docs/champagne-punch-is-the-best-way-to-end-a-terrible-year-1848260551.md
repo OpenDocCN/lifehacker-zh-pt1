@@ -4,7 +4,7 @@
 
 2021 年还有两天就结束了，也就是说我们 [一个月的打卡党](https://thetakeout.com/party-punch-recipe-with-sherbet-and-ginger-ale-1848131923) 的最后调度时间到了。天哪，我们玩得多开心啊！我们歌颂了 [果子露潘趣酒](https://thetakeout.com/party-punch-recipe-with-sherbet-and-ginger-ale-1848131923) ，这是你不用系上蹦极绳就能获得的最接近完全愉悦的酒。我们进入了 wassail 奇怪的发源，这是一种节日潘趣酒，既作为名词又作为动词。我们介绍了 [牛奶潘趣酒](https://thetakeout.com/milk-punch-recipe-southern-style-clarified-cocktail-1848214342) ，一种既烈性又不烈性的饮料。上周，我们讨论了 [简陋冰环](https://thetakeout.com/ice-ring-keeps-holiday-punch-chilled-1848253768) 的荣耀，这是各种规模酒会的必需品。
 
-Watch
+
 
 在对本周的专栏进行头脑风暴时，我问了自己两个问题。首先，关于 punch 还有什么要说的？第二，我们如何庆祝又一个糟糕透顶的一年的结束？然后我意识到这两个问题的答案都很简单:香槟潘趣酒。
 

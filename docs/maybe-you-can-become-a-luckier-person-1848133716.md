@@ -4,7 +4,7 @@
 
 自从美国建国以来，成功、金钱和权力来源于努力工作和顽强的决心的观念就已经根深蒂固地融入了美国的文化 DNA，当时本·富兰克林写道:“能量和坚持征服一切。”但是时不时的、甚至戴老奶奶眼镜的白人老头都错了:富兰克林的引用没有把*运气*考虑进去。
 
-Watch
+
 
 不管我们喜欢与否，我们的人生地位在很大程度上是由命运决定的。努力工作与我们的[我们的种族](https://www.aecf.org/resources/race-matters-how-race-affects-education-opportunities)[我们的名字](https://ppw.kuleuven.be/okp/_pdf/Laham2012TNPEW.pdf) 发音有多容易，我们的 [是否有一个中间的首字母](https://ulir.ul.ie/bitstream/handle/10344/5412/Igou_2014_middle.pdf?sequence=4) ，以及无数其他我们无法控制的因素决定了我们成功的可能性。
 

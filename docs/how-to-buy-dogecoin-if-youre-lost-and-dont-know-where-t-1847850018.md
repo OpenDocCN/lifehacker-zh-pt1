@@ -4,7 +4,7 @@
 
 看起来我们似乎长期坐在这个 [加密货币过山车](https://lifehacker.com/how-to-create-your-own-cryptocurrency-1825337462) 上。你可能经常看到的一个名字是 Dogecoin，由经典的柴犬 T5】Doge memeT7】代表。Dogecoin 始于 2013 年，当时只是一个笑话，但尽管起源如此，它现在已经有了实际价值，受到了埃隆·马斯克和马克·库班的青睐。你也可以进入 DOGE，即使你是加密货币新手。 
 
-Watch
+
 
 ## 哪里可以买到 Dogecoin
 

@@ -4,7 +4,7 @@
 
 如果你一直在更新你的 Windows，很有可能你安装了微软 2020 年 10 月的一系列调整和修复——假设你 [没有被阻止](https://www.windowscentral.com/heres-why-you-might-be-blocked-getting-windows-10-october-2020-update) 这样做。高级用户可能注意到的一个大变化是从控制面板上移除了老式系统窗口。
 
-Watch
+
 
 之前的链接会将您带到如下所示的屏幕:
 

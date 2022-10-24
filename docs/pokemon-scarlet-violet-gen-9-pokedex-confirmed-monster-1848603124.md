@@ -4,7 +4,7 @@
 
 11 月，Game Freak 将发布第九代主线神奇宝贝游戏 [*神奇宝贝猩红*和*紫罗兰*](https://kotaku.com/pokemon-scarlet-and-violet-announced-here-are-the-new-1848599518) ，预计将在任天堂 Switch 销售数百万份。除了在地中海地区建立一个真正的开放世界之外，游戏还将把神奇宝贝的总数从大约 90 亿增加到一个连德州仪器都无法计算的数字。
 
-Watch
+
 
 *本帖最初发表于 2022 年 2 月 28 日。我们一直在更新它，并在今天在* [*重新发布它，作为新一波关于*神奇宝贝猩红*和*紫罗兰](https://kotaku.com/nintendo-pokemon-scarlet-violet-new-trailer-switch-1849623863) *的信息的唤醒。*
 

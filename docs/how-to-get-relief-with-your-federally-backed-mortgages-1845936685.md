@@ -4,7 +4,7 @@
 
 为了帮助面临抵押贷款延期到期的房主，住房和城市发展部(HUD) [宣布](https://www.hud.gov/press/press_releases_media_advisories/hud_no_21_023) 再次延长联邦支持的[FHA](https://www.investopedia.com/terms/f/fhaloan.asp)[美国农业部](https://www.nerdwallet.com/article/mortgages/usda-loan) 和 [VA](https://www.military.com/money/va-loans) 房屋贷款延期至 2021 年 6 月 30 日此外，借款人在这一日期之前可以有资格延长六个月。
 
-Watch
+
 
 在此之前，联邦住房金融机构宣布，由房利美和房地美的抵押贷款支持的借款人也有资格获得三个月的延期，总共 15 个月的覆盖范围。此外，对于这些抵押贷款，单户家庭止赎和 [房地产自有(REO)](https://www.nolo.com/legal-encyclopedia/what-does-mean-property-reo.html)驱逐的暂停令已经延长一个月，直到 3 月 31 日。(如果你需要复习，这里有一个关于所有这些贷款类型 之间区别的 [分类)。](https://americanmortgage.com/pages/mortgage-loan-types)
 

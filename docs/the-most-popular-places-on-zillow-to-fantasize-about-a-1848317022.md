@@ -4,7 +4,7 @@
 
 在过去的两年里，我们中的许多人都花了一部分空闲时间在网上查看房屋清单——首先是渴望走出目前的四面墙，然后是对失控的房地产市场的绝望。
 
-Watch
+
 
 仅仅因为我们在看并不意味着我们在买(虽然很明显[*某人*是](https://www.reuters.com/markets/us/us-home-sales-rise-71-2021-fall-next-two-years-fannie-mae-2021-12-20/) )，但是像 Zillow 和 Redfin 这样的房产列表网站注意到了人们在哪里搜索，以列出最“想要”的目的地。
 

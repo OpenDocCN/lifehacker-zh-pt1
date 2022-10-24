@@ -4,7 +4,7 @@
 
 我们已经被警告不要拜访家人和朋友，感恩节那天 [被要求呆在家里](https://vitals.lifehacker.com/its-time-to-cancel-your-thanksgiving-travel-plans-1845659175) ，但是似乎另一个对我们健康的威胁已经潜伏在我们的家里: [都乐新鲜蔬菜公司已经主动召回了](https://www.fda.gov/safety/recalls-market-withdrawals-safety-alerts/dole-fresh-vegetables-announces-limited-recall-organic-romaine-hearts) 一些生菜，因为担心可能的大肠杆菌污染。
 
-Watch
+
 
 现在，一年一度的对罗马人的回忆几乎就像赦免火鸡和庆祝美国神话的虚假叙述一样成为感恩节的传统。事实上，这标志着 Lifehacker 连续第三次召回生菜(有趣的是，每次都在 11 月 20 日至 24 日之间)，尽管第一次是在疫情期间。以下是今年召回需要了解的内容。
 

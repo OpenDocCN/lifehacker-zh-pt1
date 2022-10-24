@@ -4,7 +4,7 @@
 
 [Wordle](https://www.powerlanguage.co.uk/wordle/) 已经成为我们很多人的日常困扰；每天花几分钟时间尝试在六次或更少的猜测中破译 Wordle 单词是很好的(今天花了我五次，让我感到非常羞愧)。虽然这款游戏到目前为止都是免费的，但《纽约时报》最近对它的收购引起了人们对 Wordle 可访问性未来的担忧。
 
-Watch
+
 
 [T 何次已说](https://www.nytimes.com/2022/01/31/business/media/new-york-times-wordle.html) 字儿将“最初”继续自由发挥。但是“最初”是相当主观的，而且《纽约时报》已经提供了游戏应用的付费订阅，所以我们可能都对 Wordle 的未来感到有点紧张。幸运的是，现在有一种简单的方法来保护这个游戏。
 

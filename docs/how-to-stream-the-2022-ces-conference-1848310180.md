@@ -4,7 +4,7 @@
 
 CES 2022 就在这里，从 1 月 5 日的 [到 1 月 7 日的](https://www.ces.tech/Logistics/Dates-and-Hours.aspx) — 几个著名的名字选择不参加现场表演。如果你没有抢到票，但仍然想体验一下，那么你很幸运。今年有很多生活方式。
 
-Watch
+
 
 ## 如何观看 CES 2022 直播
 

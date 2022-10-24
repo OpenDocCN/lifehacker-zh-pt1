@@ -4,7 +4,7 @@
 
 肥料可以帮助植物更健康、更强壮，给它们提供均衡的营养促进根系生长和花期延长。普遍的共识是，你应该在生长季节给你的植物施肥，生长季节是 [早春到仲春](https://www.gardeningknowhow.com/garden-how-to/soil-fertilizers/best-times-to-apply-fertilizer.htm) ，但实际上没那么简单:每种植物都有 [不同的施肥需求](https://southernlivingplants.com/planting-care/time-it-right-when-to-fertilize-your-plants/) ，找到合适的施肥需要一点科学。
 
-Watch
+
 
 困难的部分是知道你给的是太多还是不够，所以这里有如何辨别你的植物是缺乏营养还是得到了太多食物的方法。
 

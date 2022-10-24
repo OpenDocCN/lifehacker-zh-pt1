@@ -4,7 +4,7 @@
 
 [*光环无限*的半开放世界](https://kotaku.com/how-halo-infinite-used-a-kinda-open-world-to-deliver-on-1848277571) 有 15 个可选的迷你老板，表面上是一些被放逐的最可怕的成员。每次你击败一个，你将解锁一个武器变体——在 [上旋转，你可以找到](https://kotaku.com/27-things-i-wish-i-knew-before-starting-halo-infinite-s-1848179027?rev=1638978071820) 的基本武器——然后你可以在前沿作战基地建立装载时选择。所有的变体都是不同的，但它们总是激发相同的反应:“酷！那么…这他妈的是干什么的？”
 
-Watch
+
 
 大多数*光环无限*的武器变体都是在一个原始的力量雪武器皮肤中完成的(坦白地说，这将在 [*无限*的微交易商店](https://kotaku.com/halo-infinite-is-plagued-with-gray-and-drab-armor-that-1848156663) 中大赚一笔)。其中一些有明显的好处——比如更快的射速，或者锁定功能——在名字前用一个夸张的形容词如“挥发性”或“净化”来表示。然而，其他的就不那么清楚了，看起来和它们所基于的标准模型没有什么不同。
 

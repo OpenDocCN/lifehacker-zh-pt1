@@ -4,7 +4,7 @@
 
 在疫情期间，视频游戏对我们的心理健康来说比以往任何时候都更重要( [，我们不只是说](https://lifehacker.com/actually-video-games-can-be-beneficial-to-your-mental-1845738787) )。随着越来越多的人 [玩视频游戏](https://offspring.lifehacker.com/how-to-play-assassin-s-creed-valhalla-in-dad-mode-1845701774) ，控制器成为许多聚会和家庭聚会的焦点——这就是为什么定期清洁你的控制器和其他共享游戏硬件很重要。
 
-Watch
+
 
 无论是需要消毒擦拭还是需要更深入的日常清洁，以下是如何安全清洁游戏控制器的方法。虽然我们关注的是 [控制台控制器](https://lifehacker.com/how-to-use-a-playstation-5-controller-with-steam-1845742247) ，但你也可以使用同样的策略来清洁你的键盘和鼠标，像任天堂 Switch 这样的便携式设备，以及 VR 耳机和外设。
 

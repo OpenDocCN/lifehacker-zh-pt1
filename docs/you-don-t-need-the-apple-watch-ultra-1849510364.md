@@ -4,7 +4,7 @@
 
 苹果公司正式宣布了其新一代高端可穿戴设备, Apple Watch Series 8 和 Apple Watch Ultra。两种型号都有许多新功能，但可穿戴技术世界的肮脏小秘密是大多数人实际上并不需要或使用它们。如果你在寻找最物有所值的智能手表来搭配你的 iPhone，就买更便宜的 Apple Watch SE 来代替。
 
-Watch
+
 
 ## Apple Watch Ultra 到底提供了什么？
 

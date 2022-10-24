@@ -4,7 +4,7 @@
 
 一段时间以来，美国唱片业协会将打击数字盗版的斗争提升到了一个意想不到的水平:针对一个开源程序，一个*可能被*用来做一些他们不应该在网上做的事情，而不管该程序是否也可以用于合法目的。
 
-Watch
+
 
 当然，我说的是 [youtube-dl](https://github.com/github/dmca/blob/master/2020/10/2020-10-23-RIAA.md) ，这是一个非常方便的工具，允许任何人通过命令提示符或终端直接从 youtube 下载视频——或者是 [一个方便的 GUI](https://mrs0m30n3.github.io/youtube-dl-gui) ，这是我更喜欢的。
 

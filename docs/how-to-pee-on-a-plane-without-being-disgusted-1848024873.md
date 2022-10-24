@@ -4,7 +4,7 @@
 
 假期很快就要到了，我们中的许多人即将迎来近两年来的第一次飞行。我们都可以重温一下空中旅行的技巧和诀窍，比如在飞机上使用洗手间的正确时间，或者 [如何在飞机上吃东西而不生病](https://lifehacker.com/how-to-eat-on-a-plane-without-getting-sick-1847996267) 。
 
-Watch
+
 
 尽管如此，对飞行的一些担忧经常达到超出理性的境界:扶手崩溃。 [掩命违抗者](https://lifehacker.com/is-not-wearing-a-mask-on-a-flight-worth-250-to-you-1846226199) 。我们那些认为在拥挤的航班上剪脚趾甲没问题的人类同胞。在航空旅行的抱怨清单上，飞机卫生间的清洁度排名非常低。
 

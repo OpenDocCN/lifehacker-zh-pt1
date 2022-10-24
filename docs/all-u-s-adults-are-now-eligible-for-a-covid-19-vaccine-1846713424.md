@@ -4,7 +4,7 @@
 
 今天是 4 月 19 日，拜登总统的 [意图是让所有成年人在今天](https://www.cidrap.umn.edu/news-perspective/2021/04/biden-moves-covid-19-vaccine-eligibility-date-april-19) 之前有资格接种 COVID 疫苗，这一意图已经实现:[《纽约时报》报道](https://www.nytimes.com/2021/04/19/world/adults-eligible-covid-vaccine.html) 所有 50 个州，加上华盛顿特区和波多黎各，现在已经向所有成年人开放资格，不分优先群体。
 
-Watch
+
 
 今天，就接种疫苗的人数而言，我们也站在一个重要的里程碑上:根据 [疾病预防控制中心的追踪者](https://covid.cdc.gov/covid-data-tracker/#vaccinations) 的数据，超过一半的美国成年人至少接种了一剂疫苗。32.5%的美国成年人被认为是“完全接种疫苗”，这意味着他们已经过了最后一剂疫苗的两周。
 

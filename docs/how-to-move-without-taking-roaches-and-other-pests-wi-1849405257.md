@@ -4,7 +4,7 @@
 
 我有一个朋友，曾经住在曼哈顿一个破旧的小公寓里，那里蟑螂横行。当她搬出去的时候，她告诉我她不得不检查她所有的东西，因为噩梦般的虫子几乎无处不在。可以理解，这是她当初搬家的主要原因。)如果你在 [把](https://lifehacker.com/the-first-things-you-need-to-buy-after-moving-into-your-1849157065) 从一个地方搬走，那个地方的 [慢慢地塞满了蟑螂](https://lifehacker.com/how-to-get-rid-of-cockroaches-without-hiring-a-professi-1846354288) 、臭虫、蛾子或者其他害虫，你显然不想重复这种经历。为了避免和你一起移动一个昆虫文明，你可以这么做。
 
-Watch
+
 
 ## 检查蟑螂的地点列表
 

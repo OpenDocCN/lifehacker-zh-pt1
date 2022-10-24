@@ -4,7 +4,7 @@
 
 我最喜欢的现代游戏的创新之一是将你正在玩的游戏流式传输到你的智能手机的能力，无论是来自云的、你的家用游戏机还是 PC。流媒体传输 f 将你的手机变成一个类似任天堂 Switch 的便携设备，可以在它能连接的任何系统上玩游戏。
 
-Watch
+
 
 我们已经介绍了如何使用来自 [、索尼](https://lifehacker.com/how-to-stream-your-ps4-to-any-android-phone-1838909366) 、 [、微软](https://lifehacker.com/how-to-stream-xbox-games-on-your-iphone-or-ipad-1845428424) 和 [Steam](https://lifehacker.com/use-steam-to-stream-your-desktop-instead-of-your-games-1818722875) 的官方应用来实现这一点，但是有一个名为 **PSPlay** 的非官方第三方 Android 应用是 PlayStation 粉丝应该考虑的，因为它比索尼的官方 PS Remote Play 应用更好。
 

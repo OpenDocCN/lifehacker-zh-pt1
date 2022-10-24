@@ -4,7 +4,7 @@
 
 提醒应用程序让我们越来越喜欢。随着最新的 [iOS 15](https://lifehacker.com/36-of-the-best-new-ios-15-features-for-iphone-1847674175) 更新，你现在可以访问 [标签和智能列表](https://lifehacker.com/you-should-definitely-be-using-smart-lists-on-your-ipho-1847657547) ，这使得它可以用作 [电影或阅读列表跟踪器](https://lifehacker.com/the-best-way-to-organize-your-tv-and-movie-watchlist-is-1848250529) 。
 
-Watch
+
 
 提醒现在也变成了一个功能强大的任务管理应用，以至于你可能不需要像 Todoist 或 TickTick 这样的第三方解决方案。“提醒”是免费的，可以和 Siri 一起使用，默认情况下，它会安装在你所有的苹果设备上。
 

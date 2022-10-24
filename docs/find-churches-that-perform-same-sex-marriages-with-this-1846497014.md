@@ -4,7 +4,7 @@
 
 本周，梵蒂冈发表声明，确认他们支持同性关系，但发誓他们不会在天主教堂祝福他们的结合。 [公告](https://press.vatican.va/content/salastampa/en/bollettino/pubblico/2021/03/15/210315b.html) 声称，教会仍将祝福遵循教会教义的 LGBTQ+群体的个人，但他们坚定地认为，他们“不能证明这些关系是正当的，也不能使他们成为教会祝福的合法对象，因为积极的因素存在于一个并非按照造物主的计划安排的结合的背景下。”
 
-Watch
+
 
 这一声明与天主教会对 LGBTQ+成员日益增长的接受度背道而驰。2014 年，皮尤研究中心发现，85%的 18-29 岁的天主教徒支持同性关系和婚姻，2015 年 进行的一项 [调查显示，54%的基督教团体接受同性关系。不管梵蒂冈喜不喜欢，全世界都有教堂和宗教团体肯定同性结合。](https://www.pewresearch.org/fact-tank/2015/12/18/most-u-s-christian-groups-grow-more-accepting-of-homosexuality/)
 

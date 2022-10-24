@@ -4,7 +4,7 @@
 
 如果你*刚刚*买了 *Ghostwire* 、*死亡循环*，或者其他任何大型 PlayStation 游戏，我非常非常抱歉。随着 PlayStation 春季大减价的开始，你可能今天就能买到便宜得多的东西。
 
-Watch
+
 
 昨天 [在一篇博客文章](https://blog.playstation.com/2022/05/24/days-of-play-2022-sale-starts-may-25/) 中宣布，PlayStation 的年度“游戏日”销售从现在开始到 6 月 9 日。有一些 [硬件可以通过 PlayStation Direct](https://direct.playstation.com/en-us/deals) 获得，包括稍微便宜一些的 AF 双感控制器。但是销售的主要焦点是游戏。精选:
 

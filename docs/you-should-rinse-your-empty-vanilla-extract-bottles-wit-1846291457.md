@@ -4,7 +4,7 @@
 
 香草是一种重要的成分，一种复杂的成分，一种昂贵的成分。即使你不是一个大面包师，香草豆及其提取物可以用来给任何食物或饮料带来细微差别、深度和甜味的暗示，但不是甜味。除了糖果、烘焙食品和其他食品，我还喜欢用它来制作我的 [柠檬水](https://skillet.lifehacker.com/take-your-summer-lemonade-to-the-next-level-with-vanill-1714747517) ，我的 [沙拉酱](https://lifehacker.com/it-sounds-weird-but-add-a-little-vanilla-to-your-vinai-1845800173) ，以及——不出所料——我的鸡尾酒。
 
-Watch
+
 
 就像苦味剂一样，香草给酒精饮料带来了额外的东西，调味，并以温暖和深度使其更加完美。同样，和苦味酒一样，你不需要很多；几滴就够了。事实上，留在一个“空”瓶子里的那一点点香草精正是调味一种老式酒所需的精量，一杯 [深色朗姆酒鸡尾酒](https://skillet.lifehacker.com/dark-rum-and-campari-love-each-other-very-much-1844002713) ，或者一杯简单的冰镇苦啤。(Fernet 是一个显而易见的选择，但香草对 Campari 的焦橙有很好的作用。)
 

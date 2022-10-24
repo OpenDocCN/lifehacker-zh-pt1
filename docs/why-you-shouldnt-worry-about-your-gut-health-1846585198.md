@@ -4,7 +4,7 @@
 
 我们的消化系统是我们身体非常重要的一部分，它的健康对我们来说非常重要。没有良好的肠道健康，我们可能会疼痛，或遭受尴尬的症状，或更糟。但是这并不意味着*T2】我们需要摄入那些承诺改善我们肠道健康的食物或产品。*
 
-Watch
+
 
 事实证明，肠道健康并不是一个很好定义的概念。这意味着我们并不总是有可能知道它是否正在改善，或者我们是否在一开始就有问题。迪肯大学食物情绪中心的两位研究人员最近在《柳叶刀》杂志的文章 和 [中写道](https://theconversation.com/boosting-your-gut-health-sounds-great-but-this-wellness-trend-is-vague-and-often-misunderstood-155472?fbclid=IwAR12cdgYxVMh53-qjGTPZe2AAQt_q-cblXtFTU1BITAnO48UNo9Z8jcDFQw) 关于肠道健康已经成为一个营销术语而不是科学或医学现象的事实。
 

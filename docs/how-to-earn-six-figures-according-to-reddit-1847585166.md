@@ -4,7 +4,7 @@
 
 当每个人似乎都比你赚得多时，不可避免的问题是“好吧，这些人*到底做什么*？”幸运的是，Reddit 有答案。 [最近的一个帖子](https://www.reddit.com/r/financialindependence/comments/p3c6us/what_do_you_do_that_you_earn_six_figures/) 讨论了人们做什么才能赚到六位数的工资，虽然有些职业是显而易见的——医生、律师——但也有一些小众职业的工资高得惊人。以下是其中的一些。
 
-Watch
+
 
 ## 收入达到六位数的职业
 

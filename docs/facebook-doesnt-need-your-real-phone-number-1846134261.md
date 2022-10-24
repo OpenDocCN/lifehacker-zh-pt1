@@ -4,7 +4,7 @@
 
 是时候停止在网上公布你的真实电话号码了。如果可以避免的话，不要把你的电话号码和你的各种在线账户联系起来，因为如果(或当)这些服务被破坏了——就像发生在 [【脸书】](https://www.vice.com/en/article/xgz7bd/facebook-phone-numbers-bot-telegram) 和【差点】 [【抖音】](https://threatpost.com/tiktok-flaw-phishing-attacks/163322/)——你的号码会被挂在外面给任何人捣乱。更糟糕的是，它可能与你的其他信息相关联，这可能导致垃圾邮件*和*恼人的网络钓鱼企图。
 
-Watch
+
 
 这给了你两个选择来考虑。首先，如果你将你的电话号码从你的在线账户中删除，你将不得不放弃使用不太安全(但总比没有好)的基于文本的 2FA 认证。这实际上是一个好东西——，但是你需要获得一个像 [Authy 或 Google Authenticator](https://lifehacker.com/how-do-i-switch-from-one-2fa-authentication-app-to-anot-1842296754) 这样的应用来满足你的双因素认证需求。它们非常容易设置，你应该已经在任何支持它们的服务中使用它们了。句号。
 

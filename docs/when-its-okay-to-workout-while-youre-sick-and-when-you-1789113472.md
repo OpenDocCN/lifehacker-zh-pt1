@@ -4,7 +4,7 @@
 
 常识告诉我们，当你感觉不舒服的时候，不应该去健身，但是也有一些例外。如果你担心你的疾病会让你偏离健康目标，以下是你需要知道的。
 
-Watch
+
 
 正如大多数 [教练](https://blog.nasm.org/fitness/working-cold-debunking-myths) 和 [医生](https://www.infectioncontroltoday.com/view/clearing-air-exercise-and-common-cold) 会告诉你的那样(正如 youtuber PictureFit 在 [这段视频](https://www.youtube.com/channel/UCadiU6WTKl65HUwEih1XLYg) 中解释的那样)，一般的经验法则是“颈部上方或下方检查”如果你颈部以上有症状，比如咳嗽、打喷嚏、喉咙痛或鼻塞，你可能仍然可以锻炼。这些症状并不意味着什么太严重的事情——最常见的是过敏或轻微感冒——所以如果你觉得可以锻炼，那么这样做可能没问题。
 

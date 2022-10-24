@@ -4,7 +4,7 @@
 
 我没有经常使用 Windows 10 的搜索功能，因为我觉得它不是很有用。默认情况下，在紧急情况下查找应用程序或跳到设置窗口很方便，而不必浏览选项树，但这就是我与它的互动。所以我愿意放弃这个功能，把它变成我电脑上一个非常强大的搜索工具。
 
-Watch
+
 
 不过，要做到这一点，我需要一点帮助。我将使用刚刚发布的[**Everything toolbar**](https://github.com/stnkl/EverythingToolbar)项目，你可以用它来用 Voidtool 广受欢迎的“ [Everything](https://www.voidtools.com/) ”搜索工具取代 Windows 10 的传统搜索栏。
 

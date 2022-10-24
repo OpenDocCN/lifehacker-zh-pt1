@@ -4,7 +4,7 @@
 
 周二下午，得克萨斯州乌瓦尔迪 发生大规模枪击事件，19 名小学生和两名成人丧生。到目前为止是 2022 年的 [第 212 次大规模射击](https://twitter.com/Public_Citizen/status/1529201619241517057) 和 [第 27 次校射](https://www.npr.org/2022/05/24/1101050970/2022-school-shootings-so-far) 。
 
-Watch
+
 
 在周二于乌瓦尔迪发生的大规模枪击事件，以及本月早些时候在布法罗 发生的 [大规模枪击事件之前，我们必须考虑到另一个促使大规模枪击者在获得枪支后采取行动的因素:极右翼聊天室的暴力“为藤蔓而做”文化。Twitch、Discord、Reddit 和 4Chan 上的聊天空间经常充斥着十几岁的男孩，在许多情况下，他们鼓励彼此为观众做出他们最糟糕、最可怕的冲动。](https://jezebel.com/the-victims-of-the-buffalo-shooting-deserve-to-be-remem-1848931680)
 

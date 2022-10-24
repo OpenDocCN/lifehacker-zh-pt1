@@ -4,7 +4,7 @@
 
 Finder 是你进入 Mac 上所有文件的路径。当然，你可以使用 Spotlight 快速查找和打开文件。但是当涉及到实际管理和处理文件、文件夹和文档时，Finder 应用程序是必不可少的——特别是因为 [没有人知道如何创建文件夹层次了](https://www.theverge.com/22684730/students-file-folder-directory-structure-education-gen-z) 。
 
-Watch
+
 
 Finder 在帮助您组织文件方面做得非常好。但是有一些事情是可以改进的。如果不是每个新的 Finder 窗口都打开来显示最近的文件夹会怎样？如果你能很容易地看到一个给定的文件夹的详细路径会怎么样？嗯，你可以:以下是如何自定义你在 Finder 应用中看到的内容。
 

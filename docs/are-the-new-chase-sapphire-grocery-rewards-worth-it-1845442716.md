@@ -4,7 +4,7 @@
 
 大通蓝宝石信用卡在最新的终极奖励更新中已经从旅行转向食品杂货，这是有道理的，因为在疫情期间，旅行已经停止，食品杂货支出 [增长 17%](https://www.prnewswire.com/news-releases/american-consumers-average-weekly-grocery-spending-increased-by-17-during-the-pandemic-despite-fewer-trips-301151527.html) 。你可以为新的奖励食品杂货类别赢得的积分是非常值得的——尽管不是市场上最好的。
 
-Watch
+
 
 ## 在杂货店赚取 2-3 倍的积分
 

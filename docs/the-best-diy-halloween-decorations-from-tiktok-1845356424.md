@@ -4,7 +4,7 @@
 
 感谢 [即将到来的大选](https://lifehacker.com/how-the-2020-votes-will-be-counted-1845231803) 和疫情，这个十月有望成为历史上最可怕的之一。为什么不用一些有趣的万圣节装饰品来转移你对现实生活中的恐怖的注意力呢？
 
-Watch
+
 
 这些独一无二的(好吧，除了那些在抖音上看到这个想法并自己制作的人之外)作品会让你的房子在远离社交的“不给糖就捣蛋”活动中脱颖而出——甚至从糖果滑槽 底部的 [。以下是几个最好的](https://lifehacker.com/make-a-candy-chute-for-safer-pandemic-trick-or-treating-1845229874?rev=1601490433192)[#万圣节](https://www.tiktok.com/tag/halloweendiy?language=en&name=&u_code=cf278dc8j4d0m&utm_campaign=client_share&app=musically&utm_medium=ios&user_id=277363773227917313&tt_from=sms&utm_source=sms&source=h5_m) 项目，由 [PopSugar](https://www.popsugar.com/smart-living/halloween-diys-from-tiktok-47863771?stream_view=1#photo-47870060) 和 [抖音](https://newsroom.tiktok.com/en-us/tiktok-gets-spooky-for-halloween) 提供。
 

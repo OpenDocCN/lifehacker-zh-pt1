@@ -4,7 +4,7 @@
 
 当你试图清洗、烘干和整理一堆又一堆的家庭衣物时，一个井然有序、功能齐全的工作空间会让一切变得不同。然而，当我们想到要改造或重新装修家里的房间时，我们的脑海中首先会想到其他地方——厨房[浴室](https://lifehacker.com/how-to-spruce-up-your-bathroom-for-less-than-100-1847346001)[客厅](https://lifehacker.com/how-to-renovate-your-living-room-without-spending-renov-1847550002)[我们的户外空间](https://lifehacker.com/how-to-spruce-up-your-outdoor-living-space-in-the-cheap-1847492628)[甚至我们的卧室](https://lifehacker.com/how-to-give-your-bedroom-a-makeover-in-the-cheapest-way-1847540136)——然后我们才会想到要收拾洗衣区。
 
-Watch
+
 
 但是，无论你有一个专用的洗衣房，还是只有一个放洗衣机和烘干机的角落，如果你花一点时间重新整理和改造，它可能会为你提供更好的服务——而且它根本不需要花费太多。
 

@@ -4,7 +4,7 @@
 
 在任何身体挫折后恢复锻炼是困难的。你相信自己会听从自己的身体，但在你完全康复之前回到那里也很有诱惑力。然而，过早回到你的健身常规会导致弊大于利——如果你正在处理新冠肺炎的长期影响，这尤其如此。
 
-Watch
+
 
 据《T4》中的 [迈克尔·弗雷德里克森(Michael Fredericson)](https://profiles.stanford.edu/michael-fredericson)医学博士说，“在拥有 [【新冠肺炎】](https://www.everydayhealth.com/infectious-diseases/covid-19/) 后恢复体力活动有一层额外的复杂性，因为潜在的并发症，如 [心肌炎](https://www.everydayhealth.com/myocarditis/guide/) ，“这是心肌的炎症。考虑到围绕“长 COVID”的所有不确定性和复杂性，需要格外小心。
 

@@ -4,7 +4,7 @@
 
 不管即将到来的选举结果如何，人们可能会像往常一样齐声高唱“我要搬到加拿大去了！”那些不知道结果的人。不仅仅是选民:两大政党候选人之一，现任总统唐纳德·川普，本月早些时候发出了类似的威胁/承诺。但这有可能吗？
 
-Watch
+
 
 加拿大 [现在都不希望我们去参观](https://lifehacker.com/dont-even-think-about-sneaking-across-the-border-into-c-1844655305) ，更别说搬到那里了。但是世界上有一些国家 [对公民身份(和护照)](https://internationalliving.com/a-second-passport-without-having-to-buy-or-inherit-it-trl/?utm_source=pr&utm_medium=pr-organic&utm_campaign=press-release) 的居留要求较短。这里是他们在哪里，你需要了解他们的政策。
 

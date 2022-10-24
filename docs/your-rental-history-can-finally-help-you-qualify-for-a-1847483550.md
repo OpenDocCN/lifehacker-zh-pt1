@@ -4,7 +4,7 @@
 
 房利美 [将包括租金支付历史](https://www.fanniemae.com/newsroom/fannie-mae-news/fannie-mae-introduces-new-underwriting-innovation-help-more-renters-become-homeowners) 作为其承销过程的一部分，使借款人更容易获得抵押贷款资格——从 9 月 18 日开始。随着规则的改变，17%以前被拒绝的借款人现在会被批准，仅仅基于他们的租赁历史。让我们来看看*你*可能有什么资格。
 
-Watch
+
 
 ## **为什么您的租赁历史很重要**
 

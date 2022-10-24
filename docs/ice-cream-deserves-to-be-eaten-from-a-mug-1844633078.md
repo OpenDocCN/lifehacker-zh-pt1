@@ -4,7 +4,7 @@
 
 即使疫情在减弱，也要接种疫苗！ )而我们把 2020 年的政争放在回顾镜( [等等，其实...每天都有很多令人沮丧的事情。让我们把共同的焦虑放在一边，就一件事达成一致:我认为用咖啡杯吃冰淇淋最好。](https://www.washingtonpost.com/politics/republican-commissioned-hand-recount-of-ballots-in-arizona-close-to-concluding-no-results-expected-for-months/2021/06/14/10fac212-cd65-11eb-8014-2f3926ca24d9_story.html)
 
-Watch
+
 
 听着，碗人:你需要一个杯子的高边来正确地将冰淇淋舀到你的勺子里。碗壁太低，会导致你把冰淇淋推来推去，永远不会送到你饥饿的嘴里。此外，杯柄可以让你的体温远离冰冻的食物，延缓其融化。
 

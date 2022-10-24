@@ -4,7 +4,7 @@
 
 有 [许多功能](https://lifehacker.com/9-screen-time-features-everyone-should-be-using-1848430914) 可以帮助报告你的屏幕时间，但就像知道你 [多长时间超过音量推荐值](https://lifehacker.com/how-to-really-tell-if-your-headphone-volume-is-destroyi-1849406930) ，知识真的不够。以下是 Redditors 提供的一些关于如何减少你花在手机上的时间的建议，这些建议都不涉及下载更多的应用程序。
 
-Watch
+
 
 ## **将手机使用分为必要和不必要的时间**
 

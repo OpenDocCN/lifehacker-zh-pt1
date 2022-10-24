@@ -4,7 +4,7 @@
 
 [iPhone 12 Pro](https://lifehacker.com/which-iphone-should-you-buy-now-1838018903) 和 iPhone 12 Pro Max 的激光雷达传感器可以实现各种很酷的相机功能，比如找到房间的尺寸或将现实世界的物体转化为 3D 模型。这对于远距离测量某人的身高也非常有用。
 
-Watch
+
 
 新功能是 iOS [测量](https://lifehacker.com/which-ar-measuring-app-is-more-accurate-1827242756) app 的一部分。该应用可在运行 iOS 12 或更高版本的设备上使用，但人体高度检测仅适用于 iPhone 12 Pro、iPhone 12 Pro Max 和 iPad Pro (2020 年款)，因为只有这三款 设备配备了必要的激光雷达传感器来进行测量。
 

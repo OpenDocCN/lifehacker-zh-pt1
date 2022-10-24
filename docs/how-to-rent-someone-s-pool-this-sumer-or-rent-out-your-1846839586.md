@@ -4,7 +4,7 @@
 
 游泳池的“T0”[、Airbnb 的“T2”、Swimply，似乎正在享受它的阳光时刻。按小时计费的应用程序在疫情期间越来越受欢迎，现在正在](https://nypost.com/2020/07/31/airbnb-for-swimming-pools-surges-in-popularity-during-pandemic/) [扩展到新的市场](https://www.prnewswire.com/news-releases/reimagining-access-to-outdoor-spaces-swimply-announces-new-funding-and-expands-pool-sharing-marketplace-to-25-new-markets-301284021.html) 。以下是你需要知道的关于租用私人泳池，或者出租你自己的泳池(如果你有的话)的信息。
 
-Watch
+
 
 ### **swim ply 如何工作**
 

@@ -2,7 +2,7 @@
 
 > 原文：<https://lifehacker.com/the-best-new-macos-ventura-features-coming-to-your-macb-1849027260>
 
-Watch
+
 
 在 WWDC 2022 上，苹果终于让我们先睹为快了 macOS 的更新:macOS Ventura 将于 2022 年秋季上市，但它已经可以作为开发者测试版使用(如果你喜欢冒险的话)。
 

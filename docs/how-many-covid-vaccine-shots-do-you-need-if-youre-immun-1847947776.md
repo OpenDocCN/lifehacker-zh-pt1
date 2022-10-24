@@ -4,7 +4,7 @@
 
 疾病预防控制中心已经澄清了最近新冠肺炎加强注射建议 中 [的一个模糊之处:我 f 你](https://lifehacker.com/who-should-get-a-booster-and-which-one-should-they-get-1847917034) [得到了一种 mRNA 疫苗的第三次注射](https://lifehacker.com/why-immunocompromised-people-should-get-an-extra-covid-1847494704) 因为你的免疫系统被削弱了，那第三次注射是*而不是*被认为是你的加强注射。你仍然可以得到一个助推器，如果你属于助推器被推荐的类别之一，那将是你的第四次机会。该澄清已在更新的 [新冠肺炎疫苗](https://www.cdc.gov/vaccines/covid-19/clinical-considerations/covid-19-vaccines-us.html#considerations-covid19-vax-booster) 临床注意事项中发布。
 
-Watch
+
 
 (对于接种强生疫苗的免疫缺陷人群，仍然没有具体的建议，但如果距离首次接种至少两个月，则建议所有接种过疫苗的人进行加强接种。)
 

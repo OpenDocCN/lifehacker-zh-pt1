@@ -4,7 +4,7 @@
 
 从一罐 Amarena 樱桃中捞出最后一个梗是非常令人失望的——如果没有樱桃，那就更令人沮丧了。这些苦樱桃味道浓郁，有一种浪漫的深红色，你一打开盖子就会被它深深吸引。它们是马拉希诺樱桃的升级版，真的可以为圣代或鸡尾酒增添一些光泽。但是当最后一颗樱桃被吃完时，不要沮丧地倒出剩下的五盎司糖浆。这种东西是甜樱桃的魔力，是你把从鸡尾酒到华夫饼的所有东西都做成樱桃的秘密原料。(加上罐子真的很可爱。)
 
-Watch
+
 
 如果你还没有吃到 [阿玛瑞纳樱桃](https://www.mercato.com/item/amarena-wild-cherries-in-heavy-syrup/209599?featuredStoreId=1655&region_id=71008887&utm_source=google&utm_medium=cpc&utm_term=engine:google%7Ccampaignid:11590164885%7Cadid:478895459662%7Cgclid:Cj0KCQjw8O-VBhCpARIsACMvVLNhYQcFDxpFfUQg_LKf-vclLJAYBYjRHxNSVvLLO3Q0CjqU5Ycx6OgaAvJiEALw_wcB&gclid=Cj0KCQjw8O-VBhCpARIsACMvVLNhYQcFDxpFfUQg_LKf-vclLJAYBYjRHxNSVvLLO3Q0CjqU5Ycx6OgaAvJiEALw_wcB) ，练习一下自我保健，马上买一罐。你一年到头都可以从意大利专卖店和网上零售商那里买到它们，但它们会在冬季假期出现在许多杂货店里(我通常会在 Trader Joe's 买一三罐)。从 11 月到 1 月，我在许多烘焙食品中使用樱桃，但我永远不会让自己把液体倒入下水道。这些年来，我发现了一些剩余糖浆的美味应用，因为我讨厌浪费美味的配料，也因为我非常固执。谢天谢地，因为你的整个樱桃游戏即将升级。
 

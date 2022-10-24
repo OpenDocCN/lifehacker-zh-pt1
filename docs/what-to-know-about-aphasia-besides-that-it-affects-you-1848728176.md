@@ -4,7 +4,7 @@
 
 布鲁斯·威利斯的家人 [在 Instagram](https://www.instagram.com/p/Cbu-CyELWio/) 上写道，这位演员将因健康问题退役，包括最近被诊断出失语症。失语症是一种会影响一个人交流能力的疾病。
 
-Watch
+
 
 ## 什么是失语症？
 

@@ -4,7 +4,7 @@
 
 在新冠肺炎封锁造成的沉寂之后，门票收入大幅上升。我们可能 再也不想将现场活动视为理所当然，似乎每个主要艺术家现在都在巡回演出以弥补失去的时间，所以我们有很多机会看到我们最喜欢的行为、团队或艺人。有了这些乐趣，尽管( [和，你知道，通货膨胀](https://lifehacker.com/how-to-calculate-your-personal-inflation-rate-and-why-1849114950) )， 努力节省一些钱是值得的，因为 [节日](https://lifehacker.com/14-music-festivals-worth-traveling-to-this-summer-and-1848933022) ，表演和游戏已经相当昂贵了。让我们来看看一些领先的售票平台，以确定哪一个是最好的。
 
-Watch
+
 
 ## **这里是经常买票的人说的话**
 

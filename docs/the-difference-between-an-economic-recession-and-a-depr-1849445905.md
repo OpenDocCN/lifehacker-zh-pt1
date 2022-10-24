@@ -4,7 +4,7 @@
 
 很难得到一个直截了当的答案 关于我们目前是否处于衰退之中。从 [暴跌的股市](https://lifehacker.com/8-of-the-most-consequential-bear-markets-in-u-s-histor-1849068363) 到 [飙升的消费价格](https://lifehacker.com/how-to-get-the-most-out-of-every-drop-of-gas-right-now-1848630417) ，可以肯定地说经济正在挣扎。最起码， [别看你现在 401(k)](https://lifehacker.com/stop-checking-your-401k-so-much-1849054622) 。
 
-Watch
+
 
 美国消费者新闻与商业频道声称，在 2020 年之前，美国经济自 20 世纪 30 年代的大萧条以来已经进入了大约 13 次大衰退——这是该国历史上唯一一次真正的“大萧条”。现在，一些人认为，21 世纪 20 年代不那么繁荣的经济有重复 100 年前历史的危险。
 

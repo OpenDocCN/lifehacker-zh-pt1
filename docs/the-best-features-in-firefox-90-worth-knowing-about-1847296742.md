@@ -4,7 +4,7 @@
 
 火狐 89 的 [设计大修后，90 版本更新比较窝囊。但它专注于两件重要的事情——隐私和追踪器屏蔽。如果你是火狐的粉丝，并且喜欢它保护你的隐私和自动屏蔽追踪器的一贯使命，你会喜欢这次更新的。](https://lifehacker.com/the-biggest-changes-in-firefox-89-1847028614) 
 
-Watch
+
 
 要更新到最新版本 sion，o 打开火狐应用，进入**设置>常规>火狐更新>检查更新**。火狐也在为安卓系统推出 v 版本 90 更新，你可以从的 [谷歌 Play 商店](https://play.google.com/store/apps/details?id=org.mozilla.firefox&hl=en_IN&gl=US) 获得。以下是火狐 90 的新功能。
 

@@ -4,7 +4,7 @@
 
 YouTube [之前屏蔽了](https://lifehacker.com/how-to-get-around-youtubes-block-of-picture-in-picture-1845129320) 这项古怪的黑客技术，让你可以免费使用 iOS 14 的画中画功能播放其内容。F 不知什么原因，该公司现在已经改弦易辙，你可以访问原生 iOS 功能，而不需要 YouTube Premium 订阅。下面是怎么做的。
 
-Watch
+
 
 你所要做的就是在 **Safari** 中调出 YouTube 的主网站。而不是使用 YouTube 应用程序。轻按播放视频，然后使用右下角的小方形图标将其转换为全屏模式。
 

@@ -4,7 +4,7 @@
 
 你可能已经开始作为一个家庭 [庆祝骄傲月](https://lifehacker.com/how-to-celebrate-pride-month-as-a-family-1843828132) ，无论是通过和你的孩子谈论 LGBTQ 意味着什么，寻找当地的活动，或者依靠彩虹工艺品和烘焙食品。但是如果你的孩子认为自己是 LGBTQ，你可能想知道你还可以或者应该做些什么来庆祝这个月。
 
-Watch
+
 
 ## 问他们想如何庆祝
 

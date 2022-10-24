@@ -4,7 +4,7 @@
 
 虽然疫情航空旅行的某些方面——比如在飞机上不吃不喝时戴口罩——仍然非常有效，但其他方面正在慢慢过渡到 COVID 之前的迭代。以航空餐服务为例:曾有一段时间大幅缩减，或完全停止，但 n ow， [航空餐和小吃又回到(托盘)桌上](https://www.latimes.com/business/story/2021-08-27/how-covid-has-changed-airplane-food-in-flight-service) 。
 
-Watch
+
 
 尽管(反复)向我们保证，飞机内流通的不断过滤的空气是安全的，但感染冠状病毒或其他病原体——尽管很低——的风险仍然存在。W 戴 [有效的口罩](https://lifehacker.com/how-to-choose-the-right-face-mask-for-a-flight-so-you-a-1847533578) 可以降低这种风险，但是如果你在用餐时摘下口罩呢？这里有一些关于在飞机上安全饮食的知识。
 

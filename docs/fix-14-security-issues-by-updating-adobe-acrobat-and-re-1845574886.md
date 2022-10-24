@@ -12,7 +12,7 @@ Adobe 通常每月为其产品打一次补丁，以提供新的安全更新，�
 
 Adobe 正在修补的所有 14 个漏洞都对你的电脑构成威胁，但其中三个尤为关键，它们会让你的系统对远程访问敞开大门。这就像有一个未上锁的后门，黑客可以用来安装恶意软件或访问您的文件和程序。远程访问威胁是危险的，但下载新的安全补丁可以修复漏洞。
 
-Watch
+
 
 其他一些错误源于 Adobe Flash。 [Flash 是一个臭名昭著的安全垃圾](https://lifehacker.com/you-really-shouldnt-be-running-adobe-flash-player-anymo-1829721122) ，但新的补丁将它从 Acrobat 和 Reader 应用程序中删除，这应该有望使它们在总体上使用起来更安全。
 

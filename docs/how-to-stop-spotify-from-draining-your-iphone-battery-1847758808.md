@@ -4,7 +4,7 @@
 
 近年来，iPhone 因电池续航时间长而声名远扬。事实上，评论家最近指出，整个 iPhone 13 系列的电池是这些设备最好的新功能之一。然而，如果你是 Spotify 的重度用户，你会有相反的想法，因为这款应用似乎会把 iPhone 电池当早餐吃掉。
 
-Watch
+
 
 现在，这种指责不仅仅是基于用户的抱怨——它直接来自音乐流媒体之王本身。Spotify [在一篇博客文章](https://community.spotify.com/t5/Ongoing-Issues/iOS-High-battery-drain-with-Spotify-on-iPhones-with-iOS-versions/idi-p/5263928) 中承认，该公司知道运行 iOS 14.8 和 iOS 15 的 iPhones 的电池耗尽报告。 [据 ZDNet](https://www.zdnet.com/article/iphone-bad-battery-life-spotify-might-be-to-blame/) 报道，用户报告称，在使用该应用时，仅一个小时就损失了多达 30%的电池。
 

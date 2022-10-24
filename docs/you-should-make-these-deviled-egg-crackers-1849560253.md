@@ -4,7 +4,7 @@
 
 我有 [很多想法和感受](https://lifehacker.com/13-smarter-ways-to-make-killer-deviled-eggs-1847167171) 关于炒蛋[正确的做法](https://lifehacker.com/how-to-make-perfect-deviled-eggs-1821471027) 来制作它们。但最近，我变得半痴迷于“解构”和“重新想象”的魔蛋。我是 [未加调料的鸡蛋](https://lifehacker.com/un-devil-your-eggs-this-easter-1848778518) 和 [加调料的鸡蛋沙拉](https://lifehacker.com/just-make-deviled-egg-salad-already-1836077324) ，的忠实粉丝，看起来我将把玛莎·斯图尔特的 [骗子的加调料的鸡蛋](https://www.marthastewart.com/1527149/cheaters-deviled-eggs) 加入我的未加调料的鸡蛋剧目中。
 
-Watch
+
 
 像这个流派的其他食谱一样，没有捣碎，混合和管道。相反，鸡蛋被水平切成片(而不是垂直切成两半)，放在涂有蛋黄酱和芥末的饼干上，然后用一些新鲜莳萝和甜熏辣椒粉结束。
 

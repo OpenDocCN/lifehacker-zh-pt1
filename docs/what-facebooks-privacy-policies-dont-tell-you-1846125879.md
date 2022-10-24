@@ -4,7 +4,7 @@
 
 伙计们，我跟你们说实话。在我报道数字隐私的(短暂)任期内，我已经看到我的公平份额[傻逼](https://gizmodo.com/researchers-discover-nearly-three-dozen-vulnerabilities-1845832734https://gizmodo.com/researchers-discover-nearly-three-dozen-vulnerabilities-1845832734) [科技公司](https://gizmodo.com/the-newest-chrome-update-is-about-power-not-privacy-1843546136) 拉着[傻逼](https://gizmodo.com/top-uk-websites-annoying-pop-ups-arent-even-doing-gdpr-1840976177) [特技](https://gizmodo.com/google-s-promise-to-delete-your-data-has-a-major-loopho-1844152664) 企图从我们的个人数据中获利。脸书是这里出现频率最高的名字之一，这部分是因为他们的隐私政策制定得非常好，可以在不告诉你事情的情况下告诉你事情。
 
-Watch
+
 
 在 2018 年 [剑桥分析公司丑闻](https://gizmodo.com/facebook-suspends-cambridge-analytica-data-firm-that-w-1823858305) 的余波中，人们开始挖掘该公司正在进行的黑幕隐私做法，并发现一家公司故意窥探 [未成年青少年](https://gizmodo.com/surprise-facebook-low-balled-the-percentage-of-teens-i-1833000029) ，秘密使用上传的自拍照构建出 [面部识别系统](https://gizmodo.com/facebook-guess-well-disclose-the-whole-face-recognitio-1837850800) ，并在他们不知情的情况下记录了无数人的 [通话和](https://www.independent.co.uk/life-style/gadgets-and-tech/news/facebook-cambridge-analytica-data-my-download-phone-calls-text-messages-conthttps://www.independent.co.uk/life-style/gadgets-and-tech/news/facebook-cambridge-analytica-data-my-download-phone-calls-text-messages-contacts-history-a8274211.htmlacts-history-a8274211.html) 短信。接着是马克·扎克伯格长达一年的 [道歉之旅](https://www.washingtonpost.com/news/on-leadership/wp/2018/04/10/facebook-ceo-mark-zuckerberg-is-apologizing-again/) 。接下来，脸书不断试图将其错综复杂的隐私政策改造成更“T20”【黑白分明】
 

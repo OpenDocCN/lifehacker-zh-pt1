@@ -4,7 +4,7 @@
 
 全国各地的气温持续攀升，人们在户外的时间越来越多——因此，制药巨头强生公司自然会召回防晒产品。具体来说，这是该公司旗下露得清(Neutrogena)和 Aveeno 品牌的五种气溶胶防晒霜， [食品药品监督管理局(FDA)报道](https://www.fda.gov/safety/recalls-market-withdrawals-safety-alerts/johnson-johnson-consumer-inc-issues-voluntary-recall-specific-neutrogenar-and-aveenor-aerosol) 。原因？在强生公司&的内部测试中发现了低水平的致癌物质。以下是需要了解的内容。
 
-Watch
+
 
 ## 哪些强生&强生防晒霜正在被召回？
 

@@ -4,7 +4,7 @@
 
 在这个周末我们的 [十月健康重置](https://vitals.lifehacker.com/try-one-of-these-healthy-habits-each-day-this-month-1845291663) 的任务中，我们将去看看你一天中 y 大部分时间所呆的地方:y 我们的工作空间。健康不仅仅是当你离开办公桌时发生的事情；即使在工作的时候，你也应该支持自己的幸福。
 
-Watch
+
 
 尽管无论你在哪里工作，如何工作，你的健康都很重要，但在这一期中，我们将重点关注家庭工作空间的小调整。在许多传统的工作场所，与同事组织起来 [要求更健康的工作条件](https://lifehacker.com/how-to-protect-yourself-if-youre-forced-to-return-to-wo-1843035069) 是你应该考虑的事情之一。
 

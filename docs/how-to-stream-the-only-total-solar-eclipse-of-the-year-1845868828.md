@@ -4,7 +4,7 @@
 
 曾几何时，我们的生活中充满了光明，但现在，在花了一年时间试图在疫情中导航生活后，我们大多都快崩溃了。最重要的是，这也是一个总统选举年，由于这个原因，我们一直生活在一个政治火药桶中，不断释放出火花。有时候，我们会觉得自己无能为力，无法体验哪怕是很小的惊奇时刻——或者至少是某种对当前现实的分心。
 
-Watch
+
 
 现在，回想一下[2017 年 8 月 21 日](http://How to Stream the Only Total Eclipse of the Year) ，当时，有几分钟的时间，很多人停止工作，涌上街头 [见证日全食](https://lifehacker.com/what-to-buy-for-the-solar-eclipse-so-you-dont-damage-yo-1796880389) 。可悲的是，由于各种原因，这种精确的场景现在在美国是不可能的，但周一又会有一次日全食。虽然我们不能亲自观看，但我们可以 [和世界其他地方一起观看直播](https://www.space.com/total-solar-eclipse-2020-webcasts) 。以下是如何做到这一点。
 

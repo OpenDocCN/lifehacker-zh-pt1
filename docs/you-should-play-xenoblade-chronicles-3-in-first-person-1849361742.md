@@ -4,7 +4,7 @@
 
 *异刃编年史 3* 是今年最受好评的 [任天堂 Switch](https://www.metacritic.com/game/switch/xenoblade-chronicles-3) 游戏之一，这要归功于它的深度战斗、横扫一切的故事以及探索起来充满乐趣的巨大世界。游戏从一开始就引人入胜，但有一种方法可以让你更*沉浸在这史诗般的 JRPG 中。* 
 
-Watch
+
 
 正如 [YouTube 频道 boomstickgongaming](https://youtu.be/EsWXHpnFgb4)、 *Xenoblade 编年史 3* 所指出的那样，完全可以以第一人称进行游戏。Xenoblade 系列的老手会认为这是一个重复出现的特性，但是作为一个已经从该系列的大部分前作中反弹的人，我完全不知道是可能的。
 

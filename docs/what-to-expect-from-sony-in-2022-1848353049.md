@@ -4,7 +4,7 @@
 
 有史以来最长的一年，2021 年，终于结束了。但是对于它让我们经历的所有考验和磨难，不可否认有一些伟大的游戏帮助我们度过了这一切。就像 [微软](https://kotaku.com/what-to-expect-from-xbox-in-2022-1848340335) 和 [任天堂](https://kotaku.com/what-to-expect-from-nintendo-in-2022-1848314075) 索尼凭借 [*死亡循环*](https://kotaku.com/deathloop-the-kotaku-review-1847725473)[*凯纳:幽灵之桥*](https://kotaku.com/kena-bridge-of-spirits-the-kotaku-review-1847730360)[*棘轮&铮铮:裂开*](https://kotaku.com/ratchet-clank-rift-apart-the-kotaku-review-1847047303) 和 [老实说，PS4 和 PS5 未来的一年看起来也很棒。所以让我们看看索尼计划在 2022 年为我们提供什么服务。](https://kotaku.com/returnal-the-kotaku-review-1846786237)
 
-Watch
+
 
 * * *
 

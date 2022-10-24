@@ -4,7 +4,7 @@
 
 上周， [我发现我可以摸到自己的脚趾](https://lifehacker.com/how-to-finally-touch-your-toes-maybe-even-today-1848668349) (也许你也可以)。在过去，我从未真正觉得自己从拉伸运动中获得了什么，而且我知道 [对防止受伤或提高表现](https://lifehacker.com/the-truth-about-stretching-when-it-helps-and-when-it-d-1718270464) 没有多大作用。但是当谈到 [尝试你不喜欢的事情时，我会实践我所宣扬的，看看它们是否值得。所以我在伸展。甚至可能开始喜欢它。](https://lifehacker.com/try-things-you-dont-think-you-like-1846927489) 
 
-Watch
+
 
 我的第一个任务是找到一个可以遵循的拉伸计划，或者至少是一个常规。许多容易获得的关于拉伸的信息是杂乱无章的——“如果你的腿筋紧张，就做这个拉伸”之类的东西。我不想成为一名芭蕾舞演员或瑜伽士，我只想找到一份能帮助我举重和/或日常生活的流动性工作。
 

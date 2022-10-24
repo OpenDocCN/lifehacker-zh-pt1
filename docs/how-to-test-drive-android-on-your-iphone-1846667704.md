@@ -4,7 +4,7 @@
 
 如果你已经熟悉 Android 的体验，从 iOS 切换到 Android 会容易得多，但是在购买之前亲自使用 Android 设备是很困难的——尤其是现在。幸运的是，三星新西兰公司最近创建了 iTest，这是一个用于 iPhone 的微型网络应用程序，包含了好奇的 iOS 用户在 Android 测试中可能想要的一切。
 
-Watch
+
 
 iTest 在你的 iPhone 上模拟 Galaxy 手机体验。你可以玩主屏幕，浏览 Galaxy 商店，甚至检查几个应用程序。你甚至可以与模拟电话和短信互动，看看它们在 Galaxy 手机上是如何工作的。
 

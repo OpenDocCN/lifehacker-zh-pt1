@@ -4,7 +4,7 @@
 
 美国农业部 [延长了夏季](https://www.usda.gov/media/press-releases/2021/03/09/usda-extends-free-meals-children-through-summer-2021-due-pandemic) 的疫情免费餐计划，至少持续到 2021 年 9 月 30 日。如果你还没有参加，你可能会惊讶地发现这些餐食是为所有学龄儿童准备的，而且是 100%免费的，不需要任何证明文件。
 
-Watch
+
 
 正如美国农业部所说:
 

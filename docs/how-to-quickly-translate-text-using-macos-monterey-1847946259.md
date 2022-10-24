@@ -4,7 +4,7 @@
 
 macOS 12 中最好的新功能之一[Monterey](https://lifehacker.com/31-new-macos-monterey-features-youll-actually-want-to-u-1847900965)允许你翻译 Mac 上的任何可选文本——无需让谷歌为你做这件事。虽然以前可以通过 Safari 进行翻译，但它的用途有限，因为它只能翻译整个网页；其他应用程序中的文本翻译起来就不那么容易了。现在，这个特性已经被普遍实现了，我们将向您展示如何使用它。
 
-Watch
+
 
 ## 使用 Mac 全系统翻译功能需要什么
 

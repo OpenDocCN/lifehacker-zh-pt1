@@ -4,7 +4,7 @@
 
 你的人口普查表还在你的床头柜上，等着被填写吗？或者你的电脑显示器上有便利贴提醒你在线完成人口普查吗？如果是这样的话(或者任何其他你还没有填写人口普查的情况)，请继续。就像今天。
 
-Watch
+
 
 在回应的截止日期之前被延长至 10 月 31 日之后， [昨天最高法院站在了川普政府一边](https://www.nytimes.com/2020/10/13/us/supreme-court-census.html) ，允许计票提前结束——[，具体来说就是明天，10 月 15 日](https://www.census.gov/newsroom/press-releases/2020/2020-census-data-collection-ending.html?linkId=100000016508085) 。*明天！*
 

@@ -4,7 +4,7 @@
 
 先说一些坏消息: [亚马逊今年不再提供云摄像头支持](https://www.theverge.com/2022/5/30/23147362/amazon-cloud-cam-shutting-down-free-blink-mini-echo-replacement) 。该公司在 2017 年推出了专有的安全摄像头系统，但在上市仅五年后，就永远关闭了商店。好消息是，你不会没有安全摄像头选项，因为亚马逊正在向受影响的客户免费提供一个 Blink Mini。
 
-Watch
+
 
 [据 MacRumors](https://www.macrumors.com/2022/05/27/amazon-dropping-support-for-cloud-cam/) 报道，亚马逊将于 2022 年 12 月 2 日结束对云摄像头产品和应用的支持。当他们说“终止支持”时，他们也是认真的:一旦截止日期到来，你的相机和他们的应用程序将停止工作，所有数据都将被删除，包括你所有保存的记录。这给了你大约六个月的时间来保存你的云摄像头应用程序中的任何和所有视频，以免它们永远消失。
 

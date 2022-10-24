@@ -4,7 +4,7 @@
 
 结婚已经是压力最大的事情之一你可以花上几千美元让自己承受——就像生孩子一样。婚前新娘送礼会应该给你一个短暂的喘息，暴风雨前的平静，帮助你记住你所做的一切都是为了爱，婚礼真的应该是一个大派对。但是仅仅因为没有被完全取消的婚礼已经在疫情期间 [被缩减规模或者在网上](https://digiday.com/marketing/the-biggest-theme-is-uncertainty-how-coronavirus-has-changed-the-wedding-industry/) 举行，这并不意味着你必须放弃新娘送礼会的乐趣。以下是如何计划一个庆祝虚拟新娘送礼会。
 
-Watch
+
 
 ### 保持传统的活力
 

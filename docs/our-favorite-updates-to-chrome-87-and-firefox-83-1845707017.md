@@ -4,7 +4,7 @@
 
 谷歌的 Chrome 和 Mozilla 的 Firefox 浏览器的新版本昨天发布，如果你还没有更新，现在是最好的时机:访问浏览器的“关于 Chrome”或“关于 Firefox”部分，这两个部分都在每个浏览器的帮助菜单下，它会自动开始更新。在此期间，以下是你将在 [Chrome 87](#chrome) 和 [Firefox 83](#firefox) 中经历的主要变化。
 
-Watch
+
 
 ### **Chrome 87 的新功能**
 

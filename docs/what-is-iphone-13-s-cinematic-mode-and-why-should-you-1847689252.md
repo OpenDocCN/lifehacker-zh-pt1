@@ -4,7 +4,7 @@
 
 新的 [iPhone 13 系列](https://lifehacker.com/how-to-pre-order-your-iphone-13-before-everyone-else-1847680622) 的一个关键特征是所谓的电影 m 颂，这一特征旨在使 iPhone 13 成为电影摄影师的可行相机。智能手机摄像头正在快速发展，苹果今年的重点是改进 iPhone 已经很棒的摄像头。这里是你需要知道的关于 iPhone 13 的电影颂歌的一切。
 
-Watch
+
 
 ## 什么是电影颂歌？
 

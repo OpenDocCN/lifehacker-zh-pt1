@@ -4,7 +4,7 @@
 
 乍看之下， [*背 4 血*](https://kotaku.com/two-hours-with-back-4-blood-the-next-big-game-by-left-1847435872) 可能看起来像是一个按数字绘制的合作射击游戏，其血统 [追溯到*留下 4 死*](https://kotaku.com/the-moment-that-sold-me-on-back-4-blood-the-new-shoote-1847874001) 。你可能认为你知道该怎么做:瞄准，射击，拿起武器，瞄准，再射击。完成这一关。尽量不要死。但是在这个僵尸游戏中有一层欺骗性的复杂性。以下是我希望在开始第一次跑步前就知道的 13 个小技巧和窍门。
 
-Watch
+
 
 ## 仔细选择你的卡片
 

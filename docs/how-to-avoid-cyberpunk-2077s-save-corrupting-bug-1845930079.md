@@ -4,7 +4,7 @@
 
 考虑到是今年最卖座的游戏之一，[*【赛博朋克 2077】*](https://lifehacker.com/how-to-get-a-refund-for-cyberpunk-2077-1845881035)[一塌糊涂](https://lifehacker.com/how-to-get-a-refund-for-cyberpunk-2077-1845881035) 。如果你有足够好的规格，它可能在你的个人电脑上运行得很好，但是仍然有很多破坏游戏的错误需要处理。最糟糕的一个会在没有警告的情况下破坏你的保存文件，导致几个小时的游戏丢失。
 
-Watch
+
 
 根据[*subreddit、*](https://www.reddit.com/r/pcgaming/comments/kft0sy/psa_your_cyberpunk_saves_will_become_corrupted/)*[GOG 技术支持](https://support.gog.com/hc/en-us/articles/360016743298-Cyberpunk-2077-Saved-data-is-damaged-and-cannot-be-loaded-?product=gog) 和 [Steam 社区页面](https://steamcommunity.com/app/1091500/discussions/0/4477106086849996240/) 上的很多帖子，如果你的保存文件大于 8MB，*将拒绝加载。这不可挽回地破坏了保存文件，如果你没有备份文件，这可能会对你的游戏进程造成毁灭性的影响。**
 

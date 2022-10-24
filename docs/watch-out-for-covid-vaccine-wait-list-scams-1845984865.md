@@ -4,7 +4,7 @@
 
 虽然我们大多数人都在等待 COVID 疫苗，但冒充卫生官员的骗子正在利用它作为诱饵，通过可疑的电子邮件、电话、短信甚至上门拜访来窃取我们的金钱和数据。[联邦调查局](https://www.fbi.gov/news/pressrel/press-releases/federal-agencies-warn-of-emerging-fraud-schemes-related-to-covid-19-vaccines) 和 [卫生部](https://oig.hhs.gov/coronavirus/fraud-alert-covid19.asp) 都发布了关于这些骗局的警告——如果有人打电话给你询问测试或让你上疫苗等候名单，那就是骗局。
 
-Watch
+
 
 ### 骗局是如何运作的
 

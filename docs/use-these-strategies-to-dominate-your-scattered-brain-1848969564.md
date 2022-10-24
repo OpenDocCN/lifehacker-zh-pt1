@@ -4,7 +4,7 @@
 
 有时候你满脑子想的都是这个地方，而你似乎无法找出原因。你已经尝试了各种各样的 [生产力黑客](https://lifehacker.com/you-don-t-need-adhd-to-use-these-adhd-productivity-hack-1848964773) 。你已经尝试将 [放松作为一种需要练习](https://lifehacker.com/why-you-should-think-of-relaxing-as-a-skill-not-a-rewa-1848320119) 的技能。尽管如此，你仍在努力保持在一个令人讨厌的漫不经心的疯狂的情况下。
 
-Watch
+
 
 这是一个压力的恶性循环:你被压垮了，因为你的脑袋里有太多事情在发生，但你的脑袋里又有太多事情让你开始清理头脑。有些人把这种感觉称为注意力分散，或者思想混乱——我发现自己把它描述为“*我的大脑被堵塞了*”就像思想的交通堵塞。
 

@@ -4,7 +4,7 @@
 
 任天堂 Switch 的精彩之处在于它能让你在几秒钟内从玩掌上游戏过渡到在大屏幕上体验游戏。然而，如果你不得不处理电视上的间歇性停电，这种亮度肯定会变暗。如果你的交换机遇到了这个问题，有两件事你应该知道:你并不孤单，有一个解决方案。
 
-Watch
+
 
 Reddit 用户 r/Ramen-Noodle-Bear [遇到了这个问题](https://www.reddit.com/r/NintendoSwitch/comments/uedk93/psa_solved_issue_intermittent_random_black_screen/) 。他们正在努力找出为什么他们的有机发光二极管开关在插入 LG C9 OLED 电视时会偶尔出现大约 4 到 5 秒的黑屏。在这些停电期间，没有声音，但交换机的手持显示器也没有启动:控制台仍然识别它是对接的。此外，在这些图像中断期间，拉面熊的欢乐骗局仍然有效，这表明该系统始终保持清醒。
 

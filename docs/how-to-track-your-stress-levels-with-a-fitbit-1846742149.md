@@ -4,7 +4,7 @@
 
 我们都知道 Fitbit 的智能手表可以跟踪你的日常身体活动，但它们现在也可以帮助你跟踪你的压力水平。Fitbit 最近宣布向 Fitbit Versa 3、Versa 2、Luxe、Charge 4、和 Inspire 2 推出 Fitbit Sense 的压力管理跟踪。
 
-Watch
+
 
 这些 Fitbit 设备现在将根据各种因素来计算日常压力管理“分数”，包括你的心率、身体活动水平和睡眠数据。Fitbit Sense 还跟踪皮肤电活动(EDA)，以检查“战斗或逃跑”反应。
 

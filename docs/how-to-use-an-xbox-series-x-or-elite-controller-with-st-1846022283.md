@@ -4,7 +4,7 @@
 
 通过 Steam 玩游戏的便利之一是该应用程序内置的控制器支持。当你将几十个控制器 连接到你的 PC 时，客户端会自动 [识别它们，并且更多的控制器会一直添加下去——包括新的 Xbox 系列 X 和 Xbox Elite 控制器。Steam 甚至支持 X 系列的动态触发隆隆功能和 Xbox Elite 的额外按钮和拨片。](https://lifehacker.com/how-to-use-a-playstation-5-controller-with-steam-1845742247)
 
-Watch
+
 
 与一些输入设备不同，你需要配置一些设置，然后才能使用新的 Xbox 控制器来播放你巨大的 Steam 库。首先，Xbox Series X 和 Xbox Elite 控制器只有在运行最新的 Steam 应用测试版时才能工作。全面支持应该很快就会推出稳定版本，但如果您想立即使用它们，您必须选择进入 Steam 测试版:
 

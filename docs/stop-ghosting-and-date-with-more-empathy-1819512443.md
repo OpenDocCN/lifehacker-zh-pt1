@@ -4,7 +4,7 @@
 
 如果你正在寻找一个快速而肮脏的方式来摆脱与一个你不太可能再次遇到的人的浪漫纠葛，那么鬼影似乎是一个诱人而幸福的简单选择。(尤其是在社交场所关闭的时候，网上约会创造了无数容易进入又容易退出的关系选项。)但是，有一天，你发现自己站在了残影等式的另一端，失恋了，想知道*为什么人们不能像对待该死的人类一样对待彼此！*
 
-Watch
+
 
 重点是，我们都可以多一点同情心来处理我们的爱情生活。在她关于现代爱情和不忠系列的第三个视频中，关系和性专家(以及 [*事态*](https://www.amazon.com/dp/0062322583?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/stop-ghosting-and-date-with-more-empathy-1819512443&asc_source=&tag=kinjalifehackerlink-20) 作者) [埃丝特·佩雷尔](https://www.estherperel.com) 着眼于“鬼影”和其他新的约会概念，这些概念已经出现，用来描述当今我们许多人的超连接但完全断开的约会方式。
 

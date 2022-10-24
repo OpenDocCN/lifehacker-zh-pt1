@@ -4,7 +4,7 @@
 
 苹果的标签 [并没有享受到该公司可能希望的](https://lifehacker.com/how-to-tell-if-youre-being-tracked-by-apples-airtags-1846429685) 的正面报道。虽然这些微型设备非常适合用来记录你生活中经常丢失的东西( [减去你的孩子](https://lifehacker.com/should-you-use-apple-airtags-to-keep-track-of-your-kids-1847752273) )，但它们也引发了争议，因为跟踪者已经用它们来跟踪人们。不酷。但是空中标签并不是市场上唯一的追踪设备。他们跟随 Tile 的脚步，Tile 是一家似乎在追踪业务中尝试一些不同的东西的公司。
 
-Watch
+
 
 Tile 对制造追踪设备并不陌生。当然，该公司在苹果涉足这个领域的几年前就率先推出了磁贴追踪器。与所有相同的 AirTags 不同，Tile 制造了不同形状、大小和风格的追踪器，以适合钥匙链、钱包和任何你能想到的标记物品的地方。Tile 的设备也像 AirTags 一样工作，只是在 Tile 的生态系统内。正如 AirTags 与“查找我的网络”中的苹果设备通信以更新其位置一样，磁贴跟踪器与运行磁贴应用程序的手机通信。
 

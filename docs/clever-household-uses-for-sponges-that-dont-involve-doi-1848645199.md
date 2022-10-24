@@ -4,7 +4,7 @@
 
 长期阅读 Lifehacker 的读者可能还记得，我们并不总是海绵的最大粉丝。这种情绪最明显的例子是前 Lifehacker 员工 Nick Douglas 在 2019 年发表的一篇题为“ [每块海绵都是坏的](https://lifehacker.com/every-sponge-is-bad-1832899231) ”的帖子，“但 [那里](https://lifehacker.com/how-to-always-have-a-clean-sponge-1844996813) 是 [更多的](https://lifehacker.com/can-a-microwave-really-sanitize-your-dirty-sponges-1847806658) 。
 
-Watch
+
 
 然而，这种反海绵的情绪很大程度上是针对使用它们来洗碗和/或擦拭厨房和浴室的台面和其他高度接触区域。事实上，这里有几种在房子周围使用海绵的其他方法，它们不会将各种病原体传播到接触的每一个表面上。这里有几个例子。
 

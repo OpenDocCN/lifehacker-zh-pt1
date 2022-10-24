@@ -4,7 +4,7 @@
 
 又到了重设 [创新](https://kotaku.com/elden-ring-let-me-solo-her-spirit-ashes-pc-mod-malenia-1848808548) 和 [怪异](https://kotaku.com/elden-ring-toastedshoes-pc-mods-shrek-homer-simpson-elm-1848693567) 里程碑的时候了，玩家们正在 *Elden Ring* 社区中忙碌着。这一次，一个游戏玩家将一个儿童玩具改装成了一个可玩的 Xbox 控制器。这不是一篇洋葱文章，你来对地方了。
 
-Watch
+
 
 [迪伦“Rudeism”贝克](https://www.youtube.com/c/Rudeism/featured) ，一个“玩游戏玩错了”的 YouTuber，把一个 [费雪游戏&学习控制器](https://shop.mattel.com/en-ca/products/fisher-price-laugh-learn-game-learn-controller-fnt06-en-ca) 改造成了一个全功能的大男孩控制器。对于那些不了解婴儿“R”美国生活方式的人来说([RIP Geoffrey The Giraffe](https://twitter.com/ginamartinuk/status/1012368876791828480?s=20&t=z70iVpRf0nELWr0-Rail1g)),费雪牌游戏&学习控制器，就像任何其他游戏控制器一样，是一款教育玩具，适合 6-36 个月大的受训游戏玩家学习形状、颜色、字母和数字，同时微调他们的手眼协调和精细运动技能。但是贝克并没有蹲下来做一些“学习字母的动作”，而是想在《埃尔登环》中用这个玩具来对付老板。虽然这个玩具的形状像一个控制器，但它不一定是为了与现代游戏机一起使用而设置的。
 

@@ -4,7 +4,7 @@
 
 如果你有一部苹果手机 [，戴着耳机听音乐](https://lifehacker.com/how-to-get-ios-13-to-tell-you-if-your-headphones-are-to-1838368979) ，你可能对弹出的通知很熟悉，“音量应该调低。根据您过去七天的耳机使用情况，您已经超过了音频暴露的建议限制。”但是什么是建议的限度呢——你怎么知道你的耳塞是否太响了呢？
 
-Watch
+
 
 不容易知道，但是你应该知道。 [根据哈佛医学院](https://www.health.harvard.edu/blog/healthy-headphone-use-how-loud-and-how-long-2020072220565) 的说法，耳朵里有成千上万个细胞，其中一些细胞有细小的毛发状结构，将声音从耳朵传递到大脑。过多的声音会对他们造成永久性的伤害，从而影响声音的转换。简单地说，听太多太大声的音频会损害你的听力。
 

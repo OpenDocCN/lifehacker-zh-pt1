@@ -4,7 +4,7 @@
 
 如果你一直在考虑学习一项新技能，或者已经在科技领域有经验，本周是免费参加在线科技课程的好机会。从 10 月 10-1 6 起，在线技术学习平台 [Pluralsight](https://www.pluralsight.com/) 将免费开放其超过 7000 门视频和互动课程。要获得访问权限，您需要 [创建一个账户](https://www.pluralsight.com/redeemlink/genericV4?redemptionId=7a0f6c76-5395-40f1-8900-f05bba54d2f6#/) (免费使用)，然后您就可以立即开始浏览许多可用的课程。
 
-Watch
+
 
 ## 什么是复数视野？
 

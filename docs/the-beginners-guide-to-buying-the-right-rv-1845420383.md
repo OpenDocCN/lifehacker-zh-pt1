@@ -4,7 +4,7 @@
 
 随着许多人的飞机和火车旅行被搁置，房车正在复苏。不仅仅是 Instagram 上的# vanlifers 月， [策略师](https://nymag.com/strategist/article/rvs-for-rent-sale.html) 报告称，经销商看到休闲车的销量与去年相比增长了 170%。
 
-Watch
+
 
 如果你想去偏远的地方住在房车里(或者只是用房车露营或公路旅行)，你会想了解许多选择——从泪珠拖车到全公共汽车大小的房车。
 

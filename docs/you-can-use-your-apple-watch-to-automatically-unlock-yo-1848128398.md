@@ -4,7 +4,7 @@
 
 你可能知道苹果的一个功能，让你用苹果手表[自动解锁你的 iPhone(至少当你戴着面罩的时候)。但你可能不知道，这个功能在 Mac 上也已经存在多年了。只要你戴着 Apple Watch——而且它是解锁的——你就可以登录你的 Mac 用户帐户，甚至不用按任何按钮。只要掀开 MacBook 的盖子(或者唤醒你的 Mac ),你的用户账户就会自动解锁。](https://lifehacker.com/unlock-your-iphone-with-your-apple-watch-when-wearing-a-1846181593) 
 
-Watch
+
 
 ## **哪些 MAC 和 Apple Watches 可以使用这个功能？**
 

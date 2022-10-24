@@ -4,7 +4,7 @@
 
 老笑话“有一个应用程序可以做到这一点！”随着医学进入被称为 [、数字疗法](https://dtxalliance.org/) [(DTx)](https://dtxalliance.org/) 的未知领域，医疗保健行业终于迎来了。你可能熟悉更广泛的数字健康类别，包括旨在支持健康生活方式的 Fitbit 或进行现场分析的“智能”血压袖带。这些工具用于收集数据和帮助医生，而 DTx 的设计目的是使用智能手机应用程序和连接的传感器和设备来治疗疾病。
 
-Watch
+
 
 DTx 不仅仅是由抨击红牛的程序员炮制出来的——它们通常得到临床研究的支持和监管机构的批准；食品药品监督管理局(FDA)目前正处于正式批准 DTx 的 [流程中。许多是医生开的处方，保险公司也越来越愿意支付这些费用。因此，你遇到数字疗法的机会——以及围绕它们的炒作——每天都在增加。](https://www.fda.gov/medical-devices/digital-health-center-excellence/digital-health-software-precertification-pre-cert-program)
 

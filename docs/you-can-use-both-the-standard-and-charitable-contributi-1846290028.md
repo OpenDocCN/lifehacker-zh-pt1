@@ -4,7 +4,7 @@
 
 当你报税时，不要忽视一项新的 [慈善捐款税收减免](https://www.irs.gov/newsroom/special-300-tax-deduction-helps-most-people-give-to-charity-this-year-even-if-they-dont-itemize) ，它允许你从你的应税收入中扣除 300 美元*，甚至*，如果你已经采取了标准扣除。因为这是一个新的在线扣除项目，所以很容易被忽视——特别是如果你是一个典型的 W-2 员工，倾向于自动报税。
 
-Watch
+
 
 ### **什么是慈善捐款扣除？**
 

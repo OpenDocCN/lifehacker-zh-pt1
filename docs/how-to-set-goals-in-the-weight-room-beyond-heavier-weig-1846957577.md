@@ -4,7 +4,7 @@
 
 就像 [速度不是跑](https://vitals.lifehacker.com/how-to-set-benchmarks-as-a-beginning-runner-1843738002) 进步的唯一途径一样，杠上加重量也不是举重进步的唯一途径。有很多方法可以衡量变得更强壮和更健康的过程，所以让我们来讨论一些你可以在这个过程中为自己设定基准的方法。
 
-Watch
+
 
 ## 相对于你的体型举起更多的重量
 

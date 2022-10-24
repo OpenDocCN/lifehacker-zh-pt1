@@ -4,7 +4,7 @@
 
 如果到目前为止你还没有亲自抓住新冠肺炎的任何变种，你可能会有一种“*好吧，我最终会抓住它的态度* [那不一定是真的](https://www.today.com/health/health/everyone-going-get-covid-19-rcna9776) (也不是拥有的最好态度)，但肯定能有那种感觉。
 
-Watch
+
 
 比以往任何时候都更加的是，目前激增的阳性 [新冠肺炎病例和住院](https://covid.cdc.gov/covid-data-tracker/#new-hospital-admissions) 凸显了我们一直知道的一种可能性，但似乎越来越常见的是: [疫苗接种后突破性病例](https://www.cdc.gov/coronavirus/2019-ncov/vaccines/effectiveness/why-measure-effectiveness/breakthrough-cases.html) 。但是一个突破性的案子对你的豁免权意味着什么？为什么你已经感染了病毒还需要加强免疫？
 

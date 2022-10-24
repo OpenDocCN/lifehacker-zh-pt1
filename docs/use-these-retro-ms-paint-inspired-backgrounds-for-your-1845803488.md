@@ -4,7 +4,7 @@
 
 微软最近在 Xbox Gear store 上推出了一系列新的 MS Paint 主题虚拟背景 [，你可以在微软团队、Skype 或任何其他视频会议应用程序中使用。它们是今年你计划在(虚拟)假日聚会上穿的任何花哨服装的完美补充。](https://gear.xbox.com/pages/ms-paint-accessories) 
 
-Watch
+
 
 节日收藏包含在 Skype 的默认背景库中(你可以从上面的 Xbox Gear 页面下载最新版本)，但如果你想在团队或其他电话会议应用程序中使用它们，你需要将图像下载到你的计算机上，然后手动导入。
 

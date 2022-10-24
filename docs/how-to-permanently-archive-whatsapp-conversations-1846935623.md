@@ -4,7 +4,7 @@
 
 Android 上最新的 WhatsApp 测试版给该应用的聊天存档系统的工作方式带来了一些重大变化。该应用程序称之为“新档案”，与“旧”档案做的事情一样——保存你的存档信息——只有一个主要例外:你现在可以*永久*存档你想忽略或从收件箱中删除的聊天记录。
 
-Watch
+
 
 以前，如果收到新消息，存档的 WhatsApp 对话会返回到您的活动聊天列表中。虽然您可以对您更喜欢的忽略 的 [聊天的](https://lifehacker.com/you-can-finally-mute-whatsapp-conversations-forever-1845464072) [永久静音推送通知](https://lifehacker.com/how-to-mute-whatsapp-notifications-on-android-1844560317) ，但您仍然会在收件箱中看到未读消息标记，并且必须重新存档对话才能隐藏它。然而，打开 WhatsApp 新的“保存聊天记录”设置可以防止这种情况发生。
 

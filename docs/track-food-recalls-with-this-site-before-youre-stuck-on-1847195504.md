@@ -4,7 +4,7 @@
 
 当你或你的宠物喜欢的食物(或最近消费的)被召回时，可能会有点不安。当然，并不是每一次召回都有可能让你跑去厕所——任何 召回的严重程度因产品和原因而异。有时候只是一种 [膳食补充剂](https://www.fda.gov/safety/recalls-market-withdrawals-safety-alerts/bea-lydeckers-naturals-inc-issues-allergy-alert-undeclared-soy-lecithin-living-free-dietary)没有声明含有大豆卵磷脂——但其他时候就是 [被沙门氏菌污染的冻虾](https://www.fda.gov/safety/recalls-market-withdrawals-safety-alerts/avanti-frozen-foods-recalls-frozen-cooked-shrimp-because-possible-health-risk) 。
 
-Watch
+
 
 食品和产品召回发生得比你可能意识到的还要频繁，你第一次听说可能会影响你的事情不需要出现在晚间新闻上——或者当你已经对你感到不安恶心的时候。相反，食品和药物管理局( FDA) 有一份详细的召回产品清单，这些产品由监管 — 并带有方便的搜索功能——你可以在自己的时间和仔细阅读，让自己安心。
 

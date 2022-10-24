@@ -4,7 +4,7 @@
 
 信息传递应该是即时的:你发送一条信息，收件人在几秒钟内阅读。他们给你一个回复，你很快就会知道接下来会发生什么。但是如果你的信息像骑马一样收发，事情就会变得令人沮丧。这就是最近困扰一些 Pixel 用户的问题，因为带附件的 MMS 消息，甚至群聊，都要花费*永远*才能到达它们应该在的地方。
 
-Watch
+
 
 这个问题似乎不是一个新问题。我第一次注意到它是从 5 月 12 日星期四的 [这条 Reddit 帖子](https://www.reddit.com/r/GooglePixel/comments/uo49v3/mms_and_sms_are_extremely_slow/?utm_source=share&utm_medium=web2x&context=3) 开始的，但还有四个月前的 [这条帖子](https://www.reddit.com/r/GooglePixel/comments/rue74i/attachments_are_slow_to_send_and_receive_with/) 也同样抱怨在加拿大*使用 Pixel 6 Pro 时附件太慢。*两个线程中的用户都对他们的像素上的缓慢消息传递表示失望，从 15 分钟到几个小时不等。 [一位用户甚至抱怨说](https://www.reddit.com/r/GooglePixel/comments/uo49v3/comment/i8d0k1o/?utm_source=share&utm_medium=web2x&context=3) 他们在 T-Mobile 上的 Galaxy S21 也遇到了同样的问题，因此，尽管大多数情况似乎都来自像素，但这个问题可能会超出谷歌手机的范围。
 

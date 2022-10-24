@@ -4,7 +4,7 @@
 
 随着许多公司将在家工作政策 [延至明年夏天](https://www.nytimes.com/2020/10/13/technology/offices-reopening-delay-coronavirus.html) ，你可能不再需要开车上下班了。由于普通家庭拥有 [近两辆](https://www.statista.com/statistics/551403/number-of-vehicles-per-household-in-the-united-states/) ，你能不能保留一辆并通过取消汽车保险来省钱，直到你再次需要它的时候？
 
-Watch
+
 
 ### **取消和稍后“取消取消”**
 

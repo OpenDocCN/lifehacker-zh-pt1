@@ -4,7 +4,7 @@
 
 即使不考虑在全球疫情中生活的额外挑战，作为一个年幼孩子的父母已经够难的了。今年到目前为止，这包括婴儿配方奶粉的短缺。
 
-Watch
+
 
 首先是供应链 [和原料](https://lifehacker.com/why-you-should-contact-the-manufacturer-directly-and-h-1848564941) 的可用性问题。然后在二月份，在几名婴儿因与他们的配方奶粉有关的细菌感染而住院后，该国领先的制造商 [宣布大规模召回他们的产品](https://lifehacker.com/dont-use-these-recalled-infant-formulas-fda-says-1848567003) 。再加上历史性的通货膨胀率，婴儿配方奶粉——已经很贵了——对许多家庭来说是可望而不可及的。
 

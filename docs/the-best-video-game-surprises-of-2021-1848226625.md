@@ -4,7 +4,7 @@
 
 面对现实吧:过去的一年…不太好。在 2021 年的过程中，全球气温以 [再次以惊人的速度上升](https://public.wmo.int/en/media/press-release/state-of-climate-2021-extreme-events-and-major-impacts) ，漫威发行了不止一部而是*两部*有争议的电影，我们都不得不冷静地认识到这个新冠肺炎疫情可能永远不会完全结束。一个合适的一年的时间表被企图叛乱拉开了序幕。
 
-Watch
+
 
 视频游戏在 2021 年也没有那么好。尽管 PS5 或 Xbox 系列已经上市一年多，但 [仍然基本不可能](https://kotaku.com/a-year-later-it-still-sucks-getting-a-ps5-or-xbox-seri-1848212881) 买到令人垂涎的 PS5 或 Xbox 系列。主要比赛通常会推迟，可能还是因为疫情。举几个例子来说，一大堆较小的工作室——[【Harmonix】](https://kotaku.com/epic-buys-rock-band-creators-to-make-musical-journeys-1848111406)[house marque](https://kotaku.com/sony-acquires-housemarque-developer-of-ps5-title-retur-1847191982)[夜校](https://kotaku.com/netflix-acquires-oxenfree-dev-as-its-first-game-studio-1847763973)——被行业巨头收购，这种趋势令人担忧独立机构的长期可持续性。在这一切中，详细描述大型工作室令人痛苦的工作文化的重磅报道继续推出，如 [动视暴雪](https://kotaku.com/everything-that-has-happened-since-the-activision-blizz-1847401161) 和 [Bungie](https://www.ign.com/articles/bungie-report-battle-soul-work-culture-harassment-crunch) 。
 

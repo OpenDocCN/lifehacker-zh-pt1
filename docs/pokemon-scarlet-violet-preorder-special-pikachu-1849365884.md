@@ -4,7 +4,7 @@
 
 自二月份以来，神奇宝贝公司已经掌握了关于《神奇宝贝猩红色》和《神奇宝贝紫罗兰色》的稳定信息，这两部电影将于 11 月 18 日在任天堂 Switch 上映，以鼓励最大限度的口吐白沫。今天，它通过其 [神奇宝贝呈现直播](https://kotaku.com/pokemon-scarlet-violet-legendaries-motorcycle-switch-1849362675) 和一份新闻稿鼓励更多极端水平的口吐白沫，在其他开胃的事情中， [三个购买奖金](https://press.pokemon.com/en/releases/NEW-DETAILS-REVEALED-FOR-POKEMON-SCARLET-AND-POKEMON-VIOLET-INCLUDING-) 。
 
-Watch
+
 
 下面是我们期待的…
 

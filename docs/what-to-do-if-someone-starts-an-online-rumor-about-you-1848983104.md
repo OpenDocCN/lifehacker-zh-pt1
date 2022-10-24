@@ -4,7 +4,7 @@
 
 当有人在学校或工作场所散布关于你的谣言时，这可能会是一次痛苦的经历。虚假指控可能会在学校里四处传播，甚至传播到其他学校或公司，让你在每一步都感到尴尬。但是当有人在网上散布关于你的谣言时，它会很快膨胀成一个大问题。有时，这甚至可能是危险的——想想在大规模悲剧 发生后，无辜的人被 [错误地牵连](https://www.bbc.com/news/technology-22214511) 参与犯罪 [。](https://www.rollingstone.com/culture/culture-news/uvalde-texas-shooting-transgender-misinformation-1358386/) 
 
-Watch
+
 
 当谎言传播如此之快时，很难知道如何为自己正名——或者你是否应该亲自介入这场争斗。如果你是网上谣言的受害者，你可以采取以下措施。
 

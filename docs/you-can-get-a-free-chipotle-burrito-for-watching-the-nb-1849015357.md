@@ -4,7 +4,7 @@
 
 如果你看了周四的 NBA 总决赛第一场，你会看到不仅仅是波士顿凯尔特人队在对阵金州勇士队的系列赛中领先。快速休闲连锁餐厅 [Chipotle Mexican Grille 与美国国家篮球协会](https://www.prnewswire.com/news-releases/chipotle-returns-to-the-basketball-postseason-will-hide-up-to-50-000-bogos-in-its-tv-ads-301559944.html) gav 合作，通过“买一送一”的优惠券赠送 1 万份墨西哥卷饼。如果你太忙于行动而错过了这次促销，请不要担心；只要你保持警惕，你还会有四次机会兑现这顿免费餐。
 
-Watch
+
 
 ## 促销是如何运作的
 

@@ -6,7 +6,7 @@ wifi 密码是一种既让人渴望又让人害怕的力量:每个人都想知�
 
 不仅仅是你的电脑隐藏了 wifi 密码:你也可以在你的 iPhone 和 Android 设备上 [看到这些密码](https://lifehacker.com/how-to-unhide-your-wifi-password-1849151134) 。下次有人问你要无线网络时，只要你的一个设备连接到它，你就可以提供帮助。
 
-Watch
+
 
 ## 如何在 Windows 上查看您的 wifi 密码
 

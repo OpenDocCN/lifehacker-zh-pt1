@@ -4,7 +4,7 @@
 
 我曾经是这样一个人，每天早上从 Wordle、 [及其所有衍生产品](https://lifehacker.com/the-10-best-wordle-alternatives-ranked-by-difficulty-1848859009) 开始。我掌握了如何玩 [四个](https://lifehacker.com/you-should-try-quordle-if-youre-too-good-at-wordle-1848540319) ，甚至 [*八个*单词](https://kotaku.com/wordle-dordle-quordle-octordle-word-game-browser-puzzle-1848593721) 、b ut 几周前我去约我早上的例行公事——跑步、喝咖啡、工作——和单纯的觉得没必要。甚至没有 [同性恋字眼](https://lifehacker.com/6-wordle-esque-games-that-are-just-as-good-or-better-1848426197/slides/5) 。(幸福的骄傲。)
 
-Watch
+
 
 如果你和我一样，需要给你早晨的谜题增添趣味，而且你也是个电影爱好者，那么可能会正合你意。它吸引了任何涉足类似于 [、票房游戏](https://boxofficega.me/) 或 [听觉](https://lifehacker.com/finally-there-s-a-wordle-clone-for-music-lovers-1848649747) 等单词相邻谜题的人。
 

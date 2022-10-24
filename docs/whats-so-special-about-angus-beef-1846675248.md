@@ -4,7 +4,7 @@
 
 “安格斯”这个词让人联想到优质美国牛肉的精神，餐馆和杂货店都用它来推销他们的产品。当我还是个孩子的时候，我最喜欢的食物是牛肉，我最喜欢的“成人”餐馆是黑安格斯，一家中等规模的牛排连锁店，提供美味的牛排汤和甜“黑糖蜜面包”，这两种食物我都非常喜欢。黑安格斯菜单教会了我“三分熟”是什么意思，我将永远把它与鲜红的牛肉联系在一起。
 
-Watch
+
 
 我对安格斯的另一个记忆集中在每次我们碰巧经过一群牛时，我父亲在车里进行的牛突击测验上。考虑到它是美国最常见的肉牛，“安格斯”通常是正确的答案。这也是最容易发现的:这些相当小的黑色肉牛是独一无二的，如果不是视觉上的非凡。(想看卓越的牛？看看 [婆罗门](https://www.google.com/search?q=brahman&tbm=isch&ved=2ahUKEwiS-OCY4_vvAhXTh54KHaHTDWQQ2-cCegQIABAA&oq=brahman&gs_lcp=CgNpbWcQAzIHCAAQsQMQQzIHCAAQsQMQQzIECAAQQzIFCAAQsQMyBAgAEEMyBwgAELEDEEMyAggAMgUIABCxAzICCAAyBQgAELEDUJ6eJFiboSRgsKokaABwAHgAgAFBiAH6AZIBATSYAQCgAQGqAQtnd3Mtd2l6LWltZ8ABAQ&sclient=img&ei=yNh1YJL0GdOP-gShp7egBg&bih=702&biw=1418) ，或者 [布兰格斯](https://www.google.com/search?q=brangus&source=lnms&tbm=isch&sa=X&ved=2ahUKEwjZhumP4_vvAhVF6Z4KHXMHBdIQ_AUoAXoECAEQAw&biw=1418&bih=702) ，这是你把安格斯和婆罗门杂交得到的。)还有一只红色的安格斯牛，但它不太常见，与它的黑色皮毛表亲分开登记。
 

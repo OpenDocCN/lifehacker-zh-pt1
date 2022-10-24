@@ -4,7 +4,7 @@
 
 本周，我们将在两位认知行为专家的帮助下学习如何降低我们的焦虑:心理学家 Elena Welsh 博士和精神病学家 David D. Burns 博士。请听听这两位专家给出的建议，告诉我们如何使用特定的认知行为治疗方法来抑制焦虑，为什么我们首先会陷入焦虑的漩涡，以及如何改变我们的思维，实现更好的结果。
 
-Watch
+
 
 威尔士博士是洛杉矶的心理学家，专门研究各种各样的焦虑、情绪和抑郁障碍，是《惊恐发作的认知行为治疗著作[](https://www.amazon.com/dp/1641526041?_hsenc=p2ANqtz--osAD8vuKDHAO1G5YMgKDp4PMy7-SJpNboT_wlR2D6MwDNg_kdNrs9dyZy2HU5h9M9O6bymZev2me2GDPN9mm7MZ4CcQ&_hsmi=73309482&asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-handle-your-pandemic-anxiety-with-psychologists-1845347983&asc_source=&tag=kinjalifehackerlink-20&utm_campaign=AM_Title Launch&utm_content=73309482&utm_medium=email&utm_source=hs_automation)*的作者。伯恩斯博士是 CBT 的先驱，是《感觉良好:新的情绪疗法》和最近的《感觉良好:抑郁症和焦虑症的革命性新疗法》的作者。*
 

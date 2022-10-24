@@ -4,7 +4,7 @@
 
 我从来不介意口罩贴在嘴唇上的感觉，直到我戴着口罩去健身房。在 [干净](https://www.catalystathletics.com/exercise/59/Clean/) 和 [挺举](https://www.catalystathletics.com/exercise/60/Jerk-Split-Jerk/) 之间喘着气，随着一个动作，我不停地不由自主地把棉布吸进嘴里。不好玩。
 
-Watch
+
 
 有些面具，像 [、价格昂贵但物有所值的安德玛](https://www.underarmour.com/en-us/p/ua-sportsmask/1368010.html) ，是用坚硬的材料制成的，以避免这种情况。但是如果你有一个普通的、薄的面具，有一个快速而便宜的解决方法:面具支架。这是一个柔软的硅胶或塑料框架，可以放在你的面具下面。它本身没有任何带子或夹子；面具的压力将它固定在你的脸上。
 

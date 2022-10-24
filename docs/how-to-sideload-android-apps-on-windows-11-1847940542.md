@@ -4,7 +4,7 @@
 
 Windows 11 可以运行 Android 应用程序，就像它们是原生的 PC 软件一样，但在撰写本文时，只有少数几个得到了官方支持。然而，有一种方法可以将不支持的应用程序下载到 Windows 11，类似于如何在 Android 手机上安装第三方应用程序。
 
-Watch
+
 
 你需要一些东西来完成这件事。首先，你需要加入 Windows 11 Insider 计划，并安装 Android 应用的 Windows 子系统。你可以从 [微软的公告博客](https://blogs.windows.com/windows-insider/2021/10/20/introducing-android-apps-on-windows-11-to-windows-insiders/) 中了解更多关于加入测试版的信息。
 

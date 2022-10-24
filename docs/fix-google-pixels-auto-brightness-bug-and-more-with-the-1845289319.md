@@ -4,7 +4,7 @@
 
 谷歌 10 月份的 Android 安全补丁今天发布。这些定期更新为所有 Android 设备修补了 OS 级安全漏洞，但本月的补丁也为运行 Android 11 的 Pixel 设备修复了大量漏洞。
 
-Watch
+
 
 例如，以像素 4a 为例。它从 8 月份才上市，但业主们报告说，在由[led 和其他高强度蓝光](https://www.reddit.com/r/GooglePixel/comments/igcjxb/pixel_4a_adaptive_brightness_unstable) 照明的房间里，自动亮度调节滞后且不准确。
 

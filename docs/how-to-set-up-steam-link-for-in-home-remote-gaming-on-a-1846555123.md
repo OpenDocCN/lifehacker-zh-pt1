@@ -4,7 +4,7 @@
 
 Steam 的家庭远程游戏应用程序 [Steam Link](https://store.steampowered.com/app/353380/Steam_Link/) 终于可以在 Mac 上使用，为游戏玩家提供了更多控制，让他们可以在哪里以及如何玩 Steam 游戏。 Steam Link 可以让你将游戏从电脑传输到连接到家庭网络的另一台设备上，比如 Android 手机、iPhones、连接到电视的第二台 PC，现在还有 Mac 或 MacBook。
 
-Watch
+
 
 注意，这不是像 Stadia 一样的云流媒体服务——所以一款游戏的性能依赖于你的电脑硬件和你家庭互联网连接的强度。这也意味着 Steam Link 只玩你已经在 Steam 上拥有的游戏，以及与该应用程序兼容的。
 

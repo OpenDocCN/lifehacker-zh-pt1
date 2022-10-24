@@ -4,7 +4,7 @@
 
 吃香蕉的“正确”方式仍然没有定论，但不可否认的是，如果你只是把香蕉皮扔进垃圾桶，你就是在浪费它。香蕉皮具有 [消炎](https://www.thaiscience.info/Article%20for%20ThaiScience/Article/62/10038948.pdf) 和 [抗氧化](https://www.sciencedirect.com/science/article/abs/pii/S1756464617306783?via%3Dihub) 的特性，但它们也可以以一些怪异、有创意的方式在家里使用。不要麻烦把香蕉皮放在你的花园土壤里——那有点儿荒唐。
 
-Watch
+
 
 考虑将香蕉皮留作以下潜在用途:
 

@@ -4,7 +4,7 @@
 
 在劳动力短缺、持续的供应链问题、破坏性的冬季天气、 [各种](https://lifehacker.com/stop-using-these-recalled-deodorant-sprays-that-have-ca-1848562494) [召回](https://lifehacker.com/dont-use-these-recalled-infant-formulas-fda-says-1848567003) 之间，你可能会发现你的一些畅销产品明显没有出现在你所在地区零售商的货架上。也许你已经尝试过所有 [处理此类短缺的常用方法](https://lifehacker.com/you-can-overcome-your-empty-grocery-store-1848362014) ，包括在网上寻找、与商店经理交朋友以及进行替换。
 
-Watch
+
 
 但是还有另外一种方法可以获得你生活中不可或缺的物品的信息:直接去制造商那里。就像其他策略一样，不能保证这个策略会让你立刻(或永远)得到你想要的东西，但是值得一试。以下是需要了解的内容。
 

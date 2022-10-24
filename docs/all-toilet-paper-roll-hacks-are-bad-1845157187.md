@@ -6,7 +6,7 @@
 
 这里根本就没有好的厕纸黑客或工艺品——这一事实很容易通过快速的谷歌图片搜索得到证实:
 
-Watch
+
 
 我不确定到底是谁的错，但 Pinterest 显然是问题的一大部分。( [卫生纸卷筒工艺品板块](https://www.pinterest.com/favecrafts/toilet-paper-roll-crafts) 拥有近 22 万关注者！)节日期间，情况变得尤其糟糕，各种各样的博客都建议孩子们用用过的纸卷制作无用的雕像，模仿季节性的比喻。孩子们会玩他们涂了漆的玩具吗？【*父母/编者注:没有*】父母有没有把它们放在专门的盒子里，每年都拿出来当装饰品？【*家长/编者注:操号*】活动本身有什么好玩的吗？【*家长/编者按:开玩笑吧？* ])根本就不需要 [卫生纸卷鬼](https://www.thebestideasforkids.com/halloween-toilet-paper-roll-crafts) 、 [卫生纸卷火鸡](https://www.craftymorning.com/list-of-thanksgiving-toilet-paper-roll) (或者*颤栗*朝圣者)，或者 [卫生纸卷圣诞老人](https://www.thebestideasforkids.com/christmas-toilet-paper-roll-crafts) 的存在；尤其是当你可以装饰一个南瓜(如果你不想给孩子一把刀，就用彩笔)，画一只手火鸡，或者用雪堆一个雪人。
 

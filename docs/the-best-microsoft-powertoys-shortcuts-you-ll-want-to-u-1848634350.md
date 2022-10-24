@@ -4,7 +4,7 @@
 
 没有了 [微软 PowerToys](https://docs.microsoft.com/en-us/windows/powertoys/install) ，Windows 就不一样了——这是一套充满有用功能的实用程序，包括一个聚光灯般的搜索栏，可以快速打开应用程序或运行计算，一个快捷方式可以立即静音麦克风并关闭网络摄像头，还有一个工具可以让你将任何应用程序的窗口固定在屏幕上。所有的 PowerToys 工具都是免费的——以下是我们的最爱。
 
-Watch
+
 
 ## 视频会议静音
 

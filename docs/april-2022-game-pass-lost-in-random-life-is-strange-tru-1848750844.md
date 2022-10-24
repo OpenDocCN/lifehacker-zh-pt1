@@ -4,7 +4,7 @@
 
 在过去的几个月里，微软出乎意料地在 Game Pass 上毫无预警地投放宝石 [，如*的外衣*和*的天堂黑仔*](https://kotaku.com/xbox-game-pass-march-2022-tunic-paradise-killer-1848667038) ，激怒了各地的游戏记者。然后它在游戏通行证方面沉寂了几个星期。有一段时间，一些理性的观察家(hi)认为微软没有提前透露其游戏通行证阵容。但是没有！ [这里是未来几周游戏点播服务的全部内容](https://news.xbox.com/en-us/2022/04/05/game-pass-coming-soon-april-2022/) 。
 
-Watch
+
 
 **4 月 5 日**
 

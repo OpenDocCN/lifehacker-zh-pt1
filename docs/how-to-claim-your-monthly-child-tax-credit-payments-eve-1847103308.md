@@ -4,7 +4,7 @@
 
 昨天，美国国税局 [推出了一个门户网站，为那些](https://www.irs.gov/newsroom/irs-unveils-online-tool-to-help-low-income-families-register-for-monthly-child-tax-credit-payments) 正常情况下不需要报税，但仍有资格享受 [扩大的儿童税收抵免](https://lifehacker.com/how-to-make-sure-you-get-your-monthly-child-tax-credit-1847055859?rev=1623179051058) 的人提供服务，每个合格的受抚养人最高可获得 3600 美元。该工具旨在弥合低收入者和国税局之间的差距，因为没有社会安全号码或当前地址，国税局无法提供福利。如果这种情况适用于你，下面是你需要知道的。
 
-Watch
+
 
 ## 什么是儿童税收优惠？
 

@@ -4,7 +4,7 @@
 
 周二，脸书泄密者 Frances Haugen 出现在参议院小组委员会面前，就脸书政策作证，并表示马克·扎克伯格个人应对将利润置于儿童精神健康之前负责。 [*在这里阅读她的证词*](https://gizmodo.com/the-buck-stops-with-mark-facebook-whistleblower-says-z-1847797678) *和她的* [*八秒投诉在这里*](https://gizmodo.com/facebook-whistleblower-frances-haugen-releases-her-8-da-1847802360) *。】*
 
-Watch
+
 
 上周， [《华尔街日报》](https://www.wsj.com/articles/the-facebook-files-11631713039) 发表了一份来自脸书的内部研究报告，显示这家社交媒体公司非常清楚自己的产品对使用者的毒害。但是今晚，我们知道了《华尔街日报》是如何获得这些文件的:一位名叫弗朗西斯·豪根的告密者，她在哥伦比亚广播公司新闻节目 [*60 分钟*](https://www.cbsnews.com/news/facebook-whistleblower-misinformation-public-60-minutes-2021-10-03/) 中讲述了脸书毒害社会的方式。
 

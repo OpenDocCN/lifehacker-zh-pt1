@@ -4,7 +4,7 @@
 
 在家锻炼也带来了挑战: [临时准备的设备](https://vitals.lifehacker.com/how-are-you-improvising-a-home-gym-1842867200)[拼凑出一个套路](https://vitals.lifehacker.com/do-this-workout-at-home-no-equipment-needed-1842425497)[为不确定的未来做打算](https://vitals.lifehacker.com/how-to-plan-your-strength-training-when-the-future-is-u-1842649573)[努力不感到无聊](https://lifehacker.com/what-to-do-when-youre-bored-of-your-home-workout-1845145164) ，在网上淘那些难以捉摸的重量。但是也有一些好的方面，对吗？
 
-Watch
+
 
 我们中的一些人学会了一种新的锻炼技巧或方式。我有朋友非常擅长壶铃运动，因为壶铃是他们唯一的装备。我敢打赌，你们中的一些人全力以赴地练习瑜伽或健美操，并在那里提高了自己的技能。
 

@@ -4,7 +4,7 @@
 
 根据 Check Point Research 的一份 [报告，由于第三方服务的不安全，许多流行的 Android 应用程序将你的个人数据置于风险之中。](https://research.checkpoint.com/2021/mobile-app-developers-misconfiguration-of-third-party-services-leave-personal-data-of-over-100-million-exposed/) 
 
-Watch
+
 
 该报告强调了影响 Google Play 上 23 个不同应用程序的几个不同的安全缺陷，每个应用程序的下载量从 5 万到 1000 万不等。大多数违规应用使用不安全的实时数据库和云存储服务来收集和存储用户信息、开发人员数据和公司内部资源。安全研究人员能够从 13 个应用程序中找到不安全的云数据库，这意味着外部参与者也可以*和*访问它们。
 

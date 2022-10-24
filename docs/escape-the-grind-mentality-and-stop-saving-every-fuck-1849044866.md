@@ -4,7 +4,7 @@
 
 如果你曾经遇到过网络亚文化的励志演讲者企业家，你知道他们会建议你在年轻时尽可能努力工作，尽可能多地存钱，这样你有一天会 1)非常富有 2)非常快乐。 [Tik Tok 明星加里·维纳查克自诩](https://www.garyvaynerchuk.com/much-money-made-twenties/) 关于他如何在二十多岁的时候，不去度假或买花哨的东西。房地产投资者和作家格兰特·卡尔多内 [建议他的追随者](https://www.facebook.com/grantcardonefan/photos/dont-spend-time-and-money-on-things-toys-holidays-or-moments-invest-in-the-sures/10154277003383563/) ，“不要把时间和金钱花在东西、玩具、假期或时刻上”，这样你就可以把所有可用的资源花在自我提升上，为成为百万富翁服务。
 
-Watch
+
 
 ## 是否应该采取“咬牙心态”？
 

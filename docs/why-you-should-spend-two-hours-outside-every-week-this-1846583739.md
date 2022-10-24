@@ -4,7 +4,7 @@
 
 当我回想起去年的这个时候，我主要记得的是所有的行走。我和儿子会在午餐时间出门，在附近熟悉地兜一圈。在疫情的最初几周，当我停下来给最细小的花蕾拍照时，他会带着篮球在人行道上蹦蹦跳跳，这些花蕾似乎就在我眼前盛开。
 
-Watch
+
 
 我们开始带自行车，这样我们可以走得更远，感觉更自由。 [我们在后院的篱笆周围挂上灯](https://lifehacker.com/brighten-your-life-with-string-lights-1844618690) ，大多数晚上我们都坐在外面，在柔和的灯光下听音乐。我们本能地知道 [科学已经证明了什么](https://www.wsj.com/articles/for-better-health-during-the-pandemic-is-two-hours-outdoors-the-new-10-000-steps-11613304002) :走出大自然对我们的身心健康有好处。
 

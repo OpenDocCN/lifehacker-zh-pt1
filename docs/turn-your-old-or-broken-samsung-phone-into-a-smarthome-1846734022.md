@@ -4,7 +4,7 @@
 
 我有点收藏小玩意。我经常倾向于认为我可以将一些旧的东西——一部古老的手机、平板电脑或网络摄像头——改造成一些新的东西，所以我很高兴看到三星终于推出了它的 Galaxy Upcycling in Home 计划，这给了你一个将你现在应该已经卖掉的旧手机变成更有用的智能家居设备的方法。
 
-Watch
+
 
 此外，这也是一个让坏掉的手机获得额外寿命的*好方法，假设你可以轻敲屏幕足够长的时间来设置 Galaxy Upcycling(或者 [可以插上鼠标来帮助](https://lifehacker.com/how-to-use-your-phone-when-the-screen-is-cracked-1828407477) )。*
 

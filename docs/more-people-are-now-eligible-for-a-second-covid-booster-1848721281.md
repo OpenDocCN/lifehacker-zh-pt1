@@ -4,7 +4,7 @@
 
 即使你已经“完全”接种了疫苗和加强剂，你可能很快就要注射另一剂新冠肺炎疫苗了。FDA 今天决定 [授权](https://www.fda.gov/news-events/press-announcements/coronavirus-covid-19-update-fda-authorizes-second-booster-dose-two-covid-19-vaccines-older-and) 给 50 岁以上的人第二次加强剂量。
 
-Watch
+
 
 加强剂应该很快就可以使用——在 FDA 批准针对特定人群或目的的疫苗后，CDC 会就谁应该接种疫苗提出建议；只有在那之后，疫苗接种项目才能进行注射，并由你的保险报销。所以技术上来说，你还需要几天时间才能得到第二个助推器。
 

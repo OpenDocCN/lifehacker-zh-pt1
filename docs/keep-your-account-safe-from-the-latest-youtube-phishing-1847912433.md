@@ -4,7 +4,7 @@
 
 谷歌威胁分析小组最近的一份报告强调了一场针对 YouTube 内容创作者 的 [网络钓鱼活动。黑客成功劫持了数千个频道，这些频道要么被出售，要么被用来对该频道的观众发起金融诈骗。](https://blog.google/threat-analysis-group/phishing-campaign-targets-youtube-creators-cookie-theft-malware/) 
 
-Watch
+
 
 虽然谷歌表示，它正在积极应对这一威胁，并恢复了许多受影响的 YouTube 频道，但这场运动强调了为什么网络安全实践是重要的——在 YouTube 和其他任何地方。
 

@@ -4,7 +4,7 @@
 
 整个 2021 年对我们所有人来说都很艰难，这意味着今年尽可能多地采用舒适的角色 [让我们开心](https://gizmodo.com/the-pop-culture-were-thankful-for-getting-us-through-20-1848060754) 是一段有趣的时光。以下是 io9 工作人员最喜欢的 2021 年度人物。
 
-Watch
+
 
 ## *恶性*的加布里埃尔
 

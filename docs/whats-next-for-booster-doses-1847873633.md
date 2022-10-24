@@ -4,7 +4,7 @@
 
 在加强疫苗传奇的最新篇章中，食品和药物管理局的顾问团本周投票决定他们认为 Moderna 和 Johnson & Johnson 加强剂量是安全有效的。这意味着他们可能很快就会获得授权，但仍有许多问题有待回答。
 
-Watch
+
 
 提醒一下， [辉瑞增强剂已经获得授权，并被推荐](https://lifehacker.com/how-to-get-a-covid-vaccine-booster-dose-now-that-you-c-1847738004) 用于 65 岁以上或属于其他高风险人群的人群。
 

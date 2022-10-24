@@ -4,7 +4,7 @@
 
 通过通风、浇水、割草和除草，保持一片原始的草坪可能需要做很多工作。但是也有传统草的替代品，像 [沙漠风格的景观](https://www.landscapingnetwork.com/desert-landscaping/) 需要最少的关注和浇水，或者 [雨水花园](https://www.epa.gov/soakuptherain/soak-rain-rain-gardens) 有植物和灌木设计来收集雨水和过滤毒素。
 
-Watch
+
 
 然而，另一种几乎不需要维护的选择是人造草。不需要浇水，尽管安装需要一些工作，但最终还是值得的。这就是为什么你应该切换到合成草。
 

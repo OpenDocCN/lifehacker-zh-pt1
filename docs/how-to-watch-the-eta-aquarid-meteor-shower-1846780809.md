@@ -4,7 +4,7 @@
 
 一年中的这个时候，天空为地面上的凡人提供了受欢迎的视觉享受。考虑到本月天琴座的 [已经来了又去](https://lifehacker.com/when-to-see-the-lyrid-meteor-shower-light-up-the-night-1846673034) ，粉红色的 [超级月亮已经减弱](https://lifehacker.com/when-to-see-this-months-pink-super-moon-at-peak-brillia-1846666016) 进入一个不那么令人惊叹的阶段，你可能已经渴望宇宙中的下一个大事件了。
 
-Watch
+
 
 不要绝望:太空正在提供更多的理由在凌晨时分通过另一场表演进行户外冒险，这场表演实际上自 4 月 19 日以来已经如火如荼:Eta 宝瓶座流星雨。这场特殊的流星雨来自传说中的哈雷彗星，并以每小时 148，000 英里的速度在发送燃烧的岩石和冰碎片穿过宇宙。
 

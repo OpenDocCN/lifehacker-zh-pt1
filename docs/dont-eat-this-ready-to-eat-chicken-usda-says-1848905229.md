@@ -4,7 +4,7 @@
 
 由于其方便性，预煮鸡胸肉已经成为午餐(和晚餐)的主食，让人们可以在他们的膳食中添加一些瘦肉蛋白，而无需烹饪肉类。在所有肉类中，鸡胸肉尤其需要仔细监控，以确保它们达到美国农业部(USDA)规定的[【165 华氏度](https://www.foodsafety.gov/food-safety-charts/safe-minimum-internal-temperatures\) 的温度，但不要煮太久以至于变干。
 
-Watch
+
 
 所以当韦恩农场——一个来自阿拉巴马州迪凯特的家禽生产商。——发现他们的一些即食鸡胸肉可能没有完全煮熟，该公司宣布召回 585，030 磅他们的产品， [美国农业部食品安全和检验服务(FSIS)报告](https://www.fsis.usda.gov/recalls-alerts/wayne-farms-llc-recalls-ready-eat-chicken-breast-fillet-products-may-be-0?permalink=6F29603D9120D3CC594B1539CE6B27B2B7BECEC4CF06A7CD6CACA7A0F27E4F20) 。以下是需要了解的内容。
 

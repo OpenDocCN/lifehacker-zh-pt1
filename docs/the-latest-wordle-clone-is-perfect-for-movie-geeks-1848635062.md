@@ -4,7 +4,7 @@
 
 一开始，有沃尔多。沃尔多在线，沃尔多很好。万物从中萌发，结果，繁衍: [一次四个字](https://lifehacker.com/you-should-try-quordle-if-youre-too-good-at-wordle-1848540319) 。 [*八个*字同时出现](https://kotaku.com/wordle-dordle-quordle-octordle-word-game-browser-puzzle-1848593721) 。 [数学单词](https://kotaku.com/wordle-clone-nerdle-free-word-game-puzzle-browser-math-1848547825) 。 [地铁二字](https://kotaku.com/games-like-wordle-subwaydle-nyct-mta-best-routes-1848461481) 。 [同性恋词](https://lifehacker.com/6-wordle-esque-games-that-are-just-as-good-or-better-1848426197/slides/5) 。正当我的信念动摇，我开始怀疑沃尔得是否会横行地球时，在最大的考验和最深的厌倦的时候，我自己的救世主来了:一个基于票房琐事的沃尔得版本。
 
-Watch
+
 
 许多人用来储存社会可接受信息的大脑部分，如各种体育比赛的获胜者或有用的历史事实，我已经花了几十年时间塞满了票房统计数据。说出一部在过去 30 年里上映的电影，我很有可能给你一个粗略的估计，它最终在美国的票房总收入。如果这是一部真正受欢迎的电影，我甚至可以告诉你它在首映周末的票房。与大多数琐事相比，这些信息完全没有意义——可悲的是，知道一部电影的票房总收入并不意味着你有权从中分一杯羹——或者说*是*，直到我发现了 [票房游戏](https://boxofficega.me/) 。
 

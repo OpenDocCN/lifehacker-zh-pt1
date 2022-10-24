@@ -4,7 +4,7 @@
 
 我开始使用 MacroFactor 已经一年多了，这是一个实时计算我的 TDEE(每日总能量消耗)的应用程序。这是一个付费的应用程序，但是 [正如我们在](https://lifehacker.com/the-best-paid-diet-app-and-the-best-free-alternatives-1848043085) 发布时提到的，有一些免费的工具可以处理同样的计算。无论你用什么方法来追踪你的 TDEE，结果都是有启发性的。我当然这么认为。
 
-Watch
+
 
 ## TDEE 是什么？
 

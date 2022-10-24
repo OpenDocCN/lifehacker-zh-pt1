@@ -4,7 +4,7 @@
 
 嘿，家长们，你们猜怎么着？川普创建了一个“ [1776 委员会](https://www.whitehouse.gov/briefings-statements/remarks-president-trump-white-house-conference-american-history) ”，旨在教导孩子们“关于美国历史的奇迹”他想“捍卫美国建国的遗产、美国英雄的美德和美国人的高尚品格。”换句话说，他想要——毫不夸张地说——重写我们国家的历史，以进一步颂扬拥有奴隶的白人。
 
-Watch
+
 
 正如 Arwa Mahdawi 为《卫报》撰写的一篇题为“ [Trump 的 1776 年委员会证明了美国正在螺旋走向法西斯主义](https://www.theguardian.com/commentisfree/2020/sep/19/trump-1776-commission-proof-america-spiraling-toward-facism) ”:
 

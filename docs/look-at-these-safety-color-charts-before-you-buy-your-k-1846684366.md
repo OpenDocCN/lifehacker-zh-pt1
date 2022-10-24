@@ -4,7 +4,7 @@
 
 当我们为孩子挑选这一季的泳衣时，我们通常会考虑款式、适合年龄和舒适度。我们想要他们喜欢的，不太成熟的，又很合身的。但是我们可能没有给予另一个因素足够的重视，这个因素实际上可以帮助他们在水中更安全——衣服的颜色。
 
-Watch
+
 
 [ALIVE Solutions](https://alive-solutions.com/about) ，一家专门从事水上安全、培训和风险评估的公司，测试了十几种不同颜色的泳衣[然后在湖里](https://alive-solutions.com/water-safety/f/buying-bathing-suits-for-lakes-open-water) 。泳衣变得难以辨认的程度，如果不是不可能的话，根据它的颜色有很大的不同。让我们先来看看泳池中的泳衣，ALIVE Solutions [在其博客](https://alive-solutions.com/blog/f/buying-swimwearthink-safety) 中写道，这款泳衣的底部是浅色的:
 

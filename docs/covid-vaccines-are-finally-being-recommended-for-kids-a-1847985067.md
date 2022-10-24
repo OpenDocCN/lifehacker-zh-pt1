@@ -4,7 +4,7 @@
 
 CDC 的顾问小组今天投票推荐辉瑞的儿科 COVID 疫苗给所有 5 到 11 岁的儿童。该建议得到了美国儿科学会、美国家庭医师学会、全国儿科护士协会和儿科传染病学会的认可，他们都在会上宣读了支持疫苗的声明。
 
-Watch
+
 
 疫苗 [已于上周获得 FDA 授权](https://lifehacker.com/we-are-this-close-to-kids-getting-a-covid-vaccine-1847940936) ，联邦政府已经 [购买了足够的疫苗](https://lifehacker.com/we-finally-have-a-timeline-for-kids-covid-vaccines-1847901772) 供这个年龄段的美国 2800 万儿童免费使用。预计疾病预防控制中心将很快做出正式建议，如果你读到这篇文章时还没有预约，你应该可以在几天内预约儿科医生或当地疫苗诊所。*【2021 年 11 月 3 日更新:* [*正式*](https://www.cdc.gov/media/releases/2021/s1102-PediatricCOVID-19Vaccine.html) *。去预订吧。】*
 

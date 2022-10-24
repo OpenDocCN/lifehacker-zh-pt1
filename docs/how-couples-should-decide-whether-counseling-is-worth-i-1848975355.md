@@ -4,7 +4,7 @@
 
 婚姻咨询可能很难，但是花时间在你们的关系上看看是否可以改善通常是明智的。关于 [44%的夫妇在结婚前会去婚姻咨询](https://onlinedegrees.bradley.edu/blog/how-to-convince-your-partner-to-attend-marriage-counseling/) 。研究还表明，夫妻疗法 [对 70%接受治疗的夫妻](https://onlinelibrary.wiley.com/doi/abs/10.1111/j.1752-0606.2011.00249.x) 产生积极影响。夫妻顾问在设计上是不带偏见的，所以如果你想和你的另一半一起解决问题，他们可以提供一个外部视角。这也是一个优点，外界的观点来自一个在关系问题上受过高度训练的人。但是你怎么知道什么时候适合你呢？
 
-Watch
+
 
 ## **你和你的伴侣可能需要夫妻咨询的迹象**
 

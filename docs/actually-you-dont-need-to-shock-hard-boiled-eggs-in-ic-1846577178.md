@@ -2,7 +2,7 @@
 
 > 原文：<https://lifehacker.com/actually-you-dont-need-to-shock-hard-boiled-eggs-in-ic-1846577178>
 
-Watch
+
 
 将热鸡蛋放入一碗冰水中绝对不会影响它们的可剥性。我知道这一点，因为我最近烹饪和食用了大量的煮熟的鸡蛋，而没有一个冰块被用来完成它们的剥皮。唯一影响鸡蛋和鸡蛋剥皮难易程度的水温是它们的*起始*温度，应该是*沸腾；*将鸡蛋放入冷水中煮沸，鸡蛋会附着在蛋壳膜上，这使得鸡蛋很难从蛋壳上分离。用热水煮鸡蛋，你就不会有这个问题。(唯一的例外是 [压力煮鸡蛋](https://skillet.lifehacker.com/7-unexpected-things-to-make-in-your-new-instant-pot-1845958274) ，也超级容易剥)
 

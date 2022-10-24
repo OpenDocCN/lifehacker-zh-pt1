@@ -4,7 +4,7 @@
 
 对于许多家庭来说，2007 年至 2009 年的大衰退仍然令人痛苦地记忆犹新，人们对最近的 T4 经济波动感到高度焦虑。 [美国经济在今年第二季度再次](https://www.nytimes.com/live/2022/07/28/business/gdp-inflation-news) ，经济分析局今天宣布，许多专家和普通美国人都认为经济衰退即将来临。你可能是其中之一——或者你可能想知道“国内生产总值”和“衰退”到底是什么意思，更不用说你应该对它们有多紧张了。
 
-Watch
+
 
 不要绝望。知识就是力量，所以让我们复习一些你应该知道的经济学术语。这些术语来自于 [、美联储圣路易斯银行](https://www.stlouisfed.org/education/glossary) 、 [核心经济](https://www.core-econ.org/the-economy/book/text/50-02-glossary.html) 和 [*经济学家*](https://www.economist.com/economics-a-to-z) 。
 

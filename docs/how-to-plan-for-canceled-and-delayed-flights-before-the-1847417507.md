@@ -4,7 +4,7 @@
 
 由于一系列问题——天气、劳动力短缺、运力减少——航班延误和取消[已经成为今年夏天比往常](https://apnews.com/article/lifestyle-health-business-pandemics-coronavirus-pandemic-658f555ab74bdf9341ff761eff5bba63)更大的麻烦。虽然你可能无法完全避免它们，但你可以采取一些措施来保护自己免受太多的困扰。
 
-Watch
+
 
 ## **预订您的旅行时，请考虑延迟或取消**
 

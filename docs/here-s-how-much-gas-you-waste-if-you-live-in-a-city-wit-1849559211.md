@@ -4,7 +4,7 @@
 
 人们对油价的担忧一直很高，但现在已经到了白热化的程度。这是这些天的主要话题之一(即使人们 [不知道他们在谈论什么](https://lifehacker.com/how-to-sound-less-stupid-when-you-talk-about-gas-prices-1849171128) )，我们都在 [寻找在加油站](https://lifehacker.com/how-to-get-the-most-out-of-every-drop-of-gas-right-now-1848630417)[省钱的方法](https://lifehacker.com/the-fastest-way-to-find-the-cheapest-gas-in-your-area-1848554597) 。
 
-Watch
+
 
 你的驾驶习惯在你的汽车耗油量以及你为此支付的费用中扮演着重要的角色——但是你的“习惯”可能不完全是罪魁祸首。你的城市也可以承担一些责任。让我们看看来自德克萨斯 A & M 运输研究所和 INRIXT3 的 [数据，看看哪些地区的通勤者因交通拥堵而消耗了过多的燃料。](https://static.tti.tamu.edu/tti.tamu.edu/documents/mobility-report-2021.pdf)
 

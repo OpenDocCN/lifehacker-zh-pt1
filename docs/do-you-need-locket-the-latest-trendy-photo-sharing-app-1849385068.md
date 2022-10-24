@@ -4,7 +4,7 @@
 
 最新热门的照片分享应用，，最近 [筹集了 1250 万美元的资金](https://techcrunch.com/2022/08/02/locket-app-that-lets-yor-post-photos-to-your-loved-ones-homescreens-raises-12-5m/) ，使得它潜在地值得一试，尽管它仍然相对不为人知。在今年元旦推出后，它的下载量确实超过了 2000 万次，但它的知名度仍不及其同行。(当然，Instagram 已经从 [转向视频分享](https://lifehacker.com/why-almost-all-of-your-instagram-videos-are-becoming-re-1849320924)，而 BeReal 仍然坚定地坚持 [每日发布未经过滤的照片](https://lifehacker.com/what-is-the-new-social-media-app-bereal-and-do-you-r-1848780094) 。)但是是什么让 Locket 与众不同？
 
-Watch
+
 
 ## **什么是小金盒？**
 

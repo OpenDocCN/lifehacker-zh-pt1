@@ -4,7 +4,7 @@
 
 随着独立日的临近，食品连锁店正试图用折扣和交易吸引你离开烧烤店，你可以在 7 月 4 日之前甚至之后兑换。下面是一些促销活动，在你庆祝红色、白色和蓝色的时候，可以帮你省下一些绿色:
 
-Watch
+
 
 [**7-Eleven**](https://www.7-eleven.com/?gclsrc=aw.ds&gclid=Cj0KCQjw5uWGBhCTARIsAL70sLIbxAvl1fv-ZoVL9UE9BsIl7JdFOGvsh9t39W5_dp4zMaCwvsDhDQIaAru3EALw_wcB)**:**虽然从技术上来说是该连锁店的 94 周年促销活动，但 7-Eleven *在整个 7 月份都提供免费的思乐冰，这在我看来相当爱国。然而，你必须成为他们的忠诚度应用程序的成员才能领取免费赠品。* 
 

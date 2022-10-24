@@ -4,7 +4,7 @@
 
 万一你眨眼错过了抖音[# barkatyourdogchallenge](https://www.tiktok.com/tag/barkatyourdogchallenge?is_copy_url=1&is_from_webapp=v1)，它听起来就像是:一个人对着他们的狗吠叫。更具体地说，挑战的目标是拍摄一段你的狗对你对它们吠叫的反应的视频。
 
-Watch
+
 
 狗狗们吃惊的反应应该是很有趣的，但是根据动物专家的说法，它们富有表情的眼睛和脸实际上是压力和恐惧的迹象。这就是为什么你不应该对你的(或任何)狗吠叫。
 

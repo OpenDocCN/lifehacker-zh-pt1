@@ -4,7 +4,7 @@
 
 你会从旧的 iPhone 换到新的吗？在线备份过程通常很顺利，只要你在 iCloud 或一台电脑上有足够的空闲空间来使用 iTunes 进行备份和恢复。然而，如果你*没有*足够的 iCloud 存储空间，你就不再需要使用你的电脑。
 
-Watch
+
 
 你现在可以 [临时借用苹果的 iCloud 存储](https://lifehacker.com/15-hidden-ios-15-features-worth-knowing-about-1847678728) 完成在线备份，恢复到新 iPhone 上。苹果允许你免费借用这个 iCloud 存储空间，但问题是你的数据只会在 iCloud 上保留 21 天。(如果你无法在 21 天内恢复 iCloud 备份，你可以 [联系苹果支持](https://getsupport.apple.com/) ，请求他们将你的临时 iCloud 存储空间延长 21 天，但如果你只是传输数据的话，希望这不是一个问题。)
 

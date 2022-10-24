@@ -4,7 +4,7 @@
 
 去年，脸书将 WhatsApp、Facebook Messenger 和 Instagram 的私人消息合并为一个单一的消息平台。虽然每个应用程序在手机的应用程序库中仍是一个单独的图标，但用户现在可以跨平台相互聊天，并享受新功能和端到端加密选项。然而，由于 WhatsApp 的隐私政策 即将发生变化，这也意味着 WhatsApp 的用户数据将从 2 月 8 日开始与脸书及其合作伙伴共享。这适用于所有 WhatsApp 用户——即使他们不使用脸书、Instagram 或 Messenger。
 
-Watch
+
 
 脸书通过应用内通知提醒 WhatsApp 用户注意这一变化，但没有解释脸书将收集 WhatsApp 用户的数据类型。要找到这一点，你必须通读 WhatsApp 网站 上的 [新隐私政策。根据 2021 年 1 月 4 日发布的最新版本，脸书现在将收集所有 WhatsApp 账户的以下信息:](https://www.whatsapp.com/legal/updates/privacy-policy?eea=0#privacy-policy-updates-how-we-work-with-other-facebook-companies)
 

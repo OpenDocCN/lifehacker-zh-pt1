@@ -4,7 +4,7 @@
 
 有很多地方可以买到完全可以接受的三明治。你可以随时去附近的便利店买一份 [鸡肉沙拉三明治](https://thetakeout.com/give-convenience-store-salad-sandwiches-another-chance-1848654680) ，在家里拼凑 [一份你自己的简单食谱](https://thetakeout.com/sandwich-ideas-the-best-sandwich-recipes-elvis-pimen-1846574604) ，或者依靠全国各地众多连锁餐馆中的一家。如果你倾向于后者，忘记 [地铁](https://thetakeout.com/will-subway-ever-learn-its-lesson-subway-series-menu-1849142879)[吉米·约翰的](https://thetakeout.com/jimmy-johns-zesty-garden-turkey-club-review-1848614062) ，甚至世界的 [Quiznos](https://thetakeout.com/is-quiznos-coming-back-new-menu-open-locations-1849372073) 吧，因为一个新的连锁店即将成为三明治大战中的霸主，而且理所应当如此。是泽西麦克大放异彩的时候了。
 
-Watch
+
 
 [《QSR》杂志报道](https://www.qsrmagazine.com/content/25-fastest-growing-fast-food-chains-america) 泽西麦克是美国增长最快的连锁店:从 2020 年到 2021 年，全国增加了 246 家门店，门店总数达到 2100 家，连锁店带来了超过 22 亿美元的销售额，比 2020 年的 15 亿美元大幅增长。Jersey Mike 的明星地位正在上升，虽然它距离赶上赛百味的 3.7 万家门店还有一段路要走，但它的指数增长证明了它从卑微的起步到跻身美国顶级三明治品牌的道路有多远。
 

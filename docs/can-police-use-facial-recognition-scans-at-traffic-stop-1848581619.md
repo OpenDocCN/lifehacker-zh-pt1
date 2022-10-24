@@ -4,7 +4,7 @@
 
 近年来，执法部门在调查中对面部识别技术的使用蓬勃发展，这在很大程度上要归功于蓬勃发展的监控行业，该行业建立在不断扩大的公开生物数据的基础上。然而，这项技术在哪里以及如何使用的限制在法律上仍然模糊不清，并且在不断发展。现在，似乎至少有一些执法人员正在考虑在看似良性的交通检查站使用面部识别的想法，这种技术使用的潜在松动让法律和隐私专家感到不安。
 
-Watch
+
 
 正如《内幕》的卡罗琳·哈斯金斯本月早些时候首次报道的，这一假设是在街头警察培训播客的 2021 [集](https://streetcoptraining.com/captivate-podcast/social-media-and-online-tactics-feat-nick-jerman/) 中提出的，该节目旨在让警察学习新的调查技术。在这一集里，节目主持人丹尼斯·贝尼尼奥向他的嘉宾 [尼克·杰曼](https://www.businessinsider.com/police-trained-create-fake-social-media-accounts-using-ai-images-2022-1) 提出了一个场景。
 

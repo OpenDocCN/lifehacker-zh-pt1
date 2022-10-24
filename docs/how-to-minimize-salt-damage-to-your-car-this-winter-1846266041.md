@@ -4,7 +4,7 @@
 
 冬天开车会很棘手，原因有很多。没有人喜欢刷掉车窗上的雪或刮去车窗上的冰， [挡风玻璃起雾](https://lifehacker.com/use-this-method-from-a-former-nasa-engineer-to-defog-yo-1845817132) 或 [破裂](https://lifehacker.com/how-to-prevent-your-windshield-from-cracking-this-winte-1846213476)——这都是在赛季开始前花时间给你的车做好防寒准备之后。
 
-Watch
+
 
 此外，冬季暴风雪过后，道路状况可能并不理想。这就是盐的来源。虽然在一年中的这个时候让驾驶变得更安全(或者在某些情况下是可能的)是至关重要的，但是道路上撒的盐会对你的车辆产生影响。这里有几个方法可以把伤害降到最低。
 

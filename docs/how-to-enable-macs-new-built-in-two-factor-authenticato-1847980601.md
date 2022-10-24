@@ -4,7 +4,7 @@
 
 如果你以前没有听过我们关于这个问题的说教，你真的应该对你所有的重要账户使用双因素认证[。每 30 秒重新生成一次的六位数字密码是额外的安全层，对于确保您的数字帐户的安全至关重要。但问题是，你如何以一种实际上很容易使用的方式去做这件事？](https://lifehacker.com/no-one-knows-about-two-factor-authentication-and-privat-1838913065) 
 
-Watch
+
 
 选择很多；Bitwarden 和 1Password 都内置了出色的双因素身份认证功能，但这些应用程序需要花钱，而且它们最终是第三方选项，而不是内置在我们的设备中的东西。但是现在，苹果已经在 iOS 15、iPadOS 15 和 macOS Monterey 的密码功能中集成了双因素认证。
 

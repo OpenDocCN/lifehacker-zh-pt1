@@ -4,7 +4,7 @@
 
 最近几个月，FDA 已经授权了几项非处方药 COVID 测试，这样你就不必去检测中心检查自己是否患有冠状病毒。从本周开始，你可以 [在沃尔格林、沃尔玛，或者 CVS](https://www.usatoday.com/story/news/health/2021/04/19/covid-home-tests-walmart-cvs-walgreens-binaxnow-ellume/7286667002/) 进行抗原自测。
 
-Watch
+
 
 ### 什么是抗原测试？
 

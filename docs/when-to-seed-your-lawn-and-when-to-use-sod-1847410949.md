@@ -4,7 +4,7 @@
 
 谈到开始建草坪，有两种方法可以开始:你可以准备地面和 [播种](https://www.pennington.com/all-products/grass-seed/resources/how-to-plant-grass-seed) ， o r 你可以从一层已经长出的草开始，称为 [草皮](https://www.sodgod.com/what-is-sod/) ，养护它，让根长得更深。当然，两者都需要不同的护理元素(和资金)，那么什么时候应该使用其中一个而不是另一个呢？这里有一些需要考虑的事情。
 
-Watch
+
 
 ## 播种草坪需要什么
 

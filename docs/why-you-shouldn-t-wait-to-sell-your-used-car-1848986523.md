@@ -4,7 +4,7 @@
 
 如果你一直在考虑卖掉你的车，现在可能是最好的时机。根据劳工统计局 的 [消费者价格指数，二手车和卡车的价格比去年同期上涨了 22.7%。虽然这一趋势影响了整个国家，但它对城市的影响最大。](https://www.bls.gov/news.release/pdf/cpi.pdf) [迈阿密从 2021 年 3 月到 2022 年 3 月二手车价格上涨了 35.9%](https://www.iseecars.com/used-car-prices-study)；纽约市涨幅 35.2%；而旧金山增长了 36.9%。
 
-Watch
+
 
 如果你想在市场上*买一辆*、、[二手车，我们有一些建议给你](https://lifehacker.com/the-best-time-to-buy-cars-appliances-and-other-things-1848948337)、，但是如果你想在市场上卖掉你的车，现在是把别人的不幸变成你的好运的好时机。
 

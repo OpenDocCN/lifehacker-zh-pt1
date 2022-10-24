@@ -4,7 +4,7 @@
 
 如果你在疫情最热的时候，我们都在家里，感到害怕，有很多多余的时间，你可能正在经历 [酸面团](https://thetakeout.com/make-homemade-kvass-from-your-sourdough-starter-1844801564) 热潮。每个人都在烘烤食物，从左到右。突然间，全世界的每个人看起来都像专业的面包师。除了我。
 
-Watch
+
 
 我顽强地抵制了 [自制面包](https://thetakeout.com/in-tough-times-americans-have-always-turned-to-sourdou-1846101673) 的浪潮，因为我对它毫无兴趣(我*确实玩了很多电子游戏)。但是在执念消退很久之后，我决定今年尝试烘焙我的第一条面包，就为了说我做到了。我已经在厨房投入了很多职业生涯，所以我想我可能最终会着手烘焙，你知道吗？这也不是为了一篇文章而计划的。我只想至少试一次。*
 

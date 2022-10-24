@@ -4,7 +4,7 @@
 
 上周，拜登总统要求教育部审查他使用行政行动 免除学生贷款债务的 [法律权限，这为总共欠下 1.7 万亿美元学生贷款的 4500 万借款人中的许多人带来了新的希望。但这将如何影响你的还款策略，你是否应该指望联邦贷款可能被注销 50，000 美元？](https://www.businessinsider.com/biden-wants-to-cancel-student-loan-debt-ron-klain-says-2021-4)
 
-Watch
+
 
 ### **没有保证**
 

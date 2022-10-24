@@ -4,7 +4,7 @@
 
 本周， [Better Business Bureau 发布了关于 COVID 测试骗局泛滥的警告](https://www.bbb.org/article/scams/26355-scam-alert-getting-a-covid-19-test-make-sure-its-for-real) 。根据 BBB 的说法，假冒网站和 janky 亲自测试中心正在利用 COVID 测试作为借口，窃取人们的个人和保险信息和/或赚点小钱。这里有一些避免成为 COVID 测试的牺牲品的建议。
 
-Watch
+
 
 ## 【COVID 测试骗局如何运作
 

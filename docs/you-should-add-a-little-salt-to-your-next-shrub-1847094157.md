@@ -4,7 +4,7 @@
 
 我不是一个很好的面包师，所以我最喜欢的方法是到 [用尽](https://lifehacker.com/how-to-drink-your-way-through-your-summer-berry-haul-1837247326) “一两个浆果通常需要和 [未搅打的重奶油](https://lifehacker.com/pour-heavy-cream-on-fruit-instead-of-whipped-cream-1834751267) 一起吃，或者用一整串糖提取它们的汁液，然后用那种生动的糖浆把 [做成灌木](https://lifehacker.com/make-delicious-sweet-and-sour-shrubs-using-this-easy-ra-1724576518) (也称为“喝醋”)。
 
-Watch
+
 
 我通常使用每磅水果 2 杯糖和 2 杯醋的比例，但昨天我在我的胡德草莓灌木里加了一撮盐，发现它立即得到了改善。这并不是说这种灌木在它的未盐渍状态令人不快。这是它应该有的一切——T4 非常酸，T6 非常甜，用一大杯冰镇苏打水(或起泡葡萄酒，我昨天下午很喜欢)稀释后感觉棒极了。
 

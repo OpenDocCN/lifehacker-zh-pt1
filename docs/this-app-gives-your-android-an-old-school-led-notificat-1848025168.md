@@ -4,7 +4,7 @@
 
 每部智能手机都有内置手电筒，但在过去， 许多安卓手机都有另一个硬件灯:一个 LED，每当你收到新的通知或警报时就会点亮—一个温柔的轻推，你需要检查你的手机，但几步之遥整个屏幕就会点亮。2021 年，很少有手机包含这种功能的硬件，但这并不意味着一去不复返了。
 
-Watch
+
 
 由于我们无法在没有一些严肃工程的情况下将 LED 内置到智能手机中，退而求其次就是使用软件来完成同样的事情。带回 LED 通知灯的 app 是叫 [aodNotify](https://play.google.com/store/apps/details?id=com.jamworks.aodnotificationledlight) 。三星 Galaxy S21、S20 和 S10 的用户以及一加的用户可能会认出这个名字，因为开发者 Jawomo 首先创建了这个应用程序，为这些设备添加通知灯。现在，Jawomo 也为 Pixel 系列开发了一个版本。
 

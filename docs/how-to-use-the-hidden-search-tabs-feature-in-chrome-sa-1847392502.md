@@ -4,7 +4,7 @@
 
 人们很容易迷失在多个浏览器窗口之间打开的标签海洋中——有时甚至是在多个标签中的同一个网站的。相反，使用浏览器内置的搜索标签功能 [让事情井井有条](https://lifehacker.com/organize-your-browsing-with-this-chrome-dashboard-exten-1832817515) 。你会在 Chrome、Safari 和 Firefox 等所有主流浏览器中找到这一功能。虽然新的微软 Edge 运行在 Chrome 引擎上，但它还没有 Chrome 的搜索标签功能——但你可以使用一个 [扩展](https://lifehacker.com/our-12-favorite-chrome-extensions-1844729409) 来复制它。
 
-Watch
+
 
 ## 如何在 Chrome 中搜索打开的标签页
 

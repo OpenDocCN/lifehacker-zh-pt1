@@ -4,7 +4,7 @@
 
 随着直接支付重回谈判桌，在最新的救助法案谈判中，美国人有可能在 2021 年初看到现金支付。然而，数以百万计的此类付款将以 EIP 借记卡的形式发送，正如我们在 6 月 看到的那样， [让许多人感到困惑，一些人把卡扔了。以下是下次如何避免这种情况的方法。](https://news4sanantonio.com/news/trouble-shooters/stimulus-debit-card-confusion) 
 
-Watch
+
 
 ### 什么是 EIP 卡？
 

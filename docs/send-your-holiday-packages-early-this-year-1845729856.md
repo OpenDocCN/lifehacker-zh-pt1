@@ -4,7 +4,7 @@
 
 每年，美国邮政服务(USPS)都会要求我们在假期尽早寄出包裹和贺卡。但是今年，他们真的很认真。对于邮递员来说，这总是一年中非常繁忙的时候，但扔一个疫情和 [一个已经困难的一年](https://www.cnbc.com/2020/08/17/usps-heres-who-may-be-impacted-by-the-postal-service-slow-down.html) 又是一个延误的处方。以下是 2020 年邮寄节日包裹需要了解的内容。
 
-Watch
+
 
 ### 早点出发
 

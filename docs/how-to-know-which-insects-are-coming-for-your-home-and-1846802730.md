@@ -4,7 +4,7 @@
 
 至此，我们知道蝉将完成 17 年的冬眠期，在今年春夏接管美国大片地区。但是如果你认为它们是在温暖的月份里唯一拜访我们的虫子，那就再想想吧。
 
-Watch
+
 
 为了帮助我们驾驭迎面而来的昆虫，国家害虫管理协会(NPMA) 发布了他们的 bi- 年度 [昆虫晴雨表](https://www.pestworld.org/news-hub/press-releases/rainy-spring-and-summer-will-do-more-than-dampen-outdoor-plans/?fbclid=IwAR3fkt5Ke-mYM3VSLnMYl_WCxl_WuMLLIh95Jx5nWBmJnaSJ0sn-O2Gwvm4) 。下面是他们对今年夏天全国不同地区的家庭和花园中出现的各种虫子的预测。
 

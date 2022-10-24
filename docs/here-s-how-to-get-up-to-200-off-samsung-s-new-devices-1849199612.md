@@ -4,7 +4,7 @@
 
 像所有公司一样，三星希望你购买它的新产品。然而，三星最新策略的有趣之处在于，该公司向潜在客户提供高达 200 美元的储蓄，以购买其新产品——并且不需要任何承诺来获得资格。如果你甚至想在不久的将来买一部新的三星手机，这笔交易值得你花时间。
 
-Watch
+
 
 [三星发布 2022](https://news.samsung.com/global/invitation-galaxy-unpacked-august-2022-unfold-your-world?utm_source=mainkv&utm_medium=internal) ，该公司的年度主题演讲旨在突出其即将推出的旗舰产品，定于美国东部时间 8 月 10 日星期三上午 9 点(太平洋时间上午 6 点)举行。虽然三星不想过早推出新设备来“破坏”这一重大事件，但泄露和谣言已经破坏了几乎所有事情。对于任何关注 [的人来说，除了新的 Galaxy Watch 5 Pro 之外，预计三星将在 Unpacked 上宣布其下一代可折叠产品](https://www.theverge.com/2022/7/19/23270390/samsung-unpacked-2022-z-fold-flip-4-early-reservation-credit-announcement) ，Galaxy Z Fold4 和 Z Flip4。
 

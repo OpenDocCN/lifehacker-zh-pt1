@@ -4,7 +4,7 @@
 
 对于那些在过去大约 18 个月 [远程工作](https://lifehacker.com/how-to-maintain-a-sense-of-purpose-when-working-from-ho-1845619098) 的人来说，走出家庭回到工作场所的转变可能是(或者已经是)一个挑战。这不一定是对工作时间延长的担忧——如果有什么不同的话，那就是 [可能会减少我们花费在工作上的时间](https://www.cnn.com/2021/02/05/business/working-from-home-hours-pandemic-scli-intl-gbr/index.html)——但更多的是担心失去远程员工在疫情期间获得的自主权。
 
-Watch
+
 
 北卡罗来纳大学凯南-弗拉格勒商学院战略和企业家教授阿尔温德·马尔霍特拉[博士最近告诉 BBC《工作生活》](https://www.bbc.com/worklife/article/20210819-how-to-cope-with-less-autonomy-in-the-office) “当有人不总是看着你时，你可以选择如何完成事情，”他指出，像下午快速散步或 10 分钟洗碗这样的“小事”可以产生很大的影响。
 

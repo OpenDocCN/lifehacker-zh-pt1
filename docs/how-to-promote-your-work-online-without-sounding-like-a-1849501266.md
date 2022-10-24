@@ -4,7 +4,7 @@
 
 在网上推广你的作品 的 [最糟糕的方式之一就是通过展出一个](https://www.newsweek.com/lena-wilson-film-critic-amandla-stenberg-bodies-bodies-bodes-1735879) [神综合体](https://lifehacker.com/the-three-types-of-narcissists-and-how-to-recognize-the-1846734477) 。当然，庆祝让你的工作变得有价值是值得的。同时，你也不想在这个过程中惹恼你的潜在(或现有)观众。在光谱的另一端，一些有才华的艺术家与固有的自我主义作斗争，这种自我主义来自于张贴自己的作品。那么你如何避免这两个陷阱呢？自我推销的关键是平衡自信和自大。以下是我们的建议，可以帮助你做到这一点，并在网上推广你的作品，而不会让人觉得你是个大混蛋。
 
-Watch
+
 
 ## **以真实性为目标**
 

@@ -4,7 +4,7 @@
 
 航班上 [情感支持松鼠](https://www.usatoday.com/story/travel/flights/2018/10/11/frontier-airlines-passenger-who-brought-emotional-support-squirrel-flight-speaks-out/1603615002/) 的时代已经结束，随着交通部 [裁定周三](https://www.transportation.gov/briefing-room/us-department-transportation-announces-final-rule-traveling-air-service-animals) 即*只有*狗才能被定义为服务动物。其他用于情感支持的动物伴侣要么必须托运到货舱，要么留在家里。
 
-Watch
+
 
 CWA 空乘人员协会对这些变化表示欢迎，因为他们说，在航班上使用未经训练的辅助动物已经激增，导致乘客和机组人员受伤。“诺亚方舟在空中的日子有望结束，”萨拉·纳尔逊总统在今年早些时候的一份声明中说。
 

@@ -4,7 +4,7 @@
 
 与此相反，Intuit 的 TurboTax 现在表示，由于申报错误而没有收到减免付款的客户最终将通过直接存款获得这些款项，而不是作为纳税申报的一部分进行申报。
 
-Watch
+
 
 由于 IRS 的 [Get My Payment](https://www.irs.gov/coronavirus/get-my-payment) 工具出现故障，H & R Block 和 TurboTax 客户的直接存款都被发送到临时转账银行账户，这些账户被 [错误地指定为客户的主要直接存款账户。昨天，作为回应，H & R Block](https://nypost.com/2021/01/05/hr-block-turbotax-blamed-for-delays-in-stimulus-checks/) [表示](https://twitter.com/HRBlock/status/1346252283777003526?s=20) 他们会将款项转到正确的直接存款账户或客户的翡翠卡。然而，TurboTax 在一系列推文中直指国税局，暗示他们的手脚被束缚住了。不幸的是，美国国税局的解决方案只建议拥有无人认领资金的人应该在他们纳税的 1040 表格或 1040-SR 表格上申请回收退税信贷，这显然比直接存款需要更长的处理时间。
 

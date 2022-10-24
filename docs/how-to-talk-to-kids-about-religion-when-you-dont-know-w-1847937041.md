@@ -4,7 +4,7 @@
 
 “上帝是什么？我们死后会发生什么？我们为什么不像爷爷奶奶那样去教堂呢？”不管你是否信教，处理孩子提出的关于信仰的令人惊讶的问题会让你措手不及。幸运的是，作家兼育儿专家温迪·托马斯·拉塞尔已经亲身经历过这一经历，并有一些深刻的建议可以分享。请听最新一集的 *The Upgrade* 听 Wendy 讨论与孩子讨论不同宗教时的最佳方法和心态，如何帮助孩子理解信仰与事实或虚构之间的区别，以及开始讨论信仰概念的理想年龄。
 
-Watch
+
 
 温迪是一名前记者，也是独立图书出版商 Brown Paper Press 的创始人，著有《放松，这只是上帝:当你不信教时，如何和为什么与你的孩子谈论宗教》 *，*以及屡获殊荣的 [*ParentShift:将改变你抚养孩子方式的十个普遍真理*](https://www.amazon.com/ParentShift-Universal-Truths-Change-Raise/dp/194193210X/ref=tmm_pap_swatch_0?_encoding=UTF8&asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-talk-to-kids-about-religion-when-you-dont-know-w-1847937041&asc_source=&qid=&sr=&tag=kinjalifehackerlink-20) *。*
 

@@ -4,7 +4,7 @@
 
 11 年前，我们发表了一篇关于一个古怪黑客的 [简要报道](https://lifehacker.com/repel-mosquitoes-with-a-bubble-machine-5806950):T 据说在儿童泡泡机上旋转可以驱赶蚊子。这个周末，我看到同样的想法 [在抖音](https://www.tiktok.com/@sarahforwarkholden/video/7138055243216129326?is_from_webapp=v1&item_id=7138055243216129326) 上疯传。但是真的管用吗？
 
-Watch
+
 
 Snopes，备案， [难倒了](https://www.snopes.com/fact-check/bubble-machines-mosquito-repellent/) 。他们总结道，没有理由相信*会*奏效，我部分同意。例如，泡泡机并没有被列在任何公共卫生组织的防蚊小贴士中。肥皂对蚊子也没有特殊的力量；Snopes 对那个 更有权威性。但我想我明白这是怎么回事了。*任何泡泡机的关键部件都是风扇*。
 

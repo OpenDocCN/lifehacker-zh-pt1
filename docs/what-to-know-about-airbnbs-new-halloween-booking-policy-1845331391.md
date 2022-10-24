@@ -4,7 +4,7 @@
 
 Airbnb 肯定不希望人们在他们的网站上租赁房产来举办派对。首先，他们在八月推出了 [全球禁播派对](https://lifehacker.com/stop-partying-in-your-airbnb-1844805035) 。然后，他们制定了一项政策，禁止人们在家乡做最后一分钟的预订。现在，Airbnb 发布了 [新的万圣节租房指导方针](https://news.airbnb.com/airbnb-announces-updates-to-help-stop-parties-and-protect-public-health) ，其核心是——你猜对了——防止派对。以下是你需要知道的。
 
-Watch
+
 
 ### 万圣节限制
 

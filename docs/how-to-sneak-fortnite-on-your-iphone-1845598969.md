@@ -4,7 +4,7 @@
 
 英伟达的云流媒体服务 GeForce Now 现已 [在 iOS 和 iPadOS 上直播。](https://www.androidcentral.com/nvidias-geforce-now-game-streaming-finally-comes-iphone-and-ipad) 它提供了一种基于浏览器的格式，可以绕过苹果的一些流媒体限制，这种狡猾带来了好处。这是在 iPhone 上从云端或本地游戏 PC 传输游戏的绝佳方式。
 
-Watch
+
 
 与 Stadia、Luna 或 Xbox cloud streaming 不同的是，GeForce 现在可以让你将你在 Steam、Epic Games Store 和 GOG(即将推出)上拥有的任何 PC 游戏传输到你的 iPhone 或 iPad 上。
 

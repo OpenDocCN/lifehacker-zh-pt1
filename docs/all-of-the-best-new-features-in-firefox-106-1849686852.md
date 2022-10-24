@@ -4,7 +4,7 @@
 
 Mozilla 刚刚放弃了其流行的网络浏览器的最新版本， [Firefox 106](https://www.mozilla.org/en-US/firefox/new/) ，而 t 他的版本配备了一些强大的新功能，最显著的是对 PDF 浏览器的彻底改革(很久以后了)。如果你是火狐用户，或者你想切换浏览器，这是你可以期待的最新版本的火狐浏览器。
 
-Watch
+
 
 ## 在 Firefox 中注释您的 pdf
 

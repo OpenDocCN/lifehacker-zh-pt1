@@ -4,7 +4,7 @@
 
 我并不反对 Windows 10，但如果你想通过给它 Chromebook 的待遇来简化它——调整各种设置和 UI 元素以使它们更容易处理，或者只是将 Chromebook 的一些更有用的功能直接集成到 Windows 10 本身中——没有人会给你带来任何痛苦。这是你的电脑，你可以 [用它做任何你想做的事情](https://lifehacker.com/how-to-set-up-and-customize-dark-mode-in-windows-10-1844340183) 。
 
-Watch
+
 
 Michael Perrigo 在 [Chrome Unboxed](https://chromeunboxed.com/make-windows-10-feel-like-your-chromebook-sorta) 有一个很好的指南，将 Chrome OS 的最佳体验带入 Windows 10。我不会通过老调重弹来抢他的风头，但我确实想提醒你注意一些你可能会考虑安装的应用程序，不管你对谷歌操作系统 的感觉如何。其中一些是迈克尔的建议，其他的是我偶然发现的。
 

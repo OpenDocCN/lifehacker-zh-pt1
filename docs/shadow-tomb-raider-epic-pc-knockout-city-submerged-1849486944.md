@@ -4,7 +4,7 @@
 
 下一次日落时，Epic 将会推出更多免费游戏。这一次，你可以抢到像样的*古墓丽影*，前 Stadia 独家续作，还有 EA 免费玩的躲避球游戏 [*淘汰赛城市*](https://kotaku.com/knockout-city-s-best-dressed-players-are-also-its-scari-1847045520) 中的一些好东西，价格低的简直一无是处。
 
-Watch
+
 
 早在 2018 年发布的 [*《古墓丽影*](https://kotaku.com/shadow-of-the-tomb-raider-the-kotaku-review-1828924874) 是重新启动的*《古墓丽影*系列的第三部作品，该系列重新聚焦于生存和潜行。与前两款游戏*古墓丽影*和*古墓丽影*的崛起不同，*暗影*由 Eidos Montreal 而非晶体动力开发。故事发生在《古墓丽影:崛起》一年后，在《影子》中，萝拉·卡芙特前往南美，试图阻止她引发的世界末日。哎呦！
 

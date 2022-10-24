@@ -4,7 +4,7 @@
 
 即使疫苗的曙光已经出现，我们也很难继续忍受疫情带给我们的压力和焦虑。这就是为什么本周我们要采访安妮·拉莫特——进步政治活动家、作家、畅销书作家，著有《一只鸟接一只鸟》《T3》《T4》《T5》《T6》《T7》《T8》《旅行礼遇》《T9》《T10》《T11》《T12》《T13》《T14》《操作指南》《T15》《T16》《T17》等书籍。安妮的新书名为《黄昏、夜晚、黎明:论复兴和勇气 ，她本周加入我们，谈论我们如何找到希望，即使是在最具挑战性的时代。
 
-Watch
+
 
 [https://art19.com/shows/the-upgrade-by-lifehacker/episodes/0eedc37e-1293-4cdc-9d89-c99ee5345887/embed](https://art19.com/shows/the-upgrade-by-lifehacker/episodes/0eedc37e-1293-4cdc-9d89-c99ee5345887/embed)
 

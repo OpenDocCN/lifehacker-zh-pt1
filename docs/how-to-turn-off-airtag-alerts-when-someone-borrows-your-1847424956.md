@@ -4,7 +4,7 @@
 
 你需要借你搭档的车去兜风。你很幸运，他们的车钥匙上有标签，所以你不必担心会丢了。相反，你可以担心你的 iPhone 会发疯， [警告你一个奇怪的 AirTag 在你附近](https://lifehacker.com/try-using-a-bluetooth-scanner-app-to-find-unwanted-airt-1846829920) 。当然，你可以忽略手机屏幕上出现的弹出窗口，但是每次你的手机接近空中标签时，你都不得不这样做。
 
-Watch
+
 
 怎么了，苹果？
 

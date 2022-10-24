@@ -4,7 +4,7 @@
 
 布偶是为电视制作的。电视花了 20 年左右的时间为布偶做准备。他们曾经是当地最受欢迎的， [脱口秀-](https://www.youtube.com/watch?v=sUQ0feWxJiY) 和 [综艺节目](https://www.youtube.com/watch?v=rx4HEmH6yAk) 巡回演出，以及美国公共电视台最早的明星。但是直到吉姆·汉森说服英国制片人卢·格拉德(Lew Grade)——他之前曾在格里和西尔维娅·安德森的《超级冒险》系列中获得跨大西洋的成功——在他毛茸茸的、有趣的、疯狂的创作上一展身手之前，布偶从未有过属于他们自己的节目。当 1976 年秋天 [*布偶秀*](https://www.avclub.com/c/tv-review/the-muppet-show/season-1) 的帷幕升起时，它代表了一个新的巅峰，它独特地融合了最先进的木偶艺术、实用的特效、无政府主义的幽默、歌舞表演和真诚，这是汉森与弗兰克·奥兹、杰里·朱尔和唐·萨赫林等不可或缺的合作者一起在无数项目中打造的。
 
-Watch
+
 
 亨森的原版《华盛顿》、《华盛顿特区》系列、《T1》、《T2》、《山姆和他的朋友》、《T3》、《T4》、《T5》和《T6》布袋戏《T7》的首播之间的时间，大致相当于从《T8》开始到《T9》可以在电视上经常看到已经有多久了。多个 [提线木偶](https://tv.avclub.com/it-s-the-emotions-not-the-humor-that-makes-the-muppet-1798184930) [演出](https://tv.avclub.com/disney-actually-made-a-good-muppet-show-yaaaaaaaay-1844518707) 和 [提线木偶](https://film.avclub.com/the-muppets-1798170621) [电影](https://film.avclub.com/muppets-most-wanted-has-the-feel-but-not-the-look-of-1798179861) 在此期间已经制作完成， [个别片段已经被流传、重新混音，并在网上迷因化](https://tv.avclub.com/the-muppets-don-t-need-another-movie-or-tv-show-they-ne-1798258556) ，但让这一切成为可能的系列在很大程度上已经不可用。这也是为什么当 [Disney+宣布将在 2 月 19 日把](https://tv.avclub.com/disney-raises-the-curtain-on-the-muppet-show-in-februa-1846084157) [*布偶秀*](https://tv.avclub.com/disney-raises-the-curtain-on-the-muppet-show-in-februa-1846084157) 添加到其布偶项目库中时，它是如此重要的一个原因。另一个原因是:这是一个伟大的、永恒的电视成就，如果出于某种原因你不同意，我们建议花两分钟时间与“ [妖精兄弟](https://www.youtube.com/watch?v=OCbuRA_D3KU) ”在一起
 

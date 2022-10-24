@@ -4,7 +4,7 @@
 
 狗主人经常带着犬享受到令人眩晕的极致，比如在家里给它们喂做好的饭菜，或者让它们参加 [奇特的露宿营地。](https://www.glencadia.com/?gclid=Cj0KCQjwpdqDBhCSARIsAEUJ0hMkaz8iLDQ5O6Mcb8uzrxhOz3PvaRpVgnwLX--slSpI8_fySfqa2coaAgl3EALw_wcB) 在购买狗狗玩具时，人们普遍会考虑玩具的颜色，力求买到最好的玩具。
 
-Watch
+
 
 由于狗是红绿色盲，并且不像它们的两足动物、人类同伴 [那样在视觉上(或身体上)导航，一些外行专家](https://www.reddit.com/r/LifeProTips/comments/mq3xsi/lpt_have_a_dog_get_them_blue_tennis_balls/) 坚持认为狗玩具应该是蓝色的——这种颜色应该让在绿草如茵、绿色田野或秋天树叶中嬉戏的狗非常醒目。
 

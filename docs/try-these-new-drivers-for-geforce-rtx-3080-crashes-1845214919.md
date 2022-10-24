@@ -4,7 +4,7 @@
 
 当你花几百美元买了一个顶级显卡时，你最不想让 T2 处理的事情就是在你使用它的时候无数次的崩溃。但这似乎是一些新的 GeForce RTX 3080 用户的情况；无论什么原因，Nvidia 的新显卡在某些游戏中崩溃。
 
-Watch
+
 
 让这个谜团更加棘手的是，崩溃问题的源头是难以确定的。正如最近 PC 游戏玩家 [所描述的](https://www.pcgamer.com/nvidia-rtx-3080-gpu-crashes-instability) :
 

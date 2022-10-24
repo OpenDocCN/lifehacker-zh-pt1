@@ -4,7 +4,7 @@
 
 有一些童年的晚餐会在你的记忆中留下深刻的印象，被永久地定义为“最美味的食物，可以把一个热得一塌糊涂的日子变成一个美好的一天。”我想这就是安慰食物，是吧？对我来说，这是茉莉花茶。这道泰国菜具备令人格外满意的美食的所有特征，而且它的适应性足以让餐桌上的每个人都开心。
 
-Watch
+
 
 Kai Yad Sai 翻译成英语的意思是“塞满的鸡蛋”如果你对它还不熟悉，你可以想象一个类似煎蛋袋的东西，里面装满了美味的碎肉。鸡蛋的功能是作为一个薄的，可食用的包装，当你打开它得到馅料时，你会在每一口中得到一点鸡蛋。煎蛋卷通常在肉馅周围形成正方形或长方形，但我妈妈过去常常简单地将它卷成一个填满的圆柱体，所以你可以看到馅料从两端伸出来，这就是我如何做的。Kai Yad Sai 通常由碎猪肉填充，但可以用任何碎肉替换，甚至碎豆腐或清汤。午餐或晚餐都可以吃，可以加也可以不加茉莉香米。我忍不住选择了米饭和适当的鲜味潘趣酒 [【金山酱](https://umamicart.com/products/golden-mountain-seasoning-soy-sauce?variant=39556637982886&currency=USD&utm_medium=product_sync&utm_source=google&utm_content=sag_organic&utm_campaign=sag_organic&region_id=123456&wickedsource=google&wickedid=Cj0KCQjw0oyYBhDGARIsAMZEuMsM1FBOnpgQqP2sUIOBuTMvdtx8EOzKGMOzzCMMp_yaqSTRMKvtTZAaAqvwEALw_wcB&wickedid=567549603347&wcid=15496447103&wv=4&gclid=Cj0KCQjw0oyYBhDGARIsAMZEuMsM1FBOnpgQqP2sUIOBuTMvdtx8EOzKGMOzzCMMp_yaqSTRMKvtTZAaAqvwEALw_wcB) (或者，如果你找不到那个， [Maggi](https://grocerybundles.com/product/174765/maggi-seasoning-liquid/?utm_source=shopping.google.com&utm_medium=organic&utm_campaign=Cooking+Essentials+-+Tier+0&gclid=Cj0KCQjw0oyYBhDGARIsAMZEuMvQvE7VeR1W4en4shNpiKqTZwJpl7gXu4863xUqHjQznFLJjbwgjeAaAoTfEALw_wcB) 就是下一个)。
 

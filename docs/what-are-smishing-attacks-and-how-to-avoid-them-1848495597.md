@@ -4,7 +4,7 @@
 
 我们都知道网络钓鱼攻击的威胁，但黑客使用一种类似的基于短信的策略，称为“smishing ”,用恶意软件感染智能手机并窃取数据，根据最近的报告，他们使用它的频率越来越高。网络安全公司卡巴斯基 [表示，黑客正在用危险的“漫游螳螂”安卓恶意软件感染欧洲和亚洲](https://securelist.com/roaming-mantis-reaches-europe/105596/) 的用户，这种攻击在全球范围内呈上升趋势。
 
-Watch
+
 
 你可以在 [Threatpost 最近的报告](https://threatpost.com/roaming-mantis-android-backdoor-europe/178247/) 中了解更多关于漫游螳螂微笑运动的信息。然而，无论是漫游螳螂还是其他一些骗局，关键是 smishing 是一个真正的威胁，您需要采取预防措施，就像您需要避免网络钓鱼企图一样。
 

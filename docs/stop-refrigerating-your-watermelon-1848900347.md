@@ -4,7 +4,7 @@
 
 夏天就要来了，但是 PNW 的天气正在尽最大努力让我相信不是这样。连绵不断的毛毛雨中夹杂着倾盆大雨、灰色的天空和各种大小的冰雹，这是持续的、令人压抑的常态。季节变化的唯一证据是在农产品通道里找到的。春天的葱属植物 ，芦笋，还有开始慢慢落下的浆果:这些植物部分让我享受这个季节，即使天气寒冷糟糕。很快就是甜瓜的季节了，那时我就知道是夏天了。
 
-Watch
+
 
 西瓜感觉特别夏天。(我喜欢我的 [加少许盐](https://lifehacker.com/5-savory-ways-to-season-watermelon-1795894364)——[放芥末](https://lifehacker.com/why-is-everyone-putting-mustard-on-watermelon-1847123752) )。冷藏甜瓜，当你割草或晨跑回来时，它是凉爽的，可以让它更加清爽，但你不想把你的甜瓜放在冰箱里。根据 [全国西瓜推广委员会](https://www.watermelon.org/audiences/foodservice/selection-storage/) 的说法，这样做会影响风味和质地:
 

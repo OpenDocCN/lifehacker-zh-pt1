@@ -4,7 +4,7 @@
 
 FDA 的疫苗顾问小组昨天一整天都在讨论辉瑞和 BioNTech 的 COVID 疫苗研究结果。在那天结束时，他们对现有科学是否表明疫苗的益处超过其风险的问题投了“是”票。预计美国食品和药物管理局将迅速批准该疫苗的紧急使用授权(EUA)(T1)；据《纽约时报》报道，最初计划在周六、、、[敲定订单，最早可能在今晚完成。](https://www.nytimes.com/live/2020/12/11/world/covid-19-coronavirus/the-fda-is-expected-to-issue-the-pfizer-vaccine-authorization-on-friday-evening)
 
-Watch
+
 
 ### 这是否意味着疫苗获得批准？
 

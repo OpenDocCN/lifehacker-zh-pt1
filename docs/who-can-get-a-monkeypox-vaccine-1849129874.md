@@ -4,7 +4,7 @@
 
 到目前为止，美国至少有 [351 例确认的人类猴痘](https://www.cdc.gov/poxvirus/monkeypox/response/2022/us-map.html) 病例，超过一半的州报告至少一例。鉴于现有的 [诊断和检测障碍](https://lifehacker.com/we-are-not-ready-for-monkeypox-1849035126) ，很可能有比记录的更多的病例。那么如何保护自己呢？
 
-Watch
+
 
 ## 我应该冲出去打猴痘疫苗吗？
 

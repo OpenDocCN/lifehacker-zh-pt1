@@ -6,7 +6,7 @@
 
 想象一下，在一次强制性的晨会上，当咖啡壶用完时，一群喝得不多的僵尸会有多愤怒。或者看着角落里的一堆鳄梨色拉酱慢慢变黄，因为没有可以蘸的东西，那种深深的悲伤。
 
-Watch
+
 
 因为办公室经常要求 [实习生、](https://www.ezcater.com/lunchrush/office/food-ordering-office-heroes/) 助理，或者没有活动策划经验的随机工作人员完成会议和假日聚会，这种餐饮失误太常见了。而且他们 [会对士气](https://www.tandfonline.com/doi/full/10.1080/15470140903178567)[或者外人对某个事件或者举办该事件的组织的看法](https://www.eventbrite.com/blog/event-catering-ideas-tips-ds00/) 产生重大影响。幸运的是，避免灾难并不难——如果你记住这些屡试不爽的策略，一些餐饮专家与外卖专家分享了这些策略。
 

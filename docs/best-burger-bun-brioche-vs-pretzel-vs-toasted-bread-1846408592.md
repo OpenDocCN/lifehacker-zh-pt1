@@ -4,7 +4,7 @@
 
 *欢迎来到*[***Smash Hits***](https://thetakeout.com/cooking-school/smash-hits)*，这是一个五集的系列节目，一位职业汉堡爱好者分享了她所知道的关于 smash burgers 的一切，以及如何在家制作一个合适的汉堡。*
 
-Watch
+
 
 * * *
 

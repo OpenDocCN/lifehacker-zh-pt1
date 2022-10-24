@@ -4,7 +4,7 @@
 
 你的面具是否合适至关重要。CDC 的最近的[推荐我们开始双重掩蔽](https://lifehacker.com/are-two-masks-really-better-than-one-1846128583) 只是部分关于分层。第二个面具也提高了契合度， [安东尼·福奇告诉《今日秀》](https://www.today.com/health/dr-fauci-shows-how-wear-2-masks-correctly-today-t208765) 。疾病预防控制中心的建议中还有另一个与佩戴相关的提示:考虑使用面罩佩戴器，也称为面罩支架。
 
-Watch
+
 
 与进入你的面罩 内部的 [面罩支架不同，面罩装配工走到你的面罩外部*，将材料贴紧你的鼻子、脸颊和下巴。un 像第二个口罩一样，它不提供额外的过滤层。你可以用它来改善你戴的任何面具的贴合性，无论是一次性的还是布料的。此外，它们还能防止你的眼镜起雾。*](https://lifehacker.com/keep-your-mask-out-of-your-mouth-with-a-mask-bracket-1845708604)
 

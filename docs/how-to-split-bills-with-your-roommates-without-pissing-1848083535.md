@@ -4,7 +4,7 @@
 
 分担家务。内置公司。别人的昂贵零食，让你在不知不觉中一点一点地偷。有很多令人信服的理由让你有室友，但你决定合住的可能性主要是出于经济原因。
 
-Watch
+
 
 根据 2018 年 [皮尤研究中心](https://www.pewresearch.org/fact-tank/2018/01/31/more-adults-now-share-their-living-space-driven-in-part-by-parents-living-with-their-adult-children/) 的一项研究，美国成年人越来越多地出于非浪漫、纯粹的经济原因同居。与他人合租通常意味着住在比你们任何一个人作为个人所能负担得起的更大的公寓或更好的地方。(我们之前已经讨论过室友带来的其他一些 [财务优势和劣势](https://lifehacker.com/consider-how-a-potential-roommate-might-affect-you-fina-1834140303) 。)
 

@@ -4,7 +4,7 @@
 
 截至 7 月 1 日，Mac 应用 [的 TweetDeck 已经停产](https://twitter.com/TweetDeck/status/1531994955555676163) 。该应用于 2008 年由独立开发者 Iain Dodsworth 首次发布(2011 年被 Twitter 收购)，在 Mac 上拥有一批用户的忠实追随者。对他们来说，这很痛苦。
 
-Watch
+
 
 TweetDeck 以多栏布局、实时推文和快速提醒而闻名。这是一个简单的应用程序，但它做得很好。如果你在哀悼损失，这里有一些其他的选择可以尝试。
 

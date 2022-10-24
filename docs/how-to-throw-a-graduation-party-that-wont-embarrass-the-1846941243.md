@@ -6,7 +6,7 @@
 
 鉴于疫情似乎终于(有希望) [在美国](https://www.nytimes.com/2021/05/21/briefing/covid-19-us-pandemic-vaccinations.html) 开始退却，而且 [毕业典礼再次成为许多学校的一件事](https://www.timesheraldonline.com/2021/05/19/local-high-schools-going-back-to-traditional-graduation-ceremonies/) ，你可能正在考虑今年夏天庆祝毕业生的想法。这里有一些关于策划一个盛大聚会的建议，这个聚会将会很好地体现他们巨大的成就。
 
-Watch
+
 
 ## 让毕业生成为焦点
 

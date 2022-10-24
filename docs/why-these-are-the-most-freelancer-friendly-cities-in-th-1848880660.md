@@ -4,7 +4,7 @@
 
 甚至在疫情改变我们的工作方式以及我们对工作和工作场所的要求之前，越来越多的人选择离开朝九晚五的工作，成为自由职业者。
 
-Watch
+
 
 Statista 研究部门 的 [数据显示，自 2014 年以来，美国的自由职业者数量一直在稳步增长。那时，大约有 5300 万美国人是自由职业者。到 2020 年，是 5900 万。](https://www.statista.com/statistics/685468/amount-of-people-freelancing-us/#:~:text=In%202020%2C%20there%20were%2059,about%2053%20million%20people%20freelancing.)
 

@@ -4,7 +4,7 @@
 
 跑步是一项令人满足的爱好，但也可能是一项艰巨的任务。如果你不跑步，你可能意识不到你的伴侣或密友每次出门都面临着情绪的大起大落(从兴高采烈到无聊透顶)，或者他们的消遣真的对他们的身体有影响——[脚趾甲擦伤，有人吗？](https://lifehacker.com/what-to-do-when-running-gives-you-black-toenails-1846812018)
 
-Watch
+
 
 不过，有一点是清楚的，那就是他们正在努力工作，他们可能会感谢家里的一些支持。所以这里有一些来自 r/running sub 上的 Redditors 的 [建议](https://www.reddit.com/r/running/comments/y4ugze/supporting_a_runner/?utm_source=share&utm_medium=ios_app&utm_name=iossmf) 。
 

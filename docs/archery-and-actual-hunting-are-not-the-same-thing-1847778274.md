@@ -4,7 +4,7 @@
 
 当我第一次开始为我的麋鹿狩猎之旅进行训练时，我认为我最大的障碍是我缺乏上肢力量，我倾向于 [与练习套路](https://lifehacker.com/could-a-compound-bow-help-me-stick-to-an-exercise-routi-1847690796) 非常不一致，或者无法准确无误地射箭。但是事实证明——就像任何其他运动一样——训练和“出外勤”是两码事。
 
-Watch
+
 
 在健康方面，我达到了所有的训练目标， [和一些](https://lifehacker.com/how-training-for-a-hunting-trip-gave-me-a-bigger-ass-1847731726) 。我的拉力达到了 45 磅，比要求的 40 磅高了 5 磅。我把我的射击距离控制在 25 码，这意味着我有信心在那个距离我可以射击并且不会失手，并且不会试图射击任何 fa rther。我甚至设定并实现了其他一些次要的健身目标(我的屁股变大了)。
 

@@ -4,7 +4,7 @@
 
 豆芽是多用途的小植物，你可以添加到面包、沙拉和三明治中；他们提供从清淡到辛辣的各种口味； *和* [它们可以让你的血糖水平保持在较低的水平](https://www.webmd.com/diet/sprouts-good-for-you#1) 。它们可以是一餐饭中的一种后天获得的质地(有些是多筋的或松脆的)但是 [种类繁多的豆芽](https://theselfsufficientliving.com/types-of-sprouts-to-grow-for-a-healthy-diet/) 让你可以有选择性。一旦你*选定了*，你就可以在自己的厨房里轻松种植——你只需要一个罐子和一些粗棉布。
 
-Watch
+
 
 以下是如何种植自己的豆芽来做沙拉和三明治。
 

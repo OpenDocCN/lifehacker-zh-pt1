@@ -4,7 +4,7 @@
 
 我们中的许多人在疫情期间都花了很多时间与世隔绝，所以本周我们在用户研究员兼作家 Ximena Vengoechea 的帮助下重新学习深度对话的艺术。
 
-Watch
+
 
 Ximena 在为 LinkedIn、Twitter 和 Pinterest 等公司进行用户研究时磨练了她的倾听技巧，现在她在自己的新书中分享了这些技巧， [*【听你的:*](https://www.amazon.com/gp/product/0593087054/ref=as_li_tl?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-have-deeper-conversations-with-ximena-vengoeche-1847329721&asc_source=&camp=1789&creative=9325&creativeASIN=0593087054&ie=UTF8&linkCode=as2&linkId=e799672e6db40b48eb60b15aae216f56&tag=kinjalifehackerlink-20) [*【找回失去的真正联系的艺术】*](https://www.amazon.com/gp/product/0593087054/ref=as_li_tl?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-have-deeper-conversations-with-ximena-vengoeche-1847329721&asc_source=&camp=1789&creative=9325&creativeASIN=0593087054&ie=UTF8&linkCode=as2&linkId=e799672e6db40b48eb60b15aae216f56&tag=kinjalifehackerlink-20) *。*听一听 Ximena 给出了一些绝妙的建议，告诉你如何问正确的问题来促成一场更有趣的对话，如何成为一个更开放、更有同情心的倾听者，以及如何在需要时优雅地退出对话。
 

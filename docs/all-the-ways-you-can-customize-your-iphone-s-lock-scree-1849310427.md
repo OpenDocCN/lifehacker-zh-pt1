@@ -4,7 +4,7 @@
 
 苹果的头条 [iOS 16](https://lifehacker.com/the-best-new-features-in-ios-16-and-ipados-16-1849023814) 功能每次拿起你的 iPhone 时都盯着你的脸:有史以来第一次，你可以定制你的 iPhone 的锁屏，好家伙，这是一个受欢迎的变化。你甚至可以为不同的目的或者一天中的不同时间设置多个锁屏，每个锁屏都有不同的壁纸和 widget(没错，现在锁屏上都有 widget 了)。另外，锁屏可以与 [焦点](https://lifehacker.com/you-should-definitely-use-ios-15s-new-distraction-squa-1847671349) 链接，帮助你区分工作和个人生活。
 
-Watch
+
 
 **注**:截至发稿时，iOS 16 中新的锁屏定制只有安装了 [公测](https://lifehacker.com/how-to-install-the-ios-16-and-ipados-16-betas-1849023051) 的才可用，并将在 2022 年秋季推广到所有兼容的 iPhones。
 

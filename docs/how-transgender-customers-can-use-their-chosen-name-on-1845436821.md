@@ -4,7 +4,7 @@
 
 花旗银行现在提供 [实名信用卡和借记卡](https://banking.citi.com/cbol/updatemyname/default.htm?BTData=DI7.B.gAB4f.B.Byy.SDrL.eDA.lN*.w8*.Bj.SX.0f.E&ProspectID=BC417443184A4992B85576BD06A6067D) ，这是为变性人和非婚生人士创建的，允许他们使用自己选择的名字，而不是他们的法定姓名。随着第二家大银行支持实名计划，更多的客户现在可以使用这一功能。
 
-Watch
+
 
 ### **工作原理**
 

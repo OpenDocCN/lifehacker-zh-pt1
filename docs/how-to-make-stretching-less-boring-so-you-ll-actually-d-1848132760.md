@@ -4,7 +4,7 @@
 
 每年一月，我都发誓要通过持续拉伸来提高我的柔韧性。然而，当谈到我的拉伸动作时，我对偷工减料感到内疚。我说的“偷工减料”确实是指我会几个月都没有好好保养我酸痛的肌肉。哎呀。
 
-Watch
+
 
 我们之前已经注意到，虽然 [拉伸不是万灵药](https://lifehacker.com/the-truth-about-stretching-when-it-helps-and-when-it-d-1718270464) ，但是有很多理由来拉伸 ，比如增加你的活动范围，减少酸痛，以及冥想的精神效果。然而，我对拉伸的主要问题不是缺乏动力，而是缺乏专注。我变得非常无聊。虽然我没有被诊断(甚至自我诊断)患有多动症，但像这样一篇来自 [r/ADHD](https://www.reddit.com/r/ADHD/comments/anex5u/any_tips_for_stretching_without_getting/) 的帖子激励我战胜自己的无聊，并找出如何一次拉伸肌肉 30 秒以上。
 

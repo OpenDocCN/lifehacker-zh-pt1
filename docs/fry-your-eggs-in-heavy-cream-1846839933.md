@@ -4,7 +4,7 @@
 
 现在我们已经进入了五月，复活节已经过去了，你可能会认为奶油蛋的时代已经结束了。这只是部分正确。(可悲的是)奶油鸡蛋的时代已经过去了，但是 T2 奶油煎蛋的时代才刚刚开始。至少对我来说是这样。
 
-Watch
+
 
 奶油煎蛋第一次引起我的注意是在大约一年前，当时 [Food52](https://food52.com/recipes/81961-caramelized-cream-eggs-from-ideas-in-food) 写到了它们，但这个想法(据我所知)源于 [Ideas in Food](https://blog.ideasinfood.com/ideas_in_food/2019/02/caramelized-cream-eggs.html) ，这是一个很好的博客，顾名思义，是关于食物的很好的想法。他们的一个好主意是——很明显——用浓奶油煎鸡蛋，我真希望自己早点尝试这个主意。
 

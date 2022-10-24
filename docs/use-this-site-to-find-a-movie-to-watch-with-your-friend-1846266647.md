@@ -4,7 +4,7 @@
 
 如果你像许多人一样，发现自己在过去的一年里比以往任何时候都更频繁地看电视，你并不孤单。感谢 [的新扩展](https://lifehacker.com/watch-shows-on-hulu-disney-and-more-with-your-friends-1842924419) 和流媒体服务的功能，我们能够与不和我们住在一起(甚至不在同一个州)的人在网飞、Hulu、Disney+、Prime Video 和 YouTube 上观看电影。
 
-Watch
+
 
 设置该部分非常简单。难的是挑些东西看。当涉及到娱乐时，即使是那些看似拥有所有共同点的人也可能会有不同的看法。这不仅限于我们家庭以外的人。
 

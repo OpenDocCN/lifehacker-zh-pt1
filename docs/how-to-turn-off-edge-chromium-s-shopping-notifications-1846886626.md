@@ -4,7 +4,7 @@
 
 你可能不会嫉妒 Edge Chromium 浏览器试图帮你省钱，但当一个又一个关于返现计划和优惠券节省的提示弹出时，这可能会很烦人。有时交易很棒；其他时候，它们更烦人，而不是有用。
 
-Watch
+
 
 我喜欢认为自己是一个非常聪明的购物者，我发现像这样的提示——以及类似的浏览器扩展，如 [蜂蜜](https://twocents.lifehacker.com/should-you-trust-online-shopping-apps-like-honey-1840069187)——通常不会增强我的购物体验。要么这些网站很少有疯狂的促销代码(亚马逊)，要么我在那里策略性地购物，因为我*知道*那里有值得利用的交易(谢谢， [Slickdeals](https://slickdeals.net/) )。
 

@@ -4,7 +4,7 @@
 
 尽管猫很奇妙，很有趣，但它们可以对一个家庭造成[的所有方式](https://lifehacker.com/why-cats-knock-stuff-over-and-how-to-prevent-it-1747609650)[的破坏](https://lifehacker.com/protect-your-houseplants-from-your-cats-with-citrus-pee-1684240739) 。虽然表现出来可能是试图沟通严重的问题(如疾病或肮脏的垃圾箱)，但更多的时候，猫选择暴力只是因为它们不安和无聊。如果你的小恶魔坚定地站在第二阵营，以下是让他们有事可做的方法。
 
-Watch
+
 
 ## 尽可能多地和他们一起玩
 

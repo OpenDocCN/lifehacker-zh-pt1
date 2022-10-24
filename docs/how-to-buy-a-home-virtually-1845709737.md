@@ -4,7 +4,7 @@
 
 随着疫情 [引发了](https://www.theguardian.com/world/2020/sep/26/escape-country-covid-exodus-britain-cities-pandemic-urban-green-space)人口从许多主要城市持续外流的故事(尽管 [重要的是不要对那些头条](https://www.bloomberg.com/news/articles/2020-09-16/the-truth-about-american-migration-during-covid)有太多的解读)，越来越多的预兆在看不到的情况下出售。 [据雅虎财经](https://finance.yahoo.com/news/people-are-actually-buying-homes-without-ever-physically-seeing-them-national-association-realtors-study-150424649.html) 报道，现在 20 套房子中有套是远程卖给购房者的。 如果你想利用低利率让市场升温，你也可以考虑远程购买。下面是你需要知道的让它为你工作的事情。
 
-Watch
+
 
 ### 什么是虚拟房屋购买？
 

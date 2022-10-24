@@ -4,7 +4,7 @@
 
 今年早些时候，谷歌推出了 Camera Go，这是其针对 Android Go 设备的相机应用程序的精简版。 [Android Go 手机](https://lifehacker.com/how-to-get-googles-lightweight-assistant-go-app-on-your-1822772954) 是入门级设备，硬件较弱，但价格非常实惠——通常低于 100 美元。Camera Go 在发布时缺乏 Android 相机应用程序的大多数最佳功能，但现在精选设备可以使用人像模式、夜间模式、等高级拍摄模式，不久还将推出 HDR。
 
-Watch
+
 
 HDR 扩大了照片的对比度和颜色范围，甚至有可能提高你在 Android Go 设备上拍摄的更普通的照片。然而，如果你的设备兼容的话，你还得等一会儿才能接触到这个功能。
 

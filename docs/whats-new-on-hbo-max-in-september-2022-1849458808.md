@@ -4,7 +4,7 @@
 
 对于 HBO Max 来说，这是一个完全冷静而正常的月份。毫无疑问，没有发生任何重大事件影响最佳流媒体服务，比如说，新任首席执行官大卫·扎斯拉夫[取消了一系列即将上映的节目](https://www.indiewire.com/gallery/hbo-max-canceled-shelved-shows-movies-discovery-merger/) 甚至 [一部价值 9000 万美元的*蝙蝠女孩*电影](https://gizmodo.com/batgirl-movie-canceled-hbo-max-batman-dc-films-warner-1849361909) 并决定删除一系列内容——包括专门为 HBO 和 HBO Max 制作的 [电影和节目——作为一个明显计划的一部分，我不知道，小便哦，等等，那一切真的发生了吗？他妈的。鉴于所有这些，你可能会考虑在不久的将来放弃 HBO Max 订阅，我不知道 streamer 即将到来的 9 月份内容会不会改变你的想法。](https://tvline.com/2022/08/04/hbo-max-removed-tv-shows-vinyl-camping-mrs-fletcher/)
 
-Watch
+
 
 本月最大的收获无疑是巴兹·鲁赫曼的*猫王*，这部音乐传记片实际上在夏季赢得了罕见的疫情成人电影票房， [在此过程中诞生了我最喜欢的 2022 年](https://knowyourmeme.com/memes/elvis-hes-white-clip) 迷因。这部电影将于 9 月 2 日在 HBO Max 上映。太快了！RIP 电影院。
 

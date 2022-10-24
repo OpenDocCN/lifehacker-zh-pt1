@@ -4,7 +4,7 @@
 
 Instagram 的网站设计并不完全是用户体验的缩影。充其量只能用能用来形容。你可以用它来查看你的订阅源、故事，最后你甚至可以从网站上发布照片。但是仅仅是*可用*还不够。这就是为什么现在是时候改善 Instagram 的网络体验了，使用这些 Chrome 扩展将其转换为一个应用程序，添加下载器，访问视频控制，使用黑暗模式等等。
 
-Watch
+
 
 ## [Instagram 的 App](https://chrome.google.com/webstore/detail/app-for-instagram/fhkhmblpnhfedddndenodedcaknclgkd?hl=en):把 insta gram 变成 App
 

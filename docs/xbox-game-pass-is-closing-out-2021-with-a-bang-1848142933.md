@@ -42,7 +42,7 @@
 
 是的，很多游戏都在争夺没有被*光晕无限*的阴影覆盖的那一缕阳光。一些游戏，比如《我们中的 T2》和《T4》中的《星谷》和《T5》(早在八月就已经宣布将于秋季发布)，是现代游戏中的图腾，应该会从《游戏通行证》的跳跃中获得一剂虽不完全需要但却很棒的兴奋剂。还有 [*《最终幻想 XIII-2》*](https://kotaku.com/final-fantasy-xiii-2-the-kotaku-review-5880275)，它紧随其前身 之后加入了 [，两年前微软宣布一系列*最终幻想*游戏将登陆游戏通行证库。当然，不要对冲远离令人惊讶的铆](https://kotaku.com/two-years-after-microsoft-s-promise-ffxiii-finally-com-1847596935) [*草坪割草模拟器*](https://kotaku.com/lawn-mowing-simulator-takes-cutting-the-grass-very-seri-1847298519) 。(至于 [什么人要在草丛里画](https://kotaku.com/powerwash-simulator-is-why-i-shouldnt-be-a-homeowner-1846801530) 我给你猜一个。)
 
-Watch
+
 
 最令人好奇的，虽然并不令人惊讶，是*外星人:精英消防队*。第一部在八月上映的《T2》以*外星人*卡农 [为背景，留下了 4 个死亡的，在发布会上反响平平](https://kotaku.com/aliens-fireteam-elite-isn-t-a-great-aliens-game-1847538608) 。然后，继 10 月份发布的 [那个*其他* *留下 4 个死*-同类](https://kotaku.com/back-4-blood-the-kotaku-review-1847902890) ，*外星人:Fireteam 精英*的玩家基数一落千丈。到本月中旬，它在 Steam 上的 [总并发玩家数不到 800。](https://kotaku.com/seven-weeks-after-launch-less-than-800-people-are-play-1847881309)
 

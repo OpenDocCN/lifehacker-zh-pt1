@@ -4,7 +4,7 @@
 
 Windows 一直有一个臃肿软件的问题(即使最近三星的 [在那个部门摘得桂冠](https://lifehacker.com/how-to-turn-any-android-smartphone-into-a-google-pixel-1833921883) )。膨胀软件是一个总称，指的是你不需要的，也从来没有要求过的应用程序、服务和程序，Windows 预装了一大堆。
 
-Watch
+
 
 随着 Windows 11 的推出，情况有所改善，微软已经开始削减其安装介质的脂肪。但这仍然是一个问题，像 Skype，3DBuilder，Asphalt 8，Microsoft News，Feedback Hub 等应用程序都是默认安装的(并占用系统空间)。
 

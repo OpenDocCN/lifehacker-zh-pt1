@@ -4,7 +4,7 @@
 
 对于神奇宝贝联盟来说，这是重要的一周。快节奏的 MOBA 不仅得到了一个更新，使 [及其臭名昭著的付出赢得机制](https://kotaku.com/pokemon-unite-just-massively-leveled-the-playing-field-1847723095) ，而且 [蒂米什工作室集团](https://kotaku.com/the-pokemon-company-company-actually-says-gay-rights-1847434624) 也 [在手机上发布了游戏](https://kotaku.com/pokemon-unite-gets-mobile-launch-crossplay-confirmed-1847508202) 。开发者承诺，如果有足够多的人注册，每个人都可以获得这些好东西，从而鼓励人们预先注册并下载手机版。果然，配额达到了——除了人们在实际获得奖励时遇到了困难。
 
-Watch
+
 
 这些奖励包括皮卡丘许可证，允许你永久拥有这个角色，以及可以兑换物品增强器的门票，最重要的是，一个可爱的皮卡丘皮肤，名为“节日皮卡丘”。最后一件是人们最想要的东西，这是理所当然的——联合公司称之为 Holowear，非常可爱。我把这个说成 [一个众所周知的皮卡丘憎恨者](https://kotaku.com/fuck-pikachu-1688513390) 。
 

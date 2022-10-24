@@ -4,7 +4,7 @@
 
 像任何在充斥着《T2》广告的环境中长大的千禧一代一样，我对《T4》中的冻干食品评价很高。Dippin' Dots 可能声称是“未来的冰淇淋”，但你不会在史密森尼国家航空航天博物馆找到它。不，那个特别的礼品店的地产被*冻干*冰淇淋占用了——也被称为“宇航员冰淇淋”——残酷的是， [宇航员不能把它带到太空](https://www.cnet.com/news/astronauts-bust-the-myth-of-space-ice-cream/) (太多灰尘)。
 
-Watch
+
 
 从质地上来说，冻干食品很有趣，并且自年代以来已经变得更加主流。乔氏公司是一家特别多产的冻干水果生产商，这是一种浓缩的、充满活力的水果，可以粉碎并用于给各种东西上色和调味，包括和 [奶油奶酪](https://skillet.lifehacker.com/this-3-ingredient-whipped-dip-is-as-pretty-as-it-is-del-1828423544) 。它也是一种非常好的饮料。
 

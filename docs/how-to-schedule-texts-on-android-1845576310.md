@@ -4,7 +4,7 @@
 
 你终于可以使用安卓的标准短信应用程序，谷歌的 [消息](https://play.google.com/store/apps/details?id=com.google.android.apps.messaging&hl=en_US&gl=US) 来安排你的短信了。这一长期被要求的功能作为服务器端更新向所有 Google Messages 用户推出，这意味着你不必下载任何东西就能使用它。然而，日程选项隐藏在一个隐藏菜单中，所以你可以在这里找到它:
 
-Watch
+
 
 ### 如何在谷歌的信息应用程序中安排文本
 

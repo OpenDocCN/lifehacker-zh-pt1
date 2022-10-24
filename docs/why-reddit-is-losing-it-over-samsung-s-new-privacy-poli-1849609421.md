@@ -4,7 +4,7 @@
 
 三星最近更新了针对所有拥有三星账户 的用户的 it [隐私政策，于 10 月 1 日生效。一位 Redditor 阅读了该政策，*不*喜欢他们所看到的，而](https://account.samsung.com/membership/terms/privacypolicy#pp_10) [将其分享给 r/android](https://old.reddit.com/r/Android/comments/xtq9pq/samsungs_privacy_policy_for_oct_1st_is_crazy/) ，强调了他们认为 doc 最糟糕的政策要点。这条线爆炸了，Android 用户大量谴责三星的新政策。但是为什么每个人都这么生气，有什么值得担心的吗？我们来探索一下。
 
-Watch
+
 
 ## 三星的隐私政策*有点令人毛骨悚然*
 

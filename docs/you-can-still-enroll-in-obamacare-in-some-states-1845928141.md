@@ -4,7 +4,7 @@
 
 [日日开放注册期已经结束](https://lifehacker.com/dont-miss-the-affordable-care-act-deadline-today-1845890228) ，但我现在报名参加 2021 年奥巴马医保还不算太晚——或至少是，如果你住在 12 个州中的或 DC 的华盛顿州的话。虽然大多数州的 [平价医疗法案](https://www.investopedia.com/terms/a/affordable-care-act.asp) 覆盖的常规登记期于 12 月 15 日到期，但一些州级交易所的截止日期已经延长。如果您属于下面列出的之一，您仍然有资格享受低成本保险。
 
-Watch
+
 
 ### **延长的截止日期**
 

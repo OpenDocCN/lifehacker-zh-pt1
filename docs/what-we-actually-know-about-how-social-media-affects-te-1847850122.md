@@ -4,7 +4,7 @@
 
 根据发表在《华尔街日报》 上的脸书内部文件 [，Instagram 让少女们对自己的身材感觉更糟。(脸书拥有 Instagram。)这个应用程序充满了不可思议的瘦和美的人的图片，以至于跟踪；多年来，我们一直担心年轻人接触数字设备的危险。但是 Insta 真的在腐蚀孩子的大脑吗？真相大概更复杂，数据肯定不全。](https://www.wsj.com/articles/facebook-knows-instagram-is-toxic-for-teen-girls-company-documents-show-11631620739)
 
-Watch
+
 
 我这么说并不是为了捍卫脸书教(它是邪恶的)，而是为了帮助我们这些试图弄清楚应该如何对待我们孩子的社交媒体使用的人。
 

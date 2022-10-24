@@ -4,7 +4,7 @@
 
 任何精明的网上购物者都会告诉你:炒作产品的最佳方式是限量降价。无论一家公司是在销售运动鞋、独一无二的艺术印刷品，还是小批量发行的黑胶唱片，为限量发行的酷东西建立预期都是吸引销售和产生社会反响的好方法。很快，由于推出了 [Instagram Drops](https://business.instagram.com/blog/trends-drops-limited-releases-on-instagram) ，许多产品可能会通过 Instagram 销售。
 
-Watch
+
 
 很快，即将推出的 Instagram Drops 将在 Instagram 移动应用程序的购物标签中有自己的专用部分(Instagram 的桌面网站上没有购物工具)。客户可以注册通知，这样他们就不会错过即将发布的产品，一旦产品下降，就可以在 Instagram 应用程序中使用 Instagram 的 Checkout 来购买。
 

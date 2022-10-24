@@ -4,7 +4,7 @@
 
 加密货币继续流行，但随着兴趣的增加，骗子的创造力也在增加，他们希望利用文化转变来敲诈人们。根据趋势科技网络安全团队 最近发布的一份 [报告，现在谷歌 Play 商店杜平用户中有几十个假冒的加密挖掘和钱包应用程序在为类似云挖掘和存储的假冒服务付费。](https://www.trendmicro.com/en_in/research/21/h/fake-cryptocurrency-mining-apps-trick-victims-into-watching-ads-.html) 
 
-Watch
+
 
 该报告特别指出了八个应用程序:
 

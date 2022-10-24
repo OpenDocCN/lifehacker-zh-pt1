@@ -4,7 +4,7 @@
 
 说到跑步，多样性很重要。一个 [好的跑步习惯](https://lifehacker.com/run-smarter-not-faster-how-to-find-your-gears-for-b-1706084781) 包括 [慢跑](https://lifehacker.com/how-to-run-slower-to-run-faster-1847752652) ，它建立你的有氧基础，以及一些中快节奏的跑步，这有助于建立速度和力量。虽然慢跑和鳄龙一样重要，但是它们会让人感觉单调。一个打破常规的方法是在你的长跑中加入一些速度训练，那就是加入浪涌。
 
-Watch
+
 
 ## 有哪些正在运行的浪涌？
 

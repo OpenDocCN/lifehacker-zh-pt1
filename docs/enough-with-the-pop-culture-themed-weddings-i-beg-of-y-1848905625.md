@@ -4,7 +4,7 @@
 
 以流行文化为主题的婚礼在理论上可能看起来很酷，但在实践中可能会非常古怪。通过一个仪式和招待会强迫你的朋友和家人去 LARP 几乎是残忍的，尤其是当你记得他们很可能已经为了在你的大日子去那里而花钱了。不幸的是，这种类型的婚礼越来越多:来自 Hitched.co.uk 的新数据显示，至少在英国，对流行文化主题婚礼的兴趣正在上升。据该网站统计，今年对布里吉顿婚礼的搜索增加了 31%，对布里吉顿婚礼的文章的访问增加了 285%。
 
-Watch
+
 
 当然，这种现象并不新鲜——也不仅仅是布里奇顿的粉丝。 [例如，你可以用简单的谷歌搜索找到数百张《星际迷航》主题婚礼的](https://www.google.com/search?q=star+trek+wedding&source=lnms&tbm=isch&sa=X&ved=2ahUKEwjLtbDi8tX3AhXKlIkEHTuwAP0Q_AUoAXoECAEQAw&biw=1440&bih=635&dpr=2)*照片，甚至名人也参与其中。弗兰基·格兰德 [刚刚分享了他自己的](https://www.instagram.com/p/CdYj7WZLQ4G/?igshid=YmMyMTA2M2Y=) 星球大战*主题招待会的照片，包括光剑和冲锋队。**
 

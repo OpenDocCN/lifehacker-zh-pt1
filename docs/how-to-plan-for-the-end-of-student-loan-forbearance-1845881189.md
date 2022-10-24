@@ -4,7 +4,7 @@
 
 好消息是 [联邦学生贷款支付冻结](https://twocents.lifehacker.com/you-can-suspend-your-federal-student-loan-payments-for-1842428578) 已经 [延长至 2 月 1 日](https://www.insidehighered.com/news/2020/12/07/devos-gives-brief-reprieve-borrowers) ，这给了借款人一些额外的喘息空间。然而，由于此后额外的学生债务减免仍不确定，你应该从二月份开始计划再次支付这些款项。
 
-Watch
+
 
 ### **重新开始支付**
 

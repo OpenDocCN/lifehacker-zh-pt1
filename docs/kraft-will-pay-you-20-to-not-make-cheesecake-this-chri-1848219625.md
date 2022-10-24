@@ -4,7 +4,7 @@
 
 如果你计划今年做你最著名的圣诞芝士蛋糕，那么目前的 [奶油芝士短缺](https://www.usatoday.com/story/money/food/2021/12/11/cream-cheese-shortage-impacts-companies/6460876001/) 很可能会打乱你丰富的奶油计划。现在，费城奶油干酪有了还价。
 
-Watch
+
 
 卡夫亨氏品牌 [周三宣布，将为 18000 名消费者报销 20 美元](https://spreadthefeeling.com/Notification/ComingSoon) ，购买一种不同的、非奶油奶酪为基础的假日甜点。正如该公司在这个视频 中解释的一样，在货架上很难找到奶油奶酪意味着很难把奶酪蛋糕放在桌子上。因此，他们想避开消费者的不满，鼓励你购买不同的节日礼物。这是你需要做的。
 

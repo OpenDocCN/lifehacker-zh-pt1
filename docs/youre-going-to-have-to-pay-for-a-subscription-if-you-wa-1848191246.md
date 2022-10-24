@@ -4,7 +4,7 @@
 
 不得不 [付出](https://jalopnik.com/a-carmaker-s-23-billion-plan-to-keep-you-paying-long-a-1848172449) 换取 [东西](https://jalopnik.com/oh-good-volkswagen-is-trying-on-demand-feature-subscri-1846511749) 的时代，你的 [车辆](https://jalopnik.com/all-the-cool-features-in-your-car-will-probably-be-subs-1845658200) 已经降临 [配备](https://jalopnik.com/rivians-ipo-filing-leaked-how-the-company-plans-to-make-1847829458) 的时代终于来临了。订阅已经到达丰田。 [The Drive](https://www.thedrive.com/news/43329/toyota-made-its-key-fob-remote-start-into-a-subscription-service) 报道称，汽车制造商将要求配备远程启动功能的车主付费使用。
 
-Watch
+
 
 这一切都始于 11 月中旬的一篇 Reddit 帖子 。一位在 [r/cars](https://www.reddit.com/r/cars/) 上的用户发现了一些丰田的营销，这些营销指向该汽车制造商可能会使远程启动成为一项基于订阅的功能。但是没有人真的相信汽车制造商会完成它。以至于版主认为这是胡说八道，给这个帖子贴上了“潜在误导”的标签。但事实并非如此。一名丰田代表向司机确认，将需要订阅。
 

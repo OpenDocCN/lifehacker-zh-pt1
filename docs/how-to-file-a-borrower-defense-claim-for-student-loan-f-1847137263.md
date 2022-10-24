@@ -4,7 +4,7 @@
 
 随着教育部最近为 ITT 技术学院的前学生 [免除了 5 亿美元的学生债务](https://www.ed.gov/news/press-releases/department-education-announces-approval-new-categories-borrower-defense-claims-totaling-500-million-loan-relief-18000-borrowers) ，拜登政府继续扭转许多 [特朗普时代的学生债务减免政策](https://www.cnbc.com/2020/06/03/california-sues-betsy-devos-over-federal-programs-lack-of-student-loan-forgiveness.html) 。现在看来，被学校欺骗的借款人有可能会得到救济，你可能也想提出索赔——为此，你将使用借款人辩护计划。以下是你需要知道的。
 
-Watch
+
 
 ## **虚假广告可以免除你的债务**
 

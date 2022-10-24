@@ -4,7 +4,7 @@
 
 苹果的 macOS 12.1 是一个有趣的更新。它最终将 iOS 和 iPadOS 的 SharePlay 带到了 MAC OS face time——允许你在视频通话中与朋友分享你的屏幕和其他媒体——除了隐藏我的电子邮件和 [苹果音乐语音计划](https://lifehacker.com/is-the-apple-music-voice-plan-worth-the-trade-offs-1847899974) ，以及其他伟大的功能。然而，如果你正在摇动一台 M1 Mac，你可能在你的计算机上根本看不到这个更新。怎么回事？
 
-Watch
+
 
 ## 为什么 macOS 12.1 不会出现在 M1 的 MAC 电脑上还是个谜
 

@@ -4,7 +4,7 @@
 
 薪酬透明的案例是 [获得牵引力](https://www.forbes.com/sites/forbeshumanresourcescouncil/2022/03/14/what-will-compensation-look-like-in-the-new-world-of-work/?sh=7f8efa117605) 。下个月， [纽约市薪酬透明法](https://www.forbes.com/sites/jackkelly/2022/01/06/in-a-big-win-for-workers-new-york-city-will-make-it-mandatory-for-companies-to-disclose-salaries-on-job-advertisements/?sh=612425f14b38) 将会生效，该法要求公司披露所有招聘信息的薪酬范围。尽管薪酬透明在一些地方被强制执行(参见加利福尼亚州 和科罗拉多州的州法律)，披露你挣多少钱在大多数情况下仍然是禁忌。Salary.com T21 今年早些时候进行的一项调查发现，只有四分之一的员工认为他们的雇主在薪酬方面是透明的。与此同时，45%的受访者表示，他们个人不愿意与他人讨论自己的薪水。
 
-Watch
+
 
 什么时候分享你的薪水是走向更公平薪酬的明智之举，什么时候你应该谨慎行事？以下是关于薪酬透明的一些知识，以及什么时候应该和什么时候不应该和同事讨论薪酬问题。
 

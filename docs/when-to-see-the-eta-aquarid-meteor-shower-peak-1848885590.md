@@ -4,7 +4,7 @@
 
 这个月，天空为我们地球人提供了大量有趣的天空现象。 [月全食](https://lifehacker.com/when-to-watch-the-lunar-eclipse-in-may-1848869638) 和 [行星排列](https://lifehacker.com/when-to-see-a-fuckton-of-planets-align-in-the-sky-this-1848790214) 已经足够了，但还有更多:本周埃塔宝瓶座流星雨的流星将划过天空。
 
-Watch
+
 
 观看流星的高峰从今晚，也就是 5 月 5 日星期四开始，但是它将持续到星期五晚上，这是今年 Eta Aquarid 表演的观看高峰时间。周六和周日你应该还能看到一些流星。
 

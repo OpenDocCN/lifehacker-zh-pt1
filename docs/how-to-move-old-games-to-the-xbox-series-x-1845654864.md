@@ -4,7 +4,7 @@
 
 Xbox 系列 X [在发布时可能没有太多可玩的主机独占游戏，](https://lifehacker.com/why-its-better-to-wait-for-that-next-gen-console-1845095919) ，但它*可以*玩所有前一代 Xbox 的所有游戏——包括最初的 Xbox、Xbox 360 和 Xbox One——以及具有改进的加载时间和启动视觉性能的。您甚至可以将旧的保存数据转移到新的控制台，这样您就可以从您停止的地方继续。
 
-Watch
+
 
 有几种方法可以将您的旧 Xbox 游戏和数据保存到 Xbox Series X 或 Series S。我们将查看每个的，以便您可以找到最适合您的设置的方法。
 

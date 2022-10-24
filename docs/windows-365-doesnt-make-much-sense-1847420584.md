@@ -4,7 +4,7 @@
 
 继 Office 和 [Xbox](https://lifehacker.com/how-to-play-on-xbox-cloud-streaming-and-why-its-such-a-1847197043) 之后，微软又将 Windows 放入云端。有了 Windows 365 服务，企业将能够直接从微软的服务器上下载 Windows 设备——就像网飞一样，但只适用于你的工作电脑。
 
-Watch
+
 
 与服务器群不同，这些将是 Windows 机器的单独实例，运行着一组独特的可定制的应用程序和用户数据，可以在任何设备(包括手机和平板电脑)上流式传输。如果您的互联网连接可以传输电影，它也可以传输窗口。
 

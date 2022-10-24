@@ -4,7 +4,7 @@
 
 这款名为 Go SMS Pro texting 的应用在谷歌 Play 商店已经有超过 1 亿的安装量，但是受欢迎程度并不重要:你需要停止使用它并从你的手机中删除它。网络安全公司 Trustwave [最近在应用中发现了一个重大安全漏洞](https://www.trustwave.com/en-us/resources/blogs/spiderlabs-blog/go-sms-pro-vulnerable-to-media-file-theft/?=go-sms-pro-vulnerability-to-media-file-theft) ，该漏洞使得你通过该应用发送的所有照片、视频和其他媒体附件都可以被公开访问。
 
-Watch
+
 
 (那很不好。)
 

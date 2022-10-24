@@ -4,7 +4,7 @@
 
 我们都在 [与机器人](https://lifehacker.com/how-to-block-spam-calls-on-android-and-iphone-1845595184) 的战斗中。你可能已经尝试了各种应用程序、设置和 [运营商服务](https://lifehacker.com/you-can-block-robocalls-by-default-with-your-phone-comp-1835324828) 来阻止——或者至少*减轻*——无休止的诈骗和垃圾邮件，其中一些甚至工作得相当好，至少在一段时间内。不幸的是，新的垃圾邮件技术不断涌现，即使是最好的垃圾邮件拦截应用程序也可能会错过一些呼叫。
 
-Watch
+
 
 也就是说，Android 和 iOS 上的“核心”选项将永远阻挡那些掉队者。
 

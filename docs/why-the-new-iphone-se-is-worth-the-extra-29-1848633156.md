@@ -4,7 +4,7 @@
 
 苹果在 [Peek 性能事件](https://lifehacker.com/the-7-biggest-announcements-from-apple-s-peek-performa-1848621688) 第三次更新 iPhone SE。从外面看，它看起来一样，但就像生活中的许多事情一样，内在才是重要的。
 
-Watch
+
 
 ## 新款 iPhone SE 有什么不同？
 

@@ -4,7 +4,7 @@
 
 有很多内容可以帮助你决定用你的想象力烹饪什么，比如精确、沉浸、循环、无燃烧工具，或者我听说过的。我读过所有很酷的东西一个 [可以用诱人的结果](https://lifehacker.com/tag/will-it-sous-vide)[多汁的牛排](https://lifehacker.com/learn-to-cook-steak-sous-vide-for-perfection-every-time-5493080)[奶酪蛋糕](https://lifehacker.com/will-it-sous-vide-creamy-cheesecake-edition-1786079579)[黄油龙虾尾](https://lifehacker.com/vanilla-butter-sous-vide-lobster-tails-are-your-valenti-1822876353) 和 [最柔软的鸡蛋](https://lifehacker.com/these-sous-vide-eggs-will-make-your-christmas-morning-m-1848208409) ，我这些听起来都很奇怪。B 但是对于我们这些拿着*不包含多离子后缀的烹饪工具闲逛的人来说，它们也值得拥有丝滑！这不仅是我们应得的，也有可能在你的烤箱里做出类似视频的鸡蛋。* 
 
-Watch
+
 
 sous vide 浸没式烹饪背后的理念是，你可以精确控制温度，使其达到完美的煮熟程度，因为热量均匀分布，而食物像一个天体一样漂浮在一桶水中。以这种方式烹饪的鸡蛋特别令人满意，因为精确控制的热量永远不会超过华氏 158 度—的凝固点。这可以防止鸡蛋蛋白质结合得太紧，从而导致蛋黄像橡胶一样呈白色。不幸的是，根据 Hunker 的这篇文章和其他各种消息来源，大多数煤气炉和电炉的最低温度可能在华氏 195 度到 300 度之间，这是一个很大的范围，绝对超出了鸡蛋的温度范围。为了得到值得星巴克购买的蛋卷，我们需要考虑盒子里的*。T he 烤箱，也就是。*
 

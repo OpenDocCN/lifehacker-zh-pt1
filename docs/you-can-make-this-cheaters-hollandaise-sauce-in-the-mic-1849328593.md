@@ -4,7 +4,7 @@
 
 荷兰酱可能会令人生畏，尤其是如果你是制作乳液的新手。尽管我们有几个制作真正荷兰酱的好方法(无论你是想在炉子 上做 [，用，还是用](https://lifehacker.com/two-easy-ways-to-make-hollandaise-for-your-mothers-day-1795057534) [浸入式搅拌机](https://lifehacker.com/make-perfect-one-minute-hollandaise-sauce-with-an-imme-1763362039) )，有一个简单的骗子选项还是不错的，尤其是如果你发现你的鸡蛋没了，或者想要一些可以在微波炉中两分钟内搅拌好的东西。
 
-Watch
+
 
 杜克大学的荷兰酸奶正是如此。标志性的南方梅奥公司建议将他们的梅奥与柠檬汁、伍斯特郡酱和水搅拌在一起，然后在微波炉中低功率加热一分半钟，而不是用黄油和柠檬乳化蛋黄。
 

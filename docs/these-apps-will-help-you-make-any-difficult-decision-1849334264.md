@@ -4,7 +4,7 @@
 
 从在两家餐馆中挑选，到在两份工作邀请中挑选，没有一个万无一失的方法来 [做决定](https://lifehacker.com/how-to-make-better-decisions-1829224542) 。我们在过去已经讨论过相当多的决策技巧:有[37%法则](https://lifehacker.com/use-the-37-rule-to-make-better-decisions-1848916008) 来简化你的直觉，或者 [创建决策矩阵](https://lifehacker.com/you-should-use-a-decision-matrix-to-prioritize-your-to-1848021445) 来对你需要完成的事情进行优先排序。但是有时候，你真正需要的是一个公正的第三方来告诉你该做什么。
 
-Watch
+
 
 好吧，也许“告诉你该做什么”过于简单化了。幸运的是，有一系列决策者应用程序可以帮助你组织和阐明自己的推理。以下应用都是帮助你在各种情况下做出决定的好工具。尽管如此，他们可能不会给你你想要看到的决定。但是如果你不同意这些应用程序所呈现的选择，那么，也许这种不同意揭示了你真正的选择。
 

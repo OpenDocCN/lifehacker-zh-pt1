@@ -4,7 +4,7 @@
 
 亚马逊的数字助理现在可以为你控制一些智能设备，无需任何提示。但在你开始梦想有一天 Alexa 会在早上为你准备好咖啡，你的车已经在车库里为你的通勤预热之前，要知道她的权力在这第一次循环中略有削弱。
 
-Watch
+
 
 要开始，在你的 Alexa app 中设置“预感”( [**iOS**](https://apps.apple.com/us/app/amazon-alexa/id944011620) ，[**Android**](https://play.google.com/store/apps/details?id=com.amazon.dee.app&hl=en_US&gl=US))。打开应用程序，点击右下角的**更多**，点击**设置**，向下滚动一点。当你看到它时点击**预感**，这将弹出一个如下所示的屏幕:
 

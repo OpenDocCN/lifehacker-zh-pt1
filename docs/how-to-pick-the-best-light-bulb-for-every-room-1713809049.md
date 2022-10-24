@@ -4,7 +4,7 @@
 
 房间的照明不仅仅是装饰的一部分；它可以影响从你的 [睡眠时间表](http://lifehacker.com/sleep-better-at-night-by-increasing-your-daytime-light-1697399439) 到你的 [脑力](http://lifehacker.com/blue-light-may-be-better-than-coffee-for-boosting-brain-1472598981#_ga=1.187625000.1268082208.1431441811) 的一切。所以，你想让你的家——这个你可能要在生活中度过很长一段时间的地方——有良好的照明是可以理解的。但是有这么多不同的选项可供选择！
 
-Watch
+
 
 某些类型的照明有特定的用途，对于你的家来说，你需要合适的类型，这取决于你房间的用途。为了优化你家的照明，首先考虑你如何使用每个房间。
 

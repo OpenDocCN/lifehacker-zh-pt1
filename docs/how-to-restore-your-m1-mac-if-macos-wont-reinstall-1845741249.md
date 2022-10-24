@@ -4,7 +4,7 @@
 
 苹果公司的 [第一代 M1 苹果电脑](https://lifehacker.com/do-all-apple-m1-macs-perform-the-same-1845668676) 是华而不实，但一些早期用户遇到了一个奇怪的错误，可能导致新电脑无法使用。在升级到 macOS Big Sur 之前，那些试图在装有 M1 的 Mac 或 MacBo 上执行 macOS 完全恢复的人可能会反复遇到系统停止警告:“准备更新时出错。无法个性化软件更新。请再试一次。”
 
-Watch
+
 
 大部分人不会用恢复工具在全新的系统上擦除重装 macOS。但是如果你这样做了，确保你首先 [更新到 macOS 大苏尔](https://lifehacker.com/how-to-get-your-mac-ready-to-upgrade-to-big-sur-1845644605) 以确保 Mac 恢复工具将正常工作。
 

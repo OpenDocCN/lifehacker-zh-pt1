@@ -4,7 +4,7 @@
 
 我们已经谈论了很多关于 [后 vax 放荡的夏天](https://lifehacker.com/how-to-prepare-for-your-post-vax-slutty-summer-1846740170) ，甚至关于如何 [在去年这么多月的隔离后重新开始约会](https://lifehacker.com/how-to-get-laid-again-after-months-of-isolation-1846893398) ，但是对于很多人来说，第一次约会总是*很难，不管是不是从疫情出来的。* 
 
-Watch
+
 
 这是一个复杂的情况:你想给你的约会对象足够的信息，让他们可以评估第二次约会或潜在关系是否可行，但你不想让他们不知所措或表现得太强势。以下是第一次约会时不要提起的话题(或)。
 

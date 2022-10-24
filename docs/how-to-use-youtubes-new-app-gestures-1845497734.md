@@ -4,7 +4,7 @@
 
 YouTube 在 Android 和 iOS 上的应用程序是 [对其视频控件进行了一些重大更新](https://blog.youtube/news-and-events/tips-and-tricks-watching-your-favorite-videos)， i 包括新手势和重新排列的覆盖菜单以及用于切换全屏模式的 快捷方式，以及其他功能。一旦它们为你所用，这里告诉你如何找到并充分利用它们。
 
-Watch
+
 
 ### 滑动以进入全屏模式
 

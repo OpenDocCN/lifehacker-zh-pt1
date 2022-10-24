@@ -4,7 +4,7 @@
 
 达美航空公司 [现在提供免检飞往欧洲](https://news.delta.com/delta-launch-first-quarantine-free-covid-free-travel-europe-through-new-testing-protocols) 的航班，其中，他们还大胆地称之为“免检”要是保证冠状病毒不在飞机上这么容易就好了。不过，这些航班确实使用了一种测试协议来降低携带 COVID 的人成功登机的几率*。*
 
-Watch
+
 
 到目前为止，该航空公司正在提供两条这样的航线:一条是从亚特兰大到阿姆斯特丹的 T1 航线，另一条是从 T2 到 T4 的 T5 航线，还有一条是从亚特兰大到罗马的 T7 航线。意大利和荷兰都要求旅客进行检疫，但同意乘坐这些航班入境的人可以绕过这一限制。
 

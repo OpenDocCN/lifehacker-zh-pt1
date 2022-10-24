@@ -4,7 +4,7 @@
 
 售价 112 美元的 55 英寸 4K 智能电视？《T1》会是《T2》中真实的《T3》吗？它可能是针对亚马逊 Prime 会员的:上周四，亚马逊 [发布了](https://www.aboutamazon.com/news/retail/amazon-prime-early-access-sale-best-deals) 一些会员可以在它的 [Prime 早期访问销售](https://www.amazon.com/earlyaccess?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/amazon-is-about-to-sell-this-4k-smart-tv-for-just-112-1849631844&asc_source=&hvadid=626555954559&hvdev=c&hvdvcmdl=&hvexid=&hvlocint=&hvlocphy=9060351&hvnetw=g&hvpone=&hvpos=&hvptwo=&hvqmt=e&hvrand=54893451704413084&hvtargid=kwd-1788675262464&ref=pd_sl_iocmhyhte_e&tag=kinjalifehackerlink-20) 中找到的交易，这是一个为期两天的销售，旨在拉开假日购物季的序幕。排在第位的是[亚马逊 Fire TV Omni 系列](https://www.amazon.com/amazon-fire-tv-55-inch-omni-series-4k-smart-tv/dp/B08P3QVFMK?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/amazon-is-about-to-sell-this-4k-smart-tv-for-just-112-1849631844&asc_source=&tag=kinjalifehackerlink-20) 55 英寸 4K 智能电视(带免提 Alexa)将比其 559.99 美元的市场价格低 80%，总计为 112 美元。(本文写作的年代，是“特卖”售价 509.99 美元。)
 
-Watch
+
 
 对于任何与亚马逊相关的事情，适度的怀疑是公平和有益的。他们用诡计鼓励购物者冲动- 购买他们并不真正需要甚至不想要的东西，这很难算作真正的交易。正如 Lifehacker 的参谋作家 [斯蒂芬·约翰森此前所说的](https://lifehacker.com/the-only-good-advice-for-shopping-amazon-prime-day-1849154608) :
 

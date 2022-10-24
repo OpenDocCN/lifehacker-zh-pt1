@@ -4,7 +4,7 @@
 
 有一天，无论我们喜欢什么平台，每一个数字助理都将触手可及——所以对 Siri、谷歌助理、Alexa 或其他任何人大喊大叫将像点击图标和 [摸索口头命令](https://lifehacker.com/how-to-get-an-amazon-echo-to-tell-you-a-rooms-temperatu-1846399889) 一样容易。然而，在那之前，有一些聪明的变通办法可以让我们的 Windows 或 Mac 桌面上有谷歌助手这样的东西。
 
-Watch
+
 
 如果你想尝试这个魔法，要知道这个实现——由“ [谷歌助手非官方桌面客户端](https://github.com/Melvin-Abraham/Google-Assistant-Unofficial-Desktop-Client) ”提供——并不完美。你将无法从你的桌面访问谷歌程序，也无法访问你最喜欢的流媒体服务。目前还不清楚这是否仅仅是因为这种用途太新，还是因为这是一个难以克服的技术挑战。请继续关注前方。
 

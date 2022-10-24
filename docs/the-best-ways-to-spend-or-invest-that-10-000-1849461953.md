@@ -4,7 +4,7 @@
 
 自从 [白宫宣布](https://www.whitehouse.gov/briefing-room/statements-releases/2022/08/24/fact-sheet-president-biden-announces-student-loan-relief-for-borrowers-who-need-it-most/) 一项学生贷款豁免计划，取消大多数借款人 高达 1 万美元的债务 [(其他人](https://lifehacker.com/how-to-tell-if-youre-eligible-for-student-loan-forgiven-1849458572) 为 2 万美元 [)，我脑子里就有了 1 万美元的想法。](https://lifehacker.com/how-to-find-out-if-you-have-a-pell-grant-1849453465?rev=1661373033978) 
 
-Watch
+
 
 我们大多数人口袋里都没有一万美元。自然，如果你手头有这笔钱，你的第一反应应该是 [还清任何未偿债务](https://lifehacker.com/how-to-get-organized-to-pay-off-your-debt-1844083637/slides/3) 。这是最无风险、最直接的资金使用方式。 [垫出你的应急“雨天”基金](https://lifehacker.com/what-you-should-do-now-to-prepare-for-a-recession-1849129353) 也是个不错的主意。然后还有一个慷慨的选择，那就是全部捐给慈善机构。然而现在，让我们想象这 10，000 美元专门用于投资你自己。以下是 2022 年 1 万美元能带你去哪里的一些想法。
 

@@ -4,7 +4,7 @@
 
 四年来，总统的推特一直是他的全球传声筒，每天都在煽动分裂，测试平台错误信息政策的极限。但唐纳德·特朗普退出白宫后，他对选举欺诈的指控可能很快就会消失，或者至少出现得不那么频繁:一旦乔·拜登于 1 月 20 日宣誓就任总统，特朗普将不再享有推特给予世界领导人的某些豁免——这些豁免使总统能够质疑我们民主制度的合法性。
 
-Watch
+
 
 最近， [Twitter 发言人向](https://www.forbes.com/sites/jackbrewster/2020/12/03/twitter-confirms-trump-could-be-banned-after-inauguration-day-for-repeated-violations/?sh=6d386f1176f9) [*【福布斯】*](https://www.forbes.com/sites/jackbrewster/2020/12/03/twitter-confirms-trump-could-be-banned-after-inauguration-day-for-repeated-violations/?sh=6d386f1176f9)*证实了这一点，他说，一旦总裁成为私人公民，他实际上可能被禁止使用该平台，因为他多次违反公司的规则。*
 

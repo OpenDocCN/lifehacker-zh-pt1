@@ -4,7 +4,7 @@
 
 多年来，在 PlayStation 上获得白金奖杯的兴奋源于一件事:吹牛的权利。但今年晚些时候，一旦 PlayStation 推出新的忠诚度计划，你将真正获得实实在在的好处。
 
-Watch
+
 
 名为 [的 PlayStation Stars](https://blog.playstation.com/2022/07/14/introducing-playstation-stars-an-all-new-loyalty-program/) ，它将是一个免费会员，允许你通过玩游戏来赚取积分。您可以每月登录一次 PlayStation 4 或 PlayStation 5 来赢取这些奖励。您可以通过成功完成特定的奖杯来赢得它们。你也可以通过完成挑战来赢得它们:例如，赢得一场锦标赛，或者成为你所在时区第一个获得白金奖杯的人，该奖杯是因为检查了与一款游戏相关的所有其他奖杯而获得的，用于一部大片。(索尼将于 11 月为 PS4 和 PS5 发布备受期待的 [*战神 ragnark*](https://kotaku.com/god-of-war-ragnarok-santa-monica-studio-sony-ps5-1849146462)。)
 

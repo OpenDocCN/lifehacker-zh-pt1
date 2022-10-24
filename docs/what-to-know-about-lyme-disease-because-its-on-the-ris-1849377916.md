@@ -4,7 +4,7 @@
 
 莱姆病是最著名的蜱传疾病，比过去更加常见——至少从包含莱姆病诊断的健康保险数据来看是这样。我们在 Gizmodo [的朋友最近报道了关于(抱歉)上升的新数据](https://lifehacker.com/know-the-symptoms-of-these-tick-borne-diseases-1836217979) ，这大致与 [CDC 估计](https://www.cdc.gov/lyme/stats/humancases.html) 一致。那么你需要知道什么来保持自己的安全和健康呢？
 
-Watch
+
 
 ## 什么是莱姆病？
 

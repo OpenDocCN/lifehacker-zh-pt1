@@ -4,7 +4,7 @@
 
 如果你正考虑放弃 WhatsApp— [而选择](https://lifehacker.com/the-best-whatsapp-alternatives-1832064581) [任何](https://lifehacker.com/whatsapp-is-ditching-these-old-phones-in-2021-updated-1840367419) [理由](https://lifehacker.com/for-better-privacy-use-these-apps-instead-of-whatsapp-1845551260)—症结之一可能是将你的对话从 WhatsApp 转移到另一项服务的难度。人们已经建立了一些 [聪明的](https://github.com/gillesvangestel/ConvertWhatsAppToSignal) [工具](https://github.com/TelegramTools/TLImporter) 来帮助你完成这一点，但是 Telegram 现在正在推出一个官方导入工具来使过渡变得异常容易。
 
-Watch
+
 
 首先，在您主要使用 WhatsApp 的设备上安装 Telegram。让自己设置或登录一个电报账户，然后切换回 WhatsApp。你现在需要导出你的 WhatsApp 对话——一个 [艰巨的过程](https://faq.whatsapp.com/android/chats/how-to-save-your-chat-history/?lang=en) 需要你打开每个对话，然后点击三点图标，点击**更多**，点击**导出聊天**。
 

@@ -4,7 +4,7 @@
 
 水合作用是一个敏感的话题。有这样的标题:[每天喝水不够的人“面临致命疾病的风险](https://nypost.com/2022/04/08/people-who-dont-drink-enough-water-each-day-at-risk-of-killer-disease/)”[每天早上喝这个东西给我更多的能量，清理我的皮肤](https://www.eatthis.com/morning-cup-of-water-for-energy/) (剧透:这是一杯水)难怪我们很多人认为每天喝一加仑水可以远离医生和痤疮。但是那么多水真的有必要吗？我们大吃大喝对自己有好处吗？
 
-Watch
+
 
 ## 为什么每天要喝一加仑水？
 

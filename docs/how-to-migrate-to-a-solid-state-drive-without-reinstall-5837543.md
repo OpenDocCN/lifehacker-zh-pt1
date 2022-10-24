@@ -4,7 +4,7 @@
 
 固态硬盘是对台式电脑进行升级的最佳方式之一。而且设置起来也不是很难:物理安装， [接对线缆](https://lifehacker.com/how-to-upgrade-your-computer-with-a-new-drive-1825299803) ， [重新安装 Windows 从头开始](https://lifehacker.com/how-to-set-up-your-windows-laptop-from-scratch-1826146907#_ga=2.219304350.607923588.1534777249-396842925.1520800403) 。
 
-Watch
+
 
 但也许你不想(再次)设置 Windows，从你最喜欢的备份位置复制所有关键文件和文件夹，并重新安装所有应用程序。我们理解你。
 

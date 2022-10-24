@@ -4,7 +4,7 @@
 
 当我们被某人冤枉时，通常的建议包括我们原谅做错事的人。我们知道，这意味着 [我们必须寻求](https://www.merriam-webster.com/dictionary/forgive) “停止对(罪犯)的怨恨”或“放弃怨恨或要求报复”很多时候，我们对宽恕是什么样子的集体想象包括犯罪者积极参与赢得宽恕，或者它包括我们简单地自己放弃冒犯。
 
-Watch
+
 
 “你如何定义宽恕很重要，”婚姻和家庭治疗师、《今日心理学》博客 [的作者丹·纽哈特](https://www.psychologytoday.com/us/blog/narcissism-demystified) 说。"我认为宽恕是一个连续体。"
 

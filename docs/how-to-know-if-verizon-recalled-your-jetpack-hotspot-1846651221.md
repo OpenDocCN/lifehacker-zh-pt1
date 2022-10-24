@@ -4,7 +4,7 @@
 
 如果你有三种不同型号的 Ellipsis Jetpack hotspot——你会从威瑞森购买相同的 Jetpack hotspot，以便为附近的设备提供 4G 连接——你会想停止使用它们。威瑞森正在召回大约 250 万个这样的热点，因为担心它们的锂离子电池 [可能会过热](https://www.cpsc.gov/Recalls/2021/Verizon-Recalls-2-5-Million-Ellipsis-Jetpack-Mobile-Hotspots-Imported-by-Franklin-Wireless-Due-to-Fire-and-Burn-Hazards) 并导致火灾(或给你一个体面的烧伤)。
 
-Watch
+
 
 问题中的三款分别是省略号 Jetpack [MHS900L](https://www.verizon.com/internet-devices/verizon-ellipsis-jetpack-mhs900l/) 、T5】MHS 900 ls 和 [MHS900LPP](https://www.bestbuy.com/site/questions/verizon-ellipsis-jetpack-4g-lte-prepaid-mobile-hotspot-black/5971800) 。如果你有一台，在你把它运回威瑞森之前，你需要采取以下步骤:
 

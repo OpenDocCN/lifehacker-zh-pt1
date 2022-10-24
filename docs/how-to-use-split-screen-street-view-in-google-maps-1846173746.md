@@ -4,7 +4,7 @@
 
 谷歌地图应用程序现在在 Android 上有一个分屏街景选项。打开它可以让你同时使用街景和地图，这使得寻找和导航到一个目的地——或 [虚拟探索周围地区](https://lifehacker.com/explore-neighborhoods-with-google-maps-new-community-fe-1845791688)——比单独依靠地图或街景容易得多。
 
-Watch
+
 
 谷歌地图 10.59.1 版或更高版本的所有用户都可以使用分屏街景。您可以下载应用程序，并通过查看新的更新。
 

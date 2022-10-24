@@ -4,7 +4,7 @@
 
 如果你走在当地药店的过道上，你会看到一瓶又一瓶专门为儿童销售的复合维生素。这往往会给人一种普遍需要维生素的印象，但美国儿科学会(American Academy of Pediatrics)的建议是，饮食均衡的健康儿童不需要服用维生素——婴儿和儿童的维生素 D[除外](https://www.healthychildren.org/English/healthy-living/nutrition/Pages/Vitamin-D-On-the-Double.aspx) 。相反，给健康的孩子服用多种维生素的风险是 [大剂量的维生素，如维生素 A、C 和 D，可能是有毒的，](https://www.healthychildren.org/English/healthy-living/nutrition/Pages/Where-We-Stand-Vitamins.aspx) 导致恶心、皮疹和头痛等症状。
 
-Watch
+
 
 新泽西州波登镇的执业家庭医生、 [美国家庭医师学会](https://www.aafp.org/home.html) 的发言人 [玛丽·孔帕尼奥洛](https://www.aafp.org/about/meet-our-leadership/board/campagnolo.html) 说:“我非常相信通过食物获取尽可能多的营养。“有各种各样的因素我们还不知道，我们从食用天然食品中获得了什么。”
 

@@ -4,7 +4,7 @@
 
 由于人手短缺，加上该国自疫情飓风之前以来的最高旅客量，专家们预计今年夏天的航空旅行将会“混乱不堪”。随着漫长的安检等待时间即将到来，运输安全管理局已经警告航空旅客不要在随身行李中意外携带违禁物品，其中一些违禁物品是食物。所以在你今年夏天跳上安全线之前， [了解一下围绕这八种食物的规则](https://lifehacker.com/weird-things-you-didnt-know-you-can-bring-on-an-airplan-1847306956)。
 
-Watch
+
 
 ## [**芝**](https://www.tsa.gov/travel/security-screening/whatcanibring/items/cheese-creamy)T5】
 

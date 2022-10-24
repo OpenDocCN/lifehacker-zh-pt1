@@ -4,7 +4,7 @@
 
 没人告诉道格·布瑟，但 GameStop 确实有售价低于 40 美元任天堂游戏。令人震惊，我知道！
 
-Watch
+
 
 随着美国资本主义最黑暗的仪式即将来临， [GameStop 发布了他们的黑色星期五交易](https://www.gamestop.com/video-games?pmid=ebf-vg-2&prefn1=platform&prefv1=Nintendo%20Switch&view=new&tileView=list&sv=new) ，他们真的很棒。每个平台都有打折游戏，但商店的 Switch 选择是真正的佼佼者，它拥有我见过的第一方任天堂游戏的最低价格。
 

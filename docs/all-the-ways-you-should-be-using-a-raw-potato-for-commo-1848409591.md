@@ -4,7 +4,7 @@
 
 自从大约 8000 年前在南美安第斯山脉首次驯化以来，现代马铃薯已经 [改变了世界](https://www.bbc.com/travel/article/20200302-the-true-origins-of-the-humble-potato#:~:text=Despite%20its%20origins%20in%20the%20Andes%2C%20it's%20an%20incredibly%20successful%20global%20food&text=The%20humble%20potato%20was%20domesticated,to%20the%20Americas%2C%20and%20beyond.) 。虽然有很多关于土豆作为一种食物已经进入全球美食的说法，但这种美味的块茎也可以在厨房之外发挥许多功能。这里有几个例子，展示了用生土豆做各种家务的许多方法。
 
-Watch
+
 
 ## 去除织物上的污渍
 

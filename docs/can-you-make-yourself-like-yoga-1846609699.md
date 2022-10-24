@@ -4,7 +4,7 @@
 
 我从来都不是瑜伽爱好者。随着“瑜伽体”和瑜伽馆成为不可避免的事情，我在成年后尝试过几次，但我是一个相对精力充沛的人，如果有选择的话，我更喜欢跑步和其他有氧运动。虽然我尝试参加的几堂瑜伽课很有挑战性，但它们的挑战性并没有让我满意——也就是说，跑步或蹦蹦跳跳，而不是站在一个位置，直到我的肌肉酸痛。
 
-Watch
+
 
 但我知道瑜伽是 [好练力量](https://www.webmd.com/fitness-exercise/a-z/yoga-workouts#:~:text=And%20even%20though%20yoga%20is,back%2C%20legs%2C%20and%20core.) ，这是我的一个弱项；更不用说练习中建立的正念，这对我焦虑的大脑有好处。我最近还遭受了一次轻微的膝盖受伤，导致我需要从我平时的跑步习惯中休息一下，所以感觉是时候接手 [Lifehacker 健身挑战](https://lifehacker.com/c/lifehacker-fitness-challenge?startIndex=40) 并通过坚持 30 天来让自己喜欢上瑜伽了。
 

@@ -4,7 +4,7 @@
 
 *Mass Effect 传奇版*本周对亚马逊 Prime Gaming 服务的 [会员免费。这是电子商务巨头](https://gaming.amazon.com/home?asc_campaign=InlineText&asc_refurl=https://kotaku.com/amazon-prime-day-mass-effect-legendary-edition-free-1849164247&asc_source=&tag=kinjakotakulink-20) [推出的六款游戏之一，尽管在各种项目上投入了大量资金，但它一直在努力](https://www.wired.com/story/amazon-wants-to-win-at-games-so-why-hasnt-it/),[推出了自己广受好评的游戏](https://www.bloomberg.com/news/features/2021-01-29/amazon-game-studios-struggles-to-find-a-hit)——在黄金日，这是一年一度的仪式，关于在资本主义的祭坛上榨干你的血。他们加入了亚马逊上个月为 Prime Day 推出的大约 24 款游戏。
 
-Watch
+
 
 每年，亚马逊都会举办一系列名为 Prime Day 的促销活动，旨在刺激你花钱购买你不会多看一眼的产品。换句话说， [作为我们在 *Lifehacker* 注](https://lifehacker.com/the-only-good-advice-for-shopping-amazon-prime-day-1849154608) 的朋友，除非你深思熟虑地、有条不紊地处理这个过程，否则从长远来看，在黄金日购物实际上并不会帮你省钱。但在字里行间，偶尔会有很好的交易，尤其是当它的价格是 0 美元的时候。(对于那些确实附有价格的报价， [我们在*库存*](https://theinventory.com/) 的同事将会密切关注，看看哪些东西真正值得你花时间。)
 

@@ -4,7 +4,7 @@
 
 不，你不会得到 iPhone 12，不是现在，当然也不是免费的。在撰写本文时，还没有 iPhone 12——在苹果公司正式宣布之前，它只存在于谣言和幻想中——但这并没有阻止骗子利用它作为诱饵来吸引不知情的受害者。
 
-Watch
+
 
 有些人 [被短信](https://threatpost.com/free-apple-iphone-12-texts/159530/#:~:text=Chatbot%20Scam%20Spreads%20Via%20Texts&text=Convincing%20SMS%20messages%20tell%20victims,free%20trials%E2%80%9D%20of%20iPhone%2012.) 所吸引，这些短信暗示他们已经被“选中”，有机会获得一部免费的 iPhone 12(这款手机同样不能购买)。你可能知道不要相信这样的骗局，但你是一个经验丰富的 Lifehacker 读者。不幸的是，不是每个人都这么精明。
 

@@ -4,7 +4,7 @@
 
 一旦你已经 [设置了你全新的 Mac](https://lifehacker.com/how-to-set-up-your-macbook-from-scratch-1825920271) ，或者在你的机器上完成了 macOS 的全新安装，你可以通过自动化应用程序安装和更新过程来为自己节省大量时间。如果你曾经在 Windows 上使用过 Ninite，我们将向你展示如何在 Mac 上使用它的替代品。
 
-Watch
+
 
 ## 适用于大多数人的快速应用程序安装:macapps.link
 

@@ -4,7 +4,7 @@
 
 尤其是在过去几年后，孩子们的学术技能水平到处都是。取决于你的孩子在网上学习的表现如何(T1 或其他在他们生活中发生的事情)，你的孩子的阅读水平可能达不到年级水平。你可能想知道这是否是“正常”的，或者是否有别的事情正在发生。当有人阅读困难，而*不能*归因于缺乏技能或花时间练习，他们可能有 [阅读处理障碍](https://www.asha.org/practice-portal/clinical-topics/written-language-disorders/disorders-of-reading-and-writing/) 。以下是阅读障碍的迹象和类型，以及如果你的孩子患有阅读障碍，你该如何帮助他们。
 
-Watch
+
 
 ## 什么是阅读障碍？
 

@@ -4,7 +4,7 @@
 
 即使在待机模式下，您的游戏主机消耗的能量也可能是它所需的最低能量的 25 倍，这可能会悄悄地增加您的能源账单。闲置耗电也不太环保，这也是检查并修复主机功耗的另一个原因。环境倡导组织自然资源保护委员会(NRDC)表示，由于其默认的电源模式设置，Xbox 的所有者可能会集体 [支付额外的 5 亿美元](https://www.nrdc.org/experts/noah-horowitz/latest-game-consoles-environmental-winners-or-losers) 的能源账单。
 
-Watch
+
 
 公平地说，微软和索尼的 Xbox Series X|S 和 PS5 在播放电影或执行不太密集的任务时比老款游戏机更省电。然而，最好在这些游戏机上检查你的电源设置，以避免耗尽你的钱包和浪费能源。
 

@@ -4,7 +4,7 @@
 
 随着达美航空 [向未接种疫苗的员工收取每月 200 美元](https://www.npr.org/sections/coronavirus-live-updates/2021/08/25/1030949428/delta-covid-unvaccinated-employees-monthly-charge-200-dollars) 的费用，让他们继续参加公司的健康计划，你可能会想知道你的保险费率是否会受到你的疫苗接种状况的影响。这(不出所料)很复杂，但到目前为止，雇主和提供健康和人寿保险的公司都不愿意根据疫苗接种情况增加保费——尽管如果疫情恶化，这种情况可能会改变。
 
-Watch
+
 
 ## 未接种疫苗的人健康保险费会增加吗？
 

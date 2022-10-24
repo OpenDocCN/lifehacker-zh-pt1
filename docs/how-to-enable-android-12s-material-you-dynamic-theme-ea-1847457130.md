@@ -4,7 +4,7 @@
 
 谷歌的下一个重大智能手机更新 Android 12 非常注重设计。其中最主要的是“[【Material You】](https://material.io/blog/announcing-material-you)”，这是一种新的设计语言，将简单、迷人的图形与可以从手机壁纸中生成的颜色主题融合在一起。如果你愿意做一点小改动，你可以尝试用 Chrome 设计的新材料。
 
-Watch
+
 
 ## 你需要运行 Android 12 测试版
 

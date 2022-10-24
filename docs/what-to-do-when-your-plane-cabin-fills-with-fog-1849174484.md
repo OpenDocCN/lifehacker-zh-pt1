@@ -4,7 +4,7 @@
 
 对一些人来说，对飞行的恐惧是真实的，也是令人虚弱的，尽管每年都有数百万人乘坐大型喷气式飞机，没有任何问题。我们有成吨的帖子充满了 [的事实](https://lifehacker.com/11-facts-that-will-curb-your-fear-of-flying-once-and-f-1848320513) 和 [的提示](https://lifehacker.com/how-to-overcome-your-fear-of-flying-1843593112) 旨在 [帮助那些对空中旅行感到紧张的人](https://lifehacker.com/six-airplane-facts-to-cure-your-fear-of-flying-1788654431) (包括直接来自飞行员的 [建议](https://lifehacker.com/how-to-conquer-your-fear-of-flying-according-to-a-pilo-1849119523) ),但没有一个包括任何关于如果飞机内部变得潮湿、多云或有雾该怎么办的建议。没错:一个新的与飞行相关的焦虑触发点刚刚落下。
 
-Watch
+
 
 一条 [消息在红迪网上迅速传播，帖子](https://www.reddit.com/r/mildlyinteresting/comments/vxq9mj/the_plane_im_in_is_super_foggy_for_some_reason/) 最近展示了一个“多雾”的飞机机舱。海报对此相当冷淡——“出于某种原因，我乘坐的飞机雾很大”——但一些评论者有点担心，尤其是因为这太不寻常了，我们大多数人从未考虑过这种可能性。如果这种情况发生在你身上，你可以这么做。
 

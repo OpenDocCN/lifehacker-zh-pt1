@@ -4,7 +4,7 @@
 
 在我的厨房橱柜里有一个红色的活页夹，在那个红色的活页夹里有下面的内容:一份烧烤酱的食谱，我多年前从一本杂志上撕下来的，但从来没有做过。在便利贴上潦草的指示，提醒我如何每年烘烤一次南瓜子。eHow 关于如何炒“任何东西”的指导数不清的手写食谱写在各种各样的纸上，包括写有励志名言的文具店、我在第一家报社工作时的文具店，以及出于某种原因，我不记得拥有过的 [【凯蒂猫】](https://www.sanrio.com/collections/hello-kitty) 文具店。有些食谱我一直在用，有些食谱我做了一次，很快就忘记了。这是一个混乱的系统，也是我拥有的最有条理的系统。
 
-Watch
+
 
 我的其他“系统”包括:我的电子邮件中的一个文件夹，里面装满了我在网上找到的食谱，我想有一天尝试一下。Pinterest 上的一个板块，我在那里添加食谱，我主要是通过跟踪我岳母的更广泛的 Pinterest 板块找到的。一个食谱盒，里面有一些我偶尔做的食谱和一大堆我不做的食谱。最后， [这本家传菜谱](https://www.amazon.com/dp/B00FL0KLSA/ref=redir_mobile_desktop?_encoding=UTF8&aaxitk=1ClBXxuAPjuCWhidJzIVww&asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-do-you-organize-your-recipes-1846204918&asc_source=&hsa_cr_id=9291790500501&pd_rd_plhdr=t&pd_rd_r=93f2d7f0-2568-4cf0-8b3c-90f4da75fc64&pd_rd_w=nSs4o&pd_rd_wg=Yj0N7&ref_=sbx_be_s_sparkle_mcd_asin_1_title&tag=kinjalifehackerlink-20) 我和老公收到的礼物，还没写一个字进去。更不用说有无数带书签的食谱书了，因为我喜欢一本书中的意大利面沙拉食谱，但另一本书中的 [柠檬鸡肉汤](https://www.elliekrieger.com/recipe/lemon-chicken-soup-orzo/) 。
 

@@ -6,7 +6,7 @@
 
 亚马逊凭借 [接近 70%的份额](https://www.bloomberg.com/news/articles/2011-02-22/barnes-noble-falls-after-dividend-halt-same-store-sales-rise) 统治着电子书市场，但如果你完全生活在亚马逊的围墙花园里，你可能不会意识到存在不同的电子书格式——最流行和最广泛的是 EPUB 和 MOBI 格式。亚马逊使用专有的 AZW 格式，并容忍 MOBI 格式，但不想与 EPUB 有任何关系，EPUB 是 Barnes & Noble 的 Nook、Google Play 和 Kobo 使用的格式，因此从这些商店下载的任何电子书都不能与 Kindle 兼容。你在互联网上找到的许多免费电子书——古腾堡项目有数千本——都是以 EPUB 形式提供的，这意味着你的 Kindle 或 Kindle 应用程序甚至不会识别它们。
 
-Watch
+
 
 但是，如果你有一大堆想在 Kindle 上阅读的 EPUB 书籍，有一些方法可以轻松地转换它们。
 

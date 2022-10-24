@@ -4,7 +4,7 @@
 
 [辉瑞和 BioNTech 今天](https://www.pfizer.com/news/press-release/press-release-detail/pfizer-biontech-announce-positive-topline-results-pivotal) 宣布，他们已经在 12 至 15 岁的儿童中完成了新冠肺炎疫苗的三期试验，到目前为止，该疫苗在该年龄组中似乎 100%有效。如果 FDA 同意这种疫苗是安全有效的，它可能会在今年夏天提供给 12 岁以上的儿童。
 
-Watch
+
 
 ### 什么年龄的人有权使用疫苗？
 

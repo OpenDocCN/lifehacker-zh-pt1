@@ -4,7 +4,7 @@
 
 非常快餐员工的梦想:顾客走进来，要求在普通菜单上找不到的精致食物。
 
-Watch
+
 
 本周，网站[# hack the menu](http://hackthemenu.com/)[再度受到关注](https://www.today.com/food/hackthemenu-spills-your-favorite-fast-food-place-s-secret-menu-t234184) 自称是从所有你喜欢的快餐连锁店中寻找所谓“秘密菜单”的一站式资源。#HackTheMenu 不是一个新网站； [我们早在 2014 年就报道过秘密菜单资源](https://lifehacker.com/hackthemenu-reveals-the-secret-menus-of-over-a-dozen-fo-1641707141) ，但 t 何最近的热议却要归功于数字新闻的前沿: [一个病毒式的抖音](https://www.tiktok.com/@setupspawn/video/7015229398114635014?is_from_webapp=v1) 。
 

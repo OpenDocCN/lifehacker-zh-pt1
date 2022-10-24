@@ -4,7 +4,7 @@
 
 [Xbox Game Pass](https://www.amazon.com/Xbox-Game-Pass-Ultimate-Membership/dp/B07TGNFVWV?asc_campaign=InlineText&asc_refurl=https://kotaku.com/xbox-game-pass-june-2022-far-cry-5-naraka-bladepoint-tm-1849088274&asc_source=&tag=kinjakotakulink-20) 经历了 [坎坷的几个月](https://kotaku.com/xbox-game-pass-subscriber-numbers-2022-xbox-series-x-s-1848963643) ，眼看着它输掉主要游戏，又未能添加字幕来填补缺口。但是紧接着 Xbox 的大规模营销闪电战(包括承诺在接下来的一年中有 50 款游戏将登陆 Xbox，其中许多是 Game Pass)之后，广受欢迎的游戏点播服务正在加速发展。
 
-Watch
+
 
 [这里是一切](https://news.xbox.com/en-us/2022/06/21/game-pass-june-2022-wave-2-update/) 在这个月剩下的时间里，加上两个在漫长的周末悄悄增加的游戏。
 

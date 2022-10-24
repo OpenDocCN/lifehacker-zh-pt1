@@ -4,7 +4,7 @@
 
 植物非常奇妙，为我们提供食物、树荫和可呼吸的空气，但它们并不神奇。是的，雨林对我们的生态系统 来说是至关重要的[，因为它们过滤空气中的碳并制造氧气——但是任何认为室内植物可以用来过滤我们家中空气中的毒素的想法都是无稽之谈，正如《大西洋月刊》的这篇报道所指出的。这就是为什么你应该购买植物作为装饰或促进](https://www.royalparks.org.uk/parks/the-regents-park/things-to-see-and-do/gardens-and-landscapes/tree-map/why-trees-are-important) [个人健康](https://billyoh.com/extra/blog/diy/seven-stress-relief-plants/)——但不要把当作空气净化器。
 
-Watch
+
 
 ## 为什么室内植物不能有效地过滤空气
 

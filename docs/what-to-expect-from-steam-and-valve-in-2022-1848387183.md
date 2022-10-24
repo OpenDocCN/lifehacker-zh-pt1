@@ -4,7 +4,7 @@
 
 得益于像*埃尔登环*和*星域*这样的大型游戏，以及像 Steam Deck 这样的新硬件，对于 Valve 拥有的数字店面 Steam 来说，这将是又一个 [破纪录的一年](https://kotaku.com/steam-breaks-new-record-with-more-players-than-ever-be-1848296365) 。由于新冠肺炎驱动的游戏延迟，去年在 PC 大片方面表现不佳，但 2021 年的损失是今年的收获。从端口和早期接入发布到大规模扩展和新的控制台，以下是 2022 年即将推出的内容。
 
-Watch
+
 
 **阅读更多:** [Valve 表示还没有发现一款游戏是 Steam 卡牌不能处理的](https://kotaku.com/valve-says-it-hasnt-found-a-game-that-the-steam-deck-ca-1847358340)
 

@@ -4,7 +4,7 @@
 
 对于热情的园丁来说，温暖月份的结束可能会令人沮丧。谢天谢地，过去开花的种子给未来的播种带来了希望。但是种子不会永远存在，越老的 [越没有生命力的](https://simplysmartgardening.com/how-long-do-seeds-last/#:~:text=All%20seeds%20will%20be%20viable,they%20don't%20last%20forever.) 。你储存种子的方式会延长或缩短种子的寿命。以下是保存种子的方法，这样你就可以在下一季和未来几年播种。
 
-Watch
+
 
 ## 种子能保存多久？
 

@@ -4,7 +4,7 @@
 
 [Chrome 扩展很棒](https://lifehacker.com/11-of-the-best-free-extensions-for-google-chrome-1847860706/) 。他们可以 [帮你写得更好](https://chrome.google.com/webstore/detail/grammarly-for-chrome/kbfnbcaeplbcioakkpcpgfkobkghlhen?hl=en)[把讨厌的广告拒之门外](https://chrome.google.com/webstore/detail/adblock-%E2%80%94-best-ad-blocker/gighmmpiobklfepjocnamgkkbiglidom)[在你购物的时候帮你省钱](https://chrome.google.com/webstore/detail/rakuten-get-cash-back-for/chhjbpecpncaggjpdakmflnfcopglcmi) ，还有其他成百上千的任务。然而，就像 Play Store 上的 Android 应用程序一样，Chrome 网络商店上的扩展并不总是像它们看起来那样。恶意软件是一个很大的问题，你当然不希望为了下载广告拦截器而损害你的隐私和安全。
 
-Watch
+
 
 谷歌似乎知道许多 Chrome 扩展的质量和安全性并不是特别一致。这就是为什么该公司推出了一个新的系统来识别验证的扩展和创作者 。当您浏览要下载的扩展时，您会开始注意到两个关于信誉选项的新徽章，这两个徽章都表示特定扩展和/或其发布者被视为合法的不同方式。
 

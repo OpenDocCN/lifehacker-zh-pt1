@@ -4,7 +4,7 @@
 
 由于 Alexa 新的实时翻译模式，亚马逊 Echo 设备现在可以作为你的私人翻译工作。与其他数字助理 提供的 [翻译功能一样，Live Translate 是一种人工智能功能，可以识别多种语言，并为两种说话者翻译。Live Translate 背后的技术听起来令人印象深刻，你可以在亚马逊的公告帖子](https://lifehacker.com/use-google-assistants-interpreter-mode-to-talk-to-someo-1840397512) 中了解更多信息。
 
-Watch
+
 
 Live Translate 易于使用，我们将向您展示如何使用，但需要记住一些限制。
 

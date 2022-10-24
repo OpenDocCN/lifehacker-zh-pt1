@@ -4,7 +4,7 @@
 
 对我们许多人来说，感恩节是以一顿大餐为中心的。但是假设你不想花太多时间在厨房里，宁愿坐在沙发上看电视吃外卖。或者你的食物准备没有按计划进行，你需要最后一分钟的备份晚餐。或者你已经意识到你只是不想洗碗。或者你只是一个人混，想低调一点。怎么办？
 
-Watch
+
 
 许多杂货店(以及像塔吉特和沃尔玛 这样的 [零售商)将在周四暂停营业或完全关闭，但少数连锁餐馆](https://www.nytimes.com/2021/11/22/business/target-thanksgiving-closed.html) [预计](https://www.today.com/food/20-restaurants-open-thanksgiving-2020-t199585) [将为常规用餐或感恩节特定订单开放](https://www.goodhousekeeping.com/holidays/thanksgiving-ideas/a46669/restaurants-open-thanksgiving/) 。以下是一些最受欢迎的....只是确保你在出发前检查时间或提前打电话，因为可能不是每个地方都在周四提供服务。
 

@@ -4,7 +4,7 @@
 
 谁会想到 Windows 10 中更有用的故障诊断工具之一——good ol '[*【chkdsk*](https://docs.microsoft.com/en-us/windows-server/administration/windows-commands/chkdsk)——本身会被包裹在一个可能让你的 PC 瘫痪的漏洞中。当然不是我，因为“检查磁盘”命令通常用于扫描和*修复文件系统(和相关元数据)的*错误。
 
-Watch
+
 
 根据本月早些时候发布的 Windows 10 更新 [KB4592438](https://support.microsoft.com/en-us/help/4592438/windows-10-update-kb4592438?ranMID=24542&ranEAID=kXQk6*ivFEQ&ranSiteID=kXQk6.ivFEQ-gNniRcezVgFvC9IFeHiCmA&epi=kXQk6.ivFEQ-gNniRcezVgFvC9IFeHiCmA&irgwc=1&OCID=AID2000142_aff_7593_1243925&tduid=(ir__ynhpbocke9kfq06ekk0sohzibv2xse2xzp23cuw600)(7593)(1243925)(kXQk6.ivFEQ-gNniRcezVgFvC9IFeHiCmA)()&irclickid=_ynhpbocke9kfq06ekk0sohzibv2xse2xzp23cuw600) ，该更新引入的错误可能会导致个人电脑出现一些危险问题。正如微软所描述的:
 

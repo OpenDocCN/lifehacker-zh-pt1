@@ -4,7 +4,7 @@
 
 虽然没有人真的希望在像 Apple Watch 这么小的显示器上观看 YouTube 视频，但如果你想在旅途中快速观看一些东西，或者参考教程中修理漏水水龙头的下一步，它可以派上用场。在这些情况下， [WatchTube](https://apps.apple.com/app/watchtube/id1599884909) 就是 Apple Watch 应用，即使你的 iPhone 不在身边，它也能让你观看。
 
-Watch
+
 
 WatchTube 是免费的，支持大多数种类的 YouTube 视频。至少 f 或者现在，你不能 w 观看 YouTube 短片或者直播视频，但是其他大部分视频应该可以播放。我发现应用程序在 Apple Watch SE 上打开得相当快，它能够以很小的延迟加载其精选提要中的视频——而且由于 Apple Watch 有一个漂亮的显示屏，视频在它上面看起来也不会太差。然而，大多数 YouTube 视频不使用方形纵横比，这意味着你会看到视频上方和下方的黑条来补偿。
 

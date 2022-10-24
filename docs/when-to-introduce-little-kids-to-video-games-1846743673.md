@@ -4,7 +4,7 @@
 
 自从 70 年代初乒乓游戏问世以来，孩子们就一直在玩电子游戏。据 [常识媒体](https://www.commonsensemedia.org/sites/default/files/uploads/research/2019-census-8-to-18-key-findings-updated.pdf) 报道，在学校关闭前，孩子们每天花一个小时或更多时间玩社交游戏，如*《我的世界》*和*堡垒之夜*。但是在社交距离时代，屏幕时间显著增加了。去年，有抱负的游戏玩家 [在实体店或网上商店到处寻找任天堂 Switch](https://www.yahoo.com/entertainment/nintendo-switch-sold-months-just-185716844.html)，以便他们可以通过像*动物穿越:新视野这样的游戏与朋友联系。*
 
-Watch
+
 
 ### 孩子应该什么时候开始？
 

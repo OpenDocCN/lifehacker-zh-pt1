@@ -4,7 +4,7 @@
 
 通过最新的更新，Fitbit Sense 手表现在可以给你一个心电图(ECG/EKG)读数。这与 2018 年 推出的 [Apple Watch 获得 FDA 批准的功能类似，注意事项也大致相同。](https://lifehacker.com/what-to-know-about-the-ecg-feature-in-the-new-apple-wat-1829064723)
 
-Watch
+
 
 ### 心电图能做什么？
 

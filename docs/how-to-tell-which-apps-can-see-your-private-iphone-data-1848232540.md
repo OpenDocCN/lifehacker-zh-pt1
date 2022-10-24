@@ -4,7 +4,7 @@
 
 每年，苹果都会发布新的功能，既提高了 iPhone 的数据隐私，又为整个行业树立了新的标杆。有了 iOS 15，一切都是透明的。 [iOS 15.2](https://lifehacker.com/16-of-the-best-ios-15-2-feature-updates-worth-knowing-a-1848199396) 带来了一个名为 App Privacy Report 的新功能，它提供了一个可视化的、易于阅读的报告，报告了一个应用程序使用或传输你的私人数据的所有方式。
 
-Watch
+
 
 ## 如何在 iPhone 和 iPad 上启用应用隐私报告
 

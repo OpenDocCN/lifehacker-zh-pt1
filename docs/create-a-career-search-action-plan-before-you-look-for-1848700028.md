@@ -4,7 +4,7 @@
 
 找工作本身就像是一份全职工作。当你感觉把简历投出去却大部分时间没有收到回复时，很容易感到失败。也许你很快就要毕业了，或者正在进行职业转型，或者在离开一段时间后重返职场——求职让我们所有人都感到谦卑。
 
-Watch
+
 
 一个行动计划是把你铺天盖地的求职变成一个更容易管理的过程的关键——无论是在你的理智方面还是增加你被雇用的机会方面。这是 [没有秘密](https://lifehacker.com/why-you-should-replace-your-new-years-journal-with-a-sp-1848117995) 我爱一张 [好的电子表格](https://lifehacker.com/how-to-make-extremely-elaborate-to-do-lists-in-google-s-1848517398) 。不管你是不是团队电子表格，你都应该创建某种形式的**职业搜索行动计划**。
 

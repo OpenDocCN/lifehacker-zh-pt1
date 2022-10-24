@@ -4,7 +4,7 @@
 
 随着*Surviving Mars*——Paradox Interactive 和 Haemimont Games 在城市建设游戏上的巧妙转变——今天庆祝其三周年纪念日，它以新开发商的形式获得了新生(抽象游戏)、 [、今年晚些时候的新资料片](https://www.youtube.com/watch?v=1ioVvRJAlyw) ，以及今天发布的两个新更新(一个免费的旅游更新和一个付费的 [建筑包](https://www.youtube.com/watch?v=whQI4rqWz0o) )。我有没有提到游戏本身是免费的？
 
-Watch
+
 
 前往 Epic Games 商店，在那里你可以以零的低价买到基本版的*火星求生*。你可以在美国东部时间 3 月 18 日周四上午 8 点之前利用这笔交易，届时价格可能会回升到正常的 30 美元。你不会想错过的——我已经花了 44 小时将火星改造成一个适合居住的环境，我觉得我甚至还没有触及这个游戏的皮毛。
 

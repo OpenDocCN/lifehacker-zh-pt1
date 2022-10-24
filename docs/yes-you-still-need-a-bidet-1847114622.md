@@ -4,7 +4,7 @@
 
 坐浴盆在许多其他国家都是一种日常浴室用品，但在美国，它并不常见，只是最近才变得更加普遍( [部分源于疫情](https://www.theguardian.com/us-news/2020/apr/14/us-bidet-toilet-paper-sales-coronavirus) 和卫生纸短缺)。如果你还没有考虑自己买一个坐浴盆...你应该这么做。以下是购买坐浴盆的几个理由，以及如何使用。
 
-Watch
+
 
 ## 什么是坐浴盆？
 

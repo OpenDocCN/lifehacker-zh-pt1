@@ -4,7 +4,7 @@
 
 亚马逊和微软最近宣布了一项合作，让 Xbox Game Pass 用户使用 Alexa 命令下载游戏并获得有关该服务的最新更新。
 
-Watch
+
 
 目前，Alexa 集成仅适用于美国的 Xbox Game Pass 用户，但亚马逊表示，计划很快在其他国家推出该功能。Xbox Games Pass skill 可以在所有基于 Alexa 的设备上工作，包括 Echo 智能扬声器、Echo Buds，通过 Alexa 应用程序在智能手机上工作，甚至可以通过 Echo Auto 在你的汽车上工作——但你需要首先启用该技能。
 

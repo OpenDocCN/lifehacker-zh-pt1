@@ -4,7 +4,7 @@
 
 当你外出旅行时，一个 USB-C 适配器是远远不够的。你可能需要至少两个 USB-C 端口——一个用于 iPhone，另一个用于给 MacBook、iPad 或其他外设充电。虽然你可以得到太多的第三方多端口充电器，但苹果从未制造过一个——直到现在。
 
-Watch
+
 
 苹果目前提供了两个双端口 USB-C 充电器，支持最高 35W 的充电(两个端口都有)。它们有两种尺寸( [标准型](https://www.apple.com/shop/product/MNWP3AM/A/35w-dual-usb-c-port-power-adapter) 和 [紧凑型](https://www.apple.com/shop/product/MNWM3AM/A/35w-dual-usb-c-port-compact-power-adapter) )，价格都是 59 美元。那太多了。还是买别的吧。
 

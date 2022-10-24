@@ -6,7 +6,7 @@
 
 虽然离开城市可能会有一些隐性成本，如果你有远程工作的特权和搬迁的资金——你可能正在寻找一种更安静、节奏更慢的美国农村生活方式——你并不孤单。根据最近的一份房地产经纪人报告，5 月份农村房屋搜索量上升了 15%。](https://www.cnn.com/2020/08/31/success/leaving-the-city-for-suburbs/index.html)
 
-Watch
+
 
 有了 [的最低利率](https://twocents.lifehacker.com/how-to-plan-for-interest-rates-staying-low-through-2023-1845131483) ，你也可能急于买房。但如果你正努力攒够首付，可能有一个选择你没有考虑过:美国农业部抵押贷款。以下是这些贷款需要了解的内容。
 

@@ -4,7 +4,7 @@
 
 超短锻炼计划的生命周期往往是这样的:首先，一名研究人员提出一个问题，一个令人难以置信的短锻炼可能是这个问题的答案。然后，他们做了一项研究，表明人们在做运动的同时提高了健康的某些方面。接下来，纽约时报对此进行了报道。最后，它成为 Youtube 频道上流传的一件事，并在那些认为这是一项很好的独立锻炼的人之间分享。想想 [七分钟锻炼](https://lifehacker.com/lets-revisit-the-seven-minute-workout-1843201042) ，或者更一般的。
 
-Watch
+
 
 这个生命周期中最新的狮子幼崽刚刚出生，这是一个*四秒*的训练，我在【惊喜】 [《纽约时报》](https://www.nytimes.com/2021/08/11/well/move/exercise-high-intensity-interval-training-hiit.html) 中读到过。我想我们是时候坐下来做点小小的干预了。
 

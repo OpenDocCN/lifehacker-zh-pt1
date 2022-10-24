@@ -4,7 +4,7 @@
 
 早在二月份，Bethesda 证实 [正在关闭其专有的 PC 游戏启动器](https://kotaku.com/bethesda-launcher-microsoft-pc-valve-steam-skyrim-doom-1848578696) ，并将受影响的游戏移回 Steam。现在，随着我们越来越接近 5 月 11 日的关闭，Bethesda 已经开始向 Steam 添加一些经典游戏。有些是第一次来到 Valve 的数字店面，还有三个是因为很低很低的成本。
 
-Watch
+
 
 今天， [贝塞斯达给](https://store.steampowered.com/search/?sort_by=Released_DESC&publisher=Bethesda+Softworks) 增加了五个经典称号，主要来自于 [*上古卷轴*特许经营](https://kotaku.com/lets-rank-the-elder-scrolls-games-best-to-worst-5981583) ，包括其两个不太为人知且更为隐晦的衍生产品， [*红卫兵*](https://elderscrolls.fandom.com/wiki/The_Elder_Scrolls_Adventures:_Redguard) 和 [*战阵*](https://elderscrolls.fandom.com/wiki/An_Elder_Scrolls_Legend:_Battlespire) 。这是完整的清单。
 

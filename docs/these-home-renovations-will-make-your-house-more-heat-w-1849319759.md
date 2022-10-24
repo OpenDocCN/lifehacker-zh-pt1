@@ -4,7 +4,7 @@
 
 如果你没注意到的话，我想外面很热。你住在哪里几乎无关紧要——甚至该死的*北极圈*几年前经历了超过 100 华氏度的，今年夏天热浪已经让欧洲 [、北美、非洲和亚洲](https://earthobservatory.nasa.gov/images/150083/heatwaves-and-fires-scorch-europe-africa-and-asia) 的生活难以忍受。我们知道将会有更多更频繁的热浪，带来更高的温度。虽然我们都从 [中学到了](https://lifehacker.com/impress-yourself-and-others-by-always-having-this-wit-1849314408) a [几个关于](https://lifehacker.com/beat-the-heat-with-these-refreshing-delicious-dishes-1801391993) [在极端高温下幸存](https://lifehacker.com/what-to-do-when-theres-an-excessive-heat-warning-1849148961) 的 教训，但我们已经到了阻止气候变化可能不再是一个选项的地步——现在一切都是准备和规划的问题。如果你现在因为热浪而在家里受苦，情况可能只会变得更糟。
 
-Watch
+
 
 (稍微)好消息是，你今天可以采取一些措施，至少会减轻明天热量对你房子的影响。当然，没有灵丹妙药可以让你完全无视热浪，但是有一些家庭装修可以让你的房子更能抵御热浪。
 

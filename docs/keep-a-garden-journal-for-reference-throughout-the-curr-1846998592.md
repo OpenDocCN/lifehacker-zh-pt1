@@ -4,7 +4,7 @@
 
 当你想到园艺工具时，像手套、铲子和剪刀这样的东西可能会出现在你的脑海中。但事实证明，还有一样东西对你的花园非常有价值:一本日记。在 [一篇关于 food 52](https://food52.com/blog/26192-garden-record-keeping?utm_source=salon&utm_medium=referral&utm_campaign=salonreferral)[园艺大师](https://ahsgardening.org/gardening-resources/master-gardeners/) 的文章中，纳迪亚·哈萨尼解释了原因。以下是需要了解的内容。
 
-Watch
+
 
 ### 如何挑选园艺期刊
 

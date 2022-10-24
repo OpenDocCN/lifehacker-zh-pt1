@@ -4,7 +4,7 @@
 
 Twitter 喜欢通过“借用”竞争对手的功能来创新。 [去年它是“舰队”，](https://lifehacker.com/how-to-send-a-disappearing-fleet-on-twitter-1845699408) 它自己版本的 Instagram Stories，现在 Twitter 正通过其新的“空间”与蓬勃发展的社交媒体应用 Clubhouse 竞争。
 
-Watch
+
 
 Twitter 空间是公共聊天室，任何人都可以创建和加入。主持人控制谁有发言的特权——目前最多可以有 10 个发言人参与对话——但是任何人都可以收听，而且听众的数量没有限制。Twitter 会自动记录这些对话，你可以下载长达 30 天的记录。
 

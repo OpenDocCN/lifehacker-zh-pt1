@@ -4,7 +4,7 @@
 
 今年早些时候，苹果承认它秘密抑制了旧的 iOS 设备，随后同意 [支付 5 亿美元解决集体诉讼](https://gizmodo.com/apple-settles-lawsuit-over-throttled-iphones-by-agreein-1842031957) 。数百万 iPhone 用户有资格获得部分赔付，但你只有不到一周的时间来提交索赔——截止日期是 10 月 6 日星期二。
 
-Watch
+
 
 如果您在 2017 年 12 月 21 日之前拥有(ed)以下 iPhones 之一，您就有资格获得和解:
 

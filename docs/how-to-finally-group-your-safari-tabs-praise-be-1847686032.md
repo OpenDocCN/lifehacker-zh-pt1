@@ -4,7 +4,7 @@
 
 在某种程度上，每个使用网络的人都有标签疲劳症。你可以尝试使用不同的窗口来管理它们，但这从来都不是一个好的解决方案，而且它们也不能在你的所有设备之间运行。虽然分组标签是管理无序标签的方式，但 Safari 用户就没那么幸运了。直到现在，因为你终于可以在 iPhone、iPad 和 Mac 上的 Safari 中对标签进行分组了。
 
-Watch
+
 
 随着 [iOS 15](https://lifehacker.com/36-of-the-best-new-ios-15-features-for-iphone-1847674175) 、iPadOS 15 和 macOS Monterey update 的推出，Safari 得到了重新设计，主要集中在标签组上。您可以快速创建不同的标签组，然后在所有设备之间同步。
 

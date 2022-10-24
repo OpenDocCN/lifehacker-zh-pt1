@@ -4,7 +4,7 @@
 
 盗版和偷窃是错误的。那是必然的。但是，我也认为，当公司发布限量版物品，可以对你的游戏体验产生决定性影响，但又让它们如此稀缺以至于你得到其中一个的唯一方式是从一个无良经销商那里购买时，这就是低劣的。
 
-Watch
+
 
 换句话说，现在是 2021 年。糟糕的是，我不能去任天堂商店买所有我想要的 [*凯蒂猫*角色和物品](https://kotaku.com/animal-crossing-sanrio-amiibo-cards-sell-out-immediatel-1846563900) 来玩我的*动物穿越*岛。去他妈的独家，特别是与单一零售商(Target)和实体商品(像这些 Amiibo trading 卡)相关的独家，经销商现在可以在易贝 [上以天文数字的价格](https://www.ebay.com/sch/i.html?_nkw=animal+crossing+sanrio&_sacat=0&_sop=16) 兜售。
 

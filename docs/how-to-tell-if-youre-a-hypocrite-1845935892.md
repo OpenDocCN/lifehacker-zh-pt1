@@ -4,7 +4,7 @@
 
 在某件事上公然犯错已经够糟糕的了。当你坚持努力让每个人相信你实际上是对的时，情况会更糟。面对强烈的反对意见，T4 这样做看起来不太好，最糟糕的是，这会给人留下这样的印象:你故意表现得像个无耻的伪君子。
 
-Watch
+
 
 尽管你周围的每个人都在批评你的方法，你可能仍然相信，在内心深处，你对被认可的渴望是合理的。以为例，通常低调的爱荷华州政坛目前正在上演的一幕:民主党国会众议员丽塔·哈特 [最近以总共六票](https://apnews.com/article/election-2020-iowa-mariannette-miller-meeks-elections-iowa-city-b0b8ddb4e878a54fce078ac116e3eb76) 之差输掉了她的连任竞选。鉴于共和党挑战者玛丽安·米勒-米克斯以微弱优势获胜，哈特希望重新计票。实际上，她想要第二次重新计票。具体来说，她认为美联社[在初步选举的重新计票过程中，有](https://apnews.com/article/election-2020-iowa-mariannette-miller-meeks-elections-iowa-city-b0b8ddb4e878a54fce078ac116e3eb76)[张选票被错误地排除，其他的没有被检查。](https://apnews.com/article/election-2020-iowa-mariannette-miller-meeks-elections-iowa-city-b0b8ddb4e878a54fce078ac116e3eb76)
 

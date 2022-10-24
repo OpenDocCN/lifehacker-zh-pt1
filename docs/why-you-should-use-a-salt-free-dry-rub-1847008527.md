@@ -4,7 +4,7 @@
 
 我从未买过——从未想过我会买——一种吹嘘自己“无盐”的混合调味料。(“不可能是我，”就像孩子们说的。)我爱盐——我有一个不断增加的氯化钠收藏 来证明这一点。所以当不是 [一个](https://amazingribs.com/tested-recipes/pork-recipes/perfect-pulled-pork-recipe/) ，而是 [*两个*](https://snsgrills.com/pages/pulled-pork) 烧烤的家伙建议我在我的阵亡将士纪念日猪肩肉上使用无盐擦时，我有点震惊和愤慨。(别担心，他们并没有建议我完全放弃盐罐。)
 
-Watch
+
 
 ## 烧烤时如何给肉加盐
 

@@ -4,7 +4,7 @@
 
 需要一个快速的 [脑残](https://gizmodo.com/5-sci-fi-and-horror-shorts-to-help-fill-that-no-new-mov-1843262841) ？我们有五部 [短片](https://io9.gizmodo.com/5-short-sci-fi-and-fantasy-films-to-watch-when-you-dont-1842586271) ，将带你走出你目前陷入的任何冬季恐惧，并向你展示外太空和社交媒体非常人性化的危险——以及一些涉及超能力和超自然力量的超人类故事。
 
-Watch
+
 
 * * *
 

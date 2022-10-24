@@ -4,7 +4,7 @@
 
 在你家或附近闻到煤气味是很可怕的，因为煤气泄漏会引起火灾和爆炸。正如[RP Gas Piping](https://rpgaspiping.com/blog/critical-safety-tips/gas-safety-natural-gas-explosions-are-too-common/#:~:text=Across%20the%20U.S.%20there%20are,gas%20distribution%20in%20the%20U.S.)所报告的，“在 1998 年至 2017 年期间，美国平均每年有 15 人死于与天然气分配相关的事故。”知道要寻找什么以及知道要做什么来拯救自己和自己的财产至关重要，但并不是所有的天然气泄漏迹象都是你认为的那样。以下是如何发现煤气泄漏和确保安全的步骤。
 
-Watch
+
 
 ### 天然气的工作原理
 

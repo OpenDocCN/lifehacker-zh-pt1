@@ -4,7 +4,7 @@
 
 每年三月，超过 60 支大学篮球队会在全国范围内进行比赛。自 1908 年 以来, [三月疯狂已经成为一项传统，在此期间，来自全国各地的人们聚集他们的“支架”，下注，并为他们喜欢的球队加油。2019 年 3 月疯狂共有](https://www.ihsa.org/Sports-Activities/March-Madness-Experience/March-Madness-History)[1050 万观众](https://www.statista.com/statistics/251560/ncaa-basketball-march-madness-average-tv-viewership-per-game/) 。去年的这个时候，新冠肺炎把我们都送进了隔离区，而 [也终止了备受期待的](https://www.ncaa.com/live-updates/basketball-men/d1/ncaa-cancels-mens-and-womens-basketball-championships-due) 锦标赛。然而，今年的锦标赛继续进行，20 支球队争夺冠军。像温迪这样的公司通过为你的社交活动提供免费食物来迎合这种兴奋感。
 
-Watch
+
 
 ### 获得免费饼干 3 月 18 日 - 20
 

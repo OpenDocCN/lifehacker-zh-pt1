@@ -4,7 +4,7 @@
 
 你可能还没有意识到，苹果电脑上也有 iMessage 的全部效果——即使苹果的桌面信息应用没有让它变得明显。例如，如果你想发送一条带有烟火的 iMessage 消息，你可以在 Mac 上这样做，就像在 iPhone 或 iPad 上一样。以下是如何在 Mac 上使用和发送 iMessage 效果。
 
-Watch
+
 
 ## 在 Mac 上发送 iMessage 效果需要什么
 

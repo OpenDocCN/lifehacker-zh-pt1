@@ -6,7 +6,7 @@
 
 至少，在新闻编辑室工作多年会让我相信这一点。我的报纸的前新闻编辑和警察巡逻记者*确信*[满月使人变得有点古怪](https://www.accuweather.com/en/weather-news/do-full-moons-and-supermoons-really-influence-people-and-animals-2/433601) 的传说是有一定道理的。
 
-Watch
+
 
 所以今年的万圣节将伴随着满月？那也是一个 [猎人之月](https://en.wikipedia.org/wiki/Hunter%27s_Moon) ，那也是*一个 [蓝月](https://en.wikipedia.org/wiki/Blue_moon) ？呃，怎么 2020 年。* 
 

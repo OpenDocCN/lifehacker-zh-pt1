@@ -4,7 +4,7 @@
 
 玩家们终于开始玩*埃尔登环*，这是今年最受期待的视频游戏之一。它获得了评论家的普遍好评，并在 [Metacritic](https://www.metacritic.com/game/playstation-5/elden-ring) 和 [OpenCritic](https://opencritic.com/game/12090/elden-ring) 上拥有最高的历史评论评分，但所有这些满分都无法预测 *Elden Ring* 的发布日表现不佳。
 
-Watch
+
 
 ## 什么是 *埃尔登戒指*的 PS5 保存数据 bug ？
 

@@ -4,7 +4,7 @@
 
 如果你在疫情等着，比如说，在 PBS 上看很多古董路演，因为它与 2020 年无关，你可能会想你家里的旧物品以及它们的价值。也许那个 [老式加菲猫手机](https://www.amazon.com/Kash-Gold-023659-Telemania-Garfield/dp/B00001P5D5/ref=sr_1_12?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-get-your-collectibles-appraised-1845716672&asc_source=&dchild=1&keywords=garfield phone&qid=1605810413&sr=8-12&tag=kinjalifehackerlink-20) 很值钱，但是你怎么确定呢？
 
-Watch
+
 
 ### **如何发现你的东西值多少钱**
 

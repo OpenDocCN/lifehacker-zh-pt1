@@ -4,7 +4,7 @@
 
 微软正在为 Windows 10 添加自动 HDR 功能。新设置借鉴了 Xbox Series X/S，为 DirectX 11 和 DirectX 12 游戏增加了 HDR(高动态范围)颜色和亮度级别，否则这些游戏只有 SDR(标准动态范围)。 [微软指出](https://devblogs.microsoft.com/directx/auto-hdr-preview-for-pc-available-today/) 它的自动 HDR 技术将无法与 HDR 本土的视觉效果相匹配，但使用这一功能仍然会带来更丰富多彩和更有活力的 PC 游戏——甚至那些没有考虑到 HDR 的旧游戏也会得到提升。
 
-Watch
+
 
 自动 HDR 在最新的 Windows Insider 开发频道版本(build 21337)中可用，但将在未来几周内推出 Windows 10 的稳定版本。以下是如何加入 Insider 计划并安装新的开发人员版本，以便尽早体验 HDR 车展:
 

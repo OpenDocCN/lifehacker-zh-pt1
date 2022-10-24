@@ -4,7 +4,7 @@
 
 太阳可以肆虐很多东西，从 [你的汽车](https://lifehacker.com/how-to-protect-your-vehicle-from-sun-and-heat-damage-1849077805) 到 [你的皮肤](https://lifehacker.com/how-to-tell-if-your-sunburn-might-actually-need-medical-1848996583) 。你知道吗，甚至你的眼睛也容易受到紫外线的伤害。他们是。不过，我们通常不称之为“眼睛晒伤”；我们称之为光角膜炎。但这实际上是一回事，这是个坏消息。下面是它是什么以及如何预防。
 
-Watch
+
 
 ## **什么是光角膜炎？**
 

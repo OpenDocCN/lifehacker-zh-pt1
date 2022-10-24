@@ -4,7 +4,7 @@
 
 你应该什么时候拉伸？正如健康的许多方面一样，有不同的观点，可以说，我研究了每一种观点。我在锻炼前做伸展运动，因为其他人都这么做；我已经 [放弃了锻炼前拉伸](https://lifehacker.com/the-truth-about-stretching-when-it-helps-and-when-it-d-1718270464) ，因为我觉得弊大于利；最近 [我开始欣赏拉伸可以帮助锻炼变得更好的一些方式](https://lifehacker.com/im-finally-stretching-and-i-kind-of-like-it-1848700419) 。所以让我分享一下我所学到的。
 
-Watch
+
 
 ## 锻炼前的拉伸不是强制性的
 

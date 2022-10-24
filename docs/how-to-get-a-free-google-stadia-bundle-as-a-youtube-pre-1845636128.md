@@ -4,7 +4,7 @@
 
 我不认识任何订阅 YouTube Premium 的人，但如果那是你——而且你是在 11 月 6 日或之前注册的活跃成员，而不是在你看到这篇文章后五分钟——那么你应该看看你是否能获得谷歌免费赠送的 100 美元 [谷歌体育场首映版捆绑包](https://store.google.com/us/product/stadia) 中的一个。
 
-Watch
+
 
 S 暗示 [点击这里](https://stadia.google.com/SdFGljSduV5z) 看看你是不是其中的幸运儿。即使你对谷歌 Stadia 流媒体服务不屑一顾，你至少也可以免费得到一个很棒的 PC 游戏控制器，而这也是一个很棒的东西。
 

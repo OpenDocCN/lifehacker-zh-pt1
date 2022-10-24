@@ -4,7 +4,7 @@
 
 [熬过炎热](https://lifehacker.com/how-to-stay-safe-during-a-heatwave-1835947762) 意味着保持水分充足，尤其是如果你试图在这个酷热的夏天 [坚持你的锻炼计划](https://lifehacker.com/how-to-tell-if-its-really-too-hot-to-work-out-1849321398) 。我们之前告诉过你 [你的冰柜需要水瓶](https://lifehacker.com/why-your-freezer-needs-water-bottles-1844701670) 。如果我告诉你那些水瓶需要在它们的侧面冷冻——并且以特定的角度冷冻，会怎么样？我发誓，努力是值得的。
 
-Watch
+
 
 无论你早上有一个长跑计划或者你只是想准备好最冷的水来度过这个 [热浪](https://lifehacker.com/the-7-deadly-sins-of-surviving-a-heat-wave-1849320136) ，这里有你需要优化你的冷冻水消耗的小而强大的技巧。
 

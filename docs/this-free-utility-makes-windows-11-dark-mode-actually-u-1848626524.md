@@ -6,7 +6,7 @@ Windows 11 附带了一个“黑暗模式，”但不是一个好的。它更像
 
 自动黑暗模式使 Windows 11 的黑暗模式实际上起作用，甚至包括一个全局热键功能，使启用黑暗模式只是一个 [键盘快捷键远离](https://lifehacker.com/the-new-windows-11-keyboard-shortcuts-you-should-actual-1848620565?rev=1646758800932) 。这是一个可定制的实用程序，非常值得下载。你可以在 [微软商店、](https://apps.microsoft.com/store/detail/auto-dark-mode/XP8JK4HZBVF435) 或者从开发者的 [GitHub 页面](https://github.com/AutoDarkMode/Windows-Auto-Night-Mode) 找到。在安装完，之后，开始你的定制——你可以设置它自动启用，切换你的桌面壁纸，等等。
 
-Watch
+
 
 ## 如何按计划自动运行 Windows 11 黑暗模式
 

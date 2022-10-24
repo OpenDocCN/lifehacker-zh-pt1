@@ -4,7 +4,7 @@
 
 PlayStation 5 的发布阵容包括几个“跨代”游戏，这些游戏也可以在 PlayStation 4 上使用。PS5 的端口将比 PS4 版本看起来和玩起来好得多，一些开发者让用户 [免费升级到增强版 PS5](https://lifehacker.com/which-playstation-and-xbox-games-get-a-free-upgrade-1845030096)。然而，这带来了两个重要的问题:你的 PS4 存储数据能兼容 PS5 游戏吗？你能玩你最喜欢的多人游戏吗？
 
-Watch
+
 
 这两个问题的答案都是响亮的，“视情况而定。”让我们从交叉保存问题开始。
 

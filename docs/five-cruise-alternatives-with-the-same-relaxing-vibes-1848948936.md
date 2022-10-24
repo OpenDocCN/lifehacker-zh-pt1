@@ -4,7 +4,7 @@
 
 如果你正在考虑你的下一个假期挥霍，你可能会考虑预订一艘邮轮。抛开早期疫情与游轮有关的恐怖不谈，cruis 仍然受欢迎有很多原因——它们提供了一个全包式的假期，可以搬到一系列充满异国情调的地方，只需改变航线就可以避开恶劣天气，并且提供了一系列看似无穷无尽的活动。
 
-Watch
+
 
 另一方面， [游轮吸](https://lifehacker.com/12-reasons-why-cruises-are-terrible-vacations-1848945802) 。它们是 [环境*灾难性的*](https://www.theguardian.com/commentisfree/2021/jul/08/massive-tax-exempt-cruise-ships-damage-environment) ，把你和成千上万对健康和安全持不同态度的人挤在一起，而且很少像你希望的那样包罗万象。
 

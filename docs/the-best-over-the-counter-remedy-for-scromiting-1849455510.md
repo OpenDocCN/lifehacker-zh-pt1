@@ -4,7 +4,7 @@
 
 你可能听说过“[”scromiting](https://slate.com/technology/2022/07/scromiting-weed-cannabinoid-hyperemesis-syndrome.html)，”大麻素呕吐综合征的非正式名称:一种在长期使用大麻后导致无法控制的呕吐的情况。但是，正如急诊医学博士泰勒·尼科斯最近为 [系列](https://slate.com/technology/2022/07/scromiting-weed-cannabinoid-hyperemesis-syndrome.html) 澄清的那样，这一问题需要经常吸食大麻。“这是一种罕见的情况，只有在长期每天使用大麻的情况下才会出现。这不像一个不吸毒的人出去抽了一次大麻，然后就中毒了。"
 
-Watch
+
 
 ## **阴囊瘙痒的症状**
 

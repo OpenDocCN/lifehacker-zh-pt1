@@ -4,7 +4,7 @@
 
 一个简单但值得注意的攻击正在流行的聊天服务 WhatsApp 上传播。对某些人来说,很容易做到——他们所需要的只是访问一个把你列为联系人的账户。如果你对社交网络有点敏感，上述攻击者可以很容易地接管你的 WhatsApp 账户。
 
-Watch
+
 
 F-Secure 首席风险官 [Mikko Hypponen](https://twitter.com/mikko) 提供的工作方式如下。攻击者首先进入一个 WhatsApp 账户，该账户将你*列为联系人。然后，该人试图将该帐户中的每个联系人都转换为 WhatsApp 商业帐户[。在这种情况发生之前，WhatsApp 会向你发送一条信息，要求你用一个六位数的代码确认你的新商业账户。](https://www.whatsapp.com/coronavirus/get-started-business/?lang=fb)*
 

@@ -4,7 +4,7 @@
 
 Google Meet 的 [Android](https://play.google.com/store/apps/details?id=com.google.android.apps.meetings&hl=en_US) 和 [iOS](https://apps.apple.com/us/app/google-meet/id1013231476) 应用程序提供了视频聊天服务桌面界面的简化版本。基本的控制很简单，任何在智能手机上使用过视频或语音聊天应用的人都应该很熟悉，但 Google Meet 的移动界面中隐藏了大量有用的功能和设置。我们将把它们挖掘出来，给你看几个我们最喜欢的:
 
-Watch
+
 
 ### 在会议前调整音频和视频
 

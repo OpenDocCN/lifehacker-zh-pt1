@@ -4,7 +4,7 @@
 
 如果你没听说过，有一个 [全国范围内短缺校车司机](https://thehustle.co/why-america-has-a-school-bus-driver-shortage/) 。随着数百万孩子重返面对面的学校——其中一些人一年多来第一次——这是 [给学区和家长带来的一些问题](https://www.cleveland.com/news/2021/09/bus-driver-shortage-prompts-ohio-schools-to-ask-national-guard-for-help.html) 。
 
-Watch
+
 
 在纽约市，由于某种莫名其妙的原因，我选择和我的两个学龄儿童住在一起，今年返校班车比正常的 还要混乱。尽管地区官员否认司机短缺，但《纽约每日新闻》报道称，纽约市实际签约提供公交 [的私人运输公司声称情况并非如此](https://www.nydailynews.com/new-york/education/ny-school-bus-driver-shortage-transportation-woes-20210914-scxzetu5grexxbco6m65twolwm-story.html) 。有趣的是，这对于身为父母的我来说，意味着站在街角等公交车的时间要比预计的到达时间晚一个小时。(对于我 9 岁的女儿来说，这意味着她会没完没了地抱怨旅途是多么的无聊。为了缓解我的日程安排困境，我决定买一对苹果 AirTags 放在我孩子的书包里(他们都太小了，不适合用自己的 iPhones)。我事先阅读了航空标签；我知道他们没有自己的 GPS 追踪器，但 [通过与苹果蓝牙设备](https://www.pcmag.com/how-to/apple-airtag-tips) 的网络通话来工作。但是我住在地球上人口最稠密的城市之一。当然，一辆校车在给定的通勤时间内经过足够多的蓝牙设备，以提供至少相当准确的跟踪——足够让我能够判断出公交车何时大约接近车站——对吗？
 

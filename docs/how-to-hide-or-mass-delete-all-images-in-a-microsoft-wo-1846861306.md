@@ -4,7 +4,7 @@
 
 “查找和替换”是最有趣的工具之一，可以让数据组织、固定，并处于你需要的任何最终状态，我们在 [How-To Geek](https://www.howtogeek.com/724092/how-to-quickly-remove-all-images-from-a-word-document/) 的朋友已经发现了该功能的另一个伟大用途:去除你的 Microsoft Word 文档中的图像。
 
-Watch
+
 
 至于*为什么*你会想这样做，也许你只是想看看文档的实际文本，而不是处理其他人插入的任何图像或图形。也许你的 Word 版本慢得像爬行一样*，因为文档中的所有图像都是*。你也可能只是讨厌图像；这也很好。
 

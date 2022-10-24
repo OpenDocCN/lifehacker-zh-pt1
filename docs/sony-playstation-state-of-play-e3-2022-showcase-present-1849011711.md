@@ -4,7 +4,7 @@
 
 今年我们可能不会获得 E3 奖，但这有关系吗？索尼已经举办这些活动有一段时间了，今晚的分期付款从*最终幻想*到*生化危机*到*街头霸王*到*蜘蛛侠*应有尽有。
 
-Watch
+
 
 虽然这场演出没有任何突破性的宣布，至少在我们期待 E3 的水平上，但这并不重要。 [我敢肯定那些是在本月晚些时候到来的](https://kotaku.com/the-biggest-summer-game-fest-announcements-in-six-minut-1847082300) 。现在，我们得到了一些新的*最终幻想十六*片段，我们第一次好好看看*街头霸王 6* 及其非常奇怪的职业模式，一个非常漂亮但也 [陷入困境的独立游戏](https://www.gamesindustry.biz/articles/2021-01-25-scavengers-studio-creative-director-accused-of-belittling-screaming-at-groping-employees) 的预告片，一些 VR 新闻，一个*生化危机 4* 的翻拍版，和其他许多东西，你可以在下面查看。
 

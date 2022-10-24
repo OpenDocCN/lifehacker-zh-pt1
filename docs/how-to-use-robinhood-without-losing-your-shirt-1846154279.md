@@ -4,7 +4,7 @@
 
 正如《华尔街日报》专栏作家詹姆斯·麦金托什 [最近指出的](https://www.wsj.com/articles/when-investors-forget-fundamentals-the-market-is-broken-11611055800) :去年表现最好的股票定价低于 1 美元，这很奇怪，因为一只股票的价格几乎告诉你*关于该公司的任何事情*。这种市场行为与最近使用交易应用的个人投资者的增加相吻合，用户 [因其易用性而涌向 robin hood](https://www.barrons.com/articles/what-is-robinhood-apps-next-act-its-already-mastered-the-stock-market-game-51597451777)——但应用*是否太容易使用了？业余交易者知道他们在做什么吗？*
 
-Watch
+
 
 ### **股票交易的游戏化**
 

@@ -4,7 +4,7 @@
 
 历史上，秋天是“苹果发布季”，但是像 2020 年的其他事情一样，今年事情有点不同。苹果不是在一个单一的、快速的事件中发布所有消息，而是一点一点地发布公告。上个月的直播演示都是关于[iPad 和苹果手表](https://gizmodo.com/everything-apple-announced-at-todays-watch-and-ipad-eve-1845066883?rev=1600197972133&utm_campaign=Gizmodo&utm_content=1600198110&utm_medium=SocialMarketing&utm_source=twitter) 。今天，轮到 iPhone 成为焦点了。
 
-Watch
+
 
 预计苹果将在今天的直播中展示其即将推出的 5G iPhone 12 发布会将于太平洋时间上午 10 点/东部时间下午 1 点开始，鉴于苹果最近如何举办这些虚拟活动，你会希望在它开始时收听。这将是一个更快的事件——至少，与过去几年公司更广泛的现场主题演讲相比。
 

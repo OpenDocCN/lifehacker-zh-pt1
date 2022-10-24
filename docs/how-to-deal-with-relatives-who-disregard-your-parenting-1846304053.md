@@ -4,7 +4,7 @@
 
 不遵守父母规则的祖父母是一种历史悠久的传统，但在 T2、疫情、T4 安全指导方针、社会动荡和有争议的选举等问题上的两极分化，是如今亲人之间意见不合产生更严重影响的诸多原因之一。与有亲戚的家庭相比，randma 或爷爷偷偷给父母不想让他们吃糖果的孙子孙女糖果似乎是非常愉快的事情向孩子们解释投票机如何操纵选举或者新冠肺炎疫苗 [含有撒旦的微芯片](https://www.chicagotribune.com/coronavirus/ct-covid-coronavirus-vaccine-conspiracy-myths-20201215-ubpqu26xarh75gksodmqhgnrp4-story.html) 。
 
-Watch
+
 
 这些显然是极端的例子，但美国目前的气候已经引起了不同程度的分歧，甚至对那些拥有健康大家庭关系的亲戚也是一种考验。
 

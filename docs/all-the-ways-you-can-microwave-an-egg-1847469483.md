@@ -4,7 +4,7 @@
 
 微波炉是一个有用的小器具，你可以用它制作许多精美的东西，包括[土豆泥](https://lifehacker.com/how-to-make-perfect-mashed-potatoes-in-the-microwave-1846629900)[火腿脆片](https://lifehacker.com/make-prosciutto-crisps-in-your-microwave-1846456431) ，或者整个 [羊肉卷](https://lifehacker.com/make-every-component-of-this-croquembouche-in-the-micro-1831153734) 。你也可以用它来烹饪各种各样的鸡蛋，但有些风格会比其他风格好一点。
 
-Watch
+
 
 Lifehacker 已经存在了 15 年，在这段时间里，我们已经研究了相当多的微波鸡蛋。然而，我只在这里呆了五年，所以我决定梳理一下我们的一些旧的微波炉鸡蛋帖子，看看它们是否都像人们吹捧的那样。先说我最不喜欢的。
 

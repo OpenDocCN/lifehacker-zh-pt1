@@ -4,7 +4,7 @@
 
 不是所有的 [烂片](https://io9.gizmodo.com/20-so-bad-theyre-great-movies-you-can-use-to-fight-the-1791004934) 都是一样的烂。在其 30 多年的历史中， [*神秘科学剧场 3000*](https://io9.gizmodo.com/the-19-worst-movies-mystery-science-theater-3000-ever-r-1732624992) 一次又一次地证明，通过观看以独特方式吸进聚宝盆的电影，有些比其他人更好——事实上，有些好得多，他们可以被认为是好的，如果不是真的好的话。为了纪念 [这部剧](https://io9.gizmodo.com/mystery-science-theater-3000-is-coming-back-again-1846635009) 的无数次回归，排名不分先后，以下是被 MST3K 无情嘲笑过的*最佳*电影。
 
-Watch
+
 
 * * *
 

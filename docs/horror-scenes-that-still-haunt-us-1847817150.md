@@ -4,7 +4,7 @@
 
 每个人都有这样的记忆。那一次，你正坐在电视机前或蜷缩着看一本书，突然，你手臂上的汗毛开始竖起。你开始质疑自己的安全，恐惧随之而来。 [恐怖电影](https://gizmodo.com/the-movies-that-scared-the-shit-out-of-us-1819883917) ，电视节目等等都试图让人害怕，但是，大多数时候，他们并不害怕。它们可能是 [血淋淋的或令人毛骨悚然的](https://gizmodo.com/the-55-scariest-moments-from-science-fiction-and-fantas-5955121) ，但这和合理的恐惧是有区别的。也许它只是发生了一秒钟，但当它发生时，你永远不会忘记它。
 
-Watch
+
 
 几周前，我们大多数人分享了恐怖片[](https://gizmodo.com/our-favorite-scary-scenes-from-non-horror-films-1847688064)*中让我们害怕的场景。现在，我们揭示了哪些媒体故意制造出来吓唬我们的事实。*
 

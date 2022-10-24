@@ -4,7 +4,7 @@
 
 随着 Delta COVID 变体的传播，越来越多的雇主要求员工接种疫苗。正如我们在一些引人注目的例子中所看到的，不合规导致员工要么 [被解雇](https://www.bbc.com/news/world-us-canada-58112125) 要么 [辞职](https://www.espn.com/nfl/story/_/id/31869652/rick-dennison-minnesota-vikings-assistant-refusing-covid-19-vaccine-sources-say) 以逃避指责。但这是否意味着他们仍然有权享受失业救济？简短的回答是否定的，因为法律在疫苗方面对雇主有利。以下是你需要知道的。
 
-Watch
+
 
 ## **拒绝接种疫苗是终止接种的理由**
 

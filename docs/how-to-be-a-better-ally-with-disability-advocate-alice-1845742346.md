@@ -4,7 +4,7 @@
 
 本周我们将学习残疾人权利，以及如何在残疾人活动家黄陈小萍的帮助下成为一个更好的盟友。请听爱丽丝谈论残疾人给对话带来的独特视角，非残疾人可以做些什么来促进和保护平等，以及为什么 [Crip Camp](https://cripcamp.com/) 是必不可少的观看。
 
-Watch
+
 
 爱丽丝是一名残疾人活动家、 [残疾能见度项目](https://disabilityvisibilityproject.com/) 的创始人和主任，该项目是一个与 StoryCorps 的社区合作伙伴，也是一个致力于在 2020 年扩大残疾、媒体、和文化的在线社区。她还有一个名为 [残疾可见性](https://disabilityvisibilityproject.com/podcast-2/) 的播客，最近还出版了《残疾可见性 [*:来自 21 世纪的第一人称故事*](https://disabilityvisibilityproject.com/book/) *》一书。*
 

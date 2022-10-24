@@ -4,7 +4,7 @@
 
 在我家，电影零食是一种罕见的冲突来源。我的男朋友是一个贪得无厌的甜食的动力，而我是一个无底洞，我称之为“咸脆饼干”，在看电影的背景下， [认为](https://lifehacker.com/make-your-popcorn-with-too-much-oil-1845292853) [*总是*](https://lifehacker.com/the-secret-to-perfect-homemade-popcorn-is-aluminum-foil-1844483799) [的意思是](https://lifehacker.com/you-should-sauce-your-popcorn-yes-you-should-1846811392) [爆米花](https://lifehacker.com/pulverize-seasonings-before-sprinkling-them-on-popcorn-1831437477) 。罐式玉米是完美的妥协:它是甜的，它是咸的，它是爆米花——检查，检查，检查。
 
-Watch
+
 
 我最近了解到，玉米罐头也很容易做。我不知道为什么，但我甚至没有想到这是可能的，更不用说没什么大不了的。我可能以为这个名字中的“水壶”部分指的是一种特殊的爆米花水壶，这种水壶足够结实，可以抵挡热油、融化的糖和爆玉米粒。事实证明，制作玉米罐头就像制作炉顶爆米花一样，只多了半个步骤。你所要做的就是在油中加入糖，并多注意一点火候。
 

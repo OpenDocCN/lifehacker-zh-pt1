@@ -4,7 +4,7 @@
 
 最新的任天堂 Switch 软件更新， [版本 11.0.0](https://thenextweb.com/plugged/2020/12/01/ranked-nintendo-switch-11-0-0-update-analysis-features-new/) ，可以更容易地将截图和游戏视频传输到智能手机或 PC 上。新方法比我们自游戏机推出以来被迫使用的不直观的 [发布到社交媒体然后删除的变通方法](https://thedroidguy.com/post-nintendo-switch-screenshots-facebook-twitter-1141681) 好得多，也比同样繁琐的 [“在你凌乱的书桌抽屉里找到一个 microSD 读卡器”](https://lifehacker.com/16-tech-gadgets-i-keep-in-or-on-my-desk-at-all-times-1844495681) 的方法好得多。
 
-Watch
+
 
 ### 如何将交换机截图发送到智能手机
 

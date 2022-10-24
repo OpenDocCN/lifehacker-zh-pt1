@@ -4,7 +4,7 @@
 
 你在尝试到 [在 Reddit](https://lifehacker.com/9-ways-to-become-more-anonymous-on-reddit-1848343187) 上匿名吗？如果你已经尝试过 [创建一次性账户](https://lifehacker.com/how-to-make-a-burner-account-on-reddit-even-though-the-1848336857) ，你也应该考虑定期删除你的旧 Reddit 账户，以 让更难被人利用你的帖子历史来找到关于你的信息。如果你需要走核爆路线，你可以永久删除你的 Reddit 账户，销毁你的旧帖子。
 
-Watch
+
 
 ## 在删除你的帐户之前，你应该删除所有的 Reddit 帖子吗？
 

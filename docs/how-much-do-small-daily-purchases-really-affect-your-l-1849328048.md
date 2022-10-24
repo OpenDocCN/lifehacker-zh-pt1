@@ -4,7 +4,7 @@
 
 根据最近一份来自 [西北互助银行](https://news.northwesternmutual.com/planning-and-progress-study-2022) 的 [报告显示，53%的 Gen Zers 和 52%的千禧一代受访者认为，像每天喝一杯咖啡这样的日常小额购物会影响他们的长期财务安全。认为鳄梨吐司应该为整整一代人的财务困境负责的观点多年来一直是可笑的。但是，随着对经济衰退的担忧日益逼近，每天的放纵真的会对长期财务状况产生多大影响呢？](https://news.northwesternmutual.com/2022-07-07-Study-Links-Financial-Discipline-to-Greater-Happiness-and-Better-Sleep) 
 
-Watch
+
 
 我与个人理财专家 Jen Smith 进行了交谈，她是 Instagram 上的 [、@frugalfriendspodcast](https://www.instagram.com/frugalfriendspodcast/) 、T3】和@ 、T5【现代婚姻】的共同主持人。以下是你的小消费习惯可能会对你产生的长期影响。
 

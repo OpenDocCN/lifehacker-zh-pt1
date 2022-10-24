@@ -4,7 +4,7 @@
 
 几周前，我 [摘了一扁平的兜帽草莓](https://www.instagram.com/p/CP6PvvQBUH7/) 。头套是甜的，精致的，在你加工完之前就容易变坏。我用我通常的策略喝完我的浆果。
 
-Watch
+
 
 我做了 [一种灌木](https://lifehacker.com/how-to-drink-your-way-through-your-summer-berry-haul-1837247326) ，一种 [利口酒](https://lifehacker.com/honor-your-summer-fruit-by-turning-it-into-liqueur-1847160087) ，还有一些 [乳酸发酵泡菜](https://lifehacker.com/lacto-ferment-fruits-and-vegetables-in-vacuum-bags-1845508370) (带白色和淡粉色浆果)，都很不错，但这种利口酒有些特别。我加了一根龙蒿和浆果、伏特加一起浸泡，淡淡的辛辣味和甘草味给了利口酒非常需要的味道。但这对我来说还不够，哦不——我必须去和金巴利搭配。
 

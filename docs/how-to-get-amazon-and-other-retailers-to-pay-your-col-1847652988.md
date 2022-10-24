@@ -4,7 +4,7 @@
 
 为了在紧张的劳动力市场上吸引和留住人才，亚马逊 [昨天](https://press.aboutamazon.com/news-releases/news-release-details/amazon-pay-full-college-tuition-its-front-line-employees-part-12) 宣布，他们将为其一线员工支付 100%的学费。亚马逊并不孤单——其他主要零售商，包括沃尔玛、塔吉特和星巴克，都越来越多地提供免费教育津贴，作为一种脱颖而出的方式。以下是他们提供的服务。
 
-Watch
+
 
 ## **亚马逊新教育福利的运作方式**
 

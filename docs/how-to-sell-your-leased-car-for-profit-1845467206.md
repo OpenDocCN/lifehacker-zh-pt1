@@ -4,7 +4,7 @@
 
 随着上个季度二手车销量 [飙升 15%](https://qz.com/1920249/used-car-prices-in-the-us-have-spiked-due-to-coronavirus) ，你租的车在公开市场上的价值可能比买断它的成本还要高。通过一些策略，你可以赚取差价，赚些钱。以下是你需要知道的。
 
-Watch
+
 
 ### **了解您租赁车辆的价值**
 

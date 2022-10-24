@@ -4,7 +4,7 @@
 
 你的 Roku 给你带来麻烦了吗？也许你坐下来看了一些 HBO Max，或者开始期待迪士尼+ 上的 [*鹰眼*，但是你的 Roku 出问题了。随着假期临近，我们都会有更多的时间看电视，但是如果你的 Roku 应用不工作你就不能享受电视了。幸运的是，很可能有一个修复。](https://lifehacker.com/whats-new-on-disney-plus-in-november-2021-1847892091?rev=1634663084355) 
 
-Watch
+
 
 ## 是什么导致你的 Roku 停止工作？
 

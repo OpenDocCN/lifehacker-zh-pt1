@@ -4,7 +4,7 @@
 
 随着房地产市场过热，买家越来越依赖所谓的“情书”来影响卖家的出价。问题？这些信通常是非常私人的，包括可能导致基于种族、宗教、或阶级的歧视的细节。这就是为什么美国全国房地产经纪人协会 [建议](https://www.nar.realtor/fair-housing-corner/love-letters-or-liability-letters) 无论你是买方还是卖方，都要完全避开他们。
 
-Watch
+
 
 ## **什么是“情书？”**
 

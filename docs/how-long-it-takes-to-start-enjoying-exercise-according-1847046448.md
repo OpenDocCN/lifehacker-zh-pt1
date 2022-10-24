@@ -4,7 +4,7 @@
 
 锻炼并不总是有趣的，如果你是为了健康或支持减肥目标而锻炼，这可能会感觉像一件可怕的家务。“喜欢运动的人，你是什么时候，怎么开始喜欢上运动的？”[u/daylight champion](https://www.reddit.com/user/DaylightChampion/)在 reddit 关于这个主题的许多帖子中的一个帖子中问道。以下是一些答案。
 
-Watch
+
 
 ## 通常需要几个月的时间才能开始享受锻炼
 

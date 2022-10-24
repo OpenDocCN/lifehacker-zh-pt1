@@ -4,7 +4,7 @@
 
 Android 设备有很多功能可以让你的数字生活更容易导航，其中最有帮助的就是密码管理器。
 
-Watch
+
 
 密码管理器不仅可以 [存储你的登录信息，以便顺利登录](https://lifehacker.com/how-to-get-started-with-a-password-manager-1846890484) ，它们还可以让 [更容易地为你使用的每个应用程序或网站创建强大、唯一的密码](https://lifehacker.com/your-passwords-are-worse-than-you-think-and-the-easies-1848874581) 。这一点很重要，因为黑客有很多绕过弱密码的策略，如果有人窃取你的登录信息，重复使用密码会危及多个帐户。
 

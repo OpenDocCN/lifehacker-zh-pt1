@@ -4,7 +4,7 @@
 
 去年夏天，Taco Bell 突然停止了长期的备用产品，如 quesarito，Fiesta potatoes 和 7 层墨西哥卷饼。其中两个并没有被永远驱逐 quesarito 作为应用程序内独家的和 [土豆似乎又回来了](https://lifehacker.com/learn-how-to-make-taco-bell-potatoes-because-they-will-1844608145)——但是经典的 7 层卷饼已经消失了。
 
-Watch
+
 
 这对素食主义者、纯素食主义者和任何试图少吃肉的人来说都是坏消息，但 [抖音用户 damntastyvegan 最近分享了一个简单的解决办法](https://www.tiktok.com/@damntastyvegan/video/6983011974292491526?is_from_webapp=v1&is_copy_url=1) : 订购一份芝士豆米卷饼" [户外风味](https://www.tacobell.com/blog/how-to-eat-fewer-calories)"——用蛋黄酱为基础的酱料和乳制品替换成番茄丁——并添加土豆、大米和鳄梨色拉酱。这份订单可以让你以略高于 2 美元的价格买到一份美味、馅料丰富、100%纯素食的 7 层卷饼——至少在 damntastyvegan 经常光顾的地方是这样。
 

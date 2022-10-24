@@ -4,7 +4,7 @@
 
 苹果尚未发布下一代[Apple Watch Series 7](https://gizmodo.com/the-apple-watch-series-7-is-here-1847665171)，但苹果手表最新的年度软件升级刚刚登陆。现在可以为 Apple Watch Series 3 和更高版本安装的 [watchOS 8 更新](https://gizmodo.com/with-watchos-8-apple-wants-to-help-you-chill-the-hell-1847195000) 带来了一些很酷的新功能，让你的旧 Apple Watch 感觉立即升级。这是你应该先检查的所有东西。
 
-Watch
+
 
 * * *
 

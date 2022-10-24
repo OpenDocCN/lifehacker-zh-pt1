@@ -4,7 +4,7 @@
 
 既然我们已经讨论了 [GameStop 股票疯狂](https://lifehacker.com/what-s-causing-the-gamestop-stock-trading-frenzy-1846144589) ，是时候了解一下 Dogecoin 了。为什么散户投资者 hivemind 用一只柴犬大学的狗作为吉祥物来推出这种晦涩的加密货币？为什么，为了*那个 Lolz* 。在 Reddit 和 Elon Musk 的帮助下，Dogecoin 在过去的 24 小时内 [增值了 600%](https://www.coindesk.com/price/dogecoin)。作为一种交易行为，它比 GameStop 狂潮更没有意义——但这也是重点。下面来看看是怎么回事。
 
-Watch
+
 
 ### 为什么是 Dogecoin？
 

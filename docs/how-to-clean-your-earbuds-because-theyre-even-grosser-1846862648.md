@@ -4,7 +4,7 @@
 
 导致真菌和酵母菌感染的 当你将耳塞塞入耳道时，细菌会在耳塞上滋生，更不用说明显粘在耳塞表面的耳垢了。在将耳塞拭子送出去进行分析后，内部版 甚至在经常使用的耳塞上发现了导致肺炎的细菌，如 [金黄色葡萄球菌](https://www.merckmanuals.com/home/infections/bacterial-infections-gram-positive-bacteria/staphylococcus-aureus-infections) ，而 o ne set 显示了近一百万种不同细菌培养的证据。当然，部分原因是制造恐惧——有些细菌是好的，更不用说是不可避免的了。尽管如此，我们的耳塞还是很粗糙。
 
-Watch
+
 
 那么清洁它们的正确方法是什么，我们应该多久清洁一次？让我们来看看。
 

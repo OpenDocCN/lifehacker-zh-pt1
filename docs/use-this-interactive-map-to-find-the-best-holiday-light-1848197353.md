@@ -4,7 +4,7 @@
 
 每年有几个星期，一些人决定在他们的房子和院子外面装饰上彩灯，并面对比平时更高的电费账单，以便在他们的邻居中传播一些节日的欢乐。但有时装饰最精美的房子并不位于主干道上。
 
-Watch
+
 
 在过去，你必须依靠口口相传才能找到你所在地区最像 Griswold 的房子。但是现在，[next door app](https://blog.nextdoor.com/2021/12/01/find-holiday-decorations-in-your-neighborhood-with-the-nextdoor-cheer-map/)上的一个互动地图，只要轻轻敲几下，就会给你指出正确的方向。以下是需要了解的内容。
 

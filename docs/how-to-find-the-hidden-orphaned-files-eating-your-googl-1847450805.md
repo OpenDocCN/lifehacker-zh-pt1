@@ -4,7 +4,7 @@
 
 如果你的 Google Drive 不断地莫名其妙地溢出，你可能会成为那些用户中的一员，他们可能会因为过量的隐藏、“孤儿”文件而失去存储空间。当文件的父目录被删除时，文件成为孤儿，但是文件本身没有被删除。例如，如果您将一个文档上传到朋友的 Google Drive 中的一个文件夹，但朋友随后删除了该文件夹，则您上传的文件将保留在您的 Google Storage 中，并计入您的数据限制，即使它不再可以直接访问。
 
-Watch
+
 
 虽然这是一个罕见的现象，但谷歌音乐最近的关闭极大地增加了用户在服务关闭前没有正确删除音乐和播客文件的可能性，正如这个 [reddit 线程](https://www.reddit.com/r/google/comments/oz3col/psa_google_drive_counting_old_hidden_files/) 中的用户所发现的那样。
 

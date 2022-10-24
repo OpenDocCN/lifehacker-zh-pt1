@@ -4,7 +4,7 @@
 
 你能在抖音谋生吗？是的，但这并不容易——病毒式视频平台向其创作者提供有限的广告收入，所以你需要依靠赞助的帖子、商品和成千上万的关注者，才能辞掉你的日常工作。
 
-Watch
+
 
 抖音最有影响力的人——像[【查理·达梅里奥】](https://www.tiktok.com/@charlidamelio?lang=en)【1.015 亿粉丝】 [迈克尔·勒](https://www.tiktok.com/@justmaiko?lang=en)【4240 万粉丝】和 [乔希·理查兹](https://www.tiktok.com/@joshrichards?lang=en)【2340 万粉丝】——根据福布斯 统计，他们在 2020 年都赚了至少 100 万美元。然而，这些钱大部分是通过销售商品和大品牌的赞助内容赚来的，而不是广告收入。事实上，抖音最近才开始通过其 [创作者基金](https://newsroom.tiktok.com/en-us/introducing-the-200-million-tiktok-creator-fund) 分享广告收入，内容创作者批评该基金资金不足，因为他们声称通常只有 [每天提供几美元](https://www.wired.com/story/tiktok-creators-fund-revenue-sharing-complaints/) 。
 

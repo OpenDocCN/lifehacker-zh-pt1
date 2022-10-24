@@ -4,7 +4,7 @@
 
 如果你在疫情提前取消了 StubHub 的门票，你现在有权获得全额退款。虽然 t he 公司在疫情高峰期突然采取了信用退款政策，但现在、、[作为结算](https://www.ticketnews.com/2021/09/stubhub-settles-multi-state-lawsuit-over-covid-refund-policy-changes/)、的结果，他们必须及时向您退款— 未经您同意不得改变退款政策。
 
-Watch
+
 
 ## **把钱放回 StubHub 的退款保证中**
 

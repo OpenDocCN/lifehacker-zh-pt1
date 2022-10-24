@@ -4,7 +4,7 @@
 
 愚蠢的人类，欢迎来到苍白的砂锅、放血的食物和与小吃相关的如此奇怪和可怕的传说的家园，它们很可能把你带到一个未知的领域。读者们，欢迎来到 [*基本上，如果它涉及到食物，并在晚上去颠簸，我们会涵盖它在这里。你有没有最喜欢的闹鬼的餐厅或者被诅咒的食谱？请发送电子邮件至 lstone @ the take out . com——小心。*T12】](https://thetakeout.com/a-dark-and-stormy-bite-that-time-a-bunch-of-dutch-peop-1846044366)
 
-Watch
+
 
 * * *
 

@@ -4,7 +4,7 @@
 
 虽然冷冻是保存许多食物的好方法，在它们变坏之前，有些食物根本就不能冷冻好。然而，当谈到冷冻卵子时，即使是在 Lifehacker，建议也明显是混杂的。以前我们曾经劝过 [冷冻卵子是巨痛不值得努力](https://lifehacker.com/can-i-freeze-that-a-guide-to-freezer-dos-and-donts-240887)； [我们后来说用冰块托盘冷冻鸡蛋是有效的](https://lifehacker.com/freeze-eggs-in-ice-cube-trays-to-preserve-them-longer-1537125434) 。但是取决于你如何冷冻卵子，这两种说法都可能是正确的。
 
-Watch
+
 
 关于在冰块托盘中冷冻鸡蛋的常见抱怨是它们会被卡住，很难取出来。但是你可以用一些策略来防止这种情况发生:把它们放在硅胶托盘里冷冻，或者在冰块托盘上涂上烹饪喷雾。
 

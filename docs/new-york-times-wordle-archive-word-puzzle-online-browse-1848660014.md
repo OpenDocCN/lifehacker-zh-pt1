@@ -4,7 +4,7 @@
 
 这一举动既令人惊讶又令人失望，纽约时报开始对 T2 和 T3 的前自由施加影响。正如[*Ars Technica*](https://arstechnica.com/gaming/2022/03/new-york-times-takes-down-third-party-wordle-archive/)所指出的，这种情况的第一大迹象是他们迫使一个[*word le Archive*](https://metzger.media/games/wordle-archive/)关闭。
 
-Watch
+
 
 毫无疑问，谁拥有五个字母的字谜档案。这些*时代* [花了至少一百万美元](https://kotaku.com/wordle-new-york-times-crosswords-josh-wardle-app-ios-an-1848455748) 来这样做，他们显然有权利阻止其他人举办这些比赛。与此同时，他们并不提供同等的存档服务，那些提供存档服务的人总是小心翼翼地不上传当天的谜题，以免不必要地触怒大男孩。所以是的，这是可以预测的，但它仍然从宇宙中吸取了一点魔力。
 

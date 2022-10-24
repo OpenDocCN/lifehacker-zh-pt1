@@ -4,7 +4,7 @@
 
 edge Chrome[最开始是](https://lifehacker.com/our-favorite-tips-for-microsofts-new-edge-chromium-brow-1841041653) 作为 [可敬的替代品](https://lifehacker.com/the-best-browsers-for-ad-blocking-that-arent-chrome-1835130559) 到 [谷歌 Chrome](https://lifehacker.com/yes-you-should-quit-using-google-chrome-1844408232) 在 Windows 上，但是没多久微软就把它变成了一个累赘。更重要的是，看起来 Edge 现在是在你的电脑上安装(甚至更多)微软软件的载体——当然，不需要你主动要求。
 
-Watch
+
 
 我们不喜欢臃肿的软件，或者你的电脑或智能手机上的那些预装应用。其中一些应用程序是值得的，但大多数只是占用空间，在某些情况下无法完全删除。一些公司在软件膨胀方面比其他公司更糟糕，但是微软因在 WindowsT3 中植入额外的软件而臭名昭著。现在，Windows 内部人士在测试最新的 Edge Chromium 预览版时，发现浏览器未经许可安装了 Microsoft Office web apps。
 

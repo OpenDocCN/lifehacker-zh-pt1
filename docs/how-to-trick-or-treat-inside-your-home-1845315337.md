@@ -4,7 +4,7 @@
 
 在疫情期间，每个月的育儿期都会带来一系列父母从未想过他们必须问自己的问题。我的孩子今年真的会见到他的老师吗？ *他们会摘下面具去拍学校照，对吧？*现在，当然，还有*我的孩子们可以去玩不给糖就捣蛋吗？* [应该](https://offspring.lifehacker.com/this-map-can-help-you-decide-whether-to-go-trick-or-tre-1845128409) [*他们走*](https://offspring.lifehacker.com/this-map-can-help-you-decide-whether-to-go-trick-or-tre-1845128409) *？如果他们真的去了，安全吗？如果他们不去，我会让他们错过吗？*
 
-Watch
+
 
 一位住在俄亥俄州的母亲阿莱娜·斯科特(Alaina Scott)告诉我，她有一个完美的方法，可以安全地对她 8 岁和 13 岁的孩子说“是”或“不给糖就捣蛋”:“我们都盛装打扮，轮流敲彼此的卧室门。”
 

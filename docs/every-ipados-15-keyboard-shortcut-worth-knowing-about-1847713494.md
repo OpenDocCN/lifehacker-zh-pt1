@@ -6,7 +6,7 @@
 
 随着新的 iPadOS 15 更新，苹果终于改善了使用外接键盘与 iPad 互动的方式。iPad 现在支持全局键盘快捷键，让你与应用程序和功能互动，如 [、分割视图、滑动、搁板](https://lifehacker.com/every-multitasking-feature-in-ipados-15-worth-knowing-a-1847664365) 等等。
 
-Watch
+
 
 Globe 键曾经是在多种语言之间快速切换的一种方式，或者是调出表情键盘的一种方式。它现在是键盘快捷键的一个强大的修饰符。
 

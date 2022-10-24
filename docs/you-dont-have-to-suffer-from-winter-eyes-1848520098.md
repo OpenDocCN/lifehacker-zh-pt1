@@ -4,7 +4,7 @@
 
 除了我们的 [皮肤](https://lifehacker.com/how-to-deal-with-dry-skin-in-the-winter-1848362017) 和我们的 [头发](https://lifehacker.com/everything-you-shouldn-t-do-to-your-hair-during-the-win-1848405329) 之外，冬天也会对我们的眼睛造成伤害——原因也是一样的。外面冷的时候，我们想在温暖干燥的室内呆更长时间。不幸的是，这些 [温暖干燥的条件](https://www.uabmedicine.org/-/cold-weather-woes-and-dry-eyes) 有使我们的眼睛感到干燥和烦躁的趋势。
 
-Watch
+
 
 但是，如果我们走在户外，外面有风和/或很冷，我们的眼睛会开始流泪——但不知何故会保持干燥。真的，不太理想。这里有一些关于冬季干眼症的知识，包括要寻找的症状，以及如何治疗。
 

@@ -4,7 +4,7 @@
 
 双层口罩可以提高过滤效果，疾病预防控制中心 [现在建议](https://www.cdc.gov/coronavirus/2019-ncov/your-health/effective-masks.html) 人们双层口罩或使用多层口罩*和*采取措施提高口罩的贴合性。
 
-Watch
+
 
 疾控中心表示，分层的适当方式包括:
 

@@ -4,7 +4,7 @@
 
 用更好的屏幕和更大的电池等升级改造 18 岁的任天堂游戏男孩 Advance SP 相对来说没有什么痛苦。但是 [改装 GBA SP](https://hackaday.com/2021/11/01/modded-gba-sp-does-its-best-switch-impression/) 使其作为专用的 16 位交换机，支持 Joy-Con 和 TV-out？这是一个巨大的挑战， [男子玉米片制作](https://www.youtube.com/watch?v=zHOGTgf6qlk) 不知何故让它看起来很容易。
 
-Watch
+
 
 在坚持使用游戏机近二十年的 GBA SP 粉丝中，[Macho Nacho Productions](https://www.youtube.com/channel/UC4CsqctrGOn4NTz09sAhXwQ)可能最出名的是其 [承诺的升级套件](https://gizmodo.com/the-creators-of-that-spec-d-out-game-boy-advance-sp-wil-1847663541)[为游戏机](https://gizmodo.com/this-specd-out-game-boy-advance-sp-sports-next-level-fe-1847550018) 添加了现代设施，如更大的电池、无线充电、耳机插孔和无线音频流的蓝牙支持。这个想法是拿一个经典的主机，用更现代的手持设备来提升它的速度，但是如果有人反过来拿一个现代的手持设备，用复古的 16 位图形取代 3D 高清游戏，会怎么样？世界准备好接受 GBA 开关了吗？
 

@@ -4,7 +4,7 @@
 
 几年前，一个朋友的儿子——那时他大约八岁——问我他是否能告诉我一些关于《我的世界》的事情。我自己的儿子还不到像《我的世界》那样玩游戏的年龄，所以基本上对此一无所知，我说他当然可以告诉我。我全神贯注地靠在他身上，我的朋友嘀咕道，“你会后悔的。”这个我非常喜欢的男孩接着告诉我的不是关于《我的世界》的事情，而是关于 T2 和《我的世界》的所有事情。
 
-Watch
+
 
 我发现，一个孩子想要向一个专心的成年人详细解释一个游戏的愿望并不罕见。现在我的儿子 10 岁了，他是一个狂热的玩家，玩[](https://offspring.lifehacker.com/how-to-connect-your-kids-with-their-friends-on-minecraf-1843615098)*[](https://offspring.lifehacker.com/what-is-among-us-and-why-should-you-care-1845443020)*[*【堡垒之夜*](https://offspring.lifehacker.com/is-your-kid-old-enough-for-fortnite-1833471479) 】和许多其他游戏，我学到了很多我从未真正玩过的游戏，远远超出了我的想象。他会踢上一两个回合的 [*床战*](https://www.minecraft.net/en-us/pdp?id=e5e0b70b-849c-4f99-a5fb-c220f788dd3e#:~:text=Bed%20Wars%20is%20the%20hot,get%20better%20items%20and%20win.) 或 [*蛋糕战*](https://www.mineplex.com/games/cakewars/) 长达一个月之久，然后会跟踪我到房子里的任何地方，一分一秒地告诉我，谁毁了谁的床/蛋糕，谁背叛了谁，谁是最终的胜利者。**
 

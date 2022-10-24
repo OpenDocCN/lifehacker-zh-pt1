@@ -4,7 +4,7 @@
 
 我们中的一些人 在汽车后备箱里什么也没放，而另一些人却有足够的东西放在里面，可以在车里住上几个星期。介于两者之间的是我们认为每位车主都应该随身携带的 30 样东西。
 
-Watch
+
 
 你可以购买包装好的紧急安全工具包——像 AAA 的 [这个，它包括一根充电电缆、手电筒、急救箱和许多其他物品——但 DIY 方法更令人满意，也更划算，因为你可能已经有许多这些物品了。这也不仅仅是关于紧急情况或安全，所以我们将清单按类别分开。](https://www.amazon.com/AAA-Piece-Premium-Traveler-Road/dp/B0006MQJ1G?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/30-essential-things-you-should-keep-in-your-car-1263514115&asc_source=&tag=kinjalifehackerlink-20)
 

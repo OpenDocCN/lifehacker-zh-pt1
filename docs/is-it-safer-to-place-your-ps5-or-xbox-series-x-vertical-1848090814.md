@@ -4,7 +4,7 @@
 
 [PlayStation 5 和 Xbox 系列 X 分别是](https://lifehacker.com/how-big-are-the-next-gen-consoles-1845134124) [*大*](https://lifehacker.com/how-big-are-the-next-gen-consoles-1845134124) *，*，你可能需要腾出空间将其中一台游戏机放在你的家庭影院或办公桌上。
 
-Watch
+
 
 幸运的是，你有多种选择:所有的 PlayStation 5 和 Xbox 系列 X 机型——以及较小的 Xbox 系列 S——都可以垂直或水平放置。但是这就提出了一个问题:一种方法比另一种更好吗？
 

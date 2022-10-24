@@ -4,7 +4,7 @@
 
 PlayStation Stars 程序 [是索尼为玩家](https://kotaku.com/new-playstation-rewards-program-can-give-you-money-for-1849178072) 改进的奖励系统，从今天开始对外开放。这也是你可能会想到的令人困惑的公司，它给你带来了九个不同版本的*地平线禁入西部*，并使 PlayStation Plus 成为一个 [令人困惑的多层次服务](https://kotaku.com/ps-plus-essential-extra-premium-ps1-ps2-ps3-ps4-ps5-gam-1848931479) 。这里是你需要知道的一切，关于它是如何工作的，以及你如何开始赚取积分以获得免费的 PS4 和 PS5 游戏。
 
-Watch
+
 
 * * *
 

@@ -4,7 +4,7 @@
 
 [Instagram 验证相当严格](https://lifehacker.com/how-to-get-verified-on-instagram-1828683094) 。为了获得蓝色徽章，你需要满足一系列特定的要求——所以如果 Instagram 联系你，告诉你你有资格通过验证，你可能会抓住这个机会。嗯，不要:是骗局。
 
-Watch
+
 
 似乎我们当中有坏演员在祈祷人们的愿望在 Instagram 上得到验证。据 bleeding computer 报道，Vade 的威胁分析师发现了一个骗局，让人们以为他们有资格获得 Instagram 的蓝色徽章。这个骗局始于 7 月 22 日，他们一直在*忙于*发送虚假信息。特别是在 7 月 8 日和 8 月 9 日，诈骗者向一千多个账户发送了信息。
 

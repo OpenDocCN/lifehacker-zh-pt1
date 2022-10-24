@@ -4,7 +4,7 @@
 
 Switch Online [资料片](https://kotaku.com/you-ll-have-to-pay-more-than-double-for-switch-online-i-1847871994) 本周早些时候到达， [将九款 N64 游戏](https://kotaku.com/players-have-a-ton-of-complaints-about-nintendo-switch-1847936448) 带到任天堂的便携式游戏机上。那是...不是很多，而且人们一直渴望知道还有什么经典会被送到基于订阅的图书馆。最近的数据挖掘文件提供了一些提示。
 
-Watch
+
 
 “从 N64 应用程序中进行的初步数据挖掘有些成果，”MondoMega [在本周早些时候分享从资料片文件中收集的数据电子表格的推文中写道](https://twitter.com/Mondo_Mega/status/1452826364990480386?s=20) 。"根据游戏 id，至少有 38 款 N64 游戏计划在 NSO 发售."
 

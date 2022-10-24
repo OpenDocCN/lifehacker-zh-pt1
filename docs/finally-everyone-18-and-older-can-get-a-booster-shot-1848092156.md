@@ -4,7 +4,7 @@
 
 FDA [今天授权 Moderna 和 Pfizer 增强剂用于*18 岁及以上*](https://www.fda.gov/news-events/press-announcements/coronavirus-covid-19-update-fda-expands-eligibility-covid-19-vaccine-boosters) 的所有人，CDC 的顾问小组随后提出了匹配的建议。底线是，如果你一直坚持是因为你不确定你是否有资格，你现在绝对可以去得到一个。唯一的要求是距离你第二次注射至少六个月。
 
-Watch
+
 
 (顺便说一句，如果你接种了强生疫苗，你就已经有资格接种加强疫苗了。这个时间是在你第一次注射后的两个月，而不是六个月。)
 

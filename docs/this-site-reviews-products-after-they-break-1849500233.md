@@ -4,7 +4,7 @@
 
 在研究购买什么产品时，我们开始依赖评论。毕竟，所有的东西都变得越来越贵( [或变得越来越小](https://lifehacker.com/how-to-identify-and-deal-with-grocery-store-shrinkflati-1849332746) )，你想确保你的购买是明智的。评论为你提供了购买你正在看的商品的人的真实经历，并帮助你了解它是否物有所值。也就是说，他们经常很糟糕。
 
-Watch
+
 
 ## 传统的评论不够全面
 

@@ -6,7 +6,7 @@
 
 随着房东们从 COVID 授权的驱逐禁令中走出来，租金上涨的速度比热浪温度还要快——[比收入](https://www.realestatewitch.com/rent-to-income-ratio-2022/) 快四倍，最近全国租金中位数 [首次突破 2000 美元](https://www.npr.org/2022/06/09/1103919413/rents-across-u-s-rise-above-2-000-a-month-for-the-first-time-ever) 。这些可怕的情况已经有人在考虑一个违反直觉的解决方案: [全职酒店住](https://moneyqanda.com/my-next-home-is-going-to-be-a-hotel/) 。如果你很难找到一个负担得起的住处，实际上有一些令人信服的理由来考虑这个选择——但前提是省钱不是你的主要动机。
 
-Watch
+
 
 ## **不是所有的酒店都允许长期住客**
 

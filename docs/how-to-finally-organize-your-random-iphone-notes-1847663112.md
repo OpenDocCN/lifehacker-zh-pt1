@@ -4,7 +4,7 @@
 
 标记是一种可以将基本的 notes 应用程序与强大的 notes 应用程序区分开来的功能。当谈到笔记应用程序时，你过去必须选择第三方选项(通常需要付费)才能利用这一有用的功能，但仅此而已。
 
-Watch
+
 
 在 [iOS 15](https://lifehacker.com/the-10-coolest-ios-15-features-announced-at-wwdc-2021-1847048865) 、iPadOS 15 和 macOS Monterey 中，苹果为 Apple Notes 增加了标记功能(顺便说一下，我们已经推荐了 iPhone 上的 [最佳笔记应用](https://lifehacker.com/which-note-taking-app-should-i-use-for-apple-devices-1844166294) )。最后，现在您可以用一个简单的标签来标记任何笔记，并通过点击找到与标签对应的所有笔记。
 

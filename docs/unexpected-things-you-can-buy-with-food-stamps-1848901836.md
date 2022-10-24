@@ -4,7 +4,7 @@
 
 [【SNAP】](https://www.fns.usda.gov/snap/supplemental-nutrition-assistance-program)补充营养援助计划是一项联邦倡议，旨在帮助低收入美国人获得更多食物。以前(现在仍然是随便地)被称为“食品券”计划，t 在这里经常混淆什么 SNAP 可以用来购买。有些东西是你所期望的，比如水果、蔬菜、肉类和奶制品；但是也有一些你可能没有意识到你可以使用 SNAP buy 的东西，比如礼品篮和生日蛋糕。
 
-Watch
+
 
 ## **谁有资格使用 SNAP？**
 

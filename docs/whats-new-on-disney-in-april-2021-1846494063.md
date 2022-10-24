@@ -6,7 +6,7 @@
 
 乔治·卢卡斯曾 [没有兴趣拍更多的电影](https://www.quora.com/Why-did-it-take-so-long-for-George-Lucas-to-film-the-second-Star-Wars-trilogy#:~:text=It's%20important%20to%20understand%20that,story%20he%20wanted%20to%20tell.) 。动作图 [销量下降](https://en.wikipedia.org/wiki/Kenner_Star_Wars_action_figures) 。漫画系列的 [逐渐消失](https://en.wikipedia.org/wiki/Star_Wars_(1977_comic_book)) 。在与皇帝和第二死星的高潮之战之后，那些将这三部电影变成全球大片的粉丝们无处可去，也没有什么可期待的。除了伊渥克人。1984 年，卢卡斯影业推出了一部由伊渥克人主演的电视电影《勇敢的商队》。想象一下，如果没有《星球大战》小说或电视剧——没有动画系列，没有*曼达洛人*——取而代之的是，你唯一可以期待的《星球大战》就是所谓的*博格拯救生命日。这就是 80 年代星战迷的感受。* 
 
-Watch
+
 
 意识到怀旧不在乎品味，迪士尼给你一个重温那个时代的机会，并于 4 月在 Disney+上发布了两部伊沃克人电视电影,《勇敢的大篷车》和《T2 伊渥克人:恩多之战》。它们看起来都很糟糕:低预算，不规范，俗气，直接针对没有鉴赏力的孩子。但是他们是...还是星球大战？算是吧。我是说，我们尽力了。
 

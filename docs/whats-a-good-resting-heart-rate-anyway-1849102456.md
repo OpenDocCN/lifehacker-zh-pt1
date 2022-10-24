@@ -4,7 +4,7 @@
 
 活动追踪器的无处不在意味着我们可以获得以前从未想过的健康数据，如我们走的步数、睡眠时间和实时心率。说到心率，你可能想知道，如果有的话，你的静息心率能说明你的健康状况。静息心率是你在休息 时心脏跳动的 [频率，无论是坐着还是躺着。一般来说，这要么是在早晨第一件事时测量的(当你醒来但还没有开始走动)，要么是在你休息一段时间后测量的。](https://www.heart.org/en/health-topics/high-blood-pressure/the-facts-about-high-blood-pressure/all-about-heart-rate-pulse)
 
-Watch
+
 
 ## 什么是正常的静息心率？
 

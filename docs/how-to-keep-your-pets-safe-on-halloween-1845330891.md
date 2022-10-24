@@ -4,7 +4,7 @@
 
 许多人认为宠物是他们家庭的一部分，所以他们想把宠物包括在节日庆祝活动中是有道理的。无论是在感恩节晚餐后将一些剩余的火鸡放入他们的碗里，还是包装玩具让他们在圣诞节早上撕开，这些传统通常更多地是针对人类而不是他们的宠物(但这并不是说会拒绝季节性家禽)。
 
-Watch
+
 
 这也包括万圣节。首先，有给它们穿上服装的诱惑(当然可爱，但如果你的宠物似乎不喜欢它们的服装，让它们感到紧张， [，最好跳过它](https://www.aspca.org/pet-care/general-pet-care/halloween-safety-tips#:~:text=For%20some%20pets%2C%20wearing%20a,he%20or%20she%20loves%20it.&text=Check%20the%20costume%20carefully%20for,could%20present%20a%20choking%20hazard.) )。除此之外，考虑如何在万圣节之夜和这个季节的其他时间保证你的宠物的安全也是一个好主意。以下是你需要知道的。
 

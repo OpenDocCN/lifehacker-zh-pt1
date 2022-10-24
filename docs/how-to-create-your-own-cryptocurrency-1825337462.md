@@ -4,7 +4,7 @@
 
 除非你最近几个月完全避开新闻，否则你可能听说过加密货币市场的疯狂之旅。比特币和以太币每天都在经历的巨大价值波动，而 doge coin——2013 年作为一个笑话创建的——[已经成为一种非常真实(如果不稳定的话)的资产](https://www.yahoo.com/lifestyle/dogecoin-started-joke-nobody-laughing-154125429.html) ，这在一定程度上要归功于埃隆·马斯克的 Twitter 消息和他最近在 SNL 的露面。
 
-Watch
+
 
 与此同时，中国正在 [打击加密货币交易](https://www.wsj.com/articles/chinas-latest-crackdown-on-bitcoin-other-cryptocurrencies-shakes-market-11621853002) ，美国国税局正在 [追捕尚未报告加密货币持有利润的投资者](https://www.wsj.com/articles/bitcoin-irs-comes-for-crypto-investors-who-havent-paid-their-taxes-11620937095)——因此，如果你出售或兑换了硬币，你可能会面临资本利得税或所得税。
 

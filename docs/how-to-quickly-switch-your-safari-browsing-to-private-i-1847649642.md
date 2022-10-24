@@ -4,7 +4,7 @@
 
 Safari 在 iOS 15 的 [和 iPadOS 15 的](https://lifehacker.com/the-10-coolest-ios-15-features-announced-at-wwdc-2021-1847048865) 中得到了巨大的视觉革新——苹果已经完全改变了一切(搜索栏是 [，现在在屏幕底部](https://lifehacker.com/how-to-move-safaris-search-bar-back-where-it-belongs-in-1847538847) ，对于初学者来说)。随着标签组等新功能的出现，隐私浏览模式在移除突出的“隐私”按钮后变得有些混乱。然而，在标签切换器中有一个隐藏选项*可以进入私人浏览模式——有一个快捷方式可以到达那里。*
 
-Watch
+
 
 对于外行人来说，Safari 中的隐私浏览模式就像 Chrome 中的匿名模式。当您处于隐私浏览模式时，Safari 不会记住您访问的页面、您的搜索历史记录或任何自动填充信息。
 

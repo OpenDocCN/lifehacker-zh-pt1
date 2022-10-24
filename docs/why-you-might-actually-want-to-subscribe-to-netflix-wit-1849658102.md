@@ -4,7 +4,7 @@
 
 多年来，网飞是一个没有广告的天堂。不管你流了多少，广告永远不会出现。从那以后，网飞和它所引发的流媒体行业发生了变化:除了 [打击分享账户的用户](https://www.cnbc.com/2022/04/23/how-netflixs-password-sharing-crackdown-is-likely-to-work.html) ，我们知道网飞有兴趣在平台上实现广告。好了，广告计划就快到了，你应该考虑订阅它。
 
-Watch
+
 
 ## 网飞的“Basic wwith Ads”计划有什么新进展？
 

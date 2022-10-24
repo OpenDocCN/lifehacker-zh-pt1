@@ -4,7 +4,7 @@
 
 如果你已经在一份工作上干了一段时间，却没有晋升到下一个级别——尽管你的老板多次承诺最终会升职——你可能会开始觉得自己实际上是被骗了。也许你的老板只是想让给一份(不存在的)奖励，让给你更多的工作；或者也许他们实际上没有能力坚持升职，他们也不想承认这一点。
 
-Watch
+
 
 职业教练、《如何与任何人(甚至是难相处的人)相处》[](https://www.amazon.com/Getting-Along-Anyone-Difficult-People/dp/1647821061?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/the-signs-that-you-are-never-ever-getting-that-promoti-1849646277&asc_source=&tag=kinjalifehackerlink-20)*一书的作者艾米·加洛 说:“往往是没有恶意的”。相反，这可能是因为你的老板不喜欢冲突，在应对官僚主义方面有困难， 不清楚接下来的步骤是什么，或者没有能力让它发生，或者其他原因。然而，即使他们的意图不是恶意的，“这可能会导致你停留在一个最终不是你想要的情况下，”盖洛说。*
 

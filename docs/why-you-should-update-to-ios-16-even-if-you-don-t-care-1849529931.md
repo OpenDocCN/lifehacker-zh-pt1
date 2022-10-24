@@ -4,7 +4,7 @@
 
 有 [充足的理由将你的 iPhone 更新到 iOS 16](https://lifehacker.com/26-of-the-best-new-features-in-ios-16-1849524600) 。你可以 [自定义你的锁屏](https://lifehacker.com/all-the-ways-you-can-customize-your-iphone-s-lock-scree-1849310427) 为你想要的任何东西， [编辑和撤销 iMessages](https://lifehacker.com/you-can-finally-edit-and-undo-sent-messages-on-iphone-1849167883) ，甚至 [再次查看你的 iPhone 的电池电量百分比](https://lifehacker.com/how-to-see-your-iphones-battery-percentage-all-the-time-1849389459) 。虽然这些新功能和变化值得更新，但没有一个比最新的安全更新更紧迫。
 
-Watch
+
 
 苹果最新的更新套件修补了一些安全漏洞:最新的 iPhone 和 iPad 更新修补了 11 个此类漏洞，而最新的 Mac 更新为 macOS Monterey 修补了 8 个，为 macOS Big Sur 修补了 10 个。
 

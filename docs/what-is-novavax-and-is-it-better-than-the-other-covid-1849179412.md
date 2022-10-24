@@ -4,7 +4,7 @@
 
 FDA 刚刚批准了一种名为 Novavax 的 COVID 疫苗，政府已经获得了 320 万剂[。这给了我们接种 COVID 疫苗的第四种选择。那么它是什么，它的效果如何，谁应该考虑得到它？](https://www.hhs.gov/about/news/2022/07/11/biden-harris-administration-secures-3-2-million-doses-novavax-covid-19-vaccine.html) 
 
-Watch
+
 
 与辉瑞疫苗一样，Novavax 疫苗分两次注射，间隔三周。它被授权给 18 岁以上的人，该公司表示，他们正在为儿童开发一种加强剂和疫苗。FDA 已授予 Novavax 紧急使用授权(EUA)，这与其他 COVID 疫苗首次上市时获得的名称相同。下一步是由 CDC 决定是否推荐这种疫苗。预计下周绿灯亮后，疫苗应该可以普遍使用。更新:[7 月 20 日](https://www.cdc.gov/media/releases/2022/s0719-covid-novavax-vaccine.html)T5 推荐通过。]
 

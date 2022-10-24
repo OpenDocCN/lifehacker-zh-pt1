@@ -4,7 +4,7 @@
 
 华盛顿足球队过去被称为华盛顿红人队。从 1933 年到今年早些时候，这个现已被丢弃的吉祥物存在了近一个世纪。红皮人的绰号终于寿终正寝了，但这是经过了几十年的批评和土著活动家的运动才实现的。他们的努力最终改变了对话；在改变之前，最近的媒体报道一直呼吁该团队培养轻率的种族主义文化。然而在相当长的一段时间里， [该组织的法人所有权遇到了表面上漠不关心的强烈抗议](https://bleacherreport.com/articles/1634935-dan-snyder-says-he-will-never-change-washington-redskins-controversial-name) 。
 
-Watch
+
 
 战斗继续进行，直到最后发生了变化，也许引发了某种多米诺骨牌效应:2018 年，又是在 [几十年的行动主义](https://www.smithsonianmag.com/smart-news/smithsonian-curator-weighs-cleveland-indians-decision-retire-racist-logo-180968001/) 之后，美国职业棒球大联盟的克利夫兰印第安人 [宣布吉祥物首领瓦胡](https://www.latimes.com/sports/mlb/la-sp-indians-wahoo-20180129-story.html) ， [从其制服和商品中移除了 1948 年首次出现的一幅美国土著](https://news.sportslogos.net/2018/11/19/cleveland-indians-unveil-new-uniform-cap-for-2019/baseball/) 的漫画。两年后，这个团队已经 [宣布打算放弃它的名字，](https://www.nbcnews.com/news/us-news/cleveland-reportedly-change-name-its-baseball-team-n1251070) 也是；2021 赛季后，他们就不再是印第安人了。
 

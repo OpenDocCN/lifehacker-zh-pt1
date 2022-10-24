@@ -4,7 +4,7 @@
 
 冷冻熟虾已经成为许多人的冷冻主食，因为它是一种快速简单的方式来添加蛋白质到沙拉、意大利面和任何其他食物中。但是如果它现在在你的冰箱里，你会想要检查一下标签。
 
-Watch
+
 
 这是因为 [美国美国食品药品监督管理局(FDA)宣布](https://www.fda.gov/safety/recalls-market-withdrawals-safety-alerts/avanti-frozen-foods-expands-recall-frozen-cooked-shrimp-because-possible-health-risk) 扩大召回范围，该召回最早于 2021 年 6 月发布，针对全国零售商销售的冷冻熟虾，担心其可能被沙门氏菌污染。以下是需要了解的内容。
 

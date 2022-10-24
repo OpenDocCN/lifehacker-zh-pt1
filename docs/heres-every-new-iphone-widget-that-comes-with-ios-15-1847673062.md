@@ -4,7 +4,7 @@
 
 到了 iOS 14，苹果 [终于将主屏小工具引入了 iPhone](https://lifehacker.com/every-awesome-ios-14-feature-apple-announced-at-wwdc-20-1844122040) 。虽然第三方开发者可以为他们的应用程序制作小工具，但一些最有用的是为 iOS 的原生应用程序制作的，它们支持你最有可能每天使用的功能。当你更新到 iOS 15 时，你会发现六个新的苹果制造的小工具，以及两个新的智能堆栈升级。我们去看看。
 
-Watch
+
 
 ## iOS 15 中新的苹果 widgets
 

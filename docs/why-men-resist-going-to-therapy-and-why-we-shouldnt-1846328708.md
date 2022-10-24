@@ -4,7 +4,7 @@
 
 男性会抑郁、焦虑，并与自杀的想法和冲动作斗争，但他们寻求治疗的可能性远低于女性。虽然女性更有可能向治疗师咨询，但男性经常淡化自己一阵阵的精神痛苦，并经常竭尽全力避免满足他们的心理需求，结果可能会颠覆他们和所爱的人的生活。
 
-Watch
+
 
 这种反治疗偏见如此普遍，以至于“男人宁愿做 X 也不愿去治疗”的模因在 twitter 上迅速流行起来。“男人，”一条推文暗示，“ [将真正了解古罗马的一切，而不是去治疗](https://twitter.com/lisatomic5/status/1344346004900835330?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1344346004900835330%7Ctwgr%5E%7Ctwcon%5Es1_&ref_url=https%3A%2F%2Fkinja.com%2Fajax%2Finset%2Fiframe%3Fautosize%3D1id%3Dtwitter-1344346004900835330) 。” [或者“会随便教你 6 个小时怎么开一罐豆子](https://twitter.com/bocxtop/status/1345873727318331395?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1345873727318331395%7Ctwgr%5E%7Ctwcon%5Es1_&ref_url=https%3A%2F%2Fkinja.com%2Fajax%2Finset%2Fiframe%3Fautosize%3D1id%3Dtwitter-1345873727318331395) ”或者“ [”会真的得到一个全新的女朋友，而不是去接受治疗。”](https://twitter.com/uncleburra/status/1345540616470499330?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1345540616470499330%7Ctwgr%5E%7Ctwcon%5Es1_&ref_url=https%3A%2F%2Fkinja.com%2Fajax%2Finset%2Fiframe%3Fautosize%3D1id%3Dtwitter-1345540616470499330)T11】
 

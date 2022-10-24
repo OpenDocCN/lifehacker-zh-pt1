@@ -4,7 +4,7 @@
 
 本周末，参议院将对官员们本周公布的 1 万亿美元的两党基础设施法案 进行投票。该法案包括对电动汽车充电站和公共交通等气候措施的新支出。但与应对气候危机所需的资金相比，这只是沧海一粟。 [惊喜、惊喜。](https://gizmodo.com/exxon-lobbyists-reveal-in-secret-recordings-how-they-ma-1847205392)
 
-Watch
+
 
 如果他们愿意，民主党的立法者还有一个方法可以为气候行动提供资金:U 唱 [预算和解](https://www.vox.com/policy-and-politics/2016/11/23/13709518/budget-reconciliation-explained) ，这是一个复杂的过程将允许参议院的简单多数通过一个更大、更好的气候法案。不过，至少需要说服一些参议员这样做。为了让选民更容易施加压力，现在有一个简单的方法来窃听他们的当选官员。
 

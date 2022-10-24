@@ -4,7 +4,7 @@
 
 我们都习惯于在我们的 [安卓手机](https://lifehacker.com/how-to-get-android-ps-screenshot-editing-tool-on-any-an-1823646122)[苹果设备](https://lifehacker.com/how-to-take-a-screenshot-on-iphone-x-xs-and-11-1841064538)[和电脑](https://lifehacker.com/how-to-take-a-screenshot-or-picture-of-whats-on-your-co-5825771) 上截图，但你也可以在你的智能电视或流媒体设备上截图。只是更加复杂，而且首先要看你要截图的是什么。
 
-Watch
+
 
 由于高带宽数字内容保护(HDCP)，这些设备*可以*阻止你拍摄正在观看的电影和电视节目。然而，试一试也无妨。甚至有时你需要上传设备界面的截图——例如，如果你正在进行故障诊断。
 

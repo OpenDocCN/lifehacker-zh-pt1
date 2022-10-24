@@ -4,7 +4,7 @@
 
 如果你是一个笨拙的三星粉丝并且经常发现自己乱放各种 Galaxy 品牌的设备——耳塞、手机、智能手表——三星新的“SmartThings Find”更新是必备的。即使它没有连接到手机或无线信号，它也会帮助你定位你的东西。
 
-Watch
+
 
 三星的魔法*目前只有*能与它的 Galaxy 设备一起工作，但如果你有几个这样的设备，它值得设置。在你的手机上安装 SmartThings Find，你将能够通过 wifi、蜂窝、蓝牙低能耗和超宽带跟踪的组合来找到你的其他三星 Galaxy 东西。最后两个是最大的，因为它们应该可以帮助你在设备离线时找到丢失的设备*和*给你 [比你可能从 wifi 或基于蜂窝的跟踪获得的更精确的定位](https://www.electronicdesign.com/technologies/communications/article/21800581/whats-the-difference-between-measuring-location-by-uwb-wifi-and-bluetooth) 。
 

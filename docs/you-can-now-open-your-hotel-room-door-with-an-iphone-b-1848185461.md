@@ -4,7 +4,7 @@
 
 苹果希望你的 iPhone 能打开各种各样的门。他们的车钥匙功能已经可以让你用 iPhone 解锁一些支持的汽车，如果你有 HomeKit 门锁，你也可以用 iPhone 和 Apple Watch 解锁你的家。现在，苹果开始在全球范围内推广对酒店房间钥匙的支持。
 
-Watch
+
 
 它首先在六个地方与凯悦合作(Wailea Resort 的 Andaz Maui、以凯悦为中心的 Key West Resort & Spa、Hyatt House Chicago/West Loop-Fulton Market、Hyatt House Dallas/Richardson、Hyatt Place Fremont/Silicon Valley 和 Hyatt Regency Long Beach)，但它将很快在全球增加更多酒店(根据 [TechC runch](https://techcrunch.com/2021/12/08/apple-launches-support-for-hotel-keys-in-apple-wallet-initially-with-hyatt-worldwide/) ，苹果不会提供任何即将加入的酒店的细节)。
 

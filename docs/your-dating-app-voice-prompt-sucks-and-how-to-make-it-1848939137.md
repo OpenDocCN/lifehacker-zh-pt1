@@ -4,7 +4,7 @@
 
 在推特上发布了一个笑话和一张某人在 Hinge 上给我发消息的截图后，我通读了 [许多抱怨](https://twitter.com/dietz_meredith/status/1503734598550831108) (大部分来自男性)当你在约会应用上向某人伸出手时，感觉只有两种选择: [被忽视或被嘲笑](https://lifehacker.com/clever-ways-to-start-a-conversation-on-a-dating-app-th-1848854559) 。而且有了在个人资料上录制语音信息的选项，只有 [的“被嘲笑”选项似乎越来越常见](https://lifehacker.com/avoid-these-dating-app-cliches-if-you-actually-want-to-1848704630) 。
 
-Watch
+
 
 语音提示可以让你用声音回答问题提示，而不仅仅是写一个文本答案。Hinge 的提示是为了在 bios 和图片之外更深入地展现用户的个性。做得好的话，他们可以给约会档案增加一层真实性。做错了，它们会导致瞬间向左滑动。
 

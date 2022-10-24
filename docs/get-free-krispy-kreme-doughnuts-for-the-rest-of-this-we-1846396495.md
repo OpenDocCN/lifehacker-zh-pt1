@@ -4,7 +4,7 @@
 
 传统上，你可能认为甜甜圈是一种周末食品。但是我们已经进入全球疫情一年了，时间不再有任何意义，所以你可以随时吃甜甜圈。
 
-Watch
+
 
 本周，Krispy Kreme 正在让我们的甜甜圈梦想成为现实，在他们最初的釉面甜甜圈上有 [买一送一](https://krispykreme.com/offers/2021bogodozen?utm_source=landing%20page&utm_medium=Social%20Media&utm_campaign=BOGO%202021) 的交易。以下是关于促销需要了解的内容。
 

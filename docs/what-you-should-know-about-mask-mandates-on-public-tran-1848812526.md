@@ -4,7 +4,7 @@
 
 佛罗里达州 [的一名联邦法官推翻了要求乘客在所有形式的公共交通](https://www.cnn.com/2022/04/18/politics/cdc-mask-mandate-ruling/index.html) 上戴面具的联邦法令，包括在飞机和火车上。这是不是意味着面具已经无处不在了？不完全是。
 
-Watch
+
 
 ## 联邦授权被中止
 

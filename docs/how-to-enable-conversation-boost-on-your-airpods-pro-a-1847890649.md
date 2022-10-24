@@ -4,7 +4,7 @@
 
 Conversation Boost 是 AirPods Pro 的一项新功能，专门针对那些面临听力挑战的人。这是 AirPods Pro 辅助功能的一个很好的补充，其中还包括在单个 ai rpods 中 [启用噪音消除的能力。我们将告诉您什么是 Conversation Boost，以及如何在 AirPods Pro 上启用它。](https://lifehacker.com/how-to-enable-noise-cancellation-when-you-re-wearing-a-1847492028) 
 
-Watch
+
 
 ## AirPods Pro 上的 Conversation Boost 是什么？
 

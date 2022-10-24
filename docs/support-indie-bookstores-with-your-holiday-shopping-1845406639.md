@@ -4,7 +4,7 @@
 
 疫情对独立书店并不友好。虽然印度近年来相对较好地应对了来自亚马逊和大型卖家的竞争，但由于新冠肺炎不得不关上大门，并对客户的在线订购需求作出回应，这并不容易——[，尽管美国出版协会注意到在疫情的情况下图书销售](https://publishingperspectives.com/2020/08/us-market-statistics-npd-and-aap-statshot-chart-industry-progress-covid19/) ， [书店的销售额在 8 月](https://www.shelf-awareness.com/issue.html?issue=3847&share=true#m50241) 下降了 30.7%。如果你想让独立书店继续生存下去，考虑将你的一些节日礼物购买预算投向你当地的独立书店。这一季我们总结了一些支持印度队的方法。
 
-Watch
+
 
 不过，请注意:如果你打算购买礼品书籍和与书籍相关的物品，现在就开始购物和订购吧。独立书商总是可以得到你的支持——提前订购可以帮助他们管理库存，满足假期前的需求。
 

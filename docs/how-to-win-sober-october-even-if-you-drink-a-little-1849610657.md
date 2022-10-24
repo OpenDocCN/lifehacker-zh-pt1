@@ -4,7 +4,7 @@
 
 正如你可能从名字中猜到的，戒酒十月是一项旨在让人们停止饮酒一个月的努力。它始于 2014 年，为英国 的 [麦克米伦癌症支持筹款，并已发展成为一种全球趋势，或许是由于伴随 COVID 而来的](https://www.macmillan.org.uk/healthcare-professionals/for-your-patients/support?&infinity=ict2~net~gaw~ar~560267547252~kw~cancer%20support%20worker~mt~b~cmp~g_ps_hcp_uk_gen_cancer+healthcare+pro_b~ag~cancer+support+worker&gclid=cj0kcqjwkoqzbhdnarisaacsbflpi8zcfhtiqqufyidtq_0dibvgmouzbh7etirpqcspzo80s17cu90aasuvealw_wcb&gclsrc=aw.ds) [酒精消费量的增加。](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC7763183/) 
 
-Watch
+
 
 还有其他流行的“干燥”月活动——干燥的七月，干燥的一月——但我认为十月是一年中 30 天旅行的最佳时间。就在感恩节和圣诞节之前，你可能会喝一些额外的酒，冬天的来临会鼓励严肃、清醒和自我评估。另外，“清醒的十月”押韵。
 

@@ -4,7 +4,7 @@
 
 微软最近为消费者级 Windows 用户的微软账户增加了无密码登录选项，包括任何使用 Windows 10 家庭版的人，以及即将推出的 Windows 11 家庭版。在这一变化之前，无密码登录是企业级 Windows 用户的专属，但所有用户现在都可以从他们的 Microsoft 帐户设置中选择。
 
-Watch
+
 
 通过启用此选项，用户可以使用他们的 Microsoft 帐户而无需密码。取而代之的是，你将使用另一种认证方法登录你的帐户，以及少数需要它的应用、服务和 Windows 功能，例如微软认证应用、 [Windows Hello](https://lifehacker.com/use-windows-hello-to-make-online-shopping-faster-in-chr-1844574402) 或文本/电子邮件验证码。支持的产品包括:
 

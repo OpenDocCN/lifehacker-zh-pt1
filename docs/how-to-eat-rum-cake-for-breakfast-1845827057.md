@@ -4,7 +4,7 @@
 
 这是一个证据充分的事实，即咀嚼食物的主要好处之一是随后纹理表面积的增加。这些峰和谷提供了松脆、松脆和(有时)焦糖化，同时也充当了小酱库。但是华夫饼干熨斗更深层次的魔力在于它能让任何东西“适合早餐”
 
-Watch
+
 
 早餐想吃 [一个蛋卷](https://lifehacker.com/we-re-waffling-egg-rolls-for-breakfast-because-why-not-1844667126) (并让它感受早餐-y)？华夫饼熨斗会覆盖你。那么 [磅饼](https://skillet.lifehacker.com/you-should-waffle-slices-of-frozen-pound-cake-1844357285) 呢？ [通心粉奶酪](https://skillet.lifehacker.com/you-should-waffle-leftover-mac-and-cheese-1842567738) 怎么样？一旦食物被华夫饼化，它看起来*像华夫饼*，这是早餐食品，这意味着华夫饼食品现在是早餐食品。我称之为“波动转移法则”，我将向许多优秀的学术期刊提交一篇关于这个主题的论文。
 

@@ -4,7 +4,7 @@
 
 更新的 COVID 加强疫苗现已正式获得 FDA 和 CDC 的 [授权](https://www.fda.gov/news-events/press-announcements/coronavirus-covid-19-update-fda-authorizes-moderna-pfizer-biontech-bivalent-covid-19-vaccines-use)[推荐](https://www.cdc.gov/media/releases/2022/s0901-covid-19-booster.html) 。有一种辉瑞增强剂适用于 12 岁及以上，还有一种 Moderna 增强剂适用于 18 岁及以上。新的疫苗取代了那些年龄组的现有疫苗，并且有一套新的规则来确定你是否应该接种疫苗——不再需要计算你已经接种了多少剂量。
 
-Watch
+
 
 该过程的最后一步是周四由 CDC 免疫实践咨询委员会召开的会议，会上专家们讨论了证据并投票赞成为符合条件的年龄范围内的每个人推荐新的加强剂。疾控中心主任随后正式发布建议，一旦药店可以获得库存的新疫苗，就可以预约二价加强剂。
 

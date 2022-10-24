@@ -4,7 +4,7 @@
 
 AirPods Pro 太容易丢下了。是的，你可以通过“查找我的应用程序”追踪你丢失的 AirPods Pro，但现在你可以帮助阻止问题发生: Y 我们的 iPhone 可以在你忘记带 AirPods Pro 时通知你。
 
-Watch
+
 
 iOS 15 为 iPhone、iPad、Mac 和许多其他苹果产品带来了新的分离提醒功能，而新的固件更新为 AirPods Pro 带来了相同的功能(尽管常规 AirPods 不支持，不幸的是)。
 

@@ -4,7 +4,7 @@
 
 核心力量很重要:当我们提着袋杂货、 [从地板上爬起来](https://lifehacker.com/why-sitting-on-the-ground-can-be-good-for-your-health-1848563060) 、推开一扇门、或者打一个出气筒时，我们会用到它。但是太多时候，我们认为“核心”训练是专门用仰卧起坐或木板做的。真遗憾，因为我们的内核比做得更多。
 
-Watch
+
 
 如果你只做仰卧起坐— [认为你会得到六块腹肌](https://lifehacker.com/everybody-is-lying-about-how-to-flatten-your-belly-1819778439) — 你就像那些因为无聊或“忘记”而从不做任何核心工作的人一样短视因此，如果你想建造一个更坚固的上腹部，试着换一种方式思考。
 

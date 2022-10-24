@@ -4,7 +4,7 @@
 
 这里不乏声称提供学习一门新语言的最佳方式的应用程序和在线课程。无论你是想温习你的高中西班牙语还是想从头开始，你都可以求助于 Duolingo(它已经被指控掠夺用户的个人数据)或者付费的选择，比如 Rosetta Stone 或者 Coursera，b
 
-Watch
+
 
 [外交学院](https://www.state.gov/bureaus-offices/under-secretary-for-management/foreign-service-institute/)【FSI】培训为美国政府服务的海外专业人士，以其出色的外语教学而闻名——a 和 y 你可以免费获得其课程材料和详细的音频说明。
 

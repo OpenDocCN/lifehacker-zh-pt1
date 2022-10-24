@@ -6,7 +6,7 @@
 
 [正如我们过去报道过的](https://lifehacker.com/why-you-should-stop-using-hydrogen-peroxide-1766020849) ，最好用肥皂和水来处理你的擦伤和割伤。过氧化氢应该和你的清洁用品放在一起，而不是放在你的医药箱里。这里有更好的使用过氧化氢的方法，不会伤害你的皮肤。
 
-Watch
+
 
 ### 消毒剂(但不是洗手液)
 

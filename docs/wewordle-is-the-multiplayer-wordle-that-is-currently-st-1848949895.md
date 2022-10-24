@@ -4,7 +4,7 @@
 
 如果你是一个好胜型的人，只是简单地给你的父亲和朋友发短信，你的分数对你来说并不重要，你可以试试模仿世界:[WeWordle](https://wewordle.org/)的最新版本。WeWordle 让你在网上与他人竞争——让你想起过去与朋友一起玩 [Words 的日子](https://wordswithfriends.com/) ，除了增加了每回合 15 秒的超短时间限制。
 
-Watch
+
 
 ## 又一个字敲掉了？
 

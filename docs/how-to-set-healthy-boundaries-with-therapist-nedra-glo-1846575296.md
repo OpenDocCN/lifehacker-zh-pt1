@@ -4,7 +4,7 @@
 
 本周，在治疗师兼人际关系专家 Nedra Glover Tawwab 的帮助下，我们将学习如何认识自己的界限，并加强界限。内德拉是《纽约时报》畅销书的作者， [*【设定界限，寻找平静:重塑自我指南】*](https://www.amazon.com/Set-Boundaries-Find-Peace-Reclaiming/dp/0593192095?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-set-healthy-boundaries-with-therapist-nedra-glo-1846575296&asc_source=&tag=kinjalifehackerlink-20) 。听听 Nedra 的建议，如何处理困难的边界对话，如何在感觉不好的时候坚定立场，以及如何帮助我们自己和我们爱的人摆脱相互依赖的关系。
 
-Watch
+
 
 另外，请继续收听 Alice 的特别告别片段，她将于本周离开 Lifehacker 和升级版。我们会非常想念她的！
 

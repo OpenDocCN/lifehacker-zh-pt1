@@ -4,7 +4,7 @@
 
 芦荟是一种肉质植物，通常用于凝胶、面霜、软膏和洗手液中，而 T2 使用 T4 使用[几千年](https://www.ncbi.nlm.nih.gov/pmc/articles/PMC2763764/#:~:text=History,%2C%20Mexico%2C%20Japan%20and%20China.&text=Egyptian%20queens%20Nefertiti%20and%20Cleopatra,it%20to%20treat%20soldiers'%20wounds.) 、T8 现在它被用来缓解晒伤症状或治疗割伤和抓伤。你可能认为它很难种植或护理，但芦荟是一种普通的室内植物，非常容易种植和收获。以下是如何护理自己的。
 
-Watch
+
 
 ## 如何盆栽芦荟植物
 

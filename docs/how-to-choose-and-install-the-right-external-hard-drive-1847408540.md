@@ -4,7 +4,7 @@
 
 索尼最近披露了将 PlayStation 5 的内部存储 升级为 M.2 固态硬盘(SSD)的要求，这令人感到非常困惑。虽然有几个固态硬盘在理论上符合索尼的要求，但目前只有少数驱动器 [可以在 PS5](https://www.videogameschronicle.com/news/ps5-architect-mark-cerny-has-revealed-his-ssd-of-choice/) — 上工作，而且那些驱动器都非常昂贵。在某些情况下，用户可能会通过添加散热器来增强 SSD 的冷却能力——这是一个额外的步骤，感觉更符合硬核 PC 的构建，破坏了家用游戏机的即插即用简单性。
 
-Watch
+
 
 幸运的是，有另一种方法来扩展 PS5 的存储空间，那就是使用更容易实现的外置硬盘。
 

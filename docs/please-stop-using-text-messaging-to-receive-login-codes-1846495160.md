@@ -4,7 +4,7 @@
 
 本周，一个来自 [Vice](https://www.vice.com/en/article/y3g8wb/hacker-got-my-texts-16-dollars-sakari-netnumber) 的惊人故事揭示了攻击者窃取你的短信是多么容易。他们不需要接触你的手机；他们甚至不需要你的 SIM 卡。他们只需要支付一笔微不足道的费用，让一个 VoIP 批发商相信他们是经销商(也是小事一桩)，并签署一份表格，保证他们可以将你的号码发送的信息发送给另一个号码。
 
-Watch
+
 
 正如作者 Lucky225 在 [中](https://lucky225.medium.com/its-time-to-stop-using-sms-for-anything-203c41361c80) 上写的:
 

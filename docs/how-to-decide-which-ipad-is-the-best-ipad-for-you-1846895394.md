@@ -4,7 +4,7 @@
 
 今天登陆苹果网站，你会看到四种不同的 iPad 型号，每一款都有多种规格可供选择。哪个适合你？为什么 [iPad Pro](https://gizmodo.com/apple-takes-the-wraps-off-the-m1-ipad-pro-with-miniled-1846719223) 看起来如此相似，却比 iPad Air 贵这么多？真的有人需要 iPad m ini 吗？我们将回答所有这些问题以及更多问题。
 
-Watch
+
 
 需要注意的是，这些苹果平板电脑中有一部分运行的是开箱即用的 [iOS 14](https://gizmodo.com/17-things-you-can-do-in-ios-14-that-you-couldn-t-do-bef-1844975020) ，它们都将在今年晚些时候升级到[iOS 15](https://gizmodo.com/ios-15-will-reportedly-bring-big-changes-to-notificatio-1846739203)。当谈到它们在软件方面可以做什么时，这些设备基本上是相同的，所以你需要知道的实际上是硬件差异。
 

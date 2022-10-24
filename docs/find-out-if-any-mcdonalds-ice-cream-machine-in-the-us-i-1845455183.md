@@ -4,7 +4,7 @@
 
 生活的残酷之一是当你想吃冰淇淋时却不能点冰淇淋。尤其是当你想吃的时候，你当地麦当劳的软贩卖机似乎总是在对自己进行巴氏杀菌——或者甚至是一个 [冰淇淋三明治](https://www.myrecipes.com/extracrispy/mcdonalds-secret-menu-ice-cream-bun) 。
 
-Watch
+
 
 软件工程师来拯救。 [拉什克·扎希德](https://twitter.com/rashiq) 今天发布了一款 [网络应用](https://mcbroken.com) ，该应用使用麦当劳点餐 API——当然是逆向工程——来查询美国的每一家麦当劳。假设一家商店已经正确地指示冰淇淋不可用，并且它的冰淇淋机不工作，它将在 McBroken 地图上显示为一个小红点:
 

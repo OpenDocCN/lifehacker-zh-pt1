@@ -4,7 +4,7 @@
 
 [经过四个月的内测](https://lifehacker.com/how-to-get-android-13-on-your-pixel-1848848786) ，Android 13 终于来了。这款代号为“ [提拉米苏](https://www.androidauthority.com/android-13-codename-3106388/) ”的软件现已面向许多安卓用户推出，它包含了谷歌在过去一年中酝酿的 [许多新功能和变化](https://lifehacker.com/all-the-new-android-features-announced-at-google-i-o-1848912756) 。
 
-Watch
+
 
 也就是说，尽管 Android 13 的名字中有一个整数，但它并不是一个功能特别丰富的更新。如果你的手机甚至支持 Android 的第十三次迭代，不要指望它会彻底改变你的移动体验。不过没事！这次更新给 Android 带来的改变是受欢迎的，也是必要的:从 Material You 扩展到强大的安全更新，Android 13 是所有支持它的手机的必备。
 

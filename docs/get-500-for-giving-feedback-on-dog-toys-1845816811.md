@@ -4,7 +4,7 @@
 
 当然，养狗会带来无数的精神上的[身体上的健康益处](https://lifehacker.com/a-dog-can-help-you-get-all-the-exercise-you-need-1796230382)——更不用说在人们可能连续几个月孤独的时候陪伴他们了。但是那只珍贵的小狗有没有为家庭开支做出过贡献呢？大概不会(除非他们受雇为讨厌接收邮件的人当看门狗)。好吧，现在是他们赚钱的机会了。以下是你的狗朋友如何帮助你 [因对狗玩具](https://www.wishlisted.com/dog-subscription-box-tester/) 给出反馈而获得 500 美元。
 
-Watch
+
 
 ### 这个职位需要什么
 

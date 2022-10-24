@@ -4,7 +4,7 @@
 
 根据宝洁公司(P & G [发布在食品药品监督管理局(FDA)网站](https://www.fda.gov/safety/recalls-market-withdrawals-safety-alerts/pg-issues-voluntary-recall-aerosol-dry-conditioner-spray-products-and-aerosol-dry-shampoo-spray?utm_medium=email&utm_source=govdelivery) 上的一份通知，宝洁公司(P & G)在召回其多种气雾剂止汗剂 仅几周之后，就发布了一份自愿召回其部分气雾剂干洗发水和护发素喷雾剂的通知。被召回的产品含有 [苯](https://www.atsdr.cdc.gov/sites/toxzine/docs/benzene_toxzine.pdf)——一种化学物质，当被发现含量过高时， [可致癌](https://emergency.cdc.gov/agent/benzene/basics/facts.asp) 。以下是关于召回需要了解的内容。
 
-Watch
+
 
 ## 召回包括哪些内容
 

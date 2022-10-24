@@ -4,7 +4,7 @@
 
 每一代新的孩子都想出了自己的俚语，听起来可能有点可笑，而且常常让上一代人感到困惑。近年来，我不得不学习“yeet”是什么意思，以及一个“[”VSCO 女孩](https://offspring.lifehacker.com/a-parents-guide-to-vsco-girls-1839095762) ”到底是什么。我知道，当你认为我们当中的某个人是《T4》[里的冒名顶替者](https://offspring.lifehacker.com/what-is-among-us-and-why-should-you-care-1845443020) ，那是因为他们的表演相当于 *sus。但是我最近了解到的一个新问题起初看起来很无辜——直到我做了更深入的研究。孩子们称人和事物为“derpy”，这并不酷。*
 
-Watch
+
 
 我第一次从我 10 岁的孩子那里听到这个词，他使用这个词的方式让它听起来像是“傻”或“高飞”的同义词。当我问他是不是这个意思时，他说是的，但也有点“愚蠢”这最后一个花絮让我去寻找澄清，我发现虽然韦氏词典不承认“derpy”是一个单词，但 [字典。com](https://www.dictionary.com/browse/derp) 说是“愚蠢或笨拙”的意思， [都市词典](https://www.urbandictionary.com/define.php?term=Derpy) 将其定义为“可笑、随意或愚蠢”。
 

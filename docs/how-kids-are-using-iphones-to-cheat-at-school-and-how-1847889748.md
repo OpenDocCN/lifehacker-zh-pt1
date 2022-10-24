@@ -4,7 +4,7 @@
 
 这段来自抖音的 [视频最近在网上疯传](https://www.tiktok.com/@yannbernillie/video/7013334258051845381?is_copy_url=1&is_from_webapp=v1) 。在其中，一个演讲大厅中的一名学生使用苹果新的 Live Text 功能拍摄另一名学生的笔记本电脑屏幕，然后将图片转换为文本并保存，从而“窃取”了另一名学生的笔记。
 
-Watch
+
 
 虽然从 [《新闻周刊》](https://www.newsweek.com/student-shows-internet-how-cheat-during-class-new-iphone-feature-1639590) 到 [《纽约邮报》](https://nypost.com/2021/10/15/tiktok-video-shows-kids-how-to-cheat-using-this-iphone-feature/) 的新闻机构都将该视频描述为学生“作弊”，但这看起来更像是一个很酷的新功能，而不是什么超级不道德的事情。我们不知道视频中的学生是否得到了笔记记录者的许可，但即使他们没有，这也不是作弊，就像走私考试答案或在 [一些无聊的网站](https://nerdifyit.com/students-1) 付钱给某人写你的生物论文是作弊一样。
 

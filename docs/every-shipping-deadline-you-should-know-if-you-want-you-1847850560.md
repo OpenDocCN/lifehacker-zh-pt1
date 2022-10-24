@@ -4,7 +4,7 @@
 
 为了避免与 COVID 相关的运输延迟，您需要在今年早些时候完成假日购物并邮寄礼物。为了帮助你做到这一点，美国邮政、联邦快递和联合包裹服务公司已经公布了他们推荐的圣诞礼物送达日期。以下是基于承运人的日期。
 
-Watch
+
 
 ## 如果您使用 [USPS](https://about.usps.com/newsroom/national-releases/2021/1007-new-for-the-holidays-prices-shipping-rates-and-dates.htm) 发货
 

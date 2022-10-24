@@ -4,7 +4,7 @@
 
 索尼可能已经通过其最近详细的 PS Plus 改造引起了轰动，但 Game Pass 继续扩大其图书馆。公园建造者*侏罗纪世界进化 2* 显然是一个主要的吸引和奖励！—今天出来。本周晚些时候，Game Pass 还将获得年度最佳游戏之一的:*吸血鬼幸存者*。 [这里是未来几周 Xbox Game Pass 的一切](https://news.xbox.com/en-us/2022/05/17/game-pass-may-2022-wave-2-update/):
 
-Watch
+
 
 **5 月 17 日**
 

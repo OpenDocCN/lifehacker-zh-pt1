@@ -4,7 +4,7 @@
 
 当我第一次看到 [这篇 Bon Appé tit 文章](https://www.bonappetit.com/story/spicy-jalapeno-rose) 建议我在我的玫瑰红葡萄酒中加入墨西哥胡椒片时，我想过要生气，但后来我想起来是我建议 [在你的劣质啤酒](https://lifehacker.com/put-a-pickle-in-your-shitty-beer-1844405458) 中加入泡菜。(我只是太累了，无法激起任何真正的愤怒。)
 
-Watch
+
 
 当你想到市面上有太多的辛辣鸡尾酒时，在一杯廉价葡萄酒中放几片胡椒并不算极端。根据 Bon Appétit 的说法，这种做法——由抖音用户 [Allyssa 在厨房](https://www.tiktok.com/@allyssainthekitchen?referer_url=https%3A%2F%2Fwww.bonappetit.com%2Fstory%2Fspicy-jalapeno-rose&referer_video_id=7085079892865322283&refer=embed&referer_url=https://www.bonappetit.com/story/spicy-jalapeno-rose) 中流行起来——开始几乎是一个笑话:
 

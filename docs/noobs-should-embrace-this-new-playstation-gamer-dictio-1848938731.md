@@ -4,7 +4,7 @@
 
 我坚信游戏机和电脑游戏适合每个人，但是说实话:人们谈论视频游戏的行话会让 T2 很难养成这个爱好。
 
-Watch
+
 
 除非你沉迷于电子游戏世界，一句像“最新补丁削弱了游戏结束时怪物的 HP 等级，但使仇恨触发 OP”将毫无意义，但许多游戏玩家一直这样说。当每个指南、文章、YouTube 视频或游戏内聊天信息都充满你不理解的单词时，你很难进入一个新游戏， [从“rogue like”到“metroidvania”](https://lifehacker.com/from-soulslikes-to-roguelites-12-video-game-genre-name-1848663846)
 

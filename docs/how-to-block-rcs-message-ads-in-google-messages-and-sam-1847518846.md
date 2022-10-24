@@ -4,7 +4,7 @@
 
 谷歌的 RCS 聊天短信协议是 [快速取代了](https://lifehacker.com/whats-rcs-messaging-and-why-should-you-care-1832235783) 我们已经坚持了几十年的过时短信。RCS 在 Android 上实现了大量用户友好的功能，如阅读回执，当对方打字时的实时通知，以及 [端到端加密](https://lifehacker.com/how-to-enable-end-to-end-encryption-in-google-messages-1845845418) 。你知道，iMessage 和 WhatsApp 用户已经用了很多年的东西。
 
-Watch
+
 
 RCS 显然也让公司更容易向 Android 用户做广告，因为企业可以被“验证”，这赋予他们许多特权，包括发送大量 RCS 消息广告的能力。
 

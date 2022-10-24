@@ -4,7 +4,7 @@
 
 上周，针对 Pixel 设备 的完整版 [Android 12 在发布，我们在过去几天测试了这款操作系统，熟悉了它的新界面、功能和设置。不是对 Android 11 的*巨大*偏离，但有几个变化和新功能值得一说。](https://blog.google/products/android/android-12-beta/) 
 
-Watch
+
 
 ### 得益于您设计的新材料，全新的外观和感觉
 

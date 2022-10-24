@@ -4,7 +4,7 @@
 
 理想的早晨惯例帮助你开始新的一天 [感觉有成就、有能力，并准备好处理你面前的一切](https://lifehacker.com/why-you-need-a-morning-ritual-not-just-morning-routine-1790830421) 。那是一种美妙的感觉，但是你可能没有精力每天做一个复杂的例行公事。 [一身寒意，极简的早晨常规](https://lifehacker.com/ease-up-on-your-morning-routine-1831875238) 也有它的好处。与其试图找到完美的平衡，也许你需要不止一套套路。
 
-Watch
+
 
 Redditor u/marlene-leonora 建议 [解决这个问题的方法是有三个套路](https://www.reddit.com/r/LifeProTips/comments/obj0qf/lpt_if_youre_constantly_making_a_routine_and/) ，我觉得很天才。一套常规适用于你精力不足的时候，一套适用于你渴望出发的时候，还有一套适用于你感觉处于- 之间的时候。如果你只有完成最低限度的精力，你仍然做了一些事情，你不会感到失败。你只需选择与你一天的能量相匹配的例行程序。
 

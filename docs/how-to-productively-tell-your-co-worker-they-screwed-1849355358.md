@@ -4,7 +4,7 @@
 
 你肯定经历过称赞三明治的两面——它是 [被高估的想法](https://lifehacker.com/stop-giving-shit-sandwich-feedback-and-what-to-do-inst-1848671782) 到 [给予更好的反馈](https://lifehacker.com/give-effective-feedback-by-focusing-on-the-positive-1834166937) ，你应该在前后夹入正面的核心批评。寻找赞美是很容易的(即使你需要到处美化事实)。当你纠结于三明治的肉时，那些需要改进的地方呢？
 
-Watch
+
 
 尤其是当你和在工作中犯了错误的人打交道时，你希望你的反馈足够详细，让对方有具体的方法前进。使用以下几点来增加反馈的针对性，以便您的同事或员工能够真正地学习、成长和提高。
 

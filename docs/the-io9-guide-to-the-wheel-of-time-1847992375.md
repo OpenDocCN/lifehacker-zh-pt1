@@ -4,7 +4,7 @@
 
 这是有史以来最大的奇幻系列之一——不仅仅是受欢迎程度。 [罗伯特·乔丹](https://gizmodo.com/the-wheel-of-times-first-trailer-brings-robert-jordans-1847601801) 的 15 本书跨度超过 [11，000 页](https://en.wikipedia.org/wiki/The_Wheel_of_Time#Books_in_the_series) 的冒险、传说和世界建设，读起来会令人难以置信地害怕。或许这甚至让你对亚马逊即将推出的 [系列的电视改编](https://gizmodo.com/amazons-wheel-of-time-will-take-a-blended-approach-to-t-1845795092) 产生了戒心。如果这是真的，不要害怕——这本 io9 指南会告诉你你需要知道的一切。不可否认，这仍然有点多，但是比 11，000 页要少得多。
 
-Watch
+
 
 欢迎回到 [io9 指南](http://io9.com/tag/io9-guide) 系列，在这里我们带着 [入门但全面的](https://gizmodo.com/the-io9-guide-to-he-man-and-the-masters-of-the-universe-1847186418) 看看 [科幻](https://gizmodo.com/the-io9-guide-to-doctor-who-1709344756) 、恐怖 [奇幻](https://gizmodo.com/the-io9-guide-to-discworld-1698768077) 的无数宇宙。这些指南针对的是寻求快速复习的外行人，以及想要讨论某个主题的意义和基本知识的有经验的粉丝。
 

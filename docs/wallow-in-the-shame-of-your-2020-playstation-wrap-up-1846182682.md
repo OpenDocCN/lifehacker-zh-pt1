@@ -4,7 +4,7 @@
 
 如果你好奇你实际上花了多少时间通过视频游戏 试图逃离 2020 年的地狱，你的 PlayStation 知道。索尼刚刚推出了其官方的“PlayStation 总结”页面，让 PlayStation 4 和 5 游戏玩家能够了解他们过去一年的游戏习惯。想想 [Spotify 的包装](https://lifehacker.com/why-your-spotify-wrapped-recap-has-songs-youve-never-li-1840239030) ，但是对于你的 PlayStation 来说。
 
-Watch
+
 
 该报告主要关注 PS4 玩家，他们可以看到:
 

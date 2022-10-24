@@ -4,7 +4,7 @@
 
 欢迎来到 Burning Questions，在这个系列节目中，地球人回答了关于如何应对气候变化的最常见的问题。许多人想做一些事情，任何事情来帮助解决气候危机。我们回答您关于如何帮助改变您的生活的问题，以及将拯救我们的系统。查看我们的过去 [*燃题这里*](https://gizmodo.com/earther/earther-originals/burning-questions) *。*
 
-Watch
+
 
 畜牧业对地球的影响是...不太好！在全球范围内，畜牧业造成了近 15%的温室气体污染。在美国，光是奶牛就占了 [甲烷排放量](https://www.epa.gov/ghgemissions/overview-greenhouse-gases#methane) 的 27%。
 

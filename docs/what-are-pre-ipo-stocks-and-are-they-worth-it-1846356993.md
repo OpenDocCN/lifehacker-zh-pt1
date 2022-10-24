@@ -4,7 +4,7 @@
 
 在一家私人公司在 [首次公开募股](https://www.investopedia.com/terms/i/ipo.asp) (IPO)中上市之前，他们可能会留出一些股票用于购买，这被称为[IPO 前配售](https://www.investopedia.com/terms/p/pre-ipo-placement.asp#:~:text=A%20pre%2DIPO%20placement%20is,be%20as%20successful%20as%20hoped.) 。你可以从上市前的股票中赚很多钱，但风险也很大，而且不管怎样，要拿到这些早期上市的股票并不容易。以下是 IPO 前的工作方式，以及如何知道它们是否适合你。
 
-Watch
+
 
 ### 什么是上市前投资？
 

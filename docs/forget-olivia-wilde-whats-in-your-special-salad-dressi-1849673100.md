@@ -4,7 +4,7 @@
 
 昨天，《每日邮报》发布了一篇关于奥利维亚·维尔德和杰森·苏代、、[分手的“内幕”的](https://jezebel.com/jason-sudeikis-olivia-wilde-breakup-nanny-harry-styles-1849667719) [独家报道](https://www.dailymail.co.uk/news/article-11299523/Jason-Sudeikis-tried-prevent-Olivia-Wilde-seeing-Harry-Styles-fight.html)、、充斥着他们匿名前保姆的短信和轶事。整件事非常混乱和悲伤，虽然这对夫妇谴责了这些“虚假和下流的指控”，但互联网似乎不太关心耸人听闻的细节，而是更关心王尔德的“ [特制沙拉酱](https://www.newsweek.com/whats-olivia-wildes-special-salad-dressing-internet-dying-know-1752577) ”的内容，据称这是她制作并提供给哈里·斯泰尔斯的，这让 Sudekis 很生气。
 
-Watch
+
 
 关系，不管是不是一夫一妻制，都很难。被心爱的人背叛是一种可怕的感觉，被背叛的方式多种多样。未经批准的性行为是最常见的，但一些较小的、看似平常的行为——比如制作和分享一种“特殊的沙拉酱”——也可能会背叛。为某人准备食物可能是相当亲密的，很难看到曾经出于爱为你做的菜与别人分享。
 

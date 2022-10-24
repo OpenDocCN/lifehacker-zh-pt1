@@ -4,7 +4,7 @@
 
 电脑游戏被认为是一项“高端”的电脑任务。虽然许多 [游戏将运行在虚弱或过时的个人电脑和笔记本电脑](https://lifehacker.com/15-of-the-best-steam-games-you-can-play-on-weaker-pcs-1848255566) 上，但最大、最新的 游戏需要强大的硬件和游戏友好的操作系统如 Windows 或 steam OS——这些功能是 Chromebooks 等小型生产力机器所缺乏的。
 
-Watch
+
 
 然而，尽管 ChromeOS 的硬件规格不足，游戏支持也乏善可陈，但 Chromebooks 实际上可以成为可行的游戏设备...如果你有正确的设置。
 

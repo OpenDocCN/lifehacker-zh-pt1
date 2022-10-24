@@ -4,7 +4,7 @@
 
 就软件支持而言，很难打败苹果。该公司在旧设备首次发布多年后继续更新旧设备，以至于当你六年--的旧 iPhone 7 不符合 iOS 16 的条件时，它会刺痛 [。该公司可能会慷慨地进行软件更新，但这并不意味着它会为所有设备提供所有的新功能。如果你正在使用一些旧的苹果硬件，你可能会错过今年秋天即将到来的一些最好的新功能。](https://lifehacker.com/these-apple-devices-won-t-get-software-updates-anymore-1849033297) 
 
-Watch
+
 
 ## iOS 16 和 iPadOS 16
 

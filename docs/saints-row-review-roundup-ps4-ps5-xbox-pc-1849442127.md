@@ -4,7 +4,7 @@
 
 如果你希望 [*圣徒排*](https://kotaku.com/saints-row-volition-reboot-story-trailer-3rd-street-1849419045) 能在 *GTA* 重新发布之间满足你的饥饿，你最好再等一会儿。由意志开发的开放世界犯罪游戏的评论，明天将在游戏机和 PC 上发布，到目前为止，它们…不太好。
 
-Watch
+
 
 去年夏天宣布的第一个，*圣徒排*是 Volition 的长期运行系列 *GTA* 克隆的全面重启，自 2013 年的*圣徒排 IV* 以来就没有出现过新的条目(除非你算上其独立的 2015 年资料片，*滚出地狱*)。*圣徒排*最初是[2022 年 2 月发布猛攻](https://kotaku.com/february-2022-already-has-too-many-games-1847558785) 的一部分——其中包括*地平线禁西*、*死亡之光 2* 、*四夫*和*埃尔登环*——在 [意志将它推迟到 8 月](https://kotaku.com/saints-row-delayed-to-august-2022-1848072546) 之前，理由是需要润色。
 

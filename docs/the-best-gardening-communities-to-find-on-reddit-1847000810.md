@@ -4,7 +4,7 @@
 
 正如(我们认为)阅读关于植物和园艺的文章可能会有所帮助一样，拥有一个可以回答问题、给出建议和提供一些园艺灵感的在线社区也很好。幸运的是，有大量的子网站——有些拥有来自世界各地的数十万会员——提供对所有园艺事物的深入探究。
 
-Watch
+
 
 在 [一篇关于 BobVila.com](https://www.bobvila.com/slideshow/8-botanical-themed-reddit-threads-all-plant-parents-should-know-about-579892)的文章中，Alexa Erickson 挖掘出了与植物相关的最好的 subr eddits 既有用又有趣。这里有几个可以看看。
 

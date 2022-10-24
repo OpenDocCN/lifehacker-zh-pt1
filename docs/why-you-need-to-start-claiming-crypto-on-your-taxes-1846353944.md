@@ -4,7 +4,7 @@
 
 2020 年 加密货币已经跃居个人金融新闻 [的前列，国税局已经注意到了。我如果你在 2020 年获得了任何密码，你会想在你的税务表格中申报它，因为该机构](https://www.cnbc.com/2021/02/24/bitcoin-btc-surges-back-above-50000-after-more-buying-from-square.html) [警告](https://www.theguardian.com/technology/2019/jul/27/irs-tax-cryptocurrency-bitcoin-income) 今年他们将 [打击](https://www.jdsupra.com/legalnews/doj-and-irs-may-soon-begin-enforcement-51885/) 习惯于捏造他们欠多少钱的投资者。
 
-Watch
+
 
 ### **国税局在你今年的税单中“设置陷阱”**
 

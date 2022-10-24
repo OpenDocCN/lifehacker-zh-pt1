@@ -4,7 +4,7 @@
 
 户外烧烤季节终于来到了——但是伴随着户外烹饪和饮食的乐趣而来的是额外的食品安全问题。你可能已经看过一份 [奶油土豆沙拉](https://lifehacker.com/how-to-make-extra-creamy-potato-salad-with-less-mayo-1844222984) ，直觉地知道它可能不适合整天坐在阳光下——尽管蛋黄酱的真相可能没有你想象的那么可怕(下文将详细介绍)。 [根据美国疾病控制中心](https://www.cdc.gov/foodsafety/communication/bbq-iq.html) 的说法，食物中毒在夏季的几个月里达到高峰，此时气温上升导致食源性细菌大量繁殖。这里有一些让你今年夏天的烧烤或野炊安全的知识。
 
-Watch
+
 
 ## 把食物放在外面太久
 

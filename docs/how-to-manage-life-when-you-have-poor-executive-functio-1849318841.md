@@ -4,7 +4,7 @@
 
 即使你从未听说过“执行功能”这个术语，你可能会痛苦地意识到它对日常生活的重要性。执行功能通常被描述为大脑 的 [管理系统:这是负责规划、优先排序和执行任务的部分。](https://www.understood.org/en/articles/what-is-executive-function)
 
-Watch
+
 
 “执行功能是大脑的 CEO”，YouTube 频道主持人 [如何多动症](https://www.youtube.com/c/HowtoADHD) 杰西卡·麦凯布 说。“执行功能是一套认知过程，帮助我们自我调节，以便我们能够有效地计划、优先考虑和持续努力实现我们的长期目标。”
 

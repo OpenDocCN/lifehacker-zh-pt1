@@ -4,7 +4,7 @@
 
 购买最新的游戏硬件是出了名的困难经历，但今年尤其糟糕。一旦订单开放，所有 Nvidia 的新 [RTX 30 系列 GPU](https://lifehacker.com/read-this-before-pre-ordering-your-nvidia-rtx-30-series-1845017144)——以及即将到来的 [PlayStation 5](https://lifehacker.com/how-to-successfully-preorder-a-ps5-1845093710) 和 Xbox 系列 X——在几秒钟内售罄。
 
-Watch
+
 
 虽然 bot 帐户进行了许多这样的购买，但 EVGA 有一个新工具，可能会增加您成功购买全新 Nvidia 显卡的机会。
 

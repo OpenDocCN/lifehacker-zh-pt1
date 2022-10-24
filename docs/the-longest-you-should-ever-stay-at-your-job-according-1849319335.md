@@ -4,7 +4,7 @@
 
 随便你怎么看所谓的“ [大辞职](https://lifehacker.com/take-these-financial-steps-before-quitting-your-job-1847467586)”——一种趋势有人认为 [其实早在](https://www.wsj.com/articles/the-great-resignation-started-long-ago-economy-pandemic-labor-force-participation-workforce-men-mothers-stimulus-welfare-11658440164?mod=hp_trending_now_opn_pos5) 之前就开始了，也有人认为 [其实并不存在](https://www.businessinsider.com/wrong-great-resignation-recession-means-workers-powerless-despite-labor-shortage-2022-7)——很多职场人目前正打算。更重要的是，根据彭博最近的一篇文章，这是一个聪明的举动，因为一些专家建议至少每 10 年换一次工作。他们的推理归结为“基本的人类心理学”驱动着改变的需求，加上重新评估你的需求和目标的好处，这将在十年的过程中自然演变。
 
-Watch
+
 
 其他人对你“需要”在某个时间线上改变你的工作的想法感到愤怒——特别是如果那个时间线更多的是基于原则而不是其他。为了更深入地了解你是否应该让滴答作响的时钟影响你的职业规划，我采访了职业专家 [【沙琳·劳比】](https://www.linkedin.com/in/sharlynlauby)[珍妮·福斯](https://www.jobjenny.com/) 和 [丹·肖贝尔](https://danschawbel.com/) 来了解他们对是否有一个理想的时间表来做出改变的看法。以下是他们决定你应该在任何一份工作上呆多长时间的建议。
 

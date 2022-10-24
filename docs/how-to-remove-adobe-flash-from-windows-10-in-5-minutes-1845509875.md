@@ -4,7 +4,7 @@
 
 实在没有理由再让 Adobe Flash 无所事事了。没有人使用它，现代网络浏览器将在明年年初摆脱它，多年来它一直是设备安全方面的一个永久的刺——尽管，是的，它让我们在过去的上有很多乐趣。
 
-Watch
+
 
 该说再见了。你很幸运，因为微软有一个全新的 Windows 更新——[kb 4577586](https://support.microsoft.com/en-us/help/4577586/update-for-removal-of-adobe-flash-player)，你可以然后通过微软的更新目录 [这里](http://www.catalog.update.microsoft.com/search.aspx?q=4577586)——将 Adobe flash 从 Windows 8.1 和 Windows 10 中剥离出来。
 

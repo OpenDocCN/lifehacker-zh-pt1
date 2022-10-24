@@ -4,7 +4,7 @@
 
 “粘人阶段”在小孩子中很常见。他们可能会感觉到 [分离焦虑在](https://lifehacker.com/how-to-prepare-for-your-childs-separation-anxiety-1844804925) 该去托儿所或学校的时候袭来——或者他们可能不想让你离开他们的视线，甚至在你自己的家里。这对父母和孩子来说都是令人沮丧的时刻——但这也是孩子成长的正常部分。
 
-Watch
+
 
 非营利组织 [零至三岁](https://www.zerotothree.org/) 的儿童早期教育专家丽贝卡·帕勒肯[说:“(粘人)行为告诉我们，不管出于什么原因，我们的孩子在这个时候需要很多安慰，他们需要很多额外的安慰和联系。”。](https://www.zerotothree.org/our-team/rebecca-parlakian)
 

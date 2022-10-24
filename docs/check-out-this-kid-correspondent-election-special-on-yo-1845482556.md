@@ -4,7 +4,7 @@
 
 我不知道你怎么想，但对我来说，控制自己对即将到来的选举的情绪是一个挑战——即使是在我的孩子身边，他很容易察觉我可能有的任何强烈情绪，并与朋友、邻居和同学分享。我们的孩子很可能现在正看着我们，心想:“到底是什么让每个人都这么激动？”所以，如果有一点很明显，那就是我们需要教育我们的孩子选举和行使投票权的重要性，那就是现在。而“ [小鬼通讯员](https://www.youtube.com/channel/UCaDVcGDMkvcRb4qGARkWlyg) ”系列就是来帮忙的。
 
-Watch
+
 
 四集系列在 [SoulPancake YouTube 频道](https://www.youtube.com/channel/UCaDVcGDMkvcRb4qGARkWlyg) 播出，是 YouTube 原创系列。前两集于周五发布，后两集于今天停播——正好让我们的孩子在八天内(或更早)每个人投票之前赶上。可以的话早点投票！).第一集讲的是 [如何做决定](https://www.youtube.com/watch?v=4jMm83hXeV0&t=192s) ，嘉宾有索莱达·奥布莱恩、丹妮拉·费舍和雷恩·威尔森:
 

@@ -6,7 +6,7 @@
 
 求职网站公告板 [报道](https://thecircularboard.com/job-interview-statistics/#:~:text=What%20percentage%20of%20applicants%20get,Approximately%2020%25%20of%20applicants.&text=Interview%20statistics%20from%20Interview,by%20phone%20or%20in%20person.) 称，47%的雇主表示，如果应聘者看起来不了解公司，他们会拒绝他们。在面试过程中提问表明你已经做了调查，并且你有兴趣了解更多。但是你问的问题也很重要——你问的问题的质量会让你在竞争中领先。
 
-Watch
+
 
 ### 问一些关于工作的具体问题
 

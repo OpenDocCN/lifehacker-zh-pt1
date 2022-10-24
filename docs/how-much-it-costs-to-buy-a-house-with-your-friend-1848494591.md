@@ -4,7 +4,7 @@
 
 与前几代人相比， [千禧一代不太可能拥有自己的家庭](https://www.pewresearch.org/social-trends/2020/05/27/as-millennials-near-40-theyre-approaching-family-life-differently-than-previous-generations/) 。这可能与普通千禧一代背负近 93，000 美元债务的事实 [有点关系。根据美国消费者新闻与商业频道](https://www.cnbc.com/2021/11/09/how-much-debt-millennials-have-on-average.html)[的说法，房价不会变得更实惠；我们可以期待在 2022 年继续看到卖方市场的高价。](https://www.cnbc.com/2021/12/29/what-will-the-2022-housing-market-look-like.html) 
 
-Watch
+
 
 因此，30 多岁的人正在寻找一种方法，让他们这一代人有可能拥有自己的房子:和朋友一起买房。与朋友签订抵押贷款协议既是一项合法的投资，也是一项实际的投资(只要你仔细权衡风险——详见下文)。除了已经令人望而生畏的首付之外，与朋友签订抵押贷款可以将一系列遥不可及的购房成本变成现实。
 

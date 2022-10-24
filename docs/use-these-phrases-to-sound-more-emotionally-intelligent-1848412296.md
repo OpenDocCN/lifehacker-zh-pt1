@@ -4,7 +4,7 @@
 
 在工作场所，展现 [情商](https://www.verywellmind.com/what-is-emotional-intelligence-2795423) 比以往任何时候都重要。我们正处于 [大辞职](https://www.cnbc.com/2022/01/24/if-you-want-to-make-a-career-change-heres-what-experts-say-to-do.html) 中，人们越来越不愿意继续从事他们感觉不到被关注、被倾听或被重视的工作。员工希望与表现出高情商的人一起工作，而队友和经理则希望领导有自知之明、同理心、和谦逊。
 
-Watch
+
 
 情商的基石是感知、评估、解释和管理情绪的能力——包括你自己和他人的情绪——并利用这些洞察力来推动积极的行动。这种敏感性可以改善一切，从沟通和个人关系到效率和工作满意度。以下是情商高的领导者使用的一些关键短语。
 

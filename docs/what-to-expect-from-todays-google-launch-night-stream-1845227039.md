@@ -4,7 +4,7 @@
 
 [落五金](https://lifehacker.com/how-to-preorder-everything-new-and-creepy-from-amazons-1845174436) [公告季](https://lifehacker.com/how-to-watch-apples-time-flies-event-today-1845052865) 继续。谷歌今天随时可用；它的别出心裁的“发布之夜”活动将在几个小时后开始。至于该公司计划宣布什么，这不应该太令人惊讶，因为它的大部分已经在互联网上泄露了——或者在 [家得宝](https://www.cnet.com/news/google-chromecast-hits-home-depot-shelves-ahead-of-official-launch-report-says) 。
 
-Watch
+
 
 如果你一直没有关注，你可以期待今天看到 Pixel 5 的(官方)首次亮相，以及 5G 友好型 Pixel 4A 的细节。正如你所料，后者应该与现存的像素 4A 非常相似，只是有 5G 连接
 

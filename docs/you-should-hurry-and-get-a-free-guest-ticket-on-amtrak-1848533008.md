@@ -4,7 +4,7 @@
 
 希望今天你能从你的情人那里得到一些爱。如果没有，来自全国最大的客运铁路服务的礼物怎么样？从现在到 2 月 16 日，美国国家铁路客运公司正在提供买一送一(BOGO)的机票，作为他们 [【美国国家铁路客运公司爱你】](https://www.amtrak.com/valentines-day-sale?intcmp=wsp_deals-landing-page_link_valentines-day-sale_deals) 促销活动的一部分。
 
-Watch
+
 
 虽然销售仅持续几天，但在 2 月 16 日之前购买的门票允许您在接下来的六个月内免费携带一名同伴，从 2022 年 3 月 1 日到 2022 年 8 月 31 日旅行。
 

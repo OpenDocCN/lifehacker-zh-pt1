@@ -4,7 +4,7 @@
 
 Ga s-pump card skimming 继续成为 [关注点](https://www.12news.com/article/news/crime/can-you-id-these-suspects-using-credit-card-skimmers-at-a-buckeye-gas-station/75-5046941b-2284-4acc-b141-378a323d50a2) 在疫情期间，据福布斯 统计，2020 年欺诈性支付交易同比增长[23%。以下是你需要知道的关于这个骗局是如何运作的，以及为什么你应该避免在加油时用借记卡付款。](https://www.forbes.com/sites/forbesbusinesscouncil/2021/01/04/preparing-for-the-gas-pump-emv-deadline/?sh=79e51c0d232a)
 
-Watch
+
 
 ### **什么是撇卡？**
 

@@ -4,7 +4,7 @@
 
 [Hinge 是我最喜欢的约会应用](https://lifehacker.com/how-to-actually-get-good-responses-on-your-dating-app-1847740520) 的部分原因是人们能够在他们的个人资料提示中真正展示他们的一些个性。除了基本的安全和氛围问题，有一个出发点来聊聊彼此的兴趣也是很有用的。同样，我以前也讨论过为什么 [Twitter 可以作为一个约会应用](https://lifehacker.com/how-to-use-twitter-like-a-dating-app-according-to-peop-1847840085)——尽管情况并不总是这样。目前有一个陌生人直接撞上了我的推特，告诉我(*不是*请我和他去喝一杯。他的观点是，我们应该通过网上的“闲聊”来“亲自了解对方”。我回答说，他眼中的“闲聊”是我眼中的“基本礼貌”，也是一种感觉他是否打算把我切成小块的方式(这种可能性总是非零的，伙计们)。还有:是的，我是单身，请抬起你的下巴离开地板。
 
-Watch
+
 
 “相亲对象”死了。我们生活在这样一个时代，如果我能知道你的名字，那么我就能知道你是哪一年毕业的，你的幽默感是什么样的，甚至可能知道你 [有多高*有多高*](https://www.cbc.ca/radio/asithappens/as-it-happens-tuesday-edition-1.5851623/this-tiktok-teen-uses-math-and-photos-to-accurately-guess-strangers-heights-1.5851626)*。既然有能力做一些“轻微的跟踪”(稍后会有更多关于这个术语的内容)，为什么要克制自己呢？只要你锻炼了一些自制力，你就有理由使用你可以支配的数字工具来确保你潜在的约会对象没有任何重大的交易破坏者。* 
 

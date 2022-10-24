@@ -4,7 +4,7 @@
 
 听说旺达·幻视发生了令人大开眼界的变化，你可能会对登录任何社交媒体感到焦虑。我们已经谈论了许多你可以用来在社交媒体 上 [避免剧透的技巧，但是这里有一个新的技巧要加入进来:](https://lifehacker.com/block-spoilers-for-avengers-game-of-thrones-and-star-1834056733) [**隐藏 Twitter 趋势**](https://chrome.google.com/webstore/detail/hide-twitter-trends/lapmncfnibdclongbkleadoicnkhknia/) 。
 
-Watch
+
 
 这个名副其实的 Chrome 扩展确实如其所暗示的那样。安装它，你的 Twitter 主页就会变成这样:
 

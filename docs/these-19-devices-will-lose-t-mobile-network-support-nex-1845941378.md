@@ -4,7 +4,7 @@
 
 根据 [Android Police](https://www.androidpolice.com/2020/12/22/these-are-all-the-devices-t-mobile-says-will-stop-working-on-its-network-next-month/#1) 获得并核实的 T-Mobile 内部文件，该公司计划于 2021 年 1 月 29 日停止对 19 款设备的移动网络支持。受影响的设备包括谷歌、三星、索尼等公司的智能手机，以及老式家用安全摄像头和无线路由器。
 
-Watch
+
 
 根据 T-Mobile 的内部列表，以下是完整的概要:
 

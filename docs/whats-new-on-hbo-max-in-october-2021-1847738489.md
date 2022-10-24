@@ -4,7 +4,7 @@
 
 丹尼斯·维伦纽瓦改编的传奇科幻史诗*沙丘*终于要在这个月登陆 HBO Max 了，不管他喜不喜欢( [他不](https://www.hollywoodreporter.com/movies/movie-news/dune-venice-premiere-timothee-chalamet-zendaya-denis-villeneuve-1235008151/) )。
 
-Watch
+
 
 我知道这家伙为什么紧张了。将*沙丘*拍成一部电影，比视觉上单一但叙事上更忠实于弗兰克·赫伯特的源小说，嗯，让我们说*有缺陷* [大卫·林奇版](https://www.theatlantic.com/entertainment/archive/2014/03/the-messy-misunderstood-glory-of-david-lynchs-em-dune-em/284316/) 对他来说是一个 [一生的梦想](https://theplaylist.net/denis-villeneuve-shanghai-masterclass-20200801/) ，他终于做到了——但只是半途而废。这部电影只改编了这部长篇小说的前半部分，如果它在电影院失败了(有足够的证据表明这是可能的，不管是不是疫情；当然，维伦纽夫的最后一部科幻大片是*银翼杀手 2049* ，这是另一部耗资巨大的尝试，旨在重启一部旧的系列电影，这部电影赚的钱远远不够支付制作成本)，他可能永远也不会拍第二部了。(为什么华纳兄弟不让他同时拍两部，一部《指环王》？T17】好问题 T19】。)
 

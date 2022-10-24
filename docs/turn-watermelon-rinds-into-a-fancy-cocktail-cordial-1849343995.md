@@ -4,7 +4,7 @@
 
 “我该怎么处理这些西瓜皮？”很久以前就被回答了，你可能已经知道答案了，尤其是如果你来自南方。西瓜皮变成了 [西瓜泡菜](https://lifehacker.com/quick-pickle-pretty-much-anything-with-one-simple-ratio-1721695458) ，这种脆而无味的废料变得柔软、扑鼻，而且(通常)有点辣。但是泡菜不是这个夏天你唯一应该做的西瓜皮项目，尤其是如果你喜欢多汁鸡尾酒的话。
 
-Watch
+
 
 用西瓜皮制作西瓜甜酒解决了两个问题:没错，它可以处理残渣，但它也可以让你给饮料(含酒精和不含酒精的饮料)添加西瓜风味，而不会产生可怕的“粉红色泡沫”。根据 [打孔机](https://punchdrink.com/articles/pineapple-watermelon-rinds-cordial-recipe/) 的说法，瓜的果肉放入饮料中会有点微苦:
 

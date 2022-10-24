@@ -2,7 +2,7 @@
 
 > 原文：<https://lifehacker.com/what-kind-of-burnt-out-are-you-and-why-it-matters-1847256205>
 
-Watch
+
 
 现在，我们中的许多人都筋疲力尽了。除了健康和安全方面的压力之外，我们还不得不担心失业、工作条件的变化，以及以比平时更令人疲惫的方式兼顾家庭和工作。(通常也没有那么好。)
 

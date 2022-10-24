@@ -4,7 +4,7 @@
 
 如果你和我一样，你会把你孩子的大量作品放在三个地方中的一个:一个超大的塑料箱以备将来“某一天”使用，暂时展示让你的孩子感到自豪和被认可，或者扔进垃圾桶。虽然每次你扔掉那张看起来像打斗中 12 个标记的《雷雨》图，或者《第二铅笔》中的僵尸启示录的戏剧性渲染，你都会充满罪恶感，但没有足够的空间来存放每一件杰作。
 
-Watch
+
 
 我们以前写过关于你可以保存或使用你孩子的艺术作品的方法，从 [将它们展示在一面被忽视的墙上](https://lifehacker.com/display-your-kids-art-on-an-ignored-wall-1833094096)[将它们重新制作成贺卡](https://lifehacker.com/use-your-kids-artwork-as-greeting-cards-1833671697) ，到 [将精选作品邮寄给家人](https://lifehacker.com/how-to-keep-your-kids-artwork-from-piling-up-1845985342) 和 [为他们创建私人 Instagram 账户](https://lifehacker.com/create-a-private-instagram-account-for-your-kids-artwor-1827829792) 。
 

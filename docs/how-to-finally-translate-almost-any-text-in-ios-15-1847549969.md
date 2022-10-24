@@ -4,7 +4,7 @@
 
 随着我们越来越接近 iOS 15 的 2021 年秋季发布，越来越多的 [更多的功能](https://lifehacker.com/the-10-coolest-ios-15-features-announced-at-wwdc-2021-1847048865) 被添加到测试版中。最新增加的一项功能是新的系统级翻译功能，可以翻译 iPhone 屏幕上的任何文本。
 
-Watch
+
 
 一旦更新在未来几个月的某个时候推出，新的翻译工具将适用于所有 iOS 15 设备，但那些运行 iOS 15 测试版 的 [现在就可以测试它:](https://lifehacker.com/how-to-install-ios-15-and-ipados-15-public-betas-1847209002)
 

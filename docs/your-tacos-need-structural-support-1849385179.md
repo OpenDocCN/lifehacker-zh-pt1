@@ -4,7 +4,7 @@
 
 让玉米卷站起来一直是个挑战。除非你 [提前计划](https://lifehacker.com/eat-a-taco-over-a-tortilla-to-create-another-taco-1802006752) ，有一种理解是你会 结束用手指将零散的配料舀进嘴里—但在开始时，意图是用一个直立的美味包裹开始。不要把你的馅料赶过盘子，用纸杯蛋糕衬垫把单个玉米卷直立起来。
 
-Watch
+
 
 有一些墨西哥卷站在那里的黑客，像使用 [鸡蛋纸盒，或翻转的松饼](https://lifehacker.com/use-an-https://lifehacker.com/use-an-egg-carton-or-a-muffin-tin-as-a-taco-holder-1776050714egg-carton-or-a-muffin-tin-as-a-taco-holder-1776050714) 锅。虽然这些对于同时填充或服务几个来说很棒，但我发现这些选项对于实际使用的个人来说有点笨重。基本上，你仍然需要把一个玉米卷转移到你的盘子里，如果你想在吃东西的间隙休息一下，你的玉米卷会倒下，它的内脏会掉到你的盘子里。不漂亮。
 

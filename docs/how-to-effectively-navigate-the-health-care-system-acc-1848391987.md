@@ -4,7 +4,7 @@
 
 即使是最简单的看医生也有许多令人感动的部分:你必须预约，等待预约，并连续三次回答同样的问题，因为似乎没有人真正阅读你的图表。幸运的是， [的 subreddit r/medicine 有提示](https://www.reddit.com/r/medicine/comments/rvydeg/what_tips_would_you_give_to_patients_while/) 为这整个情况导航。
 
-Watch
+
 
 ## 早上 8 点打电话预约
 

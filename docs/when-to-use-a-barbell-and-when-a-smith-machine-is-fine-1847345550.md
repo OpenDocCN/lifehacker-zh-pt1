@@ -4,7 +4,7 @@
 
 史密斯机器可能是健身房设备中最两极分化的一件。每个廉价的商业健身房都有一个，这是许多人对深蹲和其他杠铃举的介绍。但它不是杠铃，或任何接近杠铃的东西，铁杆健身房兄弟对此嗤之以鼻。
 
-Watch
+
 
 为了确保我们在这一点上是一致的， [这是史密斯机器的样子](https://www.lifefitness.com/en-us/catalog/strength-training/plate-loaded/life-fitness/signature-series-smith-machine) 。里面可能有也可能没有长凳，但机器的主要特点是它在轨道上有一个杆。
 

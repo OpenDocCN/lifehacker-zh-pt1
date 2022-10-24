@@ -4,7 +4,7 @@
 
 你的第一部智能手机是什么？我的手机是 iPhone 3GS，没有自拍摄像头、高清显示屏或闪光灯。它能做的是运行应用程序...一批*的*应用程序。正如广告语所说，“ [有一个应用程序可以实现那个](https://www.youtube.com/watch?v=szrsfeyLzyg) ”无论你是 iOS 团队还是 Android 团队，你现在无疑拥有一部智能手机，这意味着多年前的某一天， 你第一次下载了一款应用。但是哪个 app ？
 
-Watch
+
 
 事实证明，回到过去 [看哪个应用是你第一个下载的](https://www.howtogeek.com/823075/how-to-see-the-first-iphone-app-you-installed/) (假设你这些年来没有换过账号)非常简单。在 iPhone 上，打开 App Store，点击右上角的个人资料，选择“**已购**，然后点击“**我的已购**”在 Android 上，打开 Play Store，点击你的个人资料，然后前往**支付&订阅>** **预算&历史>购买历史。**
 

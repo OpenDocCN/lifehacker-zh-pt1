@@ -4,7 +4,7 @@
 
 如果你或你认识的人有植入式心律转复除颤器(ICD)，你可能要避免使用 iPhone 12。根据最近在 [心律杂志](https://www.heartrhythmjournal.com/article/S1547-5271(20)31227-3/fulltext) 上的一项研究，iPhone 12 及其配件可以干扰一个 ICD 的行为，甚至使其停止工作。
 
-Watch
+
 
 该研究发现，iPhone 12 中的几个组件可能“潜在地抑制对患者的救生治疗，特别是在将手机放在上部口袋中时。”此警告适用于所有 iPhone 12 设备，包括 iPhone 12、iPhone 12 Mini、iPhone 12 Max 和 iPhone 12 Max Plus。iPhone 12 的 MagSafe 配件也是一个风险，特别是 MagSafe 充电器和 MagSafe Duo 充电器，由于它们的磁铁和 NFC 无线电。
 

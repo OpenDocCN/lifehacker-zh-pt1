@@ -4,7 +4,7 @@
 
 几天前，我在做我心爱的 [西兰花茎挞](https://lifehacker.com/your-broccoli-stems-would-make-a-tasty-tart-1847755673) ，我意识到我没有鸡蛋了，因此没有任何东西可以用来做 [鸡蛋*水洗*](https://lifehacker.com/how-to-know-which-egg-wash-to-use-1829507257) 。我诅咒自己缺乏冰箱意识，在厨房里跺着脚，不愿意去杂货店，但看不到任何解决办法——然后我想起:蛋黄酱里总是有鸡蛋。
 
-Watch
+
 
 不要对我大喊大叫！这是非常聪明和符合逻辑的！很多人讨厌蛋黄酱作为调味品，因为它的颜色和质地，我明白这一点！但是，即使你讨厌它作为面包的涂抹料，鸡蛋、油和醋的乳液 [作为一种(几乎检测不到的)成分可以创造奇迹](https://lifehacker.com/9-ways-to-unlock-the-power-of-mayonnaise-1847114226) 。(如果你被食物中的鸡蛋、油、醋挤爆，仅仅是因为它们事先被乳化了，我劝你成熟一点！)
 

@@ -6,7 +6,7 @@
 
 即使世界重新开放，人们 [开始再次预订航班和计划旅行](https://www.forbes.com/sites/forbesbusinesscouncil/2021/05/03/three-post-pandemic-travel-trends-to-watch-this-year/?sh=552328d6a2eb) ，独自旅行 [仍然为那些没有被独自出发的想法所吓倒的人提供许多好处](https://www.insightguides.com/inspire-me/blog/benefits-of-solo-travel) 。如果这听起来像你，考虑以下给独自旅行者的建议，这些建议是从 Reddit 上有经验的环球旅行者的智慧中收集的。
 
-Watch
+
 
 ## **离开人迹罕至的道路**
 

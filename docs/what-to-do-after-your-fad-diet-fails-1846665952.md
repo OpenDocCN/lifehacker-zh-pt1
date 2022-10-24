@@ -4,7 +4,7 @@
 
 节食往往会失败，而那些承诺通过遵循一个奇怪的技巧来快速减肥的节食者尤其注定会失败。如果你刚刚经历过其中的一种，不要只是尝试不同的时尚饮食；相反，花一分钟反思你所学到的，并制定一个计划，在未来吃得更健康。
 
-Watch
+
 
 但是在你得到我们下面的建议之前，考虑使用国家饮食失调协会的 [这种饮食失调筛查工具来检查你与食物和你的身体形象的关系。NEDA 也有一条](https://www.nationaleatingdisorders.org/screening-tool) [热线](https://www.nationaleatingdisorders.org/help-support/contact-helpline) ，你可以打电话或发短信。
 

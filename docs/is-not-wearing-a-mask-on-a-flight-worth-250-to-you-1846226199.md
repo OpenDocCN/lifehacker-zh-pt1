@@ -4,7 +4,7 @@
 
 在疫情的这一点上，我们不需要(再一次)告诉你为什么在飞机上戴口罩很重要。这并不是一个新概念——但是新的是运输安全管理局(TSA) [周五宣布的精细结构。](https://www.tsa.gov/news/press/releases/2021/01/31/tsa-implement-executive-order-regarding-face-masks-airport-security)
 
-Watch
+
 
 如果戴口罩来保护自己免受感染和/或为了更大的利益还不够，也许罚款的风险会更大。下面是要知道的。
 

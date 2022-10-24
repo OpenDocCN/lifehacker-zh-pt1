@@ -4,7 +4,7 @@
 
 尽管数百万人已经投票，但预计明天会有更多的人在当地投票站排队。诚然， [共和党人在 2016 年依靠选民压制战术](https://www.motherjones.com/politics/2017/10/voter-suppression-wisconsin-election-2016) ，但这一次，总统向他的支持者发出了多次行动呼吁，要求他们明天担任“投票站观察员”。虽然 [观察投票是选举过程中合法合理的](https://lifehacker.com/what-do-poll-watchers-do-1845230065) (阅读 [了解更多关于此处](https://lifehacker.com/what-do-poll-watchers-do-1845230065) )，但唐纳德·特朗普所建议的——他的追随者只是在投票站出现“观察】(从而恐吓)选民——并不是这样。
 
-Watch
+
 
 如果你发现自己被这些自封的选举大厅监督人之一骚扰或恐吓——或者官方投票工作人员、或任何其他人——记住你*有*投票权 [你可以采取](https://lifehacker.com/what-to-do-if-you-get-turned-away-at-the-polls-1829664675) 步骤来确保你行使这一权利。其中之一是拨打选民保护热线。这里有几个选择。
 

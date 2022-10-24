@@ -4,7 +4,7 @@
 
 [MacroFactor](https://www.strongerbyscience.com/macrofactor/) 是一个体重追踪和食物追踪应用，它做了我之前用三个不同的免费应用做的事情。不要担心，我会告诉你这些应用是什么，以及如何设置它们，如果你想每月为自己节省 11 美元 .99 英镑的话，但我不得不说:MacroFactor 的工作出奇的好，它做了两件其他饮食应用中不存在的事情。
 
-Watch
+
 
 第一个是技术上的:MacroFactor 做了一个卡路里燃烧的计算，这是每个食物追踪应用程序应该能够做的，但不管出于什么原因，他们通常不这样做。(可能是因为他们太专注于计算你的运动卡路里，正如我们之前提到的那样， [通常不会准确到](https://lifehacker.com/exercise-doesnt-burn-as-many-extra-calories-as-you-thin-1847333493) 。)
 

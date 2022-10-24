@@ -4,7 +4,7 @@
 
 为了不被迪士尼和华纳兄弟超越， [维亚康姆最近宣布了自己的流媒体服务](https://www.cbssports.com/general/news/viacomcbs-announces-paramount-plus-rebranding-live-sports-news-and-entertainment-coming-in-march-2021/) ，创造性地命名为派拉蒙+，将于 3 月 4 日推出。与 Hulu 和网飞这样的老牌公司相比，数量不断增加的新流媒体——迪士尼+、探索+、苹果电视+和你能想到的所有 plus-es——正在变得势不可挡。你可能想知道这是否值得。以下是派拉蒙+所提供的内容，以帮助您决定加入派拉蒙+是否适合您。
 
-Watch
+
 
 ### 这是什么？
 

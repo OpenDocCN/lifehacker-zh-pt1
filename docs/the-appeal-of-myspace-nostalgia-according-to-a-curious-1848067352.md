@@ -4,7 +4,7 @@
 
 终于轮到你用家里的台式电脑了。启动需要很长时间。(在伊凡塞斯的、T2 的、、的《起死回生》中，你通过在桥上说唱来消磨时间。)你终于上线了。为了表达你的情感音乐品味，重新安排你的朋友等级，制造焦虑状态以吸引你暗恋对象的注意，并了解你学校所有派系和暗恋对象的最新动态，你会首先访问哪个网站？不是脸书。不是 Twitter，也不是 Tumblr。你只有一个选择: [MySpace](https://myspace.com/) 。
 
-Watch
+
 
 你最后一次听说 MySpace 可能是在 2018 年服务器迁移期间，该网站 [意外删除了 5000 万首歌曲](https://www.rollingstone.com/music/music-news/myspace-lost-music-809455/) 。但在经历了过去 5+ 年的世界- 撼动社交媒体的尖酸刻薄之后，in rollsMySpace 主题平台[space hey](https://spacehey.com/)，一个号称专注于隐私和可定制性但也很甜很甜的怀旧。我 t 目前 [成为头条](https://www.bloomberg.com/news/articles/2021-11-12/retro-myspace-clone-spacehey-blows-up-with-200-000-signups)吸引最近激增 20 万新用户。但是，这个“新”的网络能为那些太年轻而无法体验这个网站的全盛时期的用户提供什么吗？下面是 411 关于 SpaceHey 的诉求——从 Lifehacker 的常驻 Gen Z ( *cusp！*)作家。
 

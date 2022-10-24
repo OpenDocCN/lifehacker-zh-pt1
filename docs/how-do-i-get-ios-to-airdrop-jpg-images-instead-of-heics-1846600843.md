@@ -4,7 +4,7 @@
 
 Lifehacker 的 [**Tech 911**](https://lifehacker.com/c/tech/tech-911) 专栏有一个简单的目的:回答你的技术问题，不管它们是大是小，或是多么混乱。如果你允许我本周稍微放纵一下的话，我与[Joel](https://kinja.com/joelkahn)(life hacker video 的守护神)进行了一次即兴对话，提出了一个技术问题，你们中的一些人可能也想知道，但从来没有问过。
 
-Watch
+
 
 正如乔尔昨天写给我的:
 

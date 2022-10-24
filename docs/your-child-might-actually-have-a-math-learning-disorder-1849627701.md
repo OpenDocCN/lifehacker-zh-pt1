@@ -4,7 +4,7 @@
 
 也许你的孩子讨厌数学。也许你小时候也是这样，或者说 [你对数学考试](https://lifehacker.com/you-have-math-anxiety-heres-how-to-not-pass-it-down-to-1819181913) 如此焦虑以至于恐慌症发作。虽然数学对一些孩子来说很难，但有些孩子确实在数学上有学习障碍，称为 [计算障碍](https://ldaamerica.org/disabilities/dyscalculia/) 。我们将讨论计算障碍的症状，如何诊断，以及如果您的孩子患有计算障碍该怎么办。
 
-Watch
+
 
 ## 数学学习障碍的迹象
 

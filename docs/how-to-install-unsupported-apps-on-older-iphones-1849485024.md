@@ -4,7 +4,7 @@
 
 尽管苹果公司会希望你以 [的价格购买 iPhone 14](https://lifehacker.com/time-to-watch-another-iphone-commercial-1849452112) ，但你的旧手机很可能会很好地为你服务，即使该公司不再正式支持它。但老化技术的更大问题不一定是缺乏官方软件支持，而是第三方开发者停止为你的设备制作应用。你可能不需要苹果最新的 iOS 功能，但如果 Instagram 或 Snapchat 在你的 iPhone 上停止工作，你就开始遇到一些功能死角。
 
-Watch
+
 
 在 Android 上，通过侧装 可以很容易地在你的设备 [上安装旧版本的应用程序。但是 iOS 倾向于把东西锁到 App Store，以用户安全的名义(当然还有](https://lifehacker.com/be-careful-about-sideloading-popular-android-apps-unle-1836669206) [钱](https://www.youtube.com/watch?v=xW0IR3q0EvE&t=14s) )。如果某个应用程序不再支持您的设备，您可能会看到自己被阻止下载该应用程序。但是一个 s 它发生了， [iOS 对这个问题有一个内置的解决方案](https://appleinsider.com/inside/ios/tips/how-to-get-apps-for-old-iphones-and-ipads) — 一个它没有宣传的。
 

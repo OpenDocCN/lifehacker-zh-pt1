@@ -4,7 +4,7 @@
 
 当我们感到被误解时，很自然地 [会变得防御性](https://lifehacker.com/what-to-say-when-someone-is-getting-defensive-1847822729) ，尤其是在恋爱关系中。 [开诚布公的交流](https://lifehacker.com/top-10-ways-to-improve-your-communication-skills-1590488550) 是任何关系的关键，但是防御性的反应——很可能被解读为对你的伴侣怀有敌意——会很快扼杀任何克服误读和误解的希望。幸运的是，同样简单的沟通技巧可以在工作中帮助你，也可以应用到你的浪漫关系中。这里有一些克服沟通障碍，拥有更健康、更幸福的关系的建议。
 
-Watch
+
 
 ## 记住你和你的搭档是一个团队
 

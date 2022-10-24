@@ -4,7 +4,7 @@
 
 有时候苹果公司用它的配件把它赶出了公园。 [AirPods](https://lifehacker.com/the-essential-tips-and-tricks-for-getting-the-most-out-1826867565) ，例如提供了比其他蓝牙耳机更好的体验。但是有时候苹果自己的第一方配件达不到第三方制造商提供的配件，比如苹果为 iPhone 12 提供的价值 99 美元的磁性 [MagSafe 电池组](https://www.apple.com/shop/product/MJWY3AM/A/magsafe-battery-pack) 。
 
-Watch
+
 
 ## iPhone 12 的 MagSafe 电池组如何工作
 

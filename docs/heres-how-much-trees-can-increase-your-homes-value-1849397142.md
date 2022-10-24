@@ -4,7 +4,7 @@
 
 作为一个希望在今天或未来出售你的房子的房主，你可能已经想到了 [增加你的财产价值](https://lifehacker.com/here-are-the-renovations-that-increase-your-homes-value-1846630618)的方法，以及实际上 [降低价值](https://lifehacker.com/these-things-are-bringing-down-the-value-of-your-home-1848788226) 的特征。路边的吸引力是一个显而易见的因素，但事实证明，特别是有树的房产可能对潜在买家特别有吸引力。有树的房子可能比没有树的房子多 3.5%-15%的价值。
 
-Watch
+
 
 如果你的院子里有很多树，或者如果你正在考虑更新你的景观，这里有一些你应该知道的关于对你房子价值的潜在影响。
 

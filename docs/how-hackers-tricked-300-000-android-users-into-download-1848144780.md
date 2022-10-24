@@ -4,7 +4,7 @@
 
 网络安全公司 ThreatFabric 最近的一份报告显示， [超过 30 万安卓用户安装了木马程序](https://www.threatfabric.com/blogs/deceive-the-heavens-to-cross-the-sea.html) ，秘密窃取他们的银行信息。虽然这些应用已经被谷歌删除和停用，但开发者使用了独特的方法来部署恶意软件，所有 Android 用户都需要警惕。
 
-Watch
+
 
 ## 黑客使用了多种类型的恶意软件
 

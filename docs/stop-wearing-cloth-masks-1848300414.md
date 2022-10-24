@@ -4,7 +4,7 @@
 
 高传染性的奥米克隆变种继续推动全国范围内的感染激增。根据疾病控制中心的 COVID 数据追踪器 的数据，在圣诞节和新年前夕之间的一周内，新冠肺炎住院治疗的七天平均数增加了 40%以上。鉴于当前的这股浪潮，许多医学专家 [敦促公众](https://www.newsweek.com/some-doctors-urging-retire-cloth-push-hospital-grade-masks-amid-omicron-surge-1663495) 重新评估他们信任的过去两年疫情的布质口罩。
 
-Watch
+
 
 俄亥俄州大学医院的传染病专家艾米·爱德华兹博士在克里夫兰告诉 [福克斯 8](https://fox8.com/news/coronavirus/local-doctors-suggest-upgrading-from-cloth-masks-to-reduce-covid-spread/) “我认为是时候让布质口罩退休了。”同样， [林西·马尔](https://twitter.com/linseymarr?ref_src=twsrc%5Egoogle%7Ctwcamp%5Eserp%7Ctwgr%5Eauthor) ，一位研究病毒如何在空气中传播的弗吉尼亚理工大学研究员， [告诉 NPR](https://www.npr.org/sections/health-shots/2021/12/23/1066871176/mask-n95-omicron-contagious) 布质口罩简单地“不能用奥米克隆来解决问题”这就是为什么你的布面具可能不足以对抗最新的 COVID 变种，以及你应该如何掩盖。
 

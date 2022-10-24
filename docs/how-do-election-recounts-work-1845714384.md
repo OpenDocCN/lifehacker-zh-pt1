@@ -4,7 +4,7 @@
 
 尽管在选举团中以相当大的优势输掉了 11 月的选举，并在普选中以历史性比例输掉了 11 月的选举，但唐纳德·川普的法律团队已经发起了许多迄今为止徒劳的努力，试图让总统获得第二个任期。
 
-Watch
+
 
 自 11 月 3 日以来，川普的律师在宾夕法尼亚州、佐治亚州、威斯康星州和密歇根州的联邦法庭上 [遭遇了一连串的失败](https://www.washingtonpost.com/politics/trump-election-legal-challenges/2020/11/14/904fbd04-25e2-11eb-a688-5298ad5d580a_story.html) 。现在白宫正在调查佐治亚州的最终投票结果——当选总统乔·拜登以 [14，000 票的优势](https://www.google.com/search?q=georgia+%2B+biden+victory&oq=georgia+%2B+biden+victory&aqs=chrome..69i57j33.8071j0j9&sourceid=chrome&ie=UTF-8) 获胜——以及 [威斯康星州](https://www.google.com/search?ei=8qm2X8D5DMOl5NoPs_udqAc&q=2020+election+results&oq=2020+&gs_lcp=CgZwc3ktYWIQAxgAMgoIABCxAxDJAxBDMgcIABCxAxBDMgoIABCxAxCDARBDMgQIABBDMggIABCxAxCDATIHCAAQsQMQQzICCAAyCAgAELEDEIMBMgIIADICCAA6BAgAEEc6BwgAEMkDEEM6BQgAELEDOggIABCxAxDJA1C_GViRI2DeKWgCcAR4AIABXIgBhgSSAQE3mAEAoAEBqgEHZ3dzLXdpesgBCMABAQ&sclient=psy-ab) 的最终投票结果，拜登在那里以更有说服力的 20，000 票夺回了民主党在 2016 年失去的领土。
 

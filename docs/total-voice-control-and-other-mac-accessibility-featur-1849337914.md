@@ -4,7 +4,7 @@
 
 总的来说，苹果非常重视科技的可及性。他们最明显的努力来自于 [iPhone 的语音控制](https://lifehacker.com/how-to-enable-the-best-accessibility-features-on-your-i-1843985318) 等功能，但几乎不限于 iOS 和 iPadOS。虽然开发辅助功能是为了帮助有身体障碍的人，但 m acOS 用户也可以访问一系列辅助功能，使任何人都可以更容易地使用计算机。
 
-Watch
+
 
 ## 让显示器看起来更舒服
 

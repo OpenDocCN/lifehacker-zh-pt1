@@ -4,7 +4,7 @@
 
 我们谈论了很多关于 [厨房翻新](https://lifehacker.com/how-to-remodel-your-kitchen-in-the-cheapest-possible-wa-1847381171) 和 [大型花园项目](https://lifehacker.com/a-diy-garden-trellis-is-the-perfect-spring-project-1848628042) 的话题，这些项目让我们的家看起来很现代，虽然浴室确实得到了它们的润色，但它们看起来过时的能力并不完全取决于固定装置和瓷砖。装饰也会让最时髦的厕所看起来比实际情况更过时。这里有什么沟把你的约翰带回现代。
 
-Watch
+
 
 ## 将你的墙纸换成新油漆
 

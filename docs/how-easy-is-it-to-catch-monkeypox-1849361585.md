@@ -4,7 +4,7 @@
 
 猴痘现在肯定比 [更广泛，只有几个病例](https://lifehacker.com/great-now-we-have-to-worry-about-monkeypox-1848945600) ，纽约州、加利福尼亚州和伊利诺伊州 [宣布进入紧急状态](https://www.cnbc.com/2022/08/01/california-declares-a-state-of-emergency-over-monkeypox-outbreak.html) ，世界卫生组织称其为国际关注的公共卫生紧急事件。
 
-Watch
+
 
 在这种传播的背景下，人们开始怀疑我们是否需要担心在休闲环境中感染疾病，如在商店试穿衣服时(因为据报道病毒可以通过衣服传播)。但是，感染猴痘真的有多容易呢？
 

@@ -4,7 +4,7 @@
 
 当全国各地的餐馆老板对他们根本找不到愿意被无面具反吸血鬼者唾弃的人来换取分发食物的特权这一事实感到困惑时，一些大胆进取的企业主正在测试一种吸引工人的奇怪的新方法:P 阿英生活工资！
 
-Watch
+
 
 正如《华盛顿邮报》 [报道](https://www.washingtonpost.com/business/2021/06/10/worker-shortage-raising-wages/?utm_source=twitter&utm_medium=social&utm_campaign=wp_main) 所言，一些美国餐馆，如 Klavon's 冰淇淋店，正在试验“付给员工更多的钱”来换取他们的劳动，而过去的方法——每小时付给员工 7.25 美元，并让他们向越来越不满的陌生人寻求帮助——似乎实际上让未来的员工对一次站 8 个小时，休息时间很少，没有健康
 

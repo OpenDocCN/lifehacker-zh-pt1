@@ -4,7 +4,7 @@
 
 圣地亚哥动物园的 [动物园宣布](https://zoo.sandiegozoo.org/pressroom/news-releases/gorilla-troop-san-diego-zoo-safari-park-test-positive-covid-19) 至少有两只大猩猩的新冠肺炎病毒检测呈阳性。它们不是疫情第一批感染冠状病毒的动物，也可能不会是最后一批。
 
-Watch
+
 
 ### 哪些动物会感染冠状病毒？
 

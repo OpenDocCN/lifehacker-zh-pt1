@@ -4,7 +4,7 @@
 
 根据美国环保署 的数据，厕所占家庭用水量 [的近 30%，这意味着](https://www.epa.gov/watersense/residential-toilets) [用更新、更高效的型号](https://lifehacker.com/you-need-the-kind-of-electronic-toilet-thats-popular-in-1834220226) 替换旧的会占用你一大笔水费。不幸的是，大量的前期成本对许多人来说是一个障碍，导致一些人接受创造性的节水解决方案——比如在水箱里放一块砖。
 
-Watch
+
 
 
 

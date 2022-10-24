@@ -4,7 +4,7 @@
 
 当你通过第三方供应商预订酒店时，你实际上是在以较低的价格换取灵活性。例如，Priceline 提供他们所谓的[Priceline Express Deal](https://www.priceline.com/elmo/pl/hotel/express-deals/list)，在这里你可以以低于广告价格 60%的价格预订酒店房间，但问题是他们不会在预订时告诉你你将住在哪个酒店。相反，他们只给你 [一张酒店所在位置的总图](https://www.priceline.com/relax/at/express/3000021082/DF97E78834788C855D682CD430C0F4DFB9B71248A0562A7C883F1D1D2263CCA50B29561839BC983FDB73CBF5D9EB3714959F4AAA9150E16B4ED78A7CC5982E90A2A6E554E21AD41A62103BF50D5E02F2BBF886A779D995E37063A6D2B2276E3D5D6C644E1A7F76D2B1C4BB0F5CAC5121/from/20220720/to/20220722/rooms/1?cur=USD&qdp=92&vrid=4a29e48cc28a204ab780c6c0f39dfd0c) ，并保证酒店是公司“值得信赖的合作伙伴”；直到你实际预订房间并支付房费后，你才知道你住的是哪家酒店。
 
-Watch
+
 
 ## 如何揭露 Priceline 隐藏的酒店名称
 

@@ -4,7 +4,7 @@
 
 每年，随着每一次 iOS 更新，似乎苹果试图在 iPhone 通知方面做一些新的事情。我们不是在谈论重新发明轮子或走 Android 路线——只是改善你生活质量的渐进变化，至少当它适用于你的设备时。
 
-Watch
+
 
 有了 iOS 16，你获得了比以往更多的选项来定制通知如何在锁屏上出现(其中还首次有了 [定制选项](https://lifehacker.com/all-the-ways-you-can-customize-your-iphone-s-lock-scree-1849310427))。你甚至可以用一个简单的捏手势让通知消失。
 

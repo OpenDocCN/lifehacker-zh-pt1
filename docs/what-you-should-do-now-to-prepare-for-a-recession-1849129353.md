@@ -4,7 +4,7 @@
 
 不要太危言耸听，但经济目前看起来并不太好。首先， [别看你现在 401(k)](https://lifehacker.com/stop-checking-your-401k-so-much-1849054622) 。从 [暴跌的股市](https://lifehacker.com/8-of-the-most-consequential-bear-markets-in-u-s-histor-1849068363) 到 [暴涨的消费价格](https://lifehacker.com/how-to-get-the-most-out-of-every-drop-of-gas-right-now-1848630417)[一场衰退似乎正在迫近](https://www.washingtonpost.com/business/2022/06/18/how-to-prepare-for-a-recession/) 。尽管这个消息令人不安，但你可以采取一些措施来避免恐慌，在经济低迷时期尽可能保护自己。我与个人理财专家 Jen Smith 进行了交谈，她是 Instagram 上的[@ frugalfriends podcast](https://www.instagram.com/frugalfriendspodcast/)和[modern ruffality](https://www.instagram.com/modernfrugality/)的共同主持人，她分享了她的一些顶级建议，告诉你现在可以做些什么来为即将到来的任何经济状况做好准备。
 
-Watch
+
 
 ## **从审视你的消费习惯开始**
 

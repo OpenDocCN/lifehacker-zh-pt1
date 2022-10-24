@@ -4,7 +4,7 @@
 
 奶酪迷:检查你的冰箱。根据食品药品监督管理局 (FDA)的规定，新泽西州帕特森的 El Abuelito 奶酪公司正在召回其所有的 queso fresco、quesillo、和 requeson 产品，因为这些产品可能受到了单核细胞增生李斯特菌*、* [的污染。下面是](https://www.fda.gov/safety/recalls-market-withdrawals-safety-alerts/el-abuelito-expands-recall-include-queso-fresco-quesillo-and-requeson-products-because-possible) [关于召回](https://www.fda.gov/safety/recalls-market-withdrawals-safety-alerts/el-abuelito-expands-recall-include-queso-fresco-quesillo-and-requeson-products-because-possible) 需要了解的内容，包括涉及的具体产品，产品在哪里销售，如果已经购买该怎么做。
 
-Watch
+
 
 ### 召回涉及哪些奶酪？
 

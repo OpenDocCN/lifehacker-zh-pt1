@@ -4,7 +4,7 @@
 
 烧烤可能会令人生畏。它往往是男性主导的，尽管我会说，烧烤的人比烧烤的人更冷静，更热情，更乐于助人，因为烧烤的人往往很迂腐，有点精神错乱。但是除了社区之外，很难知道从哪里开始。你需要问自己的第一个问题:g as 还是木炭？
 
-Watch
+
 
 我的父亲擅长很多事情——兽医、系苍蝇、一遍又一遍地讲同样的故事而不会让人厌烦——但烹饪不在其中。他可以管理一些烧烤，但是现在他知道了我的能力，他很少尝试为我烧烤任何东西。我开始独自烧烤，没有烧烤爸爸的指导，这是我很长一段时间回避的烹饪领域。但是后来 [我得到了一个韦伯水壶](https://lifehacker.com/follow-my-journey-from-good-cook-to-grill-boss-1846741793) ，成为了我需要的烧烤爸爸。用它，我熏过 [猪屁股](https://lifehacker.com/how-to-smoke-your-first-pork-shoulder-on-a-charcoal-gri-1847204124)[全火鸡](https://lifehacker.com/smoke-your-turkey-the-wrong-way-on-a-charcoal-grill-1848048358)[羊肩肉](https://lifehacker.com/smoke-an-easter-lamb-shoulder-on-a-charcoal-grill-1848747851) ，烤过一些相当不错的 [披萨](https://lifehacker.com/you-should-grill-homemade-pizzas-1847220003) 、 [腌菜](https://lifehacker.com/its-time-to-embrace-hot-pickle-summer-1847143817) ，还有 [抽血器](https://lifehacker.com/you-should-grill-more-chicken-hearts-1844233671) ，以及 [之类的比较普通的食物这就是说我有点偏爱木炭，但即使是我也承认丙烷和丙烷配件更适合一些人。](https://lifehacker.com/these-meats-will-help-you-build-your-charcoal-confidenc-1846896631)
 

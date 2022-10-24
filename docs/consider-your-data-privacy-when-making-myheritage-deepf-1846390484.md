@@ -4,7 +4,7 @@
 
 当有一种新的“本周风味”迷因流传时，人们应该总是有点怀疑隐私。这一次，它是 MyHeritage 的“”照片动画工具，它可以从你上传到服务的图像中呈现非常逼真的 deepfake 动画。
 
-Watch
+
 
 前提很简单:这是一种有趣的方式来了解一个人作为一个活生生的人可能会是什么样子。因此，如果你有一张你的祖父母坐在某处的超旧照片，你可以将它上传到网站，让 deepfake 工具 [发挥其神奇的](https://www.reddit.com/r/boardgames/comments/lw2kqc/the_myheritage_face_animator_works_creepily_well/) ，感受那种温暖、模糊的怀旧情绪，这种怀旧情绪只来自于现在四处活动的古代事物的静态图像。
 

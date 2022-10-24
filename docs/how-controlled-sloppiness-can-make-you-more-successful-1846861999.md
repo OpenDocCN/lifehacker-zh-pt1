@@ -4,7 +4,7 @@
 
 如果你有幸遇到过[SMART 目标设定](https://lifehacker.com/achieve-goals-using-the-s-m-a-r-t-method-5345211) ，你就会知道这个缩写代表着具体的、可衡量的、 [可分配的](https://community.mis.temple.edu/mis0855002fall2015/files/2015/10/S.M.A.R.T-Way-Management-Review.pdf) (变成了“可实现的”)、现实的、与时间相关的。特别是 [特异性](https://lifehacker.com/if-smart-goals-dont-work-for-you-try-fast-goals-instea-1839135232) 让目标更容易计划和追踪。例如，“e 少点外卖”不如“e 一周最多点两次外卖”但是，尽管 b 变得具体可能是有用的，但在一些更复杂的情况下，它也可能适得其反。
 
-Watch
+
 
 ## s 特异性的成本
 

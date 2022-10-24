@@ -4,7 +4,7 @@
 
 加密热将去中心化推向了主流，但比特币只是区块链如何创造不受公司或中央实体控制的新结构的一个例子。(尽管它无处不在，但很多人甚至不知道区块链是什么。如果你是他们中的一员，停下来读一读讲解者 [这里](https://lifehacker.com/what-is-blockchain-1822094625) 。)
 
-Watch
+
 
 最新的技术趋势是分散自治组织(Dao)的形成。艺术家、慈善机构和企业正在组建 Dao，但任何人都可以。最近，马绍尔群岛共和国甚至 [通过了一项法律](https://www.coindesk.com/policy/2022/02/15/how-the-marshall-islands-is-trying-to-become-a-global-hub-for-dao-incorporation/) 给予他们与有限责任公司同等的法律地位。开始或加入一个有好处，这样做可能比你想象的更容易。
 

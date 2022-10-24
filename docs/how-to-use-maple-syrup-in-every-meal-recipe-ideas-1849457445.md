@@ -4,7 +4,7 @@
 
 我住在佛蒙特州，这片土地上有 [枫树](https://thetakeout.com/get-a-head-start-on-fall-flavors-with-maple-cream-1849451695) 。我们有枫糖、枫糖饼干、枫糖汽水，当然还有枫糖浆。*大量*枫糖浆。2022 年，美国农业部国家农业统计局 [报告](https://www.nass.usda.gov/Statistics_by_State/New_England_includes/Publications/Current_News_Release/2022/Vermont_2022_Maple_Production.pdf) 佛蒙特州当年生产 255 万加仑枫糖浆 — 比前一年增加 80 万加仑。该州是美国枫糖浆的 [主要生产商，自 1916 年以来一直如此(虽然在 1918 年和 1926 年——尴尬！).](https://agriculture.vermont.gov/agency-agriculture-food-markets-news/vermont-sugar-season-sweet-success)
 
-Watch
+
 
 怎么处理那些糖浆？当然，你可以用它来搭配煎饼、华夫饼和法式吐司。但是枫糖浆还可以做更多的事情。以下是我家乡的一些最爱。
 

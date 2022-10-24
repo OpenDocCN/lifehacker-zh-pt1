@@ -4,7 +4,7 @@
 
 欢迎回来，跑友们！(记住， [我们都是这个月的跑者](https://vitals.lifehacker.com/go-somewhere-new-for-a-run-or-hike-1844954732) 。)在本周的 [健身挑战](https://lifehacker.com/c/lifehacker-fitness-challenge) 中，我们将跳过 [俯卧撑](https://vitals.lifehacker.com/break-up-your-run-with-pushups-for-extra-fun-and-suffer-1845105210) 和 [丘陵](https://vitals.lifehacker.com/tackle-a-hill-head-on-1845026700) 并专注于跑步的有趣部分:在平坦的跑道上快速前进，全程看着终点线。
 
-Watch
+
 
 这是我最喜欢的跑步锻炼:200 米重复跑。如果你附近的高中或中学有跑道，很可能是 400 米。这意味着我们只能跑半圈。就是这样。(我的意思是，我们将多次这样做，但不要操之过急。)
 

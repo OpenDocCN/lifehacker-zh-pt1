@@ -4,7 +4,7 @@
 
 政府机构已经宣布了一些变化，允许“梦想家”——拥有 [童年抵美(DACA)身份](https://www.uscis.gov/humanitarian/humanitarian-parole/consideration-of-deferred-action-for-childhood-arrivals-daca) 的美国居民——有资格获得 FHA 抵押贷款，以及对已经拥有这些贷款并正在努力还款的人延长抵押延期的最后期限。
 
-Watch
+
 
 美国住房和城市发展部(HUD)上周宣布，大约 70 万具有 DACA 身份的人现在有资格申请 FHA 抵押贷款，前提是他们也可以在美国合法工作之前存在一项条款，要求借款人拥有“合法居留权”——这最初给贷款人造成了混乱。随着这一变化，小时候被非法带到美国的移民现在可以获得这些贷款。
 

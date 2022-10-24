@@ -4,7 +4,7 @@
 
 将你的信息设置为“自动删除”很好，因为它一石二鸟:你的各种应用和社交网络不会被不再重要的对话堵塞，你也不必担心将你的信息永远留在那里会带来的隐私问题。我特别喜欢 Telegram 自动删除旧信息的新方法:该应用程序现在可以自动删除双方的整个对话。抱歉，人们通过搜索旧聊天记录来发现你几个月前说过的话。
 
-Watch
+
 
 要开始使用这一非常有用的功能，请确保您已经为 [Android](https://play.google.com/store/apps/details?id=org.telegram.messenger&hl=en_US&gl=US) 或 [iOS](https://apps.apple.com/us/app/telegram-messenger/id686449807) 更新到最新版本的 Telegram，然后启动应用程序并打开对话。在 Android 上，点击三点图标，选择**“清除历史记录”**并选择您的持续时间。
 

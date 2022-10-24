@@ -4,7 +4,7 @@
 
 自从二月以来，在中西部和东北部、以及随后的 [对超过 2100 万只鸟实施安乐死或死亡](https://www.aphis.usda.gov/aphis/ourfocus/animalhealth/animal-disease-information/avian/avian-influenza/hpai-2022/2022-hpai-commercial-backyard-flocks?utm_source=newsletter&utm_medium=email&utm_campaign=sendto_localnewslettertest&stream=top) 之后，禽流感又回到了新闻中。最近，有报道称，禽流感导致了火鸡和鸡蛋价格的上涨。
 
-Watch
+
 
 高额的食品杂货账单(在持续的供应链危机和不断上升的通货膨胀中)已经足够令人担忧了，但是你可能会想，出于其他原因，你应该对禽流感有多担心。以下是你需要知道的。
 

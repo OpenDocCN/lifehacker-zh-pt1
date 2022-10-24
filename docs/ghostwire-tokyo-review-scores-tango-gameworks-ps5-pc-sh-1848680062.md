@@ -4,7 +4,7 @@
 
 [*ghost wire:Tokyo*](https://kotaku.com/ghostwire-tokyo-tango-gameworks-dishonored-ps5-release-1848482284)的评论，一款来自 [游戏](https://kotaku.com/the-evil-within-the-kotaku-review-1649303587) [系列](https://kotaku.com/the-evil-within-2-the-kotaku-review-1819716601) 的沉浸式 sim 卡于今天早上登陆，如此恐怖，以至于我一提到它的名字就忍不住失声痛哭。发行商 Bethesda Softworks 没有提供 *Kotaku* 早期访问， [因为 duh](https://kotaku.com/a-price-of-games-journalism-1743526293) ，所以我们正在体验这个游戏，以及它的出版周期，和你们其他人一样。到目前为止，各种观点满天飞。
 
-Watch
+
 
 在撰写本文时， *Ghostwire: Tokyo* 是 [在 Metacritic](https://www.metacritic.com/game/playstation-5/ghostwire-tokyo/critic-reviews) 上坐在 75。评论家们似乎对它的背景——熙熙攘攘的涉谷区的重复，其中大多数人神秘失踪，被被困在两个领域之间的灵魂所取代——及其对细节的纯粹关注广泛接受。另一方面，这个由两个主角(一个人类，一个灵魂)主演的故事似乎不太成功。开放世界本身也受到数字绘画设计的困扰，这在很大程度上导致了一波开放世界疲劳。与此同时，一些人喜欢其精简战斗工具包的简单性；其他人渴望更深入一点。
 

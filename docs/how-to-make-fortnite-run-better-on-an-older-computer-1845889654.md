@@ -4,7 +4,7 @@
 
 拥有超过 3 . 5 亿玩家的，*，*是游戏领域最大的特许经营商之一，它的成功在很大程度上归功于它的便利性。这款游戏可以在各种主流游戏机、许多智能手机、所有 Windows PCs 和 MAC 电脑上免费下载和玩( [带大警告](https://lifehacker.com/how-to-sneak-fortnite-on-your-iphone-1845598969) )。即使是硬件过时的较弱的计算机也可以在可玩状态下运行*堡垒之夜*—，但 Epic 刚刚添加了新的图形选项，这应该可以帮助甚至是 [土豆 PC](https://www.urbandictionary.com/define.php?term=Potato%20PC) 获得可靠的性能。
 
-Watch
+
 
 ### 性能模式
 

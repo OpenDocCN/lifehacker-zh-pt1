@@ -4,7 +4,7 @@
 
 经过几个月的测试，Android 12 终于来了。此次更新为 Android OS 带来了 [的改进和变化，比如新材质的 You UI 设计、滚动截图、快速 wifi 切换等。如果你想看看你自己的 Android 设备上有什么新东西，下面是如何开始的。](https://gizmodo.com/15-things-you-can-do-in-android-12-that-you-couldnt-do-1847598673) 
 
-Watch
+
 
 ## 哪些手机支持 Android 12？
 

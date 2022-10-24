@@ -4,7 +4,7 @@
 
 当你能接受每天吃完全一样的食物时，饮食计划就容易多了。另一方面， [多样化是健康饮食的重点之一](https://www.choosemyplate.gov/eathealthy/variety) 。那么，如果你一直吃同样的东西，到底有多糟糕呢？
 
-Watch
+
 
 ### 当心营养缺乏
 

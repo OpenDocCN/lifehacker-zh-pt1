@@ -4,7 +4,7 @@
 
 对于每一个喜欢赤脚踩在地毯上的感觉的人来说，也有其他人认为地毯是最糟糕的地板，是我们搬进来后第一件要拆掉的东西。讨厌地毯也不仅仅是审美上的——地毯可以是[到](https://lifehacker.com/how-to-remove-sunscreen-stains-from-furniture-and-carpe-1847487227) [保持清洁](https://lifehacker.com/how-to-get-pet-vomit-and-its-smell-out-of-your-carpet-1848980277) ，而且无论我们做什么，往往只是表面上的“清洁”。
 
-Watch
+
 
 ## 地毯有这么差吗？
 

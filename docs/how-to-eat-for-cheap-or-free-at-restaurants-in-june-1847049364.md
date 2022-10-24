@@ -25,4 +25,3 @@
 *   星巴克正在进行一项交易，当你通过 Uber Eats 点餐时，你可以获得免费送货服务。
 *   **温迪的**想在六月 的每周五，在该公司的 app [中购买任何东西，都可以免费赠送一个小 Frosty 或 Frosty-ccino。](https://lifehacker.com/get-a-free-frosty-every-friday-in-june-at-wendys-1847039907) 
 
-Watch

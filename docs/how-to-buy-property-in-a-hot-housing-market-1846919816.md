@@ -4,7 +4,7 @@
 
 房地产市场没有过热，而是着火了。根据全国房地产经纪人协会 的数据，在 2021 年第一季度， [被压抑的大流行后房屋需求和供应短缺已经推动现有独栋房屋的销售价格中值同比上涨 16.2%。要进入卖方市场，买家需要耐心和放弃的意愿——这里有一些在新房上获得好交易的建议。](https://www.nar.realtor/newsroom/virtually-every-metro-area-experienced-home-prices-rise-in-first-quarter-of-2021)
 
-Watch
+
 
 ## **在热点市场买入时，做好等待的准备**
 

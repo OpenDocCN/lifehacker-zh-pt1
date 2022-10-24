@@ -4,7 +4,7 @@
 
 家庭美元在全国有超过 8000 家分店 ，在每个州都有分店威尔伯阿拉斯加和夏威夷州。在一些农村地区，这是镇上唯一的游戏——这意味着如果你用完了卫生纸、咖啡或牙膏，你的选择要么是家庭美元，要么是迷你公路旅行。
 
-Watch
+
 
 如果这听起来很熟悉，你可能会想花几分钟检查一下你从折扣零售商那里购买的个人护理或健康产品。根据美国美国食品药品监督管理局[的安全警报，家庭美元正在召回该类别的 400 多种商品。以下是需要了解的内容。](https://www.fda.gov/safety/recalls-market-withdrawals-safety-alerts/voluntary-recall-certain-over-counter-products?utm_medium=email&utm_source=govdelivery#recall-announcement)
 

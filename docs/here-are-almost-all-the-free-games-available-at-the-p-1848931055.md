@@ -4,7 +4,7 @@
 
 PlayStation 今天宣布了一份庞大的游戏清单 ，这些游戏将在新的 PlayStation Plus 等级发布时向客户提供。索尼声称这个列表不完整，所以随着计划的推出，预计会有更多的游戏，但不要搞错:这是一个巨大的列表，使下个月的 PlayStation Plus 发布更加令人兴奋。
 
-Watch
+
 
 作为更新，PlayStation 正在将其 PlayStation Now 和 PlayStation Plus 订阅服务 [合并为一个新的 PlayStation Plus 服务](https://lifehacker.com/should-you-cancel-or-upgrade-your-playstation-plus-su-1848721975) ，其中包括在线游戏和一长串“免费”游戏(当然，在订阅付费计划后可以免费玩)。这项新服务将于 6 月 13 日在北美推出，并为玩家的在线 PlayStation 体验提供更多选择。
 

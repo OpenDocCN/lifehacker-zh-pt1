@@ -4,7 +4,7 @@
 
 学习或教授一个新的棋盘游戏既有挑战性又让人抓狂。要么你是一个试图向冷漠的人群解释规则的人，要么你正在被“教导”，并被期望从单调的讲师那里学到每一分钟的细节。如果你厌倦了每个游戏之夜都以同样的方式开始，那么对于桌游老师和学生来说，有一个更好的选择。
 
-Watch
+
 
 [Dized](https://dized.com/) 是一个免费的应用程序，旨在通过为每个标题专门创建的迷人教程来引导玩家完成新的棋盘游戏。(程序 [背后的开发人员启动了一个 Kickstarter](https://dized.com/) 来实现他们的愿景，尽管我第一次看到它要感谢 gamesbymondo 的 [。)在与支持者取得一些成功后，这种体验在](https://vm.tiktok.com/TTPd4WYtAB/) [iOS](https://itunes.apple.com/us/app/dized/id1041701520?ls=1&mt=8) 、 [Android](https://dized.com/android/) 和[web](https://dized.com/)上直播，尽管容量有限。我们去看看。
 

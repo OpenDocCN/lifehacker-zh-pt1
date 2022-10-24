@@ -4,7 +4,7 @@
 
 数据加密使得没有正确的解密密钥或密码的人几乎不可能访问受保护的文件。许多应用程序使用加密来保护你的数据安全，包括 [密码管理器](https://lifehacker.com/how-to-get-started-with-a-password-manager-1846890484) 、[VPN](https://lifehacker.com/how-to-find-a-trustworthy-vpn-1833045522)，甚至 [一些通讯应用程序](https://lifehacker.com/for-better-privacy-use-these-apps-instead-of-whatsapp-1845551260)——但你应该加密的不仅仅是你在网上分享的数据。
 
-Watch
+
 
 我们都在电脑和 USB 硬盘上存储重要的文件和信息，除非这些数据得到适当的保护，否则很容易成为窥探者、小偷甚至黑客的目标。
 

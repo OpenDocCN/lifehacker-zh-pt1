@@ -4,7 +4,7 @@
 
 如果你发现一只小鸟 ，你不需要干预 [。真正地，](https://lifehacker.com/what-to-do-if-you-find-a-baby-bird-1843547313) [初出茅庐不需要你的帮助](https://lifehacker.com/fledgling-birds-dont-need-to-be-rescued-1847517710) 。但是一只受伤的鸟就是另一回事了。例如，如果有一只飞进你的 [无条纹窗口](https://lifehacker.com/our-best-glass-cleaning-hacks-for-a-streak-free-shine-1847732023) ，并且现在正躺在你的甲板上，这只能说明你想帮助你的有羽毛的小朋友。你可以那样做，但是你必须小心。这是帮助受伤小鸟的最好方法。
 
-Watch
+
 
 ## 看一会儿鸟
 

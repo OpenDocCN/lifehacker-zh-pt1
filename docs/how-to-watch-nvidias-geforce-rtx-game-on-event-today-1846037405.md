@@ -4,7 +4,7 @@
 
 今天晚些时候，Nvidia 的“GeForce RTX: Game On”现场活动将让我们首次看到该公司最新的游戏硬件。(这里希望任何新的公告 [降低](https://lifehacker.com/why-graphics-cards-are-even-more-expensive-in-2021-1846036657) 的价格，提高顶级显卡的可用性。)
 
-Watch
+
 
 直播将于 1 月 12 日星期二美国东部时间中午/太平洋时间上午 9 点开始。可以在 [Nvidia 官方直播活动页面](https://www.nvidia.com/en-us/geforce/special-event/) ，以及其官方 [YouTube](https://www.youtube.com/NVIDIA) 和 [Twitch](https://www.twitch.tv/nvidia) 频道观看。官方页面也有链接，可以给你的 Google 或者 iCal 日历添加提醒。
 

@@ -4,7 +4,7 @@
 
 我不会说在家油炸不“值得”，但我会说这绝对令人不快。太臭了。很乱。粘稠的汽化食用油弄得到处都是——包括我自己——而且要让厨房通风并恢复到油炸前的状态需要很长时间。专用的深油炸锅通过把烹饪从房子里移到院子里来解决这个问题，但是你实际上并不需要这些——你只需要一个烤架。
 
-Watch
+
 
 根据 AmazingRibs.comT3[的 Meathead Goldwyn 的说法，一个“普通的后院加油工”非常适合深度(或浅度)油炸:](https://amazingribs.com/more-technique-and-science/how-to-fry-on-your-grill)
 

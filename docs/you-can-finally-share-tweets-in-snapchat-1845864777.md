@@ -4,7 +4,7 @@
 
 Twitter 和 Snapchat 在技术上是社交媒体市场的竞争对手，但这两家公司最近联手，让在 Snapchat 上分享推文变得更加容易。新的跨平台分享选项目前可用于 iOS 上的 Twitter，并将很快应用于 Android。
 
-Watch
+
 
 到目前为止，快速分享推文的唯一方式是在 Twitter 应用程序中截图，打开 Snapchat，开始一个新帖子，然后找到并导入图片。但有了这种新的跨平台集成，每当你在 Twitter 应用程序中点击分享一条推文时，Snapchat 就会出现，点击 Snapchat 图标会将推文直接加载到 Snapchat 中。这无疑是从杂耍多个应用程序和菜单到分享一个屏幕截图的升级。
 

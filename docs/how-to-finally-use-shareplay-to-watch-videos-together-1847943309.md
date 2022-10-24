@@ -4,7 +4,7 @@
 
 苹果的 SharePlay 是未能进入最终 [iOS 15 版本](https://lifehacker.com/36-of-the-best-new-ios-15-features-for-iphone-1847674175) 的功能之一。但是现在，随着 [iOS 15.1](https://lifehacker.com/every-cool-ios-15-1-feature-update-worth-knowing-about-1847931068) ，它面向所有 iPhone 和 iPad 用户(macOS Monterey 将在秋季晚些时候收到更新)。
 
-Watch
+
 
 它果然名不虚传。与 [网飞手表党](https://lifehacker.com/watch-shows-on-hulu-disney-and-more-with-your-friends-1842924419) 类似，SharePlay 是苹果为 FaceTime 提供的屏幕、媒体和应用共享功能。该功能甚至扩展到第三方应用程序——例如，使用 [Apollo](https://apps.apple.com/us/app/apollo-for-reddit/id979274575#?platform=iphone) 应用程序，你可以和朋友一起浏览 Reddit，一边浏览 gif，一边高亮显示评论。
 

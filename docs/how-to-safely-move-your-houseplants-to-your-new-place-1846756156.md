@@ -4,7 +4,7 @@
 
 几乎所有关于搬家的事情都很难，很烦人，让你发誓你再也不会搬家了。但是带着一大堆(甚至几堆)室内植物搬家就更加棘手了。你要确保他们在旅行中幸存下来，他们的罐子不会破，土壤不会洒得到处都是，不会弄脏你剩下的东西。
 
-Watch
+
 
 幸运的是，在一篇为 [mindbodygreen](https://www.mindbodygreen.com/articles/how-to-prepare-and-transport-your-houseplants-during-move) 撰写的文章中，专业植物设计师 Hilton Carter 分享了一些成功移动室内植物的小技巧，在这个过程中保持它们完好无损。以下是需要了解的内容。
 

@@ -4,7 +4,7 @@
 
 谷歌为其网络浏览器 [推出](https://lifehacker.com/everything-new-in-chrome-104-1849370921) [新软件](https://lifehacker.com/you-need-to-update-chrome-again-1849424239) 像钟表一样；事实上，很多时候，当新版本推出时，你可能会不去理会它们。不过，不要跳过 Chrome 105——我修补了一系列令人讨厌的安全漏洞，并增加了一些新功能。
 
-Watch
+
 
 ## 谷歌修补 24 个新的安全漏洞
 

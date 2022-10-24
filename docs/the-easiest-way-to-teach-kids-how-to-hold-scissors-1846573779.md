@@ -4,7 +4,7 @@
 
 当孩子们磨练他们精细的运动技能时，有很多基本的任务是他们通常很难学会的。例如[系鞋带](https://offspring.lifehacker.com/teach-kids-to-tie-their-shoes-with-the-big-loops-trick-1828838854)[穿上自己的夹克](https://offspring.lifehacker.com/teach-your-preschooler-how-to-put-on-a-jacket-with-the-1828497274) ，这些都是我们通过练习和耐心帮助他们掌握的技能。然而，当谈到使用剪刀时，我们可能更喜欢尽可能熟练、尽可能快地掌握它们。
 
-Watch
+
 
 适当地拿着一把剪刀对幼儿来说是不直观的。他们以尴尬的角度扭曲他们的手和手腕，以一种砍它而不是切它的方式攻击那张建筑纸。但是 [忙碌蹒跚学步](https://www.instagram.com/busytoddler/) 的苏茜·艾莉森有 [一个简单的小窍门，你只需要一个马克笔或一个小贴纸:](https://www.instagram.com/p/CM41sbblW3p/)
 

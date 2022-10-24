@@ -4,7 +4,7 @@
 
 随着 2020 年接近尾声，我想鼓励我们所有人回顾一下我们在健身方面取得的任何成功。如果你坚持了任何训练，那就是胜利。如果你休假是因为这最有利于你的心理健康，那也是一种胜利。
 
-Watch
+
 
 去年 12 月，我们制定了一系列健康基准，我把它框定为“给未来自己的礼物”我们测试了[引体向上](https://vitals.lifehacker.com/some-benchmarks-for-your-pull-up-journey-1840412113)[俯卧撑](https://vitals.lifehacker.com/try-these-push-up-exercises-for-your-year-end-benchmark-1840555978) 和 [有氧健身](https://vitals.lifehacker.com/test-your-cardio-fitness-in-our-last-year-end-benchmark-1840617612) 。如果你坚持训练，尽一切办法重温它们，看看你是如何进步的。
 

@@ -4,7 +4,7 @@
 
 当开始一个花园时，你有两个选择:种植种子或幼苗(和其他移植)。那些想拥有一个近即时花园的人可能会想从已经发芽的植物开始。但是如果你决定走种子这条路，你可能想尽快挑选至少能产生绿色 T2 的种子。
 
-Watch
+
 
 在 [一篇关于井+好](https://www.wellandgood.com/quickest-sprouting-flower-seeds/) 的文章中，作家弗朗西丝卡·克伦帕采访了 [艾利森·沃林、](https://www.instagram.com/finchandfolly/?hl=en) 一位来自缅因州的有机园丁，找出哪种种子发芽最快。以下是需要了解的内容。
 

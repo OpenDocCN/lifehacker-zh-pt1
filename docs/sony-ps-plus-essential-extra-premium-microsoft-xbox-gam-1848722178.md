@@ -4,7 +4,7 @@
 
 今天早上， [索尼终于在](https://kotaku.com/playstation-unveils-game-pass-competitor-shell-1848716609) [发布了其游戏点播服务](https://blog.playstation.com/2022/03/29/all-new-playstation-plus-launches-in-june-with-700-games-and-more-value-than-ever/#sf255029422) ，一篇博文 中的星号比你第一套公寓的租约上的星号还多..是 PS Plus 的改版叫… [ *鼓点*等一下… [ *又一个鼓点*PS Plus。
 
-Watch
+
 
 与由*最先报道的细节 [一致，PS Plus 2.0——是的，我将这么称呼它——本质上将索尼的两个订阅服务 PS Plus 和 PS Now 合并成一个易于消化的包。从表面上看，新改进的服务似乎是对微软游戏点播服务](https://www.bloomberg.com/news/articles/2021-12-03/playstation-plans-new-service-to-take-on-xbox-game-pass) 的一个显而易见的回答，该服务目前有超过 2500 万人订阅。两家公司都提供数百款游戏。两者都是月会员。两者都有允许你流式播放游戏的选项。*
 

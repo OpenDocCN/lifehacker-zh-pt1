@@ -4,7 +4,7 @@
 
 Fitbit now [通过其最新的应用程序更新(在整个二月份推出)，支持美国用户在应用程序](https://blog.fitbit.com/fitbit-blood-glucose-tracking-feature/) 中跟踪您的血糖读数。你的 fitbit 设备还是不能自己测血糖；只是应用程序中的跟踪是新的。
 
-Watch
+
 
 Fitbit 在他们的 [博客](https://blog.fitbit.com/fitbit-blood-glucose-tracking-feature/) 中宣布了这一新功能，并表示:“除了你的日常健康行为(如活动、营养、睡眠或压力)和其他生物特征(如体重)之外，有一个地方可以跟踪血糖，这对学习新策略和帮助改善你的健康管理非常有价值。”
 

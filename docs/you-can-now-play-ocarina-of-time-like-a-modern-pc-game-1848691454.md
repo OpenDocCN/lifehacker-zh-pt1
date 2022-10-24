@@ -4,7 +4,7 @@
 
 当任天堂在 1996 年放弃《塞尔达传说:时间之笛》时，游戏世界被不可逆转地改变了。3D 动作冒险游戏彻底改变了游戏类型，激发了新一代游戏的灵感。虽然这款游戏在 2022 年仍然很受欢迎(它只是去年年底作为任天堂 Switch 扩展包 的一部分在 Switch 上推出的 [)，但它显然仍然是那个时代的游戏。但是如果事情不需要那样的感觉呢？](https://lifehacker.com/should-you-subscribe-to-nintendo-switch-online-s-expans-1847871636) 
 
-Watch
+
 
 [进入港湾大师](https://www.videogameschronicle.com/news/zelda-ocarina-of-time-pc-port/) ，开发者们开始了他们自己的冒险之旅，他们的简单目标是让*时间之笛*在 PC 上感受更现代的游戏体验。他们的目标之所以成为可能 [要感谢粉丝们将游戏逆向工程成 C 代码](https://kotaku.com/ocarina-of-times-source-code-has-been-reverse-engineere-1848129199) ，这是一项为期两年的壮举。从那里开始，Harbour Masters 能够制作一个带有高清图形、宽屏、控制器隆隆声、调制支持等功能的时间陶笛端口。
 

@@ -4,7 +4,7 @@
 
 生姜是一种你不必担心在食谱中需要的时候买太多的配料。有这么多用途——包括[调味油](https://skillet.lifehacker.com/use-dried-up-ginger-to-make-a-flavored-oil-1846400817)[沙拉酱](https://skillet.lifehacker.com/this-ginger-dressing-tastes-exactly-like-it-came-from-a-1827997044)[茶](https://lifehacker.com/drink-ginger-tea-not-ginger-ale-if-you-have-an-upset-1795705343) ，不一而足——剩菜总是受欢迎的。
 
-Watch
+
 
 但是有什么比吃剩姜更好的呢？有你自己的生姜供应，你可以在家里种植，怎么样？是的，我们也是这么想的。以下是你需要知道的关于在家种植生姜的事情，承蒙来自 BobVila.com 的萨凡纳·谢尔的 [。](https://www.bobvila.com/articles/how-to-grow-ginger/)
 

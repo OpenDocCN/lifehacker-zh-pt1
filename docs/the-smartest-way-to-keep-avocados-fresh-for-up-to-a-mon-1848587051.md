@@ -4,7 +4,7 @@
 
 *更新，2022 年 6 月 1 日:FDA* [*建议不要将鳄梨储存在水中*](https://lifehacker.com/why-you-shouldnt-store-your-avocados-in-water-after-all-1849001266?rev=1654102413314) *，因为这可能会导致李斯特菌和其他有机体的细菌生长，潜在地使你生病。冷藏鳄梨不加水也没关系。原文如下。*
 
-Watch
+
 
 购买鳄梨总是有点冒险:它们往往在不可预测的时间间隔内成熟，在你有机会吃它们之前，成熟的那一刻转瞬即逝。当然，你可以 [冻结它们](https://lifehacker.com/can-i-freeze-it-how-to-extend-the-life-of-fruits-vege-5929588) ，但是*并不意味着*纹理的改变，这可能并不总是如你所愿。
 

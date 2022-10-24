@@ -4,7 +4,7 @@
 
 我不认为我曾经遇到过我不喜欢的姜。蜜饯姜、腌姜、鲜姜——都是好姜。(我也是*红发人*的粉丝，但这不是我想说的。)我大部分时间都非常依赖腌姜——特别是在 [调味酱](https://skillet.lifehacker.com/this-ginger-dressing-tastes-exactly-like-it-came-from-a-1827997044) 和 [饮料](https://lifehacker.com/liven-up-your-lemonade-with-sushi-ginger-brine-1836017448)——但是寒冷的天气需要一种更甜、更温暖的姜根。寒冷的天气需要油炸生姜。
 
-Watch
+
 
 当然，它“不是真正的油炸，”而是更“涡轮烘烤”(“涡轮烘烤器”可能是空气油炸锅更准确的名字，我认为，但木已成舟。)撇开语义不谈，空气- 炸姜是大多数人的美味，如果不是你所有的感官的话。它有一种焦糖化的，淡淡的蜜饯味，非常柔软，你可以用手撕开它。这比烤姜的烟雾稍微少一点(这是 [Bon App](https://skillet.lifehacker.com/roasting-ginger-makes-it-more-flavorful-than-ever-1787986832) 烤姜的方式)，但真正的区别在于你的能源账单。
 

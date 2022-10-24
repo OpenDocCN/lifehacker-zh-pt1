@@ -4,7 +4,7 @@
 
 如果你在就业市场上( [或者你可能很快就要成为](https://www.cbsnews.com/news/great-resignation-60-minutes-2022-01-10/) )，仔细梳理一下简历上的动词选择是值得的。虽然谦逊是一种宝贵的软技能，可以在工作场所传达 [情商](https://lifehacker.com/use-these-phrases-to-sound-more-emotionally-intelligent-1848412296) ，但它在强调你职业成就的文件中没有一席之地。你的简历是你在数百名候选人中脱颖而出的唯一机会，它需要充满强有力的行动动词，传达机构和影响——而不是那些让你处于“帮助”地位的动词。
 
-Watch
+
 
 ## 为什么你不应该说你“帮了忙”
 

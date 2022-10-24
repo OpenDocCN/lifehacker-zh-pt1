@@ -4,7 +4,7 @@
 
 通常，在智能手机和平板电脑上安装间谍软件并不容易，尤其是在 iPhone 或 iPad 上。但是 [飞马间谍](https://en.wikipedia.org/wiki/Pegasus_(spyware)#:~:text=Pegasus%20is%20a%20spyware%20developed,versions%20up%20to%20iOS%2014.6.) 是个例外。2021 年 7 月， [研究人员发现，飞马](https://www.cnet.com/tech/mobile/pegasus-spyware-political-fallout-whats-up-with-this-phone-surveillance-tech/) 已经感染了一些记者、活动家和政治家的智能手机。
 
-Watch
+
 
 Pegasus 如此致命的原因是用户不需要做任何事情来激活它。在某些情况下，仅仅收到一条信息就足以安装间谍软件，一旦安装完毕，它就给了黑客完全访问设备及其数据的权利。
 

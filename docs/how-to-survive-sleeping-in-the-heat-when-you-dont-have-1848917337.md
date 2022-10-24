@@ -4,7 +4,7 @@
 
 [你可以让你的空调更有效更高效](https://lifehacker.com/how-to-make-your-air-conditioner-more-effective-and-eff-1847084726) ，你可以 [做一个 DIY 的空调](https://lifehacker.com/five-effective-diy-alternatives-to-running-an-air-condi-5568311) ，你可以 [给家里降温根本不用空调](https://lifehacker.com/top-10-ways-to-stay-cool-without-air-conditioning-1782370303) 。但是当你因为太热而无法入睡时，你能做什么呢？
 
-Watch
+
 
 我认为自己是这方面的专家。我童年的家没有空调，我也不是在温和的气候下长大的——我在大西洋中部长大，那里的夏季夜晚温度通常会超过 75 度。不幸的是，对我来说，学习如何在高温下睡觉比试图说服我的荷兰移民父亲安装几个窗户单元更容易。
 

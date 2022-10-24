@@ -4,7 +4,7 @@
 
 [基于单词的单词变体](https://lifehacker.com/the-10-best-wordle-alternatives-ranked-by-difficulty-1848859009) 非常有趣。格式的每一次调整都会给游戏带来新的细微差别。但是有时候，扩展你的视野去猜测那些*不是*字母在网格上的具体位置是值得的。我今天就这么做了，我爱上了 [Artle](https://www.nga.gov/artle.html) 。
 
-Watch
+
 
 艺术品猜谜游戏 [来自国家美术馆](https://www.washingtonpost.com/arts-entertainment/2022/06/30/artle-national-gallery-wordle/) ，以他们收藏的艺术家为特色。我是艺术史爱好者吗？当然不是。但是我喜欢玩吗？非常喜欢。
 

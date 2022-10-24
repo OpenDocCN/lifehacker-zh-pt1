@@ -4,7 +4,7 @@
 
 由于最新的 Windows 11 更新，所有用户现在都可以在他们的个人电脑 上原生运行 [安卓应用。在此次更新之前，Android 应用支持是 Windows 11 内部人员独有的测试功能，但现在，任何人都可以下载和安装应用——至少，来自新的亚马逊应用商店预览版的应用。](https://blogs.windows.com/windowsexperience/2022/02/15/bringing-you-closer-to-what-you-love-with-new-experiences-in-windows-11/) 
 
-Watch
+
 
 对于 Android 用户来说，这是一个同步他们的智能手机和 PC 应用程序的好方法，但并不是所有的东西都会交叉。亚马逊应用商店仍处于预览阶段，目前只有少数应用得到官方支持。同样，由于 Windows 11 使用亚马逊应用商店而不是谷歌 Play 商店来下载安卓应用，你下载的任何高级应用、或你进行的任何应用内购买、都将绑定到你的亚马逊账户而不是你的谷歌账户。当然，大多数安卓设备使用谷歌 a 账号。
 

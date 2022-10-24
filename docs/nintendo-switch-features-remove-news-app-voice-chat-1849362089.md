@@ -4,7 +4,7 @@
 
 [PlayStation 5 的荣誉功能](https://www.playstation.com/en-us/support/games/ps5-accolades/) 允许用户在多人游戏中向同伴玩家提供奖励，这一想法有助于在游戏社区中培养善意和友情。但是 [索尼本周正式让它从 PS5](https://kotaku.com/playstation-5-sony-accolades-online-feature-removed-ps5-1849355205) 中退役，原因只有一个:没人用它。大多数人(嗨)似乎都不知道它的存在。
 
-Watch
+
 
 这引发了一场思考:还有哪些游戏主机仍有无用的功能？以开关为例。当然，任天堂的混合掌机有很多悄悄有用的小动作，像 [它的通用变焦功能](https://kotaku.com/how-to-use-the-switch-s-zoom-feature-to-make-game-text-1839259385) 。但是它也有一些可能在没有人关心或者甚至没有人注意的情况下被清除。
 

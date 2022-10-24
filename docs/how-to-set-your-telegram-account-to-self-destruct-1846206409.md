@@ -4,7 +4,7 @@
 
 Kerboom。那是你的电报账号自动删除自己的声音。老实说，我希望这个特性能融入更多的服务中。当你连续两年没有登录的时候，一个你从来没有用过的旧邮箱账户消失不是很棒吗？
 
-Watch
+
 
 电报的自毁程序通常在六个月不活动时启动。为电报 [描述](https://telegram.org/faq#q-how-does-account-self-destruction-work) :
 

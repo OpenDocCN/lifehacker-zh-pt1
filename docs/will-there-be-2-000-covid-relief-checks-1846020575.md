@@ -4,7 +4,7 @@
 
 随着民主党 [参议院决选胜利](https://www.cnn.com/2021/01/07/politics/georgia-senate-runoff-loeffler-warnock/index.html) 打破华盛顿的权力平衡，乔·拜登的立法议程突然获得了新的生命。那么，那些 2000 美元的 COVID-relief 支票呢——我们能现实地期待很快收到额外的刺激资金吗？
 
-Watch
+
 
 ### **令人鼓舞的迹象**
 

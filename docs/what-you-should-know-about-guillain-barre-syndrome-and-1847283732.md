@@ -4,7 +4,7 @@
 
 一些接种了强生/让桑新冠肺炎疫苗(单剂量疫苗)的人出现了一种称为 [格林-巴利综合征](https://www.ninds.nih.gov/Disorders/Patient-Caregiver-Education/Fact-Sheets/Guillain-Barré-Syndrome-Fact-Sheet) 的症状。这种情况经常发生，食品和药物管理局要求他们在患者的情况说明书中增加一条说明，但仍然没有考虑改变注射疫苗的风险/收益平衡。(所有的 COVID 疫苗都比获得真正的 COVID 安全得多。)
 
-Watch
+
 
 ## 什么是格林-巴利综合征？
 

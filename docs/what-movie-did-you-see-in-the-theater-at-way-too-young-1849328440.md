@@ -4,7 +4,7 @@
 
 据我所知，我在电影院看的第一部 R 级电影是《机械战警 2》(RoboCop 2)(T1)，在这部电影中，一名青春期前的犯罪头目被一名吸毒成瘾的杀手无情地枪杀，这名杀手的大脑被切除，并被植入一个带有 [的机器人身体，一张可怕的人脸通过基本的计算机图形](https://beforesandafters.com/2020/03/30/robocop-2-the-crazy-story-of-how-cain-got-his-cg-puppeteered-head/) 制作成动画。我当时九岁。
 
-Watch
+
 
 众所周知，PG-13 级电影直到 1984 年夏天才推出，其创作 [主要是由于父母对 PG 级电影*中人类牺牲的内脏场景的强烈抗议【印第安纳·琼斯】和*](https://www.mentalfloss.com/article/559038/what-movie-was-responsible-creation-pg-13-rating)T5】。但这与我自己在 80 年代成长的记忆并不完全一致，在那个时代，我遇到的大多数父母似乎都不介意让他们的孩子看 R 级电影，只要他们没有胸部。(尽管在一个保守的浸信会非常活跃，我爸爸还是让我在小学看了《终结者》，只快进了一个温和的性爱场景。)
 

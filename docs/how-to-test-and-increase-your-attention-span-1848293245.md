@@ -6,7 +6,7 @@
 
 在过去的几年里，你可能已经看到至少一篇文章声称 [人类的注意力跨度](https://www.marketplace.org/2014/02/11/business/goldfish-have-longer-attention-spans-americans-and-publishing-industry-knows-it/) 正在缩小，以至于 [甚至金鱼](http://time.com/3858309/attention-spans-goldfish/) 都比我们更加专注。
 
-Watch
+
 
 尽管 BBC 2017 年的一篇文章花时间梳理了产生这一数字的统计数据及其来源，对其有效性提出了质疑，但许多人公开形容自己注意力持续时间短。有些人甚至提到患有或“被患有”ADHD(指注意力缺陷多动障碍)，好像这是一种令人讨厌的习惯，而不是一种严重的临床诊断。
 

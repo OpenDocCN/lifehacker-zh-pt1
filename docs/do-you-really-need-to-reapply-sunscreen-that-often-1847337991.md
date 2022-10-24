@@ -4,7 +4,7 @@
 
 在阳光下晒了一段时间后，你应该重新涂抹防晒霜——根据 FDA 指南 ，每两个小时 [。但是如果你一直不在阳光下呢？如果你使用矿物防晒霜，它不会像某些化学防晒霜那样被“用完”呢？原来你还是需要重新申请的。](https://www.fda.gov/drugs/understanding-over-counter-medicines/sunscreen-how-help-protect-your-skin-sun) 
 
-Watch
+
 
 正如化学家 Michelle Wong 在 中解释的那样，重新涂抹不仅仅是防晒霜用完了——尽管一些较老的防晒成分*吸收的阳光越多，效果就越差。(然而今天，大量的化学防晒霜可以在阳光下停留长达数小时而不会分解。)还有其他原因。*
 

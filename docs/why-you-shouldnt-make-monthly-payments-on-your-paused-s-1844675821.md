@@ -6,7 +6,7 @@
 
 眼下，联邦学生贷款的利息是 [暂停到 9 月 30 日](https://twocents.lifehacker.com/make-a-plan-for-the-return-of-federal-student-loan-paym-1844537532) 以应对疫情。你应该继续定期支付联邦贷款来减少你的本金吗？除非你现金充裕，否则答案是“不”
 
-Watch
+
 
 ### 兴趣才是最重要的
 

@@ -4,7 +4,7 @@
 
 Pixel 6 和 6 Pro 有很多令人喜欢的地方，但也有一些令人头疼的问题。上次我们谈到设备时，我们谈到了如何修复 Pixel 6 的 [慢速指纹传感器](https://lifehacker.com/how-to-fix-your-pixel-6s-slow-fingerprint-scanner-1848074145) 。今天，似乎又出现了一个令人头疼的问题，许多用户抱怨他们的 [Pixel 6 或 Pixel 6 Pro 无法连接到他们的蜂窝网络](https://www.androidpolice.com/google-pixel-6-users-are-complaining-of-random-signal-loss/) 。
 
-Watch
+
 
 许多沮丧的用户在 Reddit 上概述了这些信号问题；有些人说，他们的手机会掉线，但在几分钟内会稳定地重新连接，而其他人则不得不通过故障排除措施来恢复蜂窝连接。 [据 9to5Google](https://9to5google.com/2021/12/02/android-12-pixel-6-connectivity-issues/) 报道，一些人体验到他们的 Pixel 显示“无 SIM 卡”警告，而另一些人则看到 SIM 卡已连接，根本无法使用连接。随着超过 100 个回复 [这个 Pixel 手机帮助支持页面](https://support.google.com/pixelphone/thread/133343575/my-new-pixel-6-pro-keeps-having-no-service-restart-required-to-temporarily-resolve?hl=en) ，显然有许多 Pixel 用户对这个问题感到不安。
 

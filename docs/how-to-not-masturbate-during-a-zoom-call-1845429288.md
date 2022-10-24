@@ -4,7 +4,7 @@
 
 听着，我明白。办公室和家之间的界限已经变得如此微妙，以至于我们无法区分什么时候可以手淫，什么时候绝对不可以手淫。既然我们在 Lifehacker 做 [诚实服务新闻](https://twitter.com/clairelizzie/status/1318605953172828161?s=20) ，我想分享我学到的个人建议，让你不要犯下 [令人尴尬的愚蠢错误](https://www.vice.com/amp/en/article/epdgm4/new-yorker-suspends-jeffrey-toobin-for-zoom-dick-incident) 。”
 
-Watch
+
 
 作为证明，我到处都手淫过。十几岁的我是手淫的山姆我；手淫的是我的绿鸡蛋和火腿——起步晚，但我很快赶上了。你可能会有同感，这是我的第一条建议:
 

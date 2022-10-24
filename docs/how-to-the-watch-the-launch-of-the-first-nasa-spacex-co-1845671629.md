@@ -4,7 +4,7 @@
 
 在经历了几十年的太空旅行和 24 小时的延迟后，美国国家航空航天局开始了商业飞行。今天晚些时候，美国宇航局将与 SpaceX 一起启动其首次商业载人飞行任务，名为[“Crew-1”，](https://www.space.com/spacex-nasa-crew-1-mission-launch-webcasts) ，从佛罗里达州的肯尼迪航天中心前往国际空间站。下面是 [如何观看](https://www.space.com/17933-nasa-television-webcasts-live-space-tv.html) 。
 
-Watch
+
 
 ### 为什么发射推迟了？
 

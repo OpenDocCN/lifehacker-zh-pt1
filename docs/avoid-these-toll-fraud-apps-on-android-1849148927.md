@@ -4,7 +4,7 @@
 
 旧的 Android 手机是一个已知的安全风险，但微软 365 Defender 研究团队 最近的 [研究表明过时的设备容易受到一种被称为“收费欺诈”的严重恶意软件的攻击](https://www.microsoft.com/security/blog/2022/06/30/toll-fraud-malware-how-an-android-application-can-drain-your-wallet/?ranMID=24542&ranEAID=TnL5HPStwNw&ranSiteID=TnL5HPStwNw-JnKL5vtUO8Lf1LijBlGShA&epi=TnL5HPStwNw-JnKL5vtUO8Lf1LijBlGShA&irgwc=1&OCID=AID2200057_aff_7593_1243925&tduid=%28ir__e3daogd0xwkf6ylyra9hbwgxa32xvuf0zxzfbako00%29%287593%29%281243925%29%28TnL5HPStwNw-JnKL5vtUO8Lf1LijBlGShA%29%28%29&irclickid=_e3daogd0xwkf6ylyra9hbwgxa32xvuf0zxzfbako00) 
 
-Watch
+
 
 收费欺诈恶意软件隐藏在外观正常的应用程序中，通过用户的电话服务悄悄为用户注册高级订阅服务。这里，我们不是在谈论秘密的网飞潜艇:相反，受害者签署了无用的服务，每年可能花费数百美元或更多。
 

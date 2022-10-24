@@ -4,7 +4,7 @@
 
 有没有想过为什么你的 [AirPods Pro 的电池电量](https://lifehacker.com/how-to-check-all-your-apple-devices-battery-levels-in-o-1847556015) 几乎总是徘徊在 80%左右？这是因为苹果自动启用了一项减少电池老化的功能——因此，一旦 AirPods Pro 的电池充满 80%，则会显著降低充电速度。如果你急着给 AirPods Pro 充满电，有一个简单的方法可以绕过这个功能。
 
-Watch
+
 
 ## 为什么苹果会减慢 AirPods Pro 的充电速度？
 

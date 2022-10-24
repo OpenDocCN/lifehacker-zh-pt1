@@ -4,7 +4,7 @@
 
 *PowerWash 模拟器*最近离开了 Steam 上的 Early Access，通过 Game Pass 来到了 Xbox。看看最近的数字和图表，似乎比以往更多的人正在进入令人满意的数字权力清洗世界。虽然使用大功率水枪清洁污垢可能很有趣，而且非常令人满意，但这并不像用水管对准地面并挥动手臂那么简单。
 
-Watch
+
 
 所以这里有一些有用的提示和窍门，帮助你在 Xbox 上的 [*PowerWash 模拟器*和 PC 上的](https://kotaku.com/powerwash-sim-devs-on-making-cleaning-fun-advanced-cro-1847319502) 中赚更多的钱，更高效地清洁。
 

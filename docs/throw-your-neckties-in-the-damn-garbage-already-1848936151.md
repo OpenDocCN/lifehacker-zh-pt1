@@ -4,7 +4,7 @@
 
 像《华尔街日报》、《印度时报》和《金融时报》这样完全不同的出版物都在问:“ [关系还会有意义吗？](https://www.wsj.com/articles/will-ties-ever-be-relevant-again-11622645946) 、 [领带要灭绝了吗？](https://timesofindia.indiatimes.com/life-style/fashion/buzz/are-neckties-going-extinct/articleshow/89223655.cms) "和 [这是平局的结局吗？](https://www.ft.com/content/73df43fb-259e-4254-8dfa-083979c9743a) “允许我回答:领带无关紧要，走向灭绝，终结。
 
-Watch
+
 
 绅士们早就该停止打领带了。这些布料文物是荒谬的，过时的，对你的健康和自尊都有潜在的危害。它们对你个人有害，对整个社会有害，一旦你脱离了它们的文化意义和包袱，客观地看待它们，它们就像争吵一样愚蠢。
 

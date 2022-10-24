@@ -4,7 +4,7 @@
 
 《信息自由法案》( FOIA)于 1966 年由林登·约翰逊总统签署成为法律，该法律的目的是让 [联邦政府的运作](https://lifehacker.com/learn-where-every-penny-of-your-taxes-go-with-this-site-1830201711) 对公众更加透明。理论是，既然我们人民支付一切，从技术上讲，我们拥有联邦机构生成的所有信息。
 
-Watch
+
 
 当然，在实践中，FOIA 是有限的——它只适用于行政部门，而不是国会或法院——还有其他的考虑因素在起作用。还有 [国家安全顾虑](https://lifehacker.com/what-classified-information-means-and-what-happens-i-1795303295)私人公民的隐私权，以及无数其他原因政府需要对某些信息进行检查。也就是说，FOIA 是一个非常重要和强大的工具，它被用来揭露腐败和管理不善，并保持政府尽可能的诚实。
 

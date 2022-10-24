@@ -6,7 +6,7 @@
 
 Peloton 已经 [延长了他们的](https://www.cpsc.gov/Newsroom/News-Releases/2023/Peloton-Extends-Full-Refund-for-Consumers-with-the-Recalled-Tread-Treadmill-to-November-6-2023) 窗口，让顾客将他们的 [召回的](https://www.cpsc.gov/Recalls/2021/Peloton-Recalls-Tread-Plus-Treadmills-After-One-Child-Died-and-More-than-70-Incidents-Reported) 健身器材退回到 2023 年 11 月 6 日。自 2021 年初以来，美国消费品安全委员会一直在推动 Peloton 解决其对儿童和宠物的危险问题。
 
-Watch
+
 
 召回解决了一个真正的安全问题。去年四月， [一名儿童在跑步机](https://www.cnbc.com/2021/04/17/us-cpsc-tells-consumers-to-stop-using-pelotons-tread-treadmill.html) 的事故中丧生，动员 CPSC 提醒消费者停止使用 Tread+。最初，P eloton 回应说，客户没有理由停止使用他们的产品，只要他们遵守安全说明。公司 l 在之后[为没有更早采取行动](https://www.cnbc.com/2021/05/05/peloton-recalling-all-treadmills-after-reports-of-injuries-one-death.html)道歉并同意召回。由于他们还没有找到召回寻求解决的问题的解决方案， Peloton 现在已经同意将退款窗口再延长一年。
 

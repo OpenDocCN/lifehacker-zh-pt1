@@ -4,7 +4,7 @@
 
 继 iPhone、iPad 和 Mac 之后，ai rpods Pro 加入了苹果设备获得测试版更新的行列。苹果现在将发布 AirPods Pro 的定期测试版更新，任何人都可以使用苹果开发者账户安装。
 
-Watch
+
 
 这个测试版可以让你在正式发布之前访问即将到来的特性。有了第一个 AirPods Pro beta，这意味着你将测试出环境噪音降低模式和[face time 通话的空间音频](https://lifehacker.com/which-apple-devices-and-video-services-support-spatial-1845077927) 功能。
 

@@ -4,7 +4,7 @@
 
 如果你从未听说过 [亚马逊探索](https://www.amazon.com/b?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/get-a-free-explore-experience-from-amazon-1847105608&asc_source=&node=19419898011&ref=ps_ae_2&tag=kinjalifehackerlink-20) e，你并不孤单——这是一种相对较新的服务，它将你与世界各地的互动、一对一的虚拟体验联系起来，无论是购物会议、烹饪课还是“步行”旅行。据《纽约时报》援引该公司公关团队的一条消息称，在疫情期间推出的 Explore 是亚马逊的出价，“ [补充，而不是取代传统旅行](https://www.nytimes.com/2020/11/12/travel/travel-tours-experiences-virus.html) ”。如果你还不太相信付费坐在电脑前而不是出去做点什么，亚马逊将为合格的 Prime 会员提供免费的第一次会议(50 美元以下的“体验”)。它是这样工作的。
 
-Watch
+
 
 ## **亚马逊探索是如何工作的？**
 

@@ -4,7 +4,7 @@
 
 虽然 2021 年对 Peloton 的利润来说很棒——包括公布他们的第一个季度 10 亿美元——但在安全方面却没有那么好。事情始于二月份，当时美国消费者产品安全委员会(CPSC) [收到一份报告](https://www.saferproducts.gov/PublicSearch/Detail?ReportId=3054628) 称，一名三岁儿童在他们的一台跑步机上发生事故后遭受了“严重的脑损伤”，随后一个月后又有一份报告称，一台不同型号的 Peloton 跑步机 [与一名儿童的死亡有关。](https://support.onepeloton.com/hc/en-us/articles/360058677091-A-Note-from-Peloton-CEO-John-Foley-about-Tread-)
 
-Watch
+
 
 在 4 月份 [拒绝美国消费品安全委员会(CPSC)召回](https://www.theverge.com/2021/4/16/22388707/peloton-fighting-recall-treadmill-child-death) 其 Tread+跑步机的请求后，Peloton 已经打退堂鼓，宣布自愿召回其两款据报道造成伤害的跑步机产品。以下是如何知道你的是不是召回的一部分，如果是，如何获得退款。
 

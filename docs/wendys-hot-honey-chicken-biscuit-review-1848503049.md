@@ -4,7 +4,7 @@
 
 我们正处于一个辛辣快餐的复兴时期。必胜客已经发布了 [一款辣情人披萨](https://thetakeout.com/pizza-hut-spicy-lovers-pizza-review-1848443034) ，Arby's 推出了一对辣 [暗黑敢三明治](https://thetakeout.com/arbys-diablo-dare-sandwich-review-chicken-brisket-1848385641) ，而 Taco Bell 正在推出 [一款新的酷牧场 Flamin ' Hot Doritos Locos Taco](https://thetakeout.com/taco-bell-flamin-hot-cool-ranch-doritos-locos-taco-1848492156)。热，热的趋势似乎正在全面上升，我一直很享受。很高兴看到快餐业终于意识到真正的辛辣食物是许多人所渴望的。现在， [**温迪的新的热蜂蜜鸡肉饼干**](https://www.prnewswire.com/news-releases/forged-in-flavor-wendys-new-hot-honey-duo-of-craft-sandwiches-delivers-sweet-sweet-heat-morning-noon-and-night-301473423.html) 是赶时髦的最新主菜。
 
-Watch
+
 
 温迪快餐一直在尝试一些辣的东西:粉丝们长期以来最喜欢的辣鸡肉三明治、辣鸡块，甚至还有幽灵胡椒农场酱。该连锁店还在三明治和沙拉中加入了墨西哥胡椒 [和混合成功](https://thetakeout.com/review-wendy-s-jalapeno-popper-chicken-sandwich-salad-1846291673) 。因此，经过深思熟虑的 [温迪的早餐菜单](https://thetakeout.com/a-taste-test-of-wendys-new-breakfast-menu-from-baconat-1841974253) 增加了一个新的热食项目是有道理的。
 

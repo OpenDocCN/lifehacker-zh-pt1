@@ -4,7 +4,7 @@
 
 iOS 16 充满了 [大量的主要功能](https://lifehacker.com/26-of-the-best-new-features-in-ios-16-1849524600) ，但也有较小的变化——比如 the return ofyour[电池电量百分比](https://lifehacker.com/how-to-see-your-iphones-battery-percentage-all-the-time-1849389459)和第一次在普通 iPhone 键盘上选择 [启用触觉反馈](https://lifehacker.com/your-iphone-has-a-hidden-haptic-keyboard-1849315813) 。但是在所有的新闻中丢失的一件事是增加了信息过滤功能。
 
-Watch
+
 
 “过滤未知发件人”自 iOS 10 以来一直存在于 [附近，当启用时，它可以帮助你将你的邮件分类。就像你过滤电子邮件或笔记一样，你可以根据联系人列表中的来过滤消息，以及可能是垃圾邮件的未知消息。](https://ios.gadgethacks.com/how-to/filter-unknown-senders-imessage-block-unwanted-notifications-keep-your-messages-app-clean-0197521/)
 

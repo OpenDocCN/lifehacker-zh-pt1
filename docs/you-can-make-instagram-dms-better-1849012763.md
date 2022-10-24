@@ -4,7 +4,7 @@
 
 多年来，在 Instagram 上发微博是你经历的一种体验，而不是你喜欢的东西。soci al 媒体应用如此专注于照片分享，以至于忽略了诸如定制通知设置等标准消息功能。但是自从 [大胆宣布不再是一个照片分享应用](https://www.theverge.com/2021/6/30/22557942/instagram-no-longer-photo-app-video-entertainment-focus) 以来，Instagram 已经慢慢扭转了局面，最近推出了聊天主题，一个真正的搜索功能，以及其他旨在使 Instagram 上的消息传递更好的调整。这里有一些你不知道的特性，以及如何利用它们来提升你的 DM 游戏。(注:这些功能 [正在慢慢推出](https://about.fb.com/news/2022/03/introducing-new-instagram-messaging-features/) ，所以你可能还没有全部拥有。)
 
-Watch
+
 
 ## 如何用一个简单的手势给你的好友发帖子
 

@@ -4,7 +4,7 @@
 
 我不倾向于做产品推荐或写评论。除了像 [、空气油炸锅](https://lifehacker.com/tag/air-fryer) 和 [速食锅](https://lifehacker.com/tag/instant-pot) 这样广受欢迎的电器之外，我尽量确保我的食谱不依赖于任何一件设备，我自己的厨房里堆满了我继承的东西，或者是在友好商店 [或餐馆供应店](https://lifehacker.com/why-you-should-just-buy-your-cookware-at-the-restaurant-1847194341) 购买的东西，通常是在没有对我所购买的东西做任何研究的情况下。
 
-Watch
+
 
 出于某种原因，我喜欢拒绝那些能让我的生活更轻松的事情，尤其是当我已经有了一个更糟糕的版本的时候。我讨厌我的量勺，我已经用了几十年了，然而直到*现在*，我已经用勺子，代替了它们我知道勺子会给我带来快乐，让烹饪变得更加愉快。
 

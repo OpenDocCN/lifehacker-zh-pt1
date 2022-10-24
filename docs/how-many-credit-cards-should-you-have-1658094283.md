@@ -4,7 +4,7 @@
 
 有没有信用卡太多这种事？有这么多卡提供诱人的奖励和注册奖金，你可能会忍不住申请一个或两个或更多。但是有多少是过度的呢？并不存在每个人都应该拥有的神奇信用卡数量。拥有更多的信用可以提高你的信用分数，这对获得贷款、节省保险费用，甚至 [找工作](https://twocents.lifehacker.com/why-employers-check-your-credit-report-1830019914) 都很重要。另一方面，如果你没有还清余额，多张卡可能是 [债务陷阱](https://twocents.lifehacker.com/common-debt-traps-that-keep-you-living-paycheck-to-pa-1637915715) 。以下是你需要知道的。
 
-Watch
+
 
 ### **你的总卡数对你的分数影响不大**
 

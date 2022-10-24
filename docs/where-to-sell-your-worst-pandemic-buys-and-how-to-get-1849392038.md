@@ -4,7 +4,7 @@
 
 许多人用一点购物疗法来应对隔离。 [我最近请](https://lifehacker.com/what-pandemic-purchase-do-you-now-hate-the-most-1849359879) Lifehacker 的读者 [分享当时有意义的疫情购买](https://lifehacker.com/these-are-the-pandemic-purchases-lifehacker-readers-reg-1849372997) ，但现在让他们充满了买家的悔恨。从旱冰鞋，到自行车设备，再到地上恒温游泳池，当我们被困在 2020 年的深处时，这些收购感觉很好。但是在模糊的 2022 年大流行后的严酷光线下，它们的景象——不管是有意还是无意，现在都没有被使用——困扰着我们。
 
-Watch
+
 
 也许你已经接受了你在疫情买的东西是浪费空间的事实。然而，这不一定是完全的损失。有很多选择可以让你卖掉任何让你后悔的东西。这里有一些在检疫后市场卖掉你最差的疫情货的小贴士。
 

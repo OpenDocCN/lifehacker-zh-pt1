@@ -4,7 +4,7 @@
 
 华纳兄弟刚刚给了这个世界一个新的，延伸看 [詹姆斯·古恩的](https://gizmodo.com/the-suicide-squads-secret-guest-star-is-the-trailers-bi-1846557602)[*X 特遣队*](https://gizmodo.com/the-suicide-squads-secret-guest-star-is-the-trailers-bi-1846557602) 。谁能想到一部拥有如此庞大 [演员阵容的电影会有一个需要分解的强大预告片？](https://io9.gizmodo.com/say-hello-to-the-very-disposable-stars-of-the-suicide-s-1838105121) 
 
-Watch
+
 
 仅仅根据*X 特遣队*在新预告片中对斯迪利·丹《肮脏的工作》的使用，你就可以立即获得非常具体的詹姆斯·古恩式的能量。华纳兄弟公司打赌这种能量可以让每个人都兴奋起来，去看 [玛格特·罗比的](https://io9.gizmodo.com/margot-robbie-talks-her-struggle-to-get-birds-of-prey-m-1841222530) 哈利·奎因与维奥拉·戴维斯的阿曼达·沃勒和乔尔·金纳曼的里克·弗拉格重聚，这肯定感觉像是伪装成“非续集”的重启
 

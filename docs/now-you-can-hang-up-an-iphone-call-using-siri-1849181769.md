@@ -4,7 +4,7 @@
 
 随着 iOS 15 中最近的更新，设备上的 Siri 功能在执行设备上的任务(如设置定时器、闹钟、提醒和给人打电话)时惊人地一致。事实上，拨打电话是 Siri 一直擅长的事情，它在蜂窝电话或 FaceTime 电话方面做得同样出色。现在，在 iOS 16 中有了一个新功能，Siri 也可以为你结束通话，完全不用手。如果你经常用 iPhone 扬声器说话，或者使用 AirPods 或 Beats 之类的无线耳机，这真的很有用。
 
-Watch
+
 
 (**注**:这是 iOS 16 的一个功能，目前只提供 [公测](https://lifehacker.com/how-to-install-the-ios-16-and-ipados-16-betas-1849023051) 。随着 iOS 16 公开发布定于秋季，它将适用于全球所有兼容的 iPhone。)
 

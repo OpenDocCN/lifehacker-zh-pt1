@@ -4,7 +4,7 @@
 
 我最近谈了很多关于空气质量的话题——作为一名加州人，这是一个难以避免的话题，但由于许多影响西海岸的野火有向更东部各州蔓延的趋势，这取决于天气，它应该对那些受影响地区以外的人也很重要。我已经 [讨论过许多不同的应用程序](https://lifehacker.com/use-these-apps-to-see-if-your-air-quality-index-sucks-o-1844856739) 你可以用它们来检查一个给定地点的空气质量指数，但是我最近发现了一个更好的东西来衡量这是否是一个外出的好日子:一个自我更新的 iOS 小工具。
 
-Watch
+
 
 要使用它，你自然需要 [iOS 14](https://lifehacker.com/how-to-prep-your-devices-for-ios-14-and-watchos-7-today-1845068276) 。假设你现在已经安装了更新，你只需要下载一个小小的免费应用程序:布雷特·泰勒的 [**空气质量阅读器**](https://apps.apple.com/us/app/air-quality-reader/id1535362123) 。(感谢他没有对这个非常有用的设置收费。)
 

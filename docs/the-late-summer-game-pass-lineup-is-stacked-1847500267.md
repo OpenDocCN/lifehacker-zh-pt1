@@ -4,7 +4,7 @@
 
 Xbox Game Pass 最初在 8 月份增加的内容有些令人失望，这要归功于由*哈迪斯*主持的阵容，但除此之外没什么了。在接下来的半个月里，微软似乎加大了压力...用云版本的*需要极速加热*。(真对不起。我控制不住自己。)总之， [这里是未来几周 Xbox Game Pass 即将到来的一切](https://news.xbox.com/en-us/2021/08/17/coming-soon-xbox-game-pass-wave-2-august-2021/) 。
 
-Watch
+
 
 **8 月 17 日**
 

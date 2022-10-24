@@ -4,7 +4,7 @@
 
 一般来说，更年期被定义为 [持续整整 12 个月而没有月经](https://www.womenshealth.gov/menopause/menopause-basics#1) ，它可以发生在 30 多岁到 50 多岁之间的任何时候， [平均年龄为 52](https://www.everydayhealth.com/menopause-pictures/menopause-symptoms-that-may-surprise-you.aspx) 。在绝经前的这段时间里，也就是 [被称为围绝经期](https://www.womenshealth.gov/menopause/menopause-basics#1) ，身体会经历许多变化，这段过渡期平均持续四年。即使在更年期结束后，你仍然没有完成，因为症状可能会持续多年。
 
-Watch
+
 
 在更年期的整个过程中，一个主要的变化是雌激素水平的下降——在早期阶段会有波动，然后逐渐下降。休斯顿卫理公会医院的妇科医生艾琳·曼宁说:“更年期是青春期的背面。
 

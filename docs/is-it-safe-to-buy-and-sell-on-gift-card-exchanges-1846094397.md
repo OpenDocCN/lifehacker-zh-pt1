@@ -4,7 +4,7 @@
 
 假期过后，商店购物卡可以放在你的钱包里，几个月不被解冻——事实上，在任何给定的时间里，在[10%](https://scholarsarchive.library.albany.edu/cgi/viewcontent.cgi?article=1000&context=honorscollege_accounting)19% [之间的购物卡余额仍然未被兑换，并且](https://www.anduro.com/blog/measuring-the-impact-of-gift-cards)[百分之六的购物卡](https://www.anduro.com/blog/measuring-the-impact-of-gift-cards)[甚至从未被使用过，根据拥挤的](https://thehustle.co/what-happens-to-unused-gift-cards/#:~:text=At%20any%20given%20time%2C%2010,cards%20are%20never%20even%20used.&text=These%20small%20percentage%20points%20add,gift%20cards%20have%20been%20sold.) 。幸运的是，你可以在经销商网站上以实际现金出售这些卡。但是购物卡交换网站安全吗？
 
-Watch
+
 
 ### **购物卡兑换如何进行**
 

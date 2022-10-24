@@ -4,7 +4,7 @@
 
 Safari 的 iOS 15 重新设计引发了争议，仅仅是因为最初的设计 [有点过于激进](https://techcrunch.com/2021/08/18/apple-walks-back-controversial-safari-changes-with-ios-15-beta-6-update/) 。然而，如果你能克服它在屏幕底部的位置，标签栏今天在 [iOS 15](https://lifehacker.com/36-of-the-best-new-ios-15-features-for-iphone-1847674175) 的最终版本中出现是一种享受。甚至有几个手势可以使它比使用单标签视图*更加*有用( [，如果你害怕改变，你可以随时恢复到](https://lifehacker.com/how-to-move-safaris-search-bar-back-where-it-belongs-in-1847538847) )，如果你使用单标签视图，它们都不起作用，这意味着如果你希望 Safari 的地址栏显示在屏幕顶部，你将牺牲可用性。
 
-Watch
+
 
 ## 滑动以切换标签
 

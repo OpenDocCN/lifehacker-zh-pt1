@@ -4,7 +4,7 @@
 
 自疫情开始以来，旅游业受到了沉重打击，2020 年旅游支出比 2019 年下降了 42%。但是三种主要疫苗的引入已经为预订未来旅行创造了一种热情。
 
-Watch
+
 
 总部位于丹佛的 Tafari Travel 的总裁 Leah Smith 告诉 [彭博新闻](https://www.bloomberg.com/news/articles/2021-03-07/celebratory-vaxications-are-giving-the-travel-industry-a-boost?sref=P6Q0mxvj) 他们已经看到“自第一轮疫苗接种开始以来，旅游咨询增加了 25%。”正如彭博记者 Jen Murphy 计划庆祝完全接种疫苗一样，人们对重新开始旅行如此兴奋，这创造了一个“接种疫苗”的浪潮。
 

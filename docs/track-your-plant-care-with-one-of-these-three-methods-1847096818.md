@@ -4,7 +4,7 @@
 
 有些植物喜欢夏天在户外；其他的 [处理不了阳光直射](https://lifehacker.com/these-indoor-plants-love-direct-sunlight-1847051422) 。有些需要每天浇水，而 [有些很少需要](https://lifehacker.com/how-to-keep-a-succulent-alive-because-its-trickier-tha-1846917775)。为了跟上，使用追踪器可以帮助你记录一些基本的护理信息，这样你的植物就可以在你忙碌的时间表和复杂的护理中存活。这里有几个方法可以做到。
 
-Watch
+
 
 ## 你应该在你的植物追踪器中记录什么
 

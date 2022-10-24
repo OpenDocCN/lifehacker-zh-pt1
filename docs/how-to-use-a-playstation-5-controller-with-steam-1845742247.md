@@ -4,7 +4,7 @@
 
 Windows: PlayStation 5 的用户现在可以用 PS5 的双感控制器在 Steam 上玩电脑游戏了。Valve 最新的 Steam 测试版在默认情况下为所有控制器支持的游戏中的 DualSense 添加了完全兼容性——不需要额外的软件，也不需要配置任何设置。
 
-Watch
+
 
 Steam 中的 DualSense 支持是不可避免的——该应用支持 200 多种其他控制器选项，包括许多 Xbox、任天堂 Switch 和 PlayStation 4 控制器——但 PS5 发布后这么快就在 Steam 中获得近乎完美的兼容性令人兴奋。毕竟，PS5 的控制器无疑是任何系统上最好的控制器之一。
 

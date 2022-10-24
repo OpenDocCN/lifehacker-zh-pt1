@@ -4,7 +4,7 @@
 
 谷歌刚刚在 Play Store 上取消了轻量级的 [Gmail Go 应用，为安卓用户提供了两种在设备上使用谷歌电子邮件服务的选择。但是这两个 Gmail 应用有什么区别，你应该使用哪一个呢？](https://play.google.com/store/apps/details?id=com.google.android.gm.lite&hl=en_US&gl=US)
 
-Watch
+
 
 谷歌的“Go”应用程序是其常规 Android 应用程序的更轻、更精简的版本。Gmail Go 拥有 Gmail 应用程序的所有基本电子邮件功能，以及可定制的手势控制、收件箱过滤、多帐户交换和黑暗模式主题。然而，有一些小的变化使 Gmail 在较慢的硬件上不那么费力。
 

@@ -4,7 +4,7 @@
 
 去年，Dropbox 声明他们将不会开发针对苹果硅(M1)MAC 电脑 [优化的 Dropbox 客户端，直到他们看到对它的需求](https://twitter.com/mitchellh/status/1453394500848537605?s=20)——谢天谢地 [退得很快](https://www.theverge.com/2021/10/28/22751178/dropbox-native-apple-silicon-app-m1-2022) 的话，并承诺在 2022 年上半年推出新的 Dropbox 客户端。随着我们今年的推出，M1 应用程序正式成为测试版，任何人都可以下载。
 
-Watch
+
 
 一个应用程序被更新到一个新的平台有什么大不了的，在这个平台上，即使是旧的应用程序也能正常工作。问题在于 Dropbox 如何在这些新的 MAC 电脑上运行。或者更确切地说，它在新 M1 MAC 电脑上的表现有多糟糕。
 

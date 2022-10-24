@@ -4,7 +4,7 @@
 
 我不会放弃由社交媒体推动的冲动购买。我买了 [【抖音】打底裤](https://jezebel.com/we-tried-the-tiktok-booty-leggings-to-see-if-we-could-s-1846141224) (当我穿着它们的时候，一个年轻人从他的汽车里冲我大喊)，我还买了去角质磨砂膏(也是为了我的屁股)，但我从来没有获得过一件炊具，因为我在 Instagram 上看到过它。然而，我确实在我的订阅中收到了许多炊具广告，包括 [Great Jones](https://thetakeout.com/great-jones-cookware-company-implosion-1847186814) 的广告，这是一家销售非常上镜的锅、平底锅和烤盘的公司。
 
-Watch
+
 
 如果你关注炊具新闻，谁不关注呢？——你大概看到了 [公司最近内爆](https://www.businessinsider.com/great-jones-cookware-founders-tishgart-moelis-falling-out-2021-6) ，多半是因为两个用家族资金创立公司的少女时代的恩怨。我不能说伟大的琼斯炊具的质量，因为我从来没有使用过它，但它非常漂亮，我想有些人会很难过看到它走了。【**更新:** Great Jones 已经伸出援手，提供了以下声明:Great Jones 没有终止其炊具产品线的计划，而是继续快速增长。该公司预计 2021 年的收入将比 2020 年增长 100%，并在 2020 年最后一个季度实现了有史以来最好的季度。]
 

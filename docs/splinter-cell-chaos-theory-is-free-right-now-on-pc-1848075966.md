@@ -4,7 +4,7 @@
 
 汤姆·克兰西的《分裂细胞混沌理论》，一款 2005 年的视频游戏，目前在育碧商店 免费下载。作为该公司 35 周年庆典的一部分，它还在 Steam 上以 75%的价格出售。享受你的残羹剩饭吧，这个行业最大的出版商之一现在已经老到至少离过一次婚了。 
 
-Watch
+
 
 作为庆祝活动的一部分，发行商上周还赠送了 [*刺客信条编年史*三部曲](https://kotaku.com/lets-rank-the-assassins-creed-games-worst-to-best-1844019813/slides/2) ，这是另一款“完全不错，但不是特别相关”的游戏。鉴于育碧庞大的目录，这些看起来似乎是奇怪的选择，然而最近据 *VGC* 报道，继该系列最近在移动和虚拟现实平台上屡遭失败之后，出版商 [已经开始制作新的*分裂细胞*](https://www.videogameschronicle.com/news/a-decade-later-ubisoft-has-finally-greenlit-a-new-splinter-cell-sources-claim/)。虽然 [*【分裂细胞黑名单】*](https://kotaku.com/splinter-cell-blacklist-the-kotaku-review-1126859452) 可能是让《现代游戏玩家》投资该系列的一个稍微好一点的选择，但我不能与 free 争论。
 

@@ -4,7 +4,7 @@
 
 一个 [毒老板](https://lifehacker.com/how-to-deal-with-a-toxic-boss-1846594599) 会让你的工作生活苦不堪言，心理健康也会受到影响。为一个很难与你坦诚相见的人工作，或者在与工作有关的大大小小的问题上撒谎的人工作，可能会让你持续紧张，或者在出现问题时完全惊讶，比如 [一次意想不到的大规模裁员](https://www.npr.org/2022/07/06/1109965538/as-economic-fears-grow-companies-begin-laying-off-workers) 。
 
-Watch
+
 
 没有真正的科学来解读身体语言或解释表明某人在说谎的口头暗示。但是有 [职场行为](https://mashable.com/article/how-to-know-when-your-boss-is-lying-to-you) 和管理策略可能表明你的老板隐瞒信息或试图混淆真相，也许你应该对幕后发生的事情保持好奇和谨慎。
 

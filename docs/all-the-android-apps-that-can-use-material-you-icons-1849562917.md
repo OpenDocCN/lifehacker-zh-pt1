@@ -6,7 +6,7 @@ Material You 是 Android 最近的一大特色。 [随 Android 12](https://lifeh
 
 应用图标显然是安卓用户界面的一部分，随后，它们也会根据你的壁纸而变化。然而，在 Android 12 中，只有特定的应用程序与该功能兼容，并且该功能因手机而异。例如，如果你有一个运行 Android 12 的 Pixel，只有谷歌应用程序可以随着系统主题改变。Gmail 和 YouTube 会在视觉上与你的壁纸同步，这只会让其他应用更加突出。三星用户在 Galaxy 设备上面临同样的问题。
 
-Watch
+
 
 设计纯粹主义者，不再执迷: [随着 Android 13](https://lifehacker.com/the-best-android-13-features-worth-knowing-about-1849417266) ，谷歌终于将对 Material You app 图标的支持扩展到了第三方应用。只要您喜爱的应用程序支持您的材料，并且在您的设置应用程序中启用了该功能，您就会看到图标调整为适合您的壁纸和系统主题。
 

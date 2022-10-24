@@ -4,7 +4,7 @@
 
 对于家禽来说，这是艰难的一周。首先，疾病控制和预防中心(CDC)不得不提醒我们不要亲吻或拥抱活的鸡、鸭和其他家禽，因为人们这样做与 43 个州报道的 T4 沙门氏菌爆发有关。
 
-Watch
+
 
 现在，美国农业部(USDA)食品安全和检验局(FSIS)已经 [发布了公共卫生警报](http:// https://www.fsis.usda.gov/recalls-alerts/fsis-issues-public-health-alert-frozen-cooked-diced-poultry-products-due-possible) ，针对大约 65 吨(130，860 磅)冷冻全熟鸡肉丁产品，因为它们可能被*单核细胞增生李斯特菌*污染。以下是受影响产品的相关信息。
 

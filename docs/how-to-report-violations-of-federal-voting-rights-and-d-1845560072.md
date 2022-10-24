@@ -4,7 +4,7 @@
 
 如果你今天在投票站排队等候，并且目睹了违反联邦投票权或《美国残疾人法案》(ADA)的行为，司法部[【DOJ】](https://www.justice.gov/opa/pr/justice-department-again-monitor-compliance-federal-voting-rights-laws-election-day)民权司希望了解此事。
 
-Watch
+
 
 需要澄清的是:自封的非官方“投票观察员”和观察并报道危及公民权利的情况是有区别的。前者是指你把自己停在投票站，目的是骚扰和恐吓选民(即第一场辩论中川普敦促他的追随者做的事情)。现在我们已经解决了这个问题，下面是关于报告流程需要了解的内容。
 

@@ -4,7 +4,7 @@
 
 通常来说，美化你的院子意味着拔起草，翻土，给土壤施肥为新的植被做准备，但是为什么不直接把它覆盖起来呢？ [薄膜覆盖](https://www.gardeningknowhow.com/garden-how-to/soil-fertilizers/sheet-mulching-in-gardens.htm) 使用一种简单的堆肥形式，通过活化土壤和为新植物制造养分来重新利用你的草坪。使用纸板、 [绿色堆肥](https://www.gardeningknowhow.com/composting/ingredients/browns-greens-compost.htm) 和护根物，你可以将你的草坪改造成一个新的生态系统，自然地保存水分和滋养植物。以下是如何在没有 深度美化的情况下给你的院子铺上薄膜覆盖物。
 
-Watch
+
 
 ## 你需要在院子里覆盖什么
 

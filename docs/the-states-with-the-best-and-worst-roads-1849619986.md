@@ -4,7 +4,7 @@
 
 你可能会被当地的坑坑洼洼激怒，但其他地方的道路可能更糟糕。坐在车流中是令人沮丧的——[和浪费油钱](https://lifehacker.com/here-s-how-much-gas-you-waste-if-you-live-in-a-city-wit-1849559211)——所以在这篇报道 [t 他是全国最糟糕的道路](https://zutobi.com/us/driver-guides/worst-and-best-roads-us-and-international-ranking#methodology)中得到一些安慰。希望你所在的州不在上面。如果是的话，那么...你可以在愤怒中感受到被认可。
 
-Watch
+
 
 该排名除了“可接受”英里数的百分比外，还考虑了公共道路的总英里数，这些英里数是从 [交通局](https://www.bts.gov/road-condition)2020 年的最新数据中挑选出来的，然后与 2015 年的现有数据进行比较。该排名还考虑了各州的交通事故死亡率。对于这两个排名，每个州都有一个标准化的分数——最高 10 分——然后对他们的分数进行平均。
 

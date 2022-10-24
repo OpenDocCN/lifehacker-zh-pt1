@@ -4,7 +4,7 @@
 
 就像你最喜欢的视频流应用程序一样，主要的游戏订阅服务 Xbox Game Pass 和 PlayStation Plus 每个月都会添加和删除新内容。
 
-Watch
+
 
 今年 8 月，PlayStation 最近改版的 PlayStation Plus services 增加了几个亮点，其中包括一系列 Yakuza 游戏。*山口组:如龙*是面向所有 PS Plus 会员的免费游戏之一，其中*山口组 0* 、*山口组 Kiwami* 和*山口组 Kiwami 2* 也面向 PS Plus Extra 和 Premium 会员。本月所有其他免费游戏对所有 PS Plus 成员开放，包括*托尼·霍克的职业滑手 1 & 2* 翻拍版和恐怖主题平台游戏*小噩梦*。
 

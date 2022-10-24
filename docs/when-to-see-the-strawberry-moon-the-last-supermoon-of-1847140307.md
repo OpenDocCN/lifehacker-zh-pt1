@@ -4,7 +4,7 @@
 
 如果你是一个狂热的观星者，那么在一年繁忙的天体事件中，单单六月就已经是一个拥挤的月份了。一次[行星会合](https://lifehacker.com/when-to-watch-the-moon-and-mars-superior-conjunction-th-1847048701)[一颗小行星在距离行星相当近的距离内倾斜](https://lifehacker.com/should-you-be-worried-about-the-potentially-hazardous-a-1847008963) 随着白昼变得越来越长，这给宇宙增添了一点奇妙的阴谋。
 
-Watch
+
 
 然而，当谈到超级月亮时，这本书很快就会在 2021 年结束，因为今年的最后一个超级月亮将在本周晚些时候照亮天空三天，从 6 月 24 日到 26 日。为了适应夏天的到来和给月亮取绰号的惯例，这颗特别的月亮被称为草莓超级月亮，尽管很遗憾它不会是草莓色的。
 

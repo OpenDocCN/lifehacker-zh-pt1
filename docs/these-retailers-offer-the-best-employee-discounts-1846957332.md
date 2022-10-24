@@ -25,4 +25,3 @@
 *   **Urban Outfitters** :员工 [购买服装享受](https://www.urbn.com/employees/employee-discount-overview) 40%的折扣，购买家居/公寓商品享受 25%的折扣，服装租赁服务 Nuuly 的月费为 75 美元，周日至周四在精选餐厅用餐享受 20%的折扣。
 *   **Vans** :员工 [享受全价产品五折优惠](http://sites.vans.com/careers/retail/usa/benefits/) ，特价商品七折优惠。其他 VF 品牌提供高达 50%的折扣，如 North Face、Timberland 等。
 
-Watch

@@ -4,7 +4,7 @@
 
 苹果的 [iOS 16 为你的 iPhone 带来了一系列新功能和变化](https://lifehacker.com/the-best-new-features-in-ios-16-and-ipados-16-1849023814) ，但这并不都是为了展示。该公司使命的核心原则是隐私，因此，iOS 16 引入了四个新功能，应该可以扩展你的 iPhone 保护个人信息隐私的能力。
 
-Watch
+
 
 ## 从共享联系人中移除某些字段
 

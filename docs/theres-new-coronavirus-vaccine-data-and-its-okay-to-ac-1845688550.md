@@ -4,7 +4,7 @@
 
 今天，Moderna [宣布](https://investors.modernatx.com/news-releases/news-release-details/modernas-covid-19-vaccine-candidate-meets-its-primary-efficacy) 其冠状病毒疫苗似乎有 94.5%的有效性。这是第二个候选疫苗(在辉瑞公司之后，90%)让我们提前看到他们的第三阶段结果，这又是一个好消息，但有警告。
 
-Watch
+
 
 ### 这是哪种疫苗？
 

@@ -4,7 +4,7 @@
 
 《异刃编年史 3》历经五年的制作，终于上映了。Monolith Soft 最新的开放领域 JRPG 奥德赛比三部曲中的 [或之前的游戏](https://www.nintendolife.com/news/2022/07/xenoblade-chronicles-3s-world-is-five-times-larger-than-predecessors-says-monolith-soft) 拥有更多的系统和更多的事情要做(更不用说经常被忽视的*《异种刃编年史》X* )。我很喜欢它 [到目前为止一吨](https://kotaku.com/xenoblade-chronicles-3-nintendo-switch-jrpg-impressions-1849357306) 。在这个过程中，我也学到了很多有用的经验。
 
-Watch
+
 
 Xenoblade 3 并不太复杂，但它充满了抽象的系统，需要一些时间来理解。像每一次流水线式的磨砺一样，你会学到很多技巧和捷径。以下是任何人在游戏前半段的最重要的经验。
 

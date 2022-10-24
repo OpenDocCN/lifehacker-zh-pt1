@@ -4,7 +4,7 @@
 
 坐浴盆在世界许多地方早已成为普通浴室的固定设备，但是在疫情开始的时候，当厕纸很难得到的时候，它们终于在美国的 [找到了闪耀的时刻。](https://www.npr.org/2020/03/22/819891957/bidets-gain-u-s-popularity-during-the-coronavirus-crisis) [我们已经谈过了坐浴盆的好处](https://lifehacker.com/yes-you-still-need-a-bidet-1847114622) 以及如何使用不同的款式，b 那么安装呢？这比你想象的要容易，而且不需要专业人员。
 
-Watch
+
 
 ## 坐浴盆的价格是多少？
 

@@ -4,7 +4,7 @@
 
 随着“不给糖就捣蛋”时间的临近，你可能已经看过 [的报道](https://www.washingtonpost.com/business/2022/07/28/hershey-candy-halloween/) 暗示我们今年可能会面临万圣节糖果短缺。
 
-Watch
+
 
 像其他产品短缺一样，这一次受到供应链问题的影响，尽管在新冠肺炎疫情期间对糖果 需求的增加并没有帮助。而且这还不是全部: [据好时公司的](https://www.reuters.com/business/retail-consumer/hershey-raises-annual-adjusted-profit-growth-forecast-2022-07-28/) 报道，俄罗斯入侵乌克兰使得今年寻找原料和制造糖果变得更加困难。
 

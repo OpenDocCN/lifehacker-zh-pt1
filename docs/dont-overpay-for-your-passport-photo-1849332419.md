@@ -4,7 +4,7 @@
 
 随着旅游支出创下疫情新高 ，你可能已经开始幻想自己的国际度假了。但是在你开始预订离开之前，你应该确保你的护照没有在疫情期间过期。
 
-Watch
+
 
 更新你的护照不仅是一件苦差事，而且也不便宜。 [光是申请过程就要花掉你 130 美元](https://travel.state.gov/content/travel/en/passports/how-apply/fees.html) ，这还没算上护照照片的费用。美国邮政署​对他们的护照照片服务收费 15 美元。 [沃尔格林收费 15.99 美元](https://photo.walgreens.com/store/passport-photos) ，CVS 收费 16.99 美元 。但是你知道你可以用一部智能手机和一把剪刀来规避这个成本吗？
 

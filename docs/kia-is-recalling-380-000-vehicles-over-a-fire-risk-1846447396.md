@@ -4,7 +4,7 @@
 
 车祸是会发生的，但是你可以通过安全缓慢的驾驶来帮助自己避免车祸，并且你可以通过系安全带来增加你的几率或者毫发无伤的摆脱车祸。但当你的车本身就是风险时，你会怎么做？起亚召回 380，000 辆汽车，担心它们可能遭受随机电气火灾，告诉 2017 至 2019 款 Cadenza 轿车和 2017 至 2021 款 Sportage 的美国车主将车停在外面，并远离任何建筑物，以免它们自燃。
 
-Watch
+
 
 对于 T2 汽车制造商来说，这次召回是最近一连串坏消息中最新的一个。据 CBS 新闻报道，2019 年，国家公路交通安全管理局对起亚和现代进行了调查，起因是车主投诉 3100 起火灾，103 人受伤，和 1 人死亡， [。](https://www.cbsnews.com/news/kia-recall-sportage-cadenza-engine-compartment-fire-risk/) ( [据](https://www.caranddriver.com/news/a35782883/kia-cadenza-sportage-recall-fire-risk/) [汽车和司机](https://www.caranddriver.com/news/a35782883/kia-cadenza-sportage-recall-fire-risk/) *，*那次调查的余波导致汽车制造商被处以 2.1 亿美元的罚款。)
 

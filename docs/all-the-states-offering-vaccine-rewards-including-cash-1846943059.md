@@ -4,7 +4,7 @@
 
 [疫苗接种率停滞不前](https://www.theatlantic.com/ideas/archive/2021/05/vaccine-slowdown-reasons/618847/) ，一些州正在尽一切努力让更多的人接种疫苗，即使这意味着用免费门票、礼品卡、或诱人的赢得 100 万美元的前景来回报他们。而且到目前为止， [的战役都是产生效果](https://www.cbsnews.com/news/covid-vaccine-ohio-lottery-shots/) 。让我们来看看在哪里有什么活动。
 
-Watch
+
 
 ## **俄亥俄州**
 

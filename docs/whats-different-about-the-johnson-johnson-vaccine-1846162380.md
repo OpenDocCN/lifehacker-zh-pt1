@@ -4,7 +4,7 @@
 
 强生 [今天发布了来自其](https://www.prnewswire.com/news-releases/johnson--johnson-announces-single-shot-janssen-covid-19-vaccine-candidate-met-primary-endpoints-in-interim-analysis-of-its-phase-3-ensemble-trial-301218035.html) [三期](https://vitals.lifehacker.com/how-do-clinical-trials-work-1842827040) 临床试验(申请紧急使用授权前的最后一步)的数字 ，看起来我们可能很快就会在美国拥有第三种可行的新冠肺炎疫苗。
 
-Watch
+
 
 这种疫苗和其他两种有点不同。来自 Pfizer/BioNTech 和 Moderna 的都是 [mRNA 疫苗](https://lifehacker.com/how-mrna-vaccines-work-1845895792) 、需要两剂，需要在冷冻箱温度下保存或在特殊的超冷包装中保存。强生疫苗可以储存在冰箱温度下，就像你在药房或医生办公室得到的大多数其他疫苗一样。而且只需要一剂。
 

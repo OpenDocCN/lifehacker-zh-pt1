@@ -4,7 +4,7 @@
 
 在我们向远程工作生活过渡的早期，我们都跳上了 [集体视频游戏列车](https://lifehacker.com/our-13-favorite-free-games-to-play-over-video-chat-1844648370)——虽然 Jackbox 派对是与我们的同事(以及家人和朋友)进行“社交”的一个很差的替代品，但它们至少比几个小时的无休止的专注于工作的变焦会议要好一点。
 
-Watch
+
 
 令人惊讶的是，Zoom 花了一年多的时间在全球范围内进行虚拟工作，才将游戏直接集成到平台上，但最近推出的[Zoom Apps market place](https://marketplace.zoom.us/)有一些内置选项——例如，平视、扑克和琐事——你可以在会议或快乐时光安装并玩。
 

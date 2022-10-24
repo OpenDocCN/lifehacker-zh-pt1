@@ -4,7 +4,7 @@
 
 你是否经常调整你的项目时间表？你会等到最后一分钟才开始一件有严格期限的事情吗？好了，不要再有压力了，因为本周我们将带给你一个解决方案，它将帮助你每次都在截止日期前完成。
 
-Watch
+
 
 我们本周升级版的嘉宾是记者克里斯托弗·考克斯，他是哈珀杂志的前总编辑和 GQ T4 的前执行主编，对管理截止日期略知一二。在他的新书中， [*期限效应:如何像在最后一分钟一样工作——在最后一分钟之前*](https://www.amazon.com/Deadline-Effect-Work-Minute_Before-Minute/dp/1982132272?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-never-miss-a-deadline-with-journalist-christoph-1847273802&asc_source=&tag=kinjalifehackerlink-20) *，*克里斯研究了多个在项目管理和会议时间表方面非常成功的组织，以了解总是满足期限的秘诀是什么。对我们来说幸运的是，有一些持续有效的提示和技巧。
 

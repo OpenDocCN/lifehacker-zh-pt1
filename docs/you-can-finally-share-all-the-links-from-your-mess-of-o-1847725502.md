@@ -4,7 +4,7 @@
 
 如果你发现自己在手机上比较购物时打开了多个标签，你可能不会介意快速复制所有标签并与其他人分享，这样你就可以避免一个接一个地给他们发短信。iOS 15 和 iPadOS 15 中对 Safari 的一项更新使这一点变得非常容易:现在只需轻按几下，你就可以复制所有打开的标签页的 URL。当与 Safari 的 [新标签组](https://lifehacker.com/you-should-embrace-safaris-new-search-bar-actually-1847709642) 结合使用时，它是一种快速简单的方式来一次保存或分享一堆链接。以下是如何在 iPhone、iPad 甚至你的 Mac 电脑上做这件事的。
 
-Watch
+
 
 ## 如何拷贝 iPhone 上所有打开的 Safari 标签页的链接
 

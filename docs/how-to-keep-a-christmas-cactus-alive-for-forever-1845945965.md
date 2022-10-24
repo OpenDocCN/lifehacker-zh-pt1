@@ -4,7 +4,7 @@
 
 当你在一年中的这个时候去杂货店购物时，尽可能快地进出是有意义的。因此，如果你已经轻松地走过了季节性植物，它们通常生活在商店前面靠近购物车的地方，并且像超市扫货架一样逛了一圈，那么你很有可能已经错过了圣诞仙人掌。(它们不是猩猩木。)
 
-Watch
+
 
 它们可能看起来不太有圣诞气息——特别是因为它们中的许多都有不同的色调【粉红、橙色和黄色】——但这实际上是一件好事，因为这些植物全年都应该在你的窗台上有一席之地。实际上，有 [报道](https://bismarcktribune.com/news/local/bismarck/111-year-old-christmas-cactus-is-a-living-heirloom-for-family/article_1644888c-68f2-11e3-9462-001a4bcf887a.html) [圣诞仙人掌](https://www.journalstandard.com/story/news/2020/11/27/old-pine-rocker-my-grandmothers-thanksgiving-cactus/6423818002/) 活了 100 多年的 ，所以杂货店的植物有可能比你活得长。这里有一些实现这一点(或者至少保持健康)的建议。
 

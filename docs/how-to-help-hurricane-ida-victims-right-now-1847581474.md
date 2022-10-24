@@ -4,7 +4,7 @@
 
 飓风艾达周日在路易斯安那州 登陆，成为强大的 4 级风暴，带来持续风速超过 150 英里/小时(241 公里/小时)的暴雨。接下来是余波。
 
-Watch
+
 
 无数的树木、家园、企业和生活被这场巨大的风暴颠覆，这场风暴变得如此强烈，部分原因是气候变化导致的温度 [使墨西哥湾](https://gizmodo.com/why-tropical-storm-ida-is-set-to-rapidly-intensify-into-1847572620) 过热。周日晚上， [整个新奥尔良陷入黑暗](https://twitter.com/nolaready/status/1432137991762366468?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1432137991762366468%7Ctwgr%5E%7Ctwcon%5Es1_&ref_url=https%3A%2F%2Fwww.cnn.com%2Fus%2Flive-news%2Fhurricane-ida-updates-08-29-21%2Findex.html) 路易斯安那州近 100 万人断电——这意味着该市缺乏电力来供应卡特里娜飓风后安装的水泵，卡特里娜飓风 16 年前的今天袭击了该市。艾达的部队 [逆转了诡异的密西西比河](https://gizmodo.com/ida-reversed-the-mississippi-river-1847581160) 的流向。
 

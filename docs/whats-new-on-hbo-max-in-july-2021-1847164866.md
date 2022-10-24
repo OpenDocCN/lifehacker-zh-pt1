@@ -12,7 +12,7 @@
 
 这是 2021 年 7 月 HBO Max 的所有内容列表。旁边有(HBO)的标题在 HBO 和 HBO Max 上有；其他都是 HBO Max 独家。
 
-Watch
+
 
 ## 【2021 年 7 月来到(离开)HBO Max 的一切
 

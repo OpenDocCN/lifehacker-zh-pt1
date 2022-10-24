@@ -4,7 +4,7 @@
 
 Chrome 保持有序的最佳功能之一是即将到来的 Android:全能的“标签组”，，让你将标签聚集成更有用的块，而不是随机地将它们分散在你的浏览器中——或者，在你的手机上，在单独的页面上。但是，您可能需要在浏览器中启用一个半隐藏标志来访问这个有用的功能。
 
-Watch
+
 
 首先，确保你在安卓设备上运行最新版本的 [Chrome](https://play.google.com/store/apps/details?id=com.android.chrome&hl=en_US&gl=US) ，可以通过谷歌 Play 商店更新。然后，启动浏览器并在地址栏中输入:`chrome://flags`
 

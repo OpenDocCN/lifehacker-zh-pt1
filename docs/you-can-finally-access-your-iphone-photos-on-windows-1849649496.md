@@ -4,7 +4,7 @@
 
 尽管一度不可思议，但科技公司开始友好相处。生态系统不再如此封闭，以至于不可能拥有一个 Android 和一个 Mac，或者一个 iPhone 和一台 PC。事实上，微软现在允许你将 iCloud 照片从 iPhone 同步到 Windows 11——你只需要跳到队伍的前面。
 
-Watch
+
 
 微软在周三的大型 Surface 发布会上宣布了令人兴奋的更新 。在 Surface 9 和下一代 Windows 11 的所有新功能中，该公司偷偷提到了与苹果的合作。通过 iCloud for Windows 应用程序，您现在可以在 Windows Photos 应用程序中看到 iCloud 照片；如果你想的话。iCloud 也是这里的关键词。为了在电脑上查看您的 iPhone 照片，这些照片需要同步到 iCloud。如果不使用 iCloud 照片图库，照片不会显示在 Windows 中。
 

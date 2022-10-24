@@ -4,7 +4,7 @@
 
 免费在线玩游戏机视频游戏的日子已经一去不复返了。交换机所有者需要为任天堂 Switch 在线付费， Xbox 用户需要注册 Xbox Live Gold，和我们这些忠于索尼的人需要为 PlayStation Plus 付费，以便与朋友和陌生人进行游戏。但是事情在索尼发生了变化，索尼已经 [宣布改变其订阅服务](https://blog.playstation.com/2022/03/29/all-new-playstation-plus-launches-in-june-with-700-games-and-more-value-than-ever/) ，并于六月 生效。离这些改变只有几个月了，问题来了:你应该取消或改变你的订阅吗？
 
-Watch
+
 
 简而言之，如果你喜欢 PlayStation Plus 现在的工作方式，它可以保持这种方式。索尼的新定价计划将 PlayStation Plus 列为其底层选项，现在称为“PlayStation Plus Essential”。“它保留了所有熟悉的特权和好处，使订阅物有所值，包括两个每月免费下载的游戏、折扣、云存储，当然还有在线游戏。
 

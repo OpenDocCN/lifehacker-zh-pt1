@@ -4,7 +4,7 @@
 
 在过去的几天里，我们在 Reddit 和社交媒体上看到许多报道，称 CarPlay 上的 Apple Music 意外崩溃。虽然我们不知道具体的原因，也没有确定的修复方法，但在等待的时候，您可以尝试一些变通方法。
 
-Watch
+
 
 ## Apple Music 为什么会在 CarPlay 上崩溃？
 

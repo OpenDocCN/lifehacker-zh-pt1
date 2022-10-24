@@ -4,7 +4,7 @@
 
 Deepfakes 是将一个人的脸粘在另一个人身上的视频，让前者看起来像是在说或做他们从未实际做过的事情——即使是像汤姆·克鲁斯对着镜头说话和打高尔夫球 一样无害的 [。仅仅通过观看视频很难发现他们，但这里有一个好消息:你实际上不必看视频就知道你遇到了一个深度假。](https://golficity.com/tom-cruise-takes-a-golf-swing-on-tiktok-comes-off-a-bit-creepy/)
 
-Watch
+
 
 汤姆·克鲁斯的 deepfakes(在一个名为 [@deeptomcruise](https://www.tiktok.com/@deeptomcruise?) 的账户上发布的几个简短视频)令人信服，因为他们将汤姆·克鲁斯的脸应用到一位已经以模仿汤姆·克鲁斯 成名的演员身上。这些视频是专业制作的，老实说，光看它们是没有办法分辨出它们是假的。我们应该担心吗？我们现在生活在一个任何东西都可以伪造的世界吗？
 

@@ -4,7 +4,7 @@
 
 在过去的几年里，VPN 已经从一个小众的数据安全工具 [变成了一个日常产品](https://lifehacker.com/how-to-find-a-trustworthy-vpn-1833045522) 你会在任何模糊的技术相邻的 YouTube 频道或播客上看到广告。但是，尽管有许多可行的商用 VPN，它们的功能集却各不相同，有些比其他的更适合某些在线活动。
 
-Watch
+
 
 例如，一些 VPN 服务包括一个称为“删除开关”的功能顾名思义，VPN kill switch 会在您的 VPN 停止工作时自动终止您的互联网连接。如果你突然失去了 VPN 数据加密的保护，这将防止你的 ISP、网站追踪者、政府机构和 [任何其他监控网络流量的人](https://lifehacker.com/can-a-vpn-hide-what-i-do-on-the-internet-from-my-employ-1842921336) 看到你在做什么。
 

@@ -4,7 +4,7 @@
 
 大多数早上我都跑步，通常每次都让 T1 在 T2 附近做同样无聊的循环。但是今天，我发现自己在附近的一个公园里，仔细查看地图，为我的团队策划最好的方式来获取最多的瓷砖。我当时正在玩一款名为 [Stride](http://www.runanempire.com/stride/) 的游戏，我可以看到它变得令人上瘾。
 
-Watch
+
 
 该应用在 [iOS](https://apps.apple.com/us/app/stride-walk-run-capture/id1526274172) 和 [Android](https://play.google.com/store/apps/details?id=com.lgl.stride&hl=en_US&gl=US) 上是免费的(用于基本功能)，游戏的机制是这样的:T 他的世界被分成六边形的瓷砖，w 无论你在哪里跑步(或走路，或坐在轮椅上旅行)，你都可以要求一个瓷砖。如果您的路线带您进入一个封闭的循环，您也可以在该循环的中心获得瓷砖。每块瓷砖都归曾经访问过它最多的人所有。
 

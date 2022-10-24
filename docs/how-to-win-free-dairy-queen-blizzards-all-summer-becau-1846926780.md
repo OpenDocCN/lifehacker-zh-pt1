@@ -4,7 +4,7 @@
 
 随着阵亡将士纪念日周末的到来，Dairy Queen 将赠送一张“最甜蜜的季节通行证”，允许 20 名随机挑选的冰淇淋 粉丝订购整个夏天的免费暴风雪。T 何链 [上周四宣布晋级](https://news.dairyqueen.com/announcements/details/2021/Looking-for-Free-Blizzard-Treats-all-Summer-Long-The-DQ-Brand-Unveils-a-Sweetest-Season-Pass/default.aspx)；以下是你如何获得梦寐以求的奖品的方法，每个奖品的价值都是其体重的几千倍。
 
-Watch
+
 
 ## **如何赢得奶品皇后甜蜜季通行证**
 

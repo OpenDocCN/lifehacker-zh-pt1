@@ -4,7 +4,7 @@
 
 苹果音乐的应用是其基于应用的流媒体服务的最大弱点之一，这似乎是...不理想。无论你用的是 iPhone 还是 Mac，这款应用从来都不是特别快；Reddit 用户特别喜欢[抱怨](https://www.reddit.com/r/AppleMusic/comments/d3nd08/apple_music_is_so_slow_any_way_to_improve/)。如果你发现苹果音乐应用程序非常慢，有一些技巧可以加快速度。
 
-Watch
+
 
 ## 禁用 Apple Music 的社交功能
 

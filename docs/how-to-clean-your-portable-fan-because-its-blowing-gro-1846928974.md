@@ -4,7 +4,7 @@
 
 夏天就要到了，你知道这意味着什么:是时候让粉丝们大吃一惊了，想知道自从你最后一次见到他们以来，他们到底是怎么变脏的。随着时间的推移，头发、灰尘、棉绒和各种其他空气中的杂物会在风扇上堆积起来——如果你不清理干净，它们就会吹到你的脸上。
 
-Watch
+
 
 好消息是，大多数家用风扇都非常容易拆卸和清洗，即使你不是一个很会自己动手的人。你只需要 [一把十字螺丝刀](https://lifehacker.com/the-essential-tiny-tool-kit-everyone-should-have-at-hom-1643714563) ，一个装螺丝的小碗或盘子，两块抹布，和 [一些醋](https://lifehacker.com/8-things-you-probably-didnt-know-you-can-clean-with-vin-1846357379) 或洗碗液。一把旧牙刷或小瓶刷子可以帮助你进入角落和缝隙，但是如果你没有，抹布也可以。
 

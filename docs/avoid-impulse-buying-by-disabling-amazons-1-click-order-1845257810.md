@@ -4,7 +4,7 @@
 
 在今年的亚马逊优惠日 10 月 13 日掏空你的钱包之前，关闭你亚马逊账户中的一键购物是个好主意。如果它能帮助你避免买家反悔——一项调查显示 [冲动购物在疫情早期增长了 18%](https://www.prnewswire.com/news-releases/americans-increased-impulse-spending-by-18-percent-during-the-covid-19-pandemic-according-to-new-survey-commissioned-by-slickdeals-301055530.html#:~:text=In%20a%20new%20poll%20in,up%2018%20percent%20to%20%24182.98.&text=According%20to%20the%20results%2C%20more,money%20in%20the%20long%20run.)—大部分是在网上，在亚马逊上，通过一键购买实现。
 
-Watch
+
 
 当然，亚马逊的专利 1-Click 既巧妙又方便，省去了通常允许你在决定购买前查看商品的虚拟购物车。但是值得考虑的是，根据一些的研究，购物的平均购物车放弃率约为 69%。那是什么意思？在点击“继续结账”和查看购物车的这段时间里，31%的人找到了不购物的理由。
 

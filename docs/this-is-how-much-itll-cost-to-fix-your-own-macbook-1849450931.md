@@ -4,7 +4,7 @@
 
 昨天， [苹果公司宣布](https://gizmodo.com/apple-self-service-repair-program-macbooks-m1-air-pro-1849441900) 将扩大其自我维修计划，以包括 M1 MacBook Air 和 MacBook Pro 设备，首次将 Mac 零件和指南添加到目录中。如果你有一台 M1 MacBook Air 或 MacBook Pro，或者 M1 Pro 或 M1 Max MacBook Pro，现在你可以在苹果的支持下自己修理这些设备。但是它很快变得令人困惑(更糟糕的是，昂贵)。
 
-Watch
+
 
 ## 一点关于苹果的自我修复计划
 

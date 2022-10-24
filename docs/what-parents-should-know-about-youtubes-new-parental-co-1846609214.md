@@ -4,7 +4,7 @@
 
 十几岁的孩子和十几岁的孩子已经进入了一个奇怪的 T2 YouTube 空间，家长们试图引导他们的孩子如何安全而现实地使用这个网站。到目前为止，选项基本上是将他们锁定在 YouTube 儿童应用程序 的 [上，这(理应如此)相当严格——或者*或*让他们在完全开放的 YouTube 的可怕世界中自由自在。然而，特别是对于十几岁的青少年来说，YouTube Kids 太幼稚了，而完全开放的 YouTube 可能不是你想让他们去的地方。但是现在，有了一个折中的选择。](https://lifehacker.com/how-to-set-youtube-kids-new-content-filter-for-preschoo-1837655413)
 
-Watch
+
 
 [YouTube 最近推出了](https://blog.youtube/news-and-events/supervised-experiences-for-families-on-youtube/) 新选项，专门面向青少年和他们的父母，提供有人监督的体验。父母可以允许他们的孩子通过受监管的谷歌账户访问普通的 YouTube(而不是 YouTube Kids)。通过该帐户，父母可以根据孩子的年龄或发展阶段设置内容。有三种设置可供选择， [正如 YouTube 描述的](https://blog.youtube/news-and-events/supervised-experiences-for-families-on-youtube/) :
 

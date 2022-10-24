@@ -4,7 +4,7 @@
 
 苹果本周在 WWDC 举行了年度主题演讲，发布了各种操作系统的下一个版本，包括 macOS 13 Ventura。第十三代 macOS 将带来大量新功能，如新的生产力工具，更好的游戏功能，以及今年晚些时候推出的大量现有应用和功能的更新。你可以查看我们的综合报道 [最好的 macOS 13 变化](https://lifehacker.com/the-best-new-macos-ventura-features-coming-to-your-macb-1849027260) 来到你的电脑，了解更多信息。
 
-Watch
+
 
 自然，人们会想尽快试用 macOS 13。虽然 macOS 13 的 [公测版将在未来几周](https://beta.apple.com/sp/betaprogram) 面向所有人开放，但苹果有一个更早的*版本面向拥有开发者账户的用户开放。一个苹果开发者账户的费用是 99 美元/年，要求你有一个支持你想使用的即将推出的测试版操作系统的苹果设备，并启用特定的账户安全设置。*
 

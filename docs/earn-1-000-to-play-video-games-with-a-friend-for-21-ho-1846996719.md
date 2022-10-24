@@ -4,7 +4,7 @@
 
 如果你对放松周末的想法包括和朋友一起玩无数小时的电子游戏，同时吃美味的小吃，那么我们有一份工作给你。FrontierBundles 希望 [付给一对朋友每人 1000 美元](https://www.frontierbundles.com/play-video-games-with-friends-get-paid) 让他们每人玩 21 个小时的视频游戏，并报告他们的体验。以下是你需要知道的。
 
-Watch
+
 
 ### 这项工作需要什么
 

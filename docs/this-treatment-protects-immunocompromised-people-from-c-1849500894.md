@@ -4,7 +4,7 @@
 
 当疾控中心准备推荐新的二价 COVID 加强疫苗时(说到这里， [我们大多数人应该计划接种一种](https://lifehacker.com/there-s-a-new-covid-booster-you-should-probably-get-thi-1849490154) )，他们也提到应该让更多的人了解 Evusheld，它可以为 12 岁及以上的免疫缺陷人群提供额外的保护。
 
-Watch
+
 
 免疫功能低下的人是指 [拥有免疫系统，而并不总是像他们想象的](https://lifehacker.com/what-it-means-to-be-immunocompromised-and-why-it-matte-1846396812) 那样工作。您可能由于身体状况而导致免疫系统减弱，或者您可能由于癌症或接受器官移植等情况而正在服用抑制免疫系统的药物。
 

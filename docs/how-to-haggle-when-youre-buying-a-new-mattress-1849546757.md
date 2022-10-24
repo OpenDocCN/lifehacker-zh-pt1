@@ -4,7 +4,7 @@
 
 在我们购买的所有商品中，很少有讨价还价以获得更好价格的商品是可以接受的——大多数都是在跳蚤市场、古董展和房地产销售的范围内。
 
-Watch
+
 
 但是还有一个讨价还价的机会，很多人都忽略了，或者没有意识到:买一张新床垫。事实上，根据消费者报告 最近的 [调查，23%最近购买新床垫的人说他们试图协商更低的价格——大多数报告说成功了。](https://www.consumerreports.org/home-garden/mattresses/haggling-for-a-mattress-could-help-you-save-a2352446856/)
 

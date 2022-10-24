@@ -4,7 +4,7 @@
 
 如果你是一个笨手笨脚 AF 的 iPhone 所有者，AppleCare+总是值得的。句号。然而，如果你像我一样——一般来说很体面地保持你的手机不会垂直掉到地上，但从来没有能力取得 [*完美的胜利*](https://www.youtube.com/watch?v=wUS5l-MU2Hs)——你可能会想，注册苹果的修理服务是否值得。
 
-Watch
+
 
 好吧，我们来算算。出于争论的原因，我将假设你正在考虑为你的 iPhone 12 购买 AppleCare+,因为你很可能不再为你目前使用的 iPhone 购买 apple care+。
 

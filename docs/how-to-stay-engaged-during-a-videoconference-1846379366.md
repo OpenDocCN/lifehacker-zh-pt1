@@ -4,7 +4,7 @@
 
 唯一比新冠肺炎疫情期间的单调隔离更可预测的是视频会议的一致性。盯着屏幕的必要性使“变焦疲劳”成为一种非常真实的情况，显然对普通上班族的影响不亚于好莱坞偶像阿尔·帕西诺。
 
-Watch
+
 
 在周日晚上的金球奖上，我可以说，这位 80 岁的老人在半远程制作期间，当他拨通电话成为屏幕上的另一张脸时，他看起来有点走神。帕西诺呆滞的眼神( [他真的在睡觉吗？](https://twitter.com/slytherinus/status/1366216597212459011?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1366216597212459011%7Ctwgr%5E%7Ctwcon%5Es1_&ref_url=https%3A%2F%2Fwww.huffpost.com%2Fentry%2Fal-pacino-sleeping-golden-globes_n_603cbb1cc5b6d7794ae06576) )之所以具有普遍的吸引力，是因为谁没有在呼呼大睡时精神恍惚过呢？
 

@@ -4,7 +4,7 @@
 
 有报道称，特朗普总统的推特账户再次被一名荷兰安全研究员黑客入侵，这名研究员碰巧猜中了正确的密码:“maga2020！”我认为 [故事](https://gizmodo.com/security-researcher-claims-he-took-over-trump-s-twitter-1845453351) 是 [绝对是骗人的](https://twitter.com/josephfcox/status/1319314052510666752) ，但它仍然是一个伟大的提醒，你不应该偷懒与你的社交媒体安全。锁定你的 Twitter 账户很简单，不到五分钟就能完成。
 
-Watch
+
 
 ### [修改密码](https://twitter.com/settings/password)
 

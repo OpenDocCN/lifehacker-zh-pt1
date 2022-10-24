@@ -4,7 +4,7 @@
 
 如果你一直在犹豫是否购买 Meta Quest 2 虚拟现实系统，是时候做出决定了 : Meta 昨天宣布 Quest 2 的价格将于 8 月 1 日上涨 100 美元。这意味着你只有五天的时间来刷出信用卡，否则你将面临给马克·扎克伯格多余的一百美元~~扔进焚化炉~~ [打造元宇宙](https://fortune.com/2022/04/28/meta-facebook-mark-zuckerberg-metaverse-business-losing-billions-part-plan/#:~:text=But%20the%20company's%20metaverse%20business,Mark%20Zuckerberg%20isn't%20worried.) 的未来。
 
-Watch
+
 
 128GB 的 Quest 2 将从 299 美元涨到 399 美元，而 256GB 的价格将从 399 美元涨到 499 美元。该公司称涨价是必要的，，“为了继续投资推动虚拟现实产业的长期发展。”
 

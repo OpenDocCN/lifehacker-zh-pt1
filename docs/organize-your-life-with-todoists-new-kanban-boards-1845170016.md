@@ -4,7 +4,7 @@
 
 Todoist 已经非常适合管理项目和待办事项列表，但该应用程序新推出的将这些列表变成了可定制的——和协作的——看板。这项新功能面向所有人，包括免费用户。
 
-Watch
+
 
 Todoist 的 board view 包含了你期望从 [看板风格的项目管理工具](https://lifehacker.com/productivity-101-how-to-use-personal-kanban-to-visuali-1687948640) 中得到的所有功能。用户可以使用额外的列和过滤器来自定义他们的板，以适应他们的项目的工作流程，并向他们的板添加其他用户。您还可以随时在新看板视图和 Todoist 的传统列表布局之间切换。
 

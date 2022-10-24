@@ -4,7 +4,7 @@
 
 Adobe 最近宣布，Photoshop Sketch 和 Illustrator Draw 这两个可以在 iPad 上使用的伟大的免费绘图应用程序将于 7 月 19 日从苹果应用商店(和 Google Play)中删除。幸运的是，这些应用程序在 [Adobe Fresco](https://apps.apple.com/us/app/adobe-fresco-draw-paint/id1458660369) 中获得了免费的替代品，它将 Photoshop Sketch 和 Illustrator Draw 的功能结合到了一个应用程序中——但对你来说可能有更好的选择，现在是找出答案的最佳时间。
 
-Watch
+
 
 你没有*有*来做出改变，因为现有用户可以继续使用 Photoshop Sketch 和 Illustrator Draw，只要这些程序在 7 月 19 日之前安装在他们的设备上，但这些应用程序将只能获得有限的支持，直到 2022 年 1 月 10 日完全停止。
 

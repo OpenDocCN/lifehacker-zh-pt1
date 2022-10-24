@@ -4,7 +4,7 @@
 
 我最近被介绍到 [宇博](https://yubo.live/en) ，它被宣传为青少年的“结交新朋友”应用程序，但经常被描述为“青少年的火种”这款应用可以让青少年(或假装成他们的成年人)找到其他有相似兴趣的人，并通过私人信息或公共直播聊天。
 
-Watch
+
 
 就像任何针对儿童或青少年的新应用一样，我的第一站是 [常识媒体](https://www.commonsensemedia.org/app-reviews/yubo?utm_expid=.RCp3TD4oT6qWuBfx5635Eg.0&utm_referrer=https%3A%2F%2Fwww.google.com%2F) 来获取他们的意见。他们推荐这款应用的最低年龄不是 13 岁，而是 17 岁及以上的人:
 

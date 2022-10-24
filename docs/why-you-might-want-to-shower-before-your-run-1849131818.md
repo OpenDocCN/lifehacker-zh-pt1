@@ -4,7 +4,7 @@
 
 说到 [在热火中奔跑](https://lifehacker.com/here-s-how-much-slower-you-run-in-the-heat-1782687837) ，我就是个软骨头。(说到很多事情，我就是个软骨头。)在跑完春季 [马拉松](https://lifehacker.com/how-young-is-too-young-to-run-a-marathon-1848901266) 后，我努力恢复训练，让自己走出家门，进入夏季天气。然后我想起了我通常为赛前紧张保留的一个窍门:快速淋浴。
 
-Watch
+
 
 你可能会认为在你汗流浃背，需要再次淋浴之前，淋浴是没有意义的。但是如果你像我一样，跑前快速冲洗可能正是你解决夏季跑步低迷所需要的。这篇文章的灵感来自于我自己的经历，并得到了 [这篇来自 Ready Set Marathon](https://readysetmarathon.com/should-you-shower-before-running/) 的博客文章的支持。
 

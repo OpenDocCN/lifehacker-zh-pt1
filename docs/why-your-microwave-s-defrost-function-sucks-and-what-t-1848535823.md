@@ -4,7 +4,7 @@
 
 我喜欢有微波炉。我用我的搅打 [土豆泥](https://lifehacker.com/how-to-make-perfect-mashed-potatoes-in-the-microwave-1846629900)[肉酱做秋葵](https://lifehacker.com/how-to-make-an-easy-roux-in-the-microwave-and-oven-1848187134) ，甚至 [柠檬酱](https://lifehacker.com/how-to-make-perfect-lemon-curd-in-the-microwave-1826812427) 。这是一个多功能的电器，我认为每个人都应该有一个。然而，我并不喜欢它的除霜功能。
 
-Watch
+
 
 ## 微波炉的除霜功能是如何工作的？
 

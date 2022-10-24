@@ -4,7 +4,7 @@
 
 他汀类药物是一类降胆固醇药物，通常开在处方上，可能会挽救很多人的生命。他们也因为能够引起肌肉疼痛而臭名昭著，这导致许多人停止他们的他汀类药物，或者一开始就对服用一种药物犹豫不决。但是一项 [的新研究](https://www.thelancet.com/journals/lancet/article/PIIS0140-6736(22)01545-8/fulltext?utm_campaign=tlpr&utm_medium=email&_hsmi=224048558&_hsenc=p2ANqtz-9DZauO_aptPC-lkhErDyWtWPkh1-M9veYxKv4JIuYvPWzjOWCYmUQpOtBIPV7k6Zj5zThflF0rLIfmUYu20zc2BHNNqZo4guQZ6IkfQsL5XPaF5Ts&utm_content=224048558&utm_source=hs_email#seccestitle130) 表明，人们服用他汀类药物引起的大部分肌肉疼痛根本不是来自他汀类药物。
 
-Watch
+
 
 这项研究旨在计算有多少人因服用他汀类药物而导致肌肉疼痛，而不仅仅是服用他汀类药物的 T2。因为，当然，肌肉疼痛可能来自其他来源。在健身房锻炼了一天后，你会感到酸痛，在打扫了一整天的院子后，或因流感而肌肉酸痛。各种医疗条件也可能导致肌肉疼痛，包括纤维肌痛、狼疮和莱姆病。除了他汀类药物之外的其他药物也可能是罪魁祸首。
 

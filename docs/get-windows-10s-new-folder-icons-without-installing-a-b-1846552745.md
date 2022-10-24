@@ -4,7 +4,7 @@
 
 微软正在改变其流行操作系统的传统图标。你已经看到其中一些变化影响了经典的 Windows 10 应用程序，如 [邮件和计算器](https://medium.com/microsoft-design/iconic-icons-designing-the-world-of-windows-5e70e25e5416) ，但接下来是文件浏览器文件夹的新图标。
 
-Watch
+
 
 如果你喜欢它的外观，并且想尝试新图标，你有两个选择。首先，您可以安装 Windows Insider 测试版，它内置了这些变化。你需要 Windows 10 预览版 21343，可以通过注册 Windows Insider 计划(通过你的**设置应用>更新&安全**)获得。确保您为您的版本选择了 Dev 通道，这意味着以一些系统稳定性的潜在代价更快地获得更新的特性。
 

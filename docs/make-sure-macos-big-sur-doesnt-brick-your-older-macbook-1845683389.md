@@ -4,7 +4,7 @@
 
 向雷德蒙的工作人员道歉，但我通常会将“升级到新版本操作系统后的灾难”与微软 Windows 10 的巨大功能发布联系起来。然而，本周轮到苹果享受一些尴尬:根据 [到](https://www.reddit.com/r/MacOS/comments/jue7n5/big_sur_update_bricked_mid2014_13_mbp/) [众多](https://www.macrumors.com/2020/11/15/macos-big-sur-update-bricking-some-macbook-pros/) [报道](https://news.ycombinator.com/item?id=25102026) ，升级到 macOS 大苏尔据称 [砖块](https://mrmacintosh.com/macos-big-sur-11-list-of-serious-install-upgrade-issues-updated/)2013 年末和 2014 年初 MacBook Pros。
 
-Watch
+
 
 不过，奇怪的是。这些问题并不仅仅局限于这些 MacBooks。正如一位 [的 Reddit 用户](https://www.reddit.com/r/MacOS/comments/jue7n5/big_sur_update_bricked_mid2014_13_mbp/gccvtil/?utm_source=reddit&utm_medium=web2x&context=3) 写道:
 

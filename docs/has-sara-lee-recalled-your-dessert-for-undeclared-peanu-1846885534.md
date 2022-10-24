@@ -4,7 +4,7 @@
 
 即使你从未购买过李丽蕊的产品，你也可能熟悉他们流传已久的顺口溜，它大胆地宣称 [【没人不喜欢】](https://www.youtube.com/watch?v=2mbUG-i6yK8) 他们的冷冻甜点和其他美味碳水化合物系列。但是看起来他们可能需要把对花生过敏的人从名单上去掉，继 [召回一些可能含有“未申报花生”的李丽蕊山核桃派产品](https://www.fda.gov/safety/recalls-market-withdrawals-safety-alerts/sara-lee-frozen-bakery-issues-allergy-alert-undeclared-peanuts-pecan-pies)
 
-Watch
+
 
 以下是关于召回需要了解的内容，包括哪些馅饼受到了影响，以及如果你在冰箱里发现了馅饼该怎么办。
 

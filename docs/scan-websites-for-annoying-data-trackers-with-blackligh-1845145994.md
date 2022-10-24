@@ -4,7 +4,7 @@
 
 屏蔽网站追踪器很容易。几款 [热门网页浏览器](https://lifehacker.com/block-ads-and-tracking-with-vivaldis-new-built-in-brows-1843006826) 默认屏蔽广告和追踪器，还有大量的 [第三方 app 和浏览器插件](https://lifehacker.com/how-to-make-ublock-origin-even-better-at-ad-blocking-in-1839964889) 可以在需要的地方填补空白。但是你有没有想过，这些有用的工具到底在阻止什么？
 
-Watch
+
 
 为了在你访问网站之前就能简单地看到网站跟踪的所有内容，以及这些数据在哪里被共享，我们强烈建议你去看看 MarkUp.org 基于网络的“”工具。(你也可以通过第三方软件、浏览器拦截器或者 [专门配置的浏览器设置](https://lifehacker.com/block-javascript-in-your-browser-to-prevent-annoying-em-1843186321) 来获取这些信息，但是你必须先访问一个网站，然后他们才会对其进行分析。)
 

@@ -4,7 +4,7 @@
 
 微软对即将到来的 Windows 11 的严格硬件要求让许多用户望而却步，但事实证明，即使你的个人电脑的处理器或安全功能不符合该公司的标准，也有办法安装新的操作系统——尽管它不能保证正常运行。
 
-Watch
+
 
 [据 The Verge](https://www.theverge.com/2021/8/28/22646035/microsoft-windows-11-iso-workaround-no-update-guarantee) 报道，微软确认用户可以用一个 ISO 手动安装 Windows 11。这绕过了正常的 Windows 更新程序，意味着你不必通过 Windows PC 健康检查来安装 Windows 11。但是，您的电脑仍必须满足最低硬件要求:
 

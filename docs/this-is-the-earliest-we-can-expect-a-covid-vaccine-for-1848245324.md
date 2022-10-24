@@ -4,7 +4,7 @@
 
 儿童对新冠肺炎疫苗的等待是极其痛苦的。5 至 11 岁年龄组的[终于在上个月](https://lifehacker.com/covid-vaccines-are-finally-being-recommended-for-kids-a-1847985067) 拿到了他们的疫苗，这是在疫苗被批准用于成年人近一年之后。但是五岁以下的孩子仍在等待，不幸的是，他们等待的时间比我们预期的还要长。
 
-Watch
+
 
 那是因为 [辉瑞公司宣布他们针对小孩的 COVID 疫苗试验没有成功](https://www.pfizer.com/news/press-release/press-release-detail/pfizer-and-biontech-provide-update-ongoing-studies-covid-19) 。他们给 6 个月到 4 岁的儿童服用了两剂疫苗，只有其中一些儿童最终产生了足够的免疫反应，可以宣布疫苗有效。
 

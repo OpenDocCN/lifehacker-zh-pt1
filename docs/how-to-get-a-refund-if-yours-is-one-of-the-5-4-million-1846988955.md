@@ -4,7 +4,7 @@
 
 当然，使用任何类型的基于热量的工具都有可能导致用户出错和受伤。但是对于拥有最近被召回的 540 万台 [手持衣物蒸笼的人来说，他们被烧伤的几率更高。以下是关于召回需要了解的内容，包括如何获得退款。](https://www.cpsc.gov/Recalls/2021/hsn-recalls-5-4-million-handheld-clothing-steamers-due-to-serious-burn-hazard) 
 
-Watch
+
 
 ### 哪些轮船正在被召回？
 

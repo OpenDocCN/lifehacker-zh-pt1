@@ -4,7 +4,7 @@
 
 在 Lifehacker 这里，我们已经对莱瓦尔·伯顿和他的播客*莱瓦尔·伯顿阅读*表明了我们的立场:我们非常感谢和欣赏他们两个。早在 2019 年，前 Lifehacker 工作人员作家尼克·道格拉斯(Nick Douglas)选择了 LeVar 阅读“商人和炼金术士之门”( [第一部分](https://www.stitcher.com/podcast/stitcher/levar-burton-reads/e/61695083) 、 [第二部分](https://www.stitcher.com/podcast/stitcher/levar-burton-reads/e/61827918) )的两部曲作为他挑选的 [年度最佳播客剧集](https://lifehacker.com/the-best-podcast-episodes-of-2019-1840561817) 。
 
-Watch
+
 
 然后，几个月后(现在看来像是过了一辈子)，2020 年 4 月，Lifehacker 的执行主编 Meghan Moravcik Walbert 写了一篇题为 [“感谢上帝，莱瓦尔·伯顿将为我们朗读”](https://lifehacker.com/levar-burton-will-read-to-us-thank-god-1842621471) 的帖子，以回应他将每周三次在 Twitter 上现场朗读故事的声明。如果有一个时候，我们需要一个平静，安心的声音，那就是现在。(还有现在，以及其间的整个时间。)
 

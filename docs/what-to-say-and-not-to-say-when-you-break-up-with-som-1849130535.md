@@ -4,7 +4,7 @@
 
 分手，就像他们说的，很难做到。每个人在结束事情时都需要指导，但通常情况下，建议侧重于如何 [知道你想分手](https://lifehacker.com/how-to-recognize-the-signs-of-an-impending-breakup-1845388339) 或如何 [应对事后的所有情绪](https://lifehacker.com/how-to-recover-from-a-breakup-1848577331) 。然而，最糟糕的事情之一是做那该死的事情。根据全球语言学习机构 [Preply](https://preply.com/) 收集的数据，每年全球有超过 50 万人在“如何与人分手”上打勾。
 
-Watch
+
 
 缺乏沟通可能在你们关系的不稳定和消亡中扮演了一个角色，但是在最后时刻清楚你的语言是非常重要的。以下是不该说的话，以及应该说的话。
 

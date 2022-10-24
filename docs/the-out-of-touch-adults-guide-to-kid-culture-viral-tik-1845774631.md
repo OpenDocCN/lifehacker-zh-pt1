@@ -4,7 +4,7 @@
 
 说到儿童和青少年，这一切都是关于抖音的。竞争对手可以尝试 [克隆它](https://www.forbes.com/sites/rachelsandler/2020/08/05/as-facebook-launches-tiktok-clone-a-look-back-at-6-other-rival-products-it-copied/?sh=3b8d6045c5a9) ， [总统可以尝试关闭它](https://abcnews.go.com/Politics/trump-tiktok-shut-us-sept-15-deal-made/story?id=72150177) ，但中国制造的视频分享服务仍在继续发展，估计约有 8.5 亿人是活跃用户。即使你不喜欢它，抖音也是 25 岁以下任何人的思想市场，无论是关于神秘的愚蠢争论，还是关于新冠肺炎疫苗的致命严肃争论，还是 2000 年中期儿童电影的温暖人心的重新想象。
 
-Watch
+
 
 ### 抖音是最好的抖音
 

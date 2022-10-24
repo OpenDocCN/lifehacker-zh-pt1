@@ -4,7 +4,7 @@
 
 一个 iOS 14 的头条特色是——因为它通过 [惹怒广告商](https://www.macobserver.com/news/advertisers-react-ios-att/) — 而成为头条，这是“应用跟踪透明度”，这一设置让用户选择退出所有跟踪，包括应用在你不使用时收集的数据(这让谷歌和脸书等广告平台非常懊恼)。
 
-Watch
+
 
 我们之前报道过 iOS 14 的 [应用追踪透明度如何增加用户隐私](https://lifehacker.com/how-to-piss-off-advertisers-with-your-ios-14-settings-1844870607) ，但最近的 iOS 14.5 更新使该功能更好，增加了新的设置，让你可以更改你安装的每个应用的追踪权限。
 

@@ -4,7 +4,7 @@
 
 去酒吧的一个好处是他们有所有的东西。 [好冰](https://lifehacker.com/create-perfectly-clear-cocktail-ice-with-directional-fr-1767111047) ，花式樱桃，完美的柠檬皮条——这些东西都准备好了，等着被使用。买一罐樱桃很容易，但从柑橘类水果上剥下薄薄的一层皮却很繁琐。
 
-Watch
+
 
 一把 [y 型削皮器](https://lifehacker.com/kitchen-tool-school-the-humble-y-shaped-vegetable-peel-1785666402) 会让事情变得更简单，但是正如受人尊敬的调酒师和鸡尾酒书作者杰弗里·摩根塔勒向《美食家》 的 [艾米丽·法瑞斯解释的那样，这些东西有点危险:](https://www.epicurious.com/shopping/for-a-perfect-citrus-twist-use-a-cheese-slicer)
 

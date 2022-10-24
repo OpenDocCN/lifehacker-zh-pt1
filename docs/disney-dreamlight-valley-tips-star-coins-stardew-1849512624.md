@@ -4,7 +4,7 @@
 
 生活模拟 [*迪士尼梦幻光谷*](https://kotaku.com/disney-dreamlight-valley-review-animal-crossing-stardew-1849507154) 把它的故事框定为戴着米老鼠耳朵的天堂——远离城市生活或真实生活的喧嚣。但是要充分享受它，升级它破败的城镇，获得关键物品，购买漂亮的衣服，你仍然需要有大量的现金。从史高治·麦克老鸭拿过来。
 
-Watch
+
 
 在这个世界里，你会了解到星星币、 [*迪士尼梦幻之光*](https://www.amazon.com/xbox-game-pass/s?asc_campaign=InlineText&asc_refurl=https://kotaku.com/disney-dreamlight-valley-tips-star-coins-stardew-1849512624&asc_source=&k=xbox game pass&tag=kinjakotakulink-20)币，如果你花些时间溶解脓包夜刺——几乎每次你移除它们，它们都会吐出一枚硬币——几乎是在游戏开始的时候。但你也会很快了解到，最重要的事情，如升级你的背包，以获得更多的存货，可能会花费数万星币。那晚荆棘最低工资简直是不可持续的。
 

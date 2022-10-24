@@ -4,7 +4,7 @@
 
 你如何抚养没有种族歧视或性别歧视的孩子？如果你发现你的孩子欺负了一个同学，你会怎么做？你应该从什么时候开始担心孩子自私过头了？
 
-Watch
+
 
 在科学作家梅林达·温纳·莫耶的帮助下，我们在本周的升级版中回答了这些和其他棘手的育儿问题。梅林达是一名获奖的记者，撰写关于科学、育儿和医学的文章，她是《科学美国人》、《纽约时报》、《华盛顿邮报》和其他全国性媒体的特约编辑。她的新书 [*如何培养不是混蛋的孩子:基于科学的更好育儿策略——从小孩到青少年*](https://www.amazon.com/Raise-Kids-Arent-Assholes-Parenting/dp/0593086937?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-raise-kids-who-arent-assholes-with-melinda-wenn-1847370982&asc_source=&tag=kinjalifehackerlink-20) ，充满了关于如何培养孩子的迷人研究，希望这些方法能防止他们长大后成为，嗯，可怕的人。
 

@@ -4,7 +4,7 @@
 
 至于个人隐私功能，WhatsApp 已经涵盖了基本内容(不管怎么说，撇开 [隐私政策](https://lifehacker.com/what-happens-if-you-dont-accept-whatsapps-new-privacy-p-1846880181) )。您拥有端到端加密、双因素身份验证以及阻止他人随意将您添加到群组的能力。但 WhatsApp 一直缺乏的是对这些隐私功能的*控制:你可以向所有人展示你的个人资料照片或最后一次看到的时间戳，也可以对所有人隐藏，两者兼而有之。像 [Telegram 和 Signal 这样的应用传统上处理可定制的隐私控制](https://lifehacker.com/for-better-privacy-use-these-apps-instead-of-whatsapp-1845551260) 要好得多。* 
 
-Watch
+
 
 缓慢但肯定的是，WhatsApp 现在允许用户定制他们的隐私功能。只要你运行的是最新版本的 WhatsApp，你就可以选择一揽子规则的例外。只要将个人联系人添加到联系人列表中，您就可以选择他们看不到您最近的显示状态或您的个人资料照片。
 

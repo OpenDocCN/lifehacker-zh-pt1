@@ -4,7 +4,7 @@
 
 根据今天发布的一份国会报告，许多婴儿食品含有令人担忧的高含量砷、镉、汞和铅。这不是一个新问题；健康婴儿光明期货在 2019 年发布了一份 [报告](https://www.healthybabyfood.org/sites/healthybabyfoods.org/files/2020-04/BabyFoodReport_ENGLISH_R6.pdf) 有类似的发现，FDA 也发布了关于米粉中砷的警告，像我们在 2016 年报道的 [这个](https://lifehacker.com/don-t-feed-babies-a-ton-of-rice-cereal-says-fda-1770782825) 。
 
-Watch
+
 
 幸运的是，有办法限制你的宝宝接触这些食源性有毒金属。《健康婴儿光明未来》提出了五种方法来做到这一点——其中三种围绕着不吃米饭。
 

@@ -6,7 +6,7 @@
 
 *据 KnowYourMeme 报道，自夏季* *以来，这一趋势一直在升温，几周前当* [*歌曲《Wellerman》*](https://twitter.com/EidolonFox/status/1348867807367344129)*的各种越来越复杂的版本的片段开始在推特上疯传时，这一趋势也开始蔓延。(如果你还需要更多的证据来证明这不仅仅是一次性的，这里有* [*一个有趣的线索，是关于迷因的其他最近的例子*](https://twitter.com/jennyrae/status/1347717112912097282) *。)然而，我们 Lifehacker 远远领先于抖音潮流:我们在 2018 年首次发布了下面的 sea shanty explainer/playlist。视频制作人贾米森·赫尔曼在 [神秘海港](https://www.mysticseaport.org/) 海事博物馆的船上工作时演唱了这首歌。“海事史学界的说法是，一个好的船工抵得上一条线上的十个水手”——因为他一下子帮大家拉绳子。赫尔曼将 60 多首海洋歌曲——纯粹的无伴奏合唱——放入一个合作的 Spotify 播放列表， [海港音乐](https://open.spotify.com/user/127843054/playlist/1dqZocnsrClzzRUuIrEX3T?si=AtvJtnbmTxSv4jJPHrp3dg) 。这是经典的生产力音乐，适合体力劳动。对于我们这些伏案工作的人来说，这是一个极好的提神饮料。*
 
-Watch
+
 
 [https://open.spotify.com/embed?uri=spotify%3Auser%3A127843054%3Aplaylist%3A1dqZocnsrClzzRUuIrEX3T](https://open.spotify.com/embed?uri=spotify%3Auser%3A127843054%3Aplaylist%3A1dqZocnsrClzzRUuIrEX3T)
 

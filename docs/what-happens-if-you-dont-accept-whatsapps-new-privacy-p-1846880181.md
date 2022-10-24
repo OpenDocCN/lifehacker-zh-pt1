@@ -4,7 +4,7 @@
 
 WhatsApp 备受争议的新隐私政策将于 2021 年 5 月 15 日生效。更新后的协议 [允许脸书收集你的 WhatsApp 数据](https://lifehacker.com/how-to-ditch-whatsapp-for-good-1846204849?utm_campaign=Lifehacker&utm_content=1612541515&utm_medium=SocialMarketing&utm_source=facebook) ，很多人对此很不高兴。也就是说，用户不会被迫自动接受新条款——但是那些不同意这些条款的用户*将会体验到他们服务的一些变化。最终，你将无法使用该应用程序，但这将是一个逐渐的过渡，因为在几周的时间里，你会失去越来越多的访问权限。* 
 
-Watch
+
 
 ### 为什么这些 WhatsApp 的政策协议不会消失？
 

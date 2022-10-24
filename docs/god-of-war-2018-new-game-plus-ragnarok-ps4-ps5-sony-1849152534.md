@@ -4,7 +4,7 @@
 
 正如预言(又名，索尼的巨大营销机器)所预言的那样，*ragnark*即将到来。昨天， [索尼的圣莫尼卡工作室宣布了其即将推出的动作游戏](https://kotaku.com/god-of-war-ragnarok-santa-monica-studio-sony-ps5-1849146462) [*战神 ragnark*](https://kotaku.com/god-of-war-ragnarok-ps4-ps5-accessibility-options-text-1848949268)的 11 月发售日期。也许你已经发现自己渴望重演它的前身*战神*。在过去的几个星期里，我一直在这么做，让我告诉你:新的 game plus 不为我做这件事。
 
-Watch
+
 
 在*战神【2018 最初发布的几个月后，索尼在游戏中加入了新的 game plus 模式。像大多数类似的模式一样，你可以用你在之前的游戏中获得的所有技能和装备创建一个新的保存文件。敌人的难度随着你的能力而增加。从纯权力幻想的角度来看，这是一个爆炸，在一定程度上，*战神*的新游戏 plus 让重播它 [感觉像是在玩一个全新的游戏](https://kotaku.com/god-of-wars-new-game-plus-actually-does-feel-like-a-new-1828530695) 。*
 

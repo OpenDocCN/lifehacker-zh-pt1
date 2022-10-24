@@ -4,7 +4,7 @@
 
 COVID 疫苗增强剂 [于今年秋天更新](https://lifehacker.com/there-s-a-new-covid-booster-you-should-probably-get-thi-1849490154) :辉瑞针对 12 岁及以上，Moderna 针对 18 岁及以上。现在，更小的孩子可以加入进来。FDA [今天宣布](https://www.fda.gov/news-events/press-announcements/coronavirus-covid-19-update-fda-authorizes-moderna-and-pfizer-biontech-bivalent-covid-19-vaccines) 两家公司的助推器已经被授权用于 5 岁及以上儿童。CDC 也发布了一个更新的建议，声明这个年龄段的儿童应该得到新的加强剂。
 
-Watch
+
 
 二价加强剂包含两种版本的 COVID 疫苗，因此得名:一种 mRNA 编码与旧疫苗相同的刺突蛋白，另一种产生与 Omicron (BA.4 和 BA.5)变体中发现的刺突蛋白相匹配的刺突蛋白。获得这种两全其美的疫苗应该比仅仅获得另一剂原始配方疫苗更好地预防未来的 COVID 感染。
 

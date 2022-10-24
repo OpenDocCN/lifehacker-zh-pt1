@@ -4,7 +4,7 @@
 
 苹果的 iOS 16 (目前作为 [公测版](https://lifehacker.com/how-to-install-the-ios-16-and-ipados-16-betas-1849023051) )为 Notes 应用程序带来了许多小的新功能，但最大的更新是添加了快速笔记。当然，它并不完全像在 iPad 上那样工作，但仍然一样有用。这里是你应该知道的所有新的和令人敬畏的 Notes 特性。
 
-Watch
+
 
 ## 如何在装有 iOS 16 的 iPhone 上快速记笔记
 

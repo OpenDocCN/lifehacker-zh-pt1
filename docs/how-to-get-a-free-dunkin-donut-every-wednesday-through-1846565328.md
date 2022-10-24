@@ -4,7 +4,7 @@
 
 对于喜欢甜甜圈的人来说，这是一个好时机(想必每个人都是如此)。当你向他们出示你的新冠肺炎疫苗接种卡时，你不仅可以在今年剩下的每一天得到一个 [免费的 Krispy Kreme 甜甜圈](https://lifehacker.com/your-vaccination-card-will-score-you-free-krispy-kreme-1846515136) ，而且 Dunkin Donuts 也在免费赠送之列。他们的交易并不像他们的竞争对手那样甜蜜，但是免费的甜甜圈就是免费的甜甜圈。以下是从现在起到 4 月 21 日，每周三如何获得 [免费邓肯甜甜圈](https://news.dunkindonuts.com/news/free-donut-wednesdays?gclid=Cj0KCQjwjPaCBhDkARIsAISZN7TFLBxAikhbNayXUcScSJIUo1intshEGwC6jOYiMzN2kGwVMFdOCZcaAqW5EALw_wcB&gclsrc=aw.ds) 的方法。
 
-Watch
+
 
 ### 如何获得免费的星期三甜甜圈
 

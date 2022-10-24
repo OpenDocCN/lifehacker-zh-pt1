@@ -4,7 +4,7 @@
 
 [Chrome 扩展](https://lifehacker.com/13-of-the-best-chrome-extensions-of-2021-according-to-1848244043) 被认为可以让你的浏览器更好——但并不是所有的扩展都可以信任。尽管谷歌很努力，但 Chrome 网上商店并不是一个无辜公用事业的市场。虽然大多数都经过了适当的审查，但有些人还是漏网了，就像他们在 Play Store 甚至苹果应用商店上做的那样。现在，我们知道了另一组伪装成合法扩展的恶意软件，包括两个与该公司无关的“网飞”选项。
 
-Watch
+
 
 [迈克菲的安全分析师](https://www.bleepingcomputer.com/news/security/chrome-extensions-with-14-million-installs-steal-browsing-data/) 发现了这最新一批五个恶意的 Chrome 扩展。他们总共有超过 140 万次的下载。这些扩展互不相同，但在设计上有着相同的最终目标。一旦你在浏览器上安装了这些扩展，它就会等待你访问一个电子商务网站，比如百思买或亚马逊。然后，扩展将你的浏览数据发送到他们自己的域，如果你的网站与他们的一个分支机构相匹配，他们要么将他们的分支机构链接注入页面的 URL，要么用他们自己的链接劫持你的 cookies。无论哪种方式，目标都是从你购买的商品中赚取佣金。
 

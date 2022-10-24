@@ -4,7 +4,7 @@
 
 人们出于各种原因使用加重毯子。根据 [健康热线](https://www.healthline.com/health/anxiety/do-weighted-blankets-work#_noHeaderPrefixedContent) 、 [的研究表明](https://pubmed.ncbi.nlm.nih.gov/32536366/) 重量在 5 到 30 磅之间的治疗毯“可能有益于患有焦虑、自闭症和失眠等疾病的人。”利用 [深层- 压力刺激](https://pubmed.ncbi.nlm.nih.gov/25871605/) ，毯子放松神经系统，模仿被抱或被抱的体验(想想:婴儿襁褓，但对成人)。
 
-Watch
+
 
 它们可以改善睡眠质量，减轻压力，但是不容易洗。虽然外部织物通常是传统织物，如羊毛、棉花、法兰绒、亚麻或人造丝，但使其沉重的填充物" [可能包括微纤维珠、沙子、钢珠、鹅卵石或颗粒](https://www.lunablanket.com/blogs/news/what-are-weighted-blankets-made-of#:~:text=Weighted%20blankets%20can%20be%20constructed,beads%2C%20pebbles%2C%20or%20grains.) (其他网站列出了塑料或“聚”颗粒和有机材料，如脱水食品，作为潜在的填料。)
 

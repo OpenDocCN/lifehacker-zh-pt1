@@ -4,7 +4,7 @@
 
 根据对我丈夫、最大的 WhatsApp 聊天、和我一起工作的每个人、的一项非科学调查，100%的受访者在刷牙后使用漱口水*。 但是常识可能会让许多人在错误的时间使用漱口水。而且是很多人:据 [Statista](https://www.statista.com/statistics/276434/us-households-usage-of-mouthwash-and-dental-rinse/) 统计，2020 年将近 2 亿美国人使用漱口水。但事实证明，使用漱口水的最佳时间是刷牙前的*。**
 
-Watch
+
 
 ## 为什么那么多人刷牙后用漱口水？
 

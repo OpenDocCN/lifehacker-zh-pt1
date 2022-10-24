@@ -4,7 +4,7 @@
 
 洛基，卢卡。卢卡洛基。Disney Plus 正在尽自己的努力让你在 6 月份呆在室内，因为它将在漫威电影宇宙首映第三部电视剧*和皮克斯的下一部故事片*。
 
-Watch
+
 
 如果你是迪士尼超级用户，你可能已经开始期待前者了。在今年早些时候经历了[*旺达·幻视*](https://lifehacker.com/whats-coming-to-disney-in-january-2021-1845889780) 和 [*猎鹰与冬兵*](https://lifehacker.com/whats-new-on-disney-in-march-2021-1846336053) 之后，洛基【T16 月 9 日】当然看起来会让 MCU 炒作的列车继续前行。它带回了每个人都喜欢的反英雄，雷神的兄弟洛基(或他的一个版本)，为 [进行了一次穿越时间和多元宇宙](https://www.youtube.com/watch?v=nW948Va-l10&ab_channel=MarvelEntertainment) 的旅行。这部剧似乎准备好了提供大量的粉丝服务(汤姆·希德勒斯顿的洛基与欧文·威尔逊扮演的时间差异权威代理人对抗)，并进一步为这个相互联系的电视节目和电影星系的下一阶段奠定了基础，明确地*不能*被允许讲述一个独立的故事。皮克斯的一部新电影，由首次担任故事片导演的埃里康·卡萨罗萨(*《月神》*)和编剧迈克·琼斯(*《灵魂》*)和杰西·安德鲁斯(*《我和厄尔还有垂死的女孩》*)执导，在叙事上没有那么吓人。这是两个年轻男孩的故事，卢卡和他的新最好的朋友安东尼奥，探索意大利里维埃拉，并试图隐藏他们真的来自海底怪物王国的事实，阳光普照的背景一定会给你那些大夏天的感觉。(虽然希望你不会太失望，但这不是《酷儿罗曼史》 [的儿童版*叫我你的名字*](https://io9.gizmodo.com/luca-director-enrico-casarosa-explains-why-the-movies-a-1846599431) 那个 [预告片的一些观众想象的](https://hypebae.com/2021/2/luca-pixar-movie-trailer-call-me-by-your-name-similarities-watch-release-date) 。)
 

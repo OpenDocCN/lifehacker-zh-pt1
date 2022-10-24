@@ -4,7 +4,7 @@
 
 如果你有一个后院，并希望获得被动收入，有一个应用程序适合你: [Sniffspot](https://www.sniffspot.com/) 将的狗主人与拥有完全围栏的院子的人联系起来，这些人愿意按小时租用他们的土地。Sniffspot 被描述为“狗脱离束缚区域的 Airbnb”， [在美国超过 1500 个城市拥有大约 7000 个主机，在加拿大、欧洲和新西兰提供服务](https://money.com/sniffspot-backyard-dog-park/) 。
 
-Watch
+
 
 ## Sniffspot 是如何工作的？
 

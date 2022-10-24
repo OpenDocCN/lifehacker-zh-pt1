@@ -6,7 +6,7 @@
 
 尽管多年来 [法律学者一直争论](https://www.npr.org/sections/health-shots/2020/01/21/797102280/roe-v-wade-settled-law-or-bad-precedent-states-prep-for-an-overturn)*鱼子*是否有资格成为 【定居法】(这个术语是)的一种误称， 唐纳德·川普提名艾米·科尼·巴雷特填补因大法官露丝·巴德·金斯伯格去世而空出的最高法院席位，这既引发了人们对最高法院近 50 年来的裁决的担忧，也引发了一些人对最高法院的热切期待。 但是如果我真的改变了方向，会发生什么呢？
 
-Watch
+
 
 正如 [古特马赫研究所](https://www.guttmacher.org/state-policy/explore/abortion-policy-absence-roe) 和 [华盛顿邮报](https://www.washingtonpost.com/graphics/2018/national/abortion-rights-supreme-court/?noredirect=on&utm_term=.b3af85887520) 所报道的，一些州已经将前 *Roe* 堕胎法成文，而另一些州已经通过了法律，打算在 *Roe* 被推翻后生效。但是其他州已经通过法律明确规定在这种情况下堕胎是合法的。所以堕胎的合法性将取决于你生活在哪个州，正如 [这张来自古特马赫的图表说明了](https://www.guttmacher.org/state-policy/explore/abortion-policy-absence-roe) 。下面是一些，呃，亮点:
 

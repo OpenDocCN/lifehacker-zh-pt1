@@ -4,7 +4,7 @@
 
 即使你 [穿了合适的面料](https://lifehacker.com/avoid-wearing-these-fabrics-in-the-heat-and-what-to-we-1849013486) ，还是有那么几天，炎热潮湿的夏天真的会让你出汗。大量出汗已经够糟糕了，但还不止于此:它还可能在你的衣服上留下黄色污渍。
 
-Watch
+
 
 幸运的是，有办法去除这些污渍。以下是需要了解的内容。
 

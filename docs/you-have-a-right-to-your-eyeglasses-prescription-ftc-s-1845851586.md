@@ -4,7 +4,7 @@
 
 许多提供视力检查的商家都希望向你出售眼镜，但你有权货比三家。美国联邦贸易委员会有一条规定，你有权获得一份你的眼镜处方，他们正在打击拒绝 的处方者 [。](https://www.ftc.gov/news-events/press-releases/2020/12/ftc-sends-28-warning-letters-regarding-agencys-eyeglass-rule)
 
-Watch
+
 
 以下是英国《金融时报》对他们所谓的眼镜规则的描述:
 

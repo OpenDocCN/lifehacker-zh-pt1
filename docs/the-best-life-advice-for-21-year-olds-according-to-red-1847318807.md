@@ -4,7 +4,7 @@
 
 如果你 21 岁，刚刚获得大学学位，雄心勃勃，想要开始新的生活，也许你应该向网上的陌生人寻求建议。我们有点像孩子——但是你*可以*向 Reddit 咨询你想要的所有建议，就像一个热切的 [大学毕业生最近在](https://www.reddit.com/r/lifehacks/comments/oj7415/any_life_hacks_that_a_21_year_old_should_do_now/) 的一个帖子中所做的那样，证明用牙线剔牙和开立罗斯个人退休帐户一样重要。
 
-Watch
+
 
 这个帖子由[u/briellee 99](https://www.reddit.com/user/brielleeee99/)发布，要求提供“生活窍门”，但她真正想要的是一些基本的财务规划建议，redditors 很乐意提供。她说，她和她的男朋友正试图超越那种“崛起和磨砺”，这种喧嚣的文化废话，在她这个位置上的人可能会在研究如何获得成功的重要问题时发现。
 

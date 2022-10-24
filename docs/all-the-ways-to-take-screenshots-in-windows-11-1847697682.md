@@ -4,7 +4,7 @@
 
 Windows 11 上截图有几种方式。大多数截图快捷方式都是与 Windows 10 上的 相同的 [，但也有一些额外的截图功能是 Windows 11 独有的。](https://lifehacker.com/how-to-take-a-screenshot-or-picture-of-whats-on-your-co-5825771) 
 
-Watch
+
 
 ## 打印屏幕快捷方式
 

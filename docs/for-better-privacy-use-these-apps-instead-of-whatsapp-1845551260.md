@@ -4,7 +4,7 @@
 
 WhatsApp 期待已久的消失消息功能 [将很快向所有用户](https://lifehacker.com/how-to-try-whatsapps-disappearing-messages-feature-when-1842381540) 推出，但在使用之前，你应该确保自己对该功能的工作方式感到满意。
 
-Watch
+
 
 消失的消息为您的对话增加了一层额外的隐私。假设您想让某人知道您的家庭地址，但不希望该信息永远出现在您的聊天记录中。以消失信息的形式发送地址，它会在一段时间后自动删除。
 

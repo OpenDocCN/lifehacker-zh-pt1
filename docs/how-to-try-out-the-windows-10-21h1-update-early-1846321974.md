@@ -4,7 +4,7 @@
 
 想试试 Windows 10 最新的主要功能更新吗？如果你不介意带着测试版在野外生活——这是你可能不想冒的风险如果 Windows 应用对你能够在现实生活中完成工作和/或功能至关重要——尽早获得 Windows 10 21H1 是很容易的。
 
-Watch
+
 
 在你开始之前，为你的系统*做个备份，以防万一*。这意味着 [克隆您的整个硬盘](https://lifehacker.com/back-up-and-clone-your-hard-drive-with-macrium-reflect-1825289970) 还是将关键文件复制到 [云](https://lifehacker.com/google-one-is-now-open-for-everyone-but-is-it-a-good-d-1826049257) 或 [外部](https://lifehacker.com/which-monitor-and-external-hard-drive-should-i-get-for-1842645456) 存储，由您决定。无论你选择保存你的数据，确保你做了一些事情；你永远不知道 Windows 10 测试版什么时候可能会导致意料之外的问题。(我 t 发生在*常规* Windows 更新中，所以...)
 

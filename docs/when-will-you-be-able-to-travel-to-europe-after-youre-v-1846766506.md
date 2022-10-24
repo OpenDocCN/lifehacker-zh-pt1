@@ -4,7 +4,7 @@
 
 目前， [只有七个欧洲国家](https://www.washingtonpost.com/travel/2021/04/26/europe-open-americans-greece-iceland/) (克罗地亚、塞浦路斯、格鲁吉亚、希腊、冰岛、黑山和塞尔维亚)允许美国人以游客身份前往。但是欧盟委员会主席 [宣布了一项计划](https://www.nytimes.com/2021/04/25/world/europe/american-travel-to-europe.html?referringSource=articleShare) 允许来自美国的完全接种疫苗的人以非必要的理由访问——假设欧盟能与美国政府达成协议。
 
-Watch
+
 
 该计划将依赖于找出一种方法来记录疫苗接种的证据。虽然“疫苗护照”的说法在美国引起了争议，但旅行者通常需要出示他们的疫苗接种情况才能前往某些国家。
 

@@ -4,7 +4,7 @@
 
 大约 [75%的招聘人员](https://www.cnbc.com/2019/02/28/resume-how-yours-can-beat-the-applicant-tracking-system.html) 在招聘过程中使用求职者跟踪系统——财富 500 强公司中使用这一系统的比例 n 甚至更高(约 99%)。了解 ATS 的工作原理可以帮助你提高自己在潜在雇主面前的竞争力，从招聘队伍中的其他候选人中脱颖而出，最终让你的简历通过 ATS，进入招聘人员的手中。
 
-Watch
+
 
 ## ATS 系统是如何工作的？
 

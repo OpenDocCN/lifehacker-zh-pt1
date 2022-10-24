@@ -4,7 +4,7 @@
 
 奥普拉·温弗瑞、茱莉亚·罗伯茨和杰克·吉伦哈尔有什么共同点？是的，他们都比我有钱，但他们也 [各有各的园艺享受](https://balconygardenweb.com/celebrities-that-love-gardening-growing-plants/) 。不难看出为什么；无论你是想花更多的时间在户外还是仅仅与有共同兴趣的人互动，加入当地的园艺俱乐部都会有很多收获。美国最大的园艺协会美国园艺俱乐部拥有超过 18000 名会员，遍布 200 个地方分会；找到你的会面地点就像看一看他们的 [国家地图](https://www.gcamerica.org/clubs_national_map) 一样简单。
 
-Watch
+
 
 没有看到您的家乡所在州的列表？只是因为没有美国花园俱乐部的存在(我看着你， [蒙大拿](https://www.mtfgc.org/)[爱达荷，](https://www.gcii.org/) [内华达州](http://nevadagardenclubs.org/)[北达科他州](https://fargogardensociety.wordpress.com/)[南达科他州](https://www.sdgardenclubs.org/)[犹他州](https://utahagc.org/)[俄克拉荷马州](https://oklahomagardenclubs.com/) 和所以，去拿你的种子和锄头吧，因为这里有五个理由让你在这个夏天弄脏你的工作服。
 

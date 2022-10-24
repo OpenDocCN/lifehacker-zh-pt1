@@ -4,7 +4,7 @@
 
 Steam 不如其他数字 PC 游戏发行商如 Epic Games Store 那样精心策划。虽然这使得在 Steam 上自助发布游戏变得更加容易，但它也为滥用平台敞开了大门——比如未经开发者同意就上传非法游戏版本的。
 
-Watch
+
 
 最近的一个例子是下沉的城市。这款游戏作为史诗游戏商店的独家游戏在几个月后突然出现在 Steam 上。在之后不久，*沉没城市的*开发工作室，Frogwares，指称游戏的发行商， Nacon，窃取并非法上传游戏的代码到 Steam，并呼吁玩家不要购买 Steam 版本(通过 [副](https://www.vice.com/en/article/88ajvp/the-sinking-city-dev-alleges-publisher-hacked-and-illegally-uploaded-game-to-steam) )。Nacon 作出回应，否认 Steam 版本是非法的，但证实这是一个“过时”的版本，青蛙过河拒绝帮助更新。最终， [蛙人发布了 DMCA 下架](https://frogwares.com/the-sinking-city-is-being-delisted-heres-why/) 命令，将*沉没的城市*从 Steam 的商店中移除。
 

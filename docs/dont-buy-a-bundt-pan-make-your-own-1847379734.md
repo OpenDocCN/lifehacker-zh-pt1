@@ -4,7 +4,7 @@
 
 如果你是一个偶尔喜欢烘焙的人，Bundt 平底锅是那些看起来很重要的厨房用品之一——但只是偶尔。一年中的其他 364 天，它是一个空间吸盘，尤其是如果你有一个小厨房。一个人只能烤这么多磅蛋糕，尽管一片 [冷冻的磅蛋糕华夫饼干](https://lifehacker.com/you-should-waffle-slices-of-frozen-pound-cake-1844357285) 做得相当不错，但这仍不足以证明一整只邦特锅占据了你橱柜里的黄金地产。
 
-Watch
+
 
 解决办法——而不是从朋友那里借了一个，却忘了归还，从而破坏了你们的友谊——是用你已经有的物品拼凑一个临时的 Bundt pan。本周， [的乔斯林·德尔克·亚当斯在 Instagram](https://grandbaby-cakes.com/about/) 上展示了这个 [厨房黑客。](https://www.instagram.com/p/CRcXkRBAXgi/)
 

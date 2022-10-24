@@ -4,7 +4,7 @@
 
 虽然它们是目前最受欢迎的，但鸡翅并不是你唯一能吃到的东西。水牛菜花是最常见的素食替代品，尽管我们在 Skillet 认为最好的素食“翅膀”是 [不起眼的塔特托](https://lifehacker.com/the-best-vegan-buffalo-wings-are-just-tater-tots-1846508364) 。(油脂——太重要了。)
 
-Watch
+
 
 花椰菜很好吃——尤其是当它被烤得酥脆的时候， [拌入蘸酱](https://lifehacker.com/make-this-buffalo-cauliflower-dip-for-super-bowl-sunday-1832245628)——但它不是唯一值得一点辛辣的蔬菜——鸡翅。烤胡萝卜、油炸蘑菇、新鲜的生沙拉和 slaws 都是通过脂肪和弗兰克的结合而变得更加美味。(如果你愿意，你可以用弗兰克以外的辣酱，但老实说:弗兰克的是布法罗鸡翅的*口味。)*
 

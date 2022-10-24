@@ -4,7 +4,7 @@
 
 每当新产品中出现老贝，混乱随之而来。当老湾辣酱在 2020 年首次亮相时，它的 [比任何人都能发现它是否是一个噱头的](https://thetakeout.com/old-bay-hot-sauce-is-back-for-a-limited-time-updated-1841332649) 更快售罄。现在，是一种非常受欢迎的海鲜配料，是一种香甜可口的调料:九月初，我在推特上偶然发现了 [麦考密克的老贝焦糖调料](https://shop.mccormick.com/products/old-bay-caramel) ，被一张螃蟹的照片吸引住了(可以理解) [，照片上一只螃蟹浑身沾满了调料，在一小罐焦糖酱](https://cdn.shopify.com/s/files/1/0291/8042/8372/products/dtc_flavor_inspirations_old_bay_caramel_seasoning_65543_1024x1024@2x.jpg?v=1662992277) 上徘徊。
 
-Watch
+
 
 限时产品已经卖完好几次了，但我还是设法买到了一瓶。我是幸运者之一。麦考密克网站提供了一些焦糖混合的配方建议——但是那些留在巴尔的摩的寒冷中，他们的甜蜜和美味梦想破灭的人怎么办？
 

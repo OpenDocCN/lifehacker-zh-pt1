@@ -4,7 +4,7 @@
 
 如果你喜欢一个大花园的想法，但你不太热衷于浇水、施肥和护理，我有一个园艺哲学与你分享:我称之为“T1”[良性忽视](https://buffalonews.com/lifestyles/for-earth-day-plant-native-plants-practice-benign-neglect/article_31c6bbaa-ebc7-583c-9266-8c2293612dd1.html) 。这个想法是为当地的解放军创造有利的条件，让他们做自己的事情，而你却坐着喝迈泰酒。这听起来很基本，但善意的忽视与几个世纪以来的园林设计传统相反，在这种传统中,“成功”的景观充满了特定的、奇异的— 和通常是劳动密集型的 — 植物群。
 
-Watch
+
 
 ## **良性忽视园艺的关键**
 

@@ -4,7 +4,7 @@
 
 当你捡起你的狗的便便时，你帮了每个人一个忙，但是如果你也想帮环境一个忙，你需要使用正确的便便袋。一个普通的旧塑料袋会污染海洋， [窒息动物，毒害土壤](https://greenerideal.com/news/environment/0613-how-do-plastic-bags-affect-our-environment/#:~:text=Plastic%20bags%20tend%20to%20disrupt,and%20often%20choke%20and%20die.) ，所以你可能会使用一个被列为“可生物降解”的塑料袋但并不是所有的包都像它们看起来那样。以下是你如何为你的狗的便便选择合适类型的袋子。
 
-Watch
+
 
 ### 仔细阅读生物降解袋
 

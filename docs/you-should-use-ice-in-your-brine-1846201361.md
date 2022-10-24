@@ -4,7 +4,7 @@
 
 无论你是打算烤一只 [大火鸡](https://skillet.lifehacker.com/this-buttermilk-brine-will-turn-you-into-a-turkey-breas-1830318684) 还是一只 [菜花头](https://skillet.lifehacker.com/brine-a-cauliflower-just-as-you-would-a-turkey-1830285457) ，一份好的盐水能确保最终产品始终嫩滑、湿润、美味。简单的盐水只不过是糖、盐和水，但是胡椒子、柑橘皮、月桂叶和各种植物都可以用来使事情变得更有趣。然而，关于盐水的一个普遍真理是，你必须加热液体才能使那些结晶固体溶解。
 
-Watch
+
 
 如果你的盐水是用来做肉的，那么在你的猪排、火鸡胸肉或一群虾被浸到这些咸的、含糖的水中之前，它必须完全冷却。你可以等待这种情况发生，或者你可以使用一些冰。
 

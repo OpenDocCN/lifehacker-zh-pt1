@@ -4,7 +4,7 @@
 
 意外之财可以有多种形式——遗产、信托、股票期权、彩票中奖，以及在较小程度上的政府救济支票。人们很常见的是 [马上花掉大部分或全部的意外之财](https://www.marketwatch.com/story/what-would-you-do-with-a-500-windfall-most-peoples-reactions-may-surprise-you-2018-03-13) ，留给他们的东西很少。这就是为什么你需要一个计划。
 
-Watch
+
 
 ### **为什么计划很重要**
 

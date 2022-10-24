@@ -4,7 +4,7 @@
 
 由于新的超宽相机传感器，iPhone 13 Pro 和 13 Pro Max 现在可以在不连接任何东西的情况下拍摄令人惊叹的超近距离照片。当你足够接近一个对象时，你的相机会自动切换到超宽视角的裁剪版本，从而产生令人惊讶的恒星微距镜头。
 
-Watch
+
 
 可悲的是，非专业的 iPhone 13s T1 没有这个功能，并且忘记了老型号的 T2。不过不要难过:有一个应用程序可以做到这一点。第三方付费 app [Halide](https://apps.apple.com/us/app/halide-mark-ii-pro-camera/id885697368) 已经想出如何在旧款 iPhone 上近似微距照片功能—一直追溯到 iPhone 8 的。
 

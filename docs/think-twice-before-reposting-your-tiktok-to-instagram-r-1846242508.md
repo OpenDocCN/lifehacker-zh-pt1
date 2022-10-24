@@ -4,7 +4,7 @@
 
 如果你在 Instagram 和抖音上都有(或者想要)一个活跃的粉丝，你可能想要停止将抖音的视频转贴到卷轴上，因为 Iinsta gram 现在正在主动降低从其他应用程序上传的卷轴的可发现性。虽然回收的剪辑本身没有被禁止，但 Instagram 的算法现在会搜索其他应用程序的水印，以确保内容不太可能出现在“趋势卷轴”标签中。
 
-Watch
+
 
 Instagram [表示](https://www.engadget.com/instagram-reels-repost-tiktoks-best-practices-200536658.html) 正在做出改变，以回应用户投诉“低视频质量的卷轴(即由于低分辨率而模糊)或明显从其他应用程序回收的内容(即包含徽标或水印)使卷轴体验不太令人满意。”
 

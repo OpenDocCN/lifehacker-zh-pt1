@@ -4,7 +4,7 @@
 
 这一刻已经到来。经过多年的期待， [*埃尔登戒指*](https://kotaku.com/elden-ring-may-just-reinvent-the-open-world-genre-1848093261) 终于从想象的小平面跃入了今天的游戏机和个人电脑的真实平面。然而，像任何大型现代游戏一样， [它也有一些问题](https://kotaku.com/elden-ring-pc-bad-performance-day-one-patch-ps5-xbox-se-1848588854) 。它的发行商为那些玩 PlayStation 5 的玩家提供了一个不同寻常的解决方案:不要利用主机的关键“休息模式”功能。
 
-Watch
+
 
 由*血源*的制作者开发的开放世界动作游戏【埃尔登戒指】正在游戏世界掀起风暴。各路评论家 [都称赞它](https://kotaku.com/elden-ring-review-roundup-dark-souls-sekiro-botw-diffic-1848582567) 是有史以来最好的游戏之一，使*埃尔登戒指*成为今年第一个失控的热门游戏。现在好了， [它的破纪录](https://kotaku.com/elden-ring-twitch-steam-dark-souls-fromsoftware-records-1848593903) 上既有蒸汽又有抽动。 *Kotaku* 的伊恩·沃克，他的脖子深陷在土地之间，从他的 [混蛋 NPC](https://kotaku.com/elden-ring-fromsoftware-varre-npc-dark-souls-bloodborne-1848589678)到他的宝箱(即使那些宝箱 [完全把他搞砸了](https://kotaku.com/elden-ring-fromsoftware-trap-mimic-chest-dark-souls-blo-1848591179) ，其中:lmao)的每样东西上都洒了墨水。
 

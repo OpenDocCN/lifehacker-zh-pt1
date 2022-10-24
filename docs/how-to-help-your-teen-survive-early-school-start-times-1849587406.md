@@ -4,7 +4,7 @@
 
 尽管包括美国儿科协会在内的无数专家说，高中不应该一大早就开始上课，但许多人仍然这样做。这意味着青少年普遍睡眠不足，70%的青少年睡眠时间 [少于推荐的睡眠时间](https://publications.aap.org/aapnews/news/13792) 。
 
-Watch
+
 
 研究青少年睡眠的 Horacio de la Iglesia 解释说，这不仅仅是时间管理的问题，而是青少年大脑工作方式的问题， [在对话](https://theconversation.com/school-start-times-and-screen-time-late-in-the-evening-exacerbate-sleep-deprivation-in-us-teenagers-179178) 中解释了青少年睡眠不足背后的生物学。青少年需要比成年人多几个小时的清醒时间才会开始犯困。他们的昼夜节律似乎也运行得更慢，以至于在漫长的一天之后，他们需要一个漫长的睡眠之夜。他们最终会超越这一发展阶段，但高中阶段大概是他们早上睡眠需求最大的时候。
 

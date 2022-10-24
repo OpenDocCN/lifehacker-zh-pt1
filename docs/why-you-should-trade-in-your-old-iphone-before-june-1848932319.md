@@ -4,7 +4,7 @@
 
 [到了买新 iPhone](https://lifehacker.com/how-to-prep-your-iphone-or-ipad-to-sell-1847707403) 的时候，我们大多数人都不会抱着旧的不放。毕竟，iPhones 很贵，以旧换新减少了你在苹果商店必须面对的价格冲击。如果你打算近期通过苹果购买一部新的 iPhone，并认为你可能会以旧换新，那么你应该停止思考，开始行动。现在。
 
-Watch
+
 
 碰巧的是， [苹果公司目前已经提高了从现在到 5 月底的](https://www.macworld.com/article/700321/apple-trade-in-value-increased-may-2022.html) 的以旧换新价格。最新的旧 iPhone 价格最优惠:苹果为 iPhone 12 Pro 提供高达 600 美元的折价，为 iPhone 12 Pro Max 提供高达 700 美元的折价。这些价格分别比通常的 550 美元和 650 美元上涨了 50 美元。
 

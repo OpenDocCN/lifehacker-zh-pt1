@@ -4,7 +4,7 @@
 
 Windows 用户认为他们的操作系统拥有比 macOS 的 Finder 更好的文件管理系统。虽然这种说法仍有争议，但 Mac 用户可以在 windows 上使用的一个文件管理功能是 Finder 标签:这些标签可以让你像在网络浏览器中浏览网站一样，在文件窗口之间快速切换，这是 Windows 无法做到的方便高效的事情。至少，直到现在。
 
-Watch
+
 
 [早在 2013 年，随着 Mac OS X Mavericks 的发布，苹果在 Finder](https://lifehacker.com/split-or-merge-finder-tabs-in-os-x-with-a-couple-clicks-1686823201) 中引入了标签。现在，微软在近十年的大部分时间里都没有忽视这个功能:大约四年前，该公司测试了文件浏览器的标签，但最终决定不在操作系统中实现它。然而，在三月份，[《the Verge》报道了](https://www.theverge.com/22970473/microsoft-windows-11-file-explorer-tabs) 微软确实在为未来版本的 Windows 11 恢复该功能。虽然它还不是一个官方特性，但是它已经被一些 Windows 用户所使用，更多的用户也有望使用它。
 

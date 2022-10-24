@@ -4,7 +4,7 @@
 
 在我们在汽车和驾驶员 的朋友进行的一系列 [测试中，证明了几乎所有主要汽车制造商使用的](https://www.caranddriver.com/news/a37260363/driver-assist-systems-tested/?utm_medium=social-media&utm_campaign=socialflowTWCD&src=socialflowTW&utm_source=twitter) [Level 2](https://jalopnik.com/the-sae-autonomy-levels-are-confusing-but-i-think-i-hav-1846440294) 驾驶员辅助半自动系统能够被愚弄，允许驾驶员完全不注意，甚至离开驾驶座。当然，这是一个坏消息，如果不是非常令人惊讶的话，这确实是另一个提醒:所有 2 级驾驶员辅助系统都有固有的缺陷。
 
-Watch
+
 
 之前，我们主要报道了 [特斯拉的自动驾驶驾驶员监控系统(主要是方向盘上的扭矩传感器)如何击败](https://jalopnik.com/consumer-reports-shows-how-easy-it-is-to-use-tesla-auto-1846739330) ，以及各种 [的例子指出白痴](https://jalopnik.com/idiot-caught-not-driving-tesla-from-backseat-claims-to-1846891411) [利用](https://www.tesplus.com/model-3-y-x-s-steering-wheel-booster-fsd-counterweight-ring-autopilot.html?gclid=CjwKCAjwjdOIBhA_EiwAHz8xmziBNYr-CqLZQSauJRnADMT91Rqg0dqnoBvp9VSOlW6cg8y4NNxztBoCPnUQAvD_BwE) [的](https://jalopnik.com/the-autopilot-buddy-for-your-tesla-is-insidiously-dange-1826048861) 这些系统欺骗 在公共道路上高速行驶时保持沉默。到目前为止，特斯拉是这个问题最著名和最明显的例子，但它绝不是唯一的例子。
 

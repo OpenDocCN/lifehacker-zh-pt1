@@ -4,7 +4,7 @@
 
 说不是这样的，卡利布。我一直很喜欢微软的默认字体 T2，至少比 2007 年微软用 Calibri way T3 取代的 Times New Roman 更喜欢。当微软终于 [寻求用新的默认字体](https://www.microsoft.com/en-us/microsoft-365/blog/2021/04/28/beyond-calibri-finding-microsofts-next-default-font/)再次改变现状的时候，你就不必再追随雷蒙德的奇思妙想了。您可以将任何想要的字体设置为 Word 的默认字体。(永远的 Calibri。)
 
-Watch
+
 
 若要开始，请打开 Word 并创建一个新文档。C 点击功能区“字体”部分右下角的小箭头——“字体对话框启动器”, Word 称之为—。你可以在这里看到:
 

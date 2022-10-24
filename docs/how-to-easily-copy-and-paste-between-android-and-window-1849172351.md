@@ -4,7 +4,7 @@
 
 一个美丽的 Windows/Android 生态系统正在形成。用于 Windows 的新 [电话链接应用](https://lifehacker.com/you-can-finally-sync-your-android-to-your-windows-pc-1848805207) 将你的 Android 通知、照片和电话放在你的 PC 上。甚至可以在 Windows 11 上运行 [安卓应用。但是仍然缺少一样东西:共享剪贴板。不过，在微软将这一功能添加到他们的 Phone Link 应用程序之前，你可以使用不同的微软应用程序来实现这一功能:Swiftkey keyboard。](https://lifehacker.com/how-to-run-android-apps-on-windows-11-1847819230) 
 
-Watch
+
 
 是的，你需要在你的 Android 智能手机上切换默认键盘，但如果你愿意这样做，你的剪贴板会立即与你的 PC 共享，允许你从 Android 复制并粘贴到你的 PC 上，而不用跳过任何环节。
 

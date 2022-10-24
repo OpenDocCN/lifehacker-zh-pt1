@@ -4,7 +4,7 @@
 
 Visa 已经与加密货币初创公司 BlockFi 合作，提供以比特币 而非现金支付的 [first rewards 信用卡，但这值得申请吗？除非你非常看好加密货币，并且不介意被严重扣年费，否则它可能更像是一张好处有限的新奇卡。](https://blockfi.com/join-the-waitlist-for-the-worlds-first-ever-bitcoin-rewards-credit-card) 
 
-Watch
+
 
 BlockFi 卡目前还不可用——现有资金账户客户有一个等待名单，等待名单将于 1 月份公开。预计卡片将于明年春天上市。
 

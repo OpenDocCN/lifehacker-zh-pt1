@@ -4,7 +4,7 @@
 
 在浏览由 [告密者弗朗西丝·豪根](https://gizmodo.com/who-is-whistleblower-aid-the-group-helping-frances-hau-1847812645) 从脸书的墙内捕获的 [堆积如山的文件](https://gizmodo.com/hey-kid-wanna-see-some-leaked-facebook-docs-1847936740?rev=1635800426077) 的过程中，最不可思议的事情之一就是看到员工们在讨论公司最敏感的产品和系统时使用的词语。其中很多名字(柯基！尤达！)听起来似乎很可爱，而其他人听起来更可爱...阴险。
 
-Watch
+
 
 虽然这些术语本身很有趣，只是因为它们在内部使用，但它们也提供了对脸书内部阴谋的关键见解，以及该公司如何思考我们都知道和讨厌的问题。在很大程度上，这些定义摘自该公司的( [现已解散](https://time.com/6104899/facebook-reckoning-frances-haugen/) )公民诚信团队使用的 [内部词汇表](https://drive.google.com/file/d/10_DWy8FF960OMGhTHie3PMVVorAgC08F/view?usp=sharing) ，这是 Haugen 向国会和证券交易委员会披露的一部分。Gizmodo 和其他几十家新闻机构获得了这些文件的编辑版本。
 

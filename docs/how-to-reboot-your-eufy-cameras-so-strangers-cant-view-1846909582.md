@@ -4,7 +4,7 @@
 
 Eufy 制造了大量满足各种家庭需求的摄像机 :门铃摄像机，你可以在工作时放在桌子上与人聊天的摄像机，你可以塞在天花板角落的安全摄像机，等等。他们共有的一个属性是，Eufy 端的某种错误、漏洞或不幸的问题允许随机的人查看彼此的摄像头馈送。
 
-Watch
+
 
 正如一位 Reddit 用户 [写的](https://www.reddit.com/r/EufyCam/comments/nebj7s/im_seeing_another_persons_devices/) :
 

@@ -4,7 +4,7 @@
 
 名字里有很多东西。我们之前已经讨论过处理忘记某人名字的最平稳的方法——但是如果你首先不知道如何读他们的名字呢？
 
-Watch
+
 
 把一个人的名字写对不仅仅是礼貌——这是包容和尊重的问题。在为《哈佛商业评论》 撰写的一篇文章中， [*的作者 Ruchika Tulshyan 分享了某人的名字与他们在工作中的价值之间的联系。同样，来自 Damneet Kaur 的一篇*](https://www.rtulshyan.com/inclusion-on-purpose) *[在 LinkedIn](https://www.linkedin.com/posts/damneet-kaur_dei-names-community-activity-6887103475923189760-m9SE/)* *上疯传的帖子解释说，念错某人的名字会让他们感到被排斥和轻视。这些影响早在工作场所出现之前就开始了:研究表明，当老师没能学会他们名字的发音时，学生们会感到羞愧。*
 

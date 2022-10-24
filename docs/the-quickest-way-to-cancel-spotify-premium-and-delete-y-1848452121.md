@@ -6,7 +6,7 @@ Spotify 是领先的音乐流媒体服务，但它的高级会员资格可能并
 
 你首先需要取消你的 Spotify Premium 计划，这样 Spotify 就会停止每周向你的卡收费。一旦你这样做了，只有这样你才能删除你的整个帐户，如果你想的话。
 
-Watch
+
 
 ## 如何取消您的 Spotify Premium 帐户
 

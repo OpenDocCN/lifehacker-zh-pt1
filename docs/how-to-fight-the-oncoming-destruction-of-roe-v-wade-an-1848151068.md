@@ -4,7 +4,7 @@
 
 你可能已经很好意识到了，*罗伊诉韦德* [的未来看起来并不好](https://www.vox.com/2021/12/1/22811837/supreme-court-roe-wade-abortion-doomed-jackson-womens-health-dobbs-barrett-kavanaugh-roberts) 。
 
-Watch
+
 
 1973 年，美国最高法院在罗伊案中承认了堕胎的宪法权利。然而，在此后的几十年里，许多州一直在想方设法限制、禁止和剥夺你堕胎的权利。I n 2019，我们走过了许多 [你可以支持争取堕胎权利的途径](https://lifehacker.com/what-to-do-if-youre-freaking-out-about-the-wave-of-six-1834850007) 。2020 年我们回顾了 [如果罗伊诉韦德案被推翻](https://lifehacker.com/what-happens-in-your-state-if-roe-v-wade-is-overturned-1827297706) 你们州会发生什么。现在，随着 2021 年的结束，这些部分比以往任何时候都更加相关。
 

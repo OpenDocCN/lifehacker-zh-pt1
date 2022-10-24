@@ -4,7 +4,7 @@
 
 如果你是喷雾止汗剂和除臭剂的粉丝，你会想要检查你使用的那种是否是宝洁&发布的 [自愿召回的一部分。](https://news.pg.com/news-releases/news-details/2021/PG-Issues-Voluntary-Recall-of-Specific-Old-Spice-and-Secret-Aerosol-Spray-Antiperspirant-Products-Due-to-Detection-of-Benzene/default.aspx)
 
-Watch
+
 
 召回发生在 [公民请愿书](https://www.valisure.com/blog/valisure-news/valisure-detects-benzene-in-body-spray-products-3/) 上个月提交给美国美国食品药品监督管理局(FDA)之后，该请愿书称声称他们测试的超过一半批次的止汗剂和除臭剂喷雾剂含有——一种化学物质，当发现含量高时， [可致癌](https://emergency.cdc.gov/agent/benzene/basics/facts.asp) 。以下是你需要知道的。
 

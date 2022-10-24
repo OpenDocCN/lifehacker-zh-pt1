@@ -4,7 +4,7 @@
 
 对动物过敏是最糟糕的事(没有小狗拥抱你！)最坏的情况下还会危及生命。研究表明，全球高达 20%的人对狗和/或猫过敏，但是越来越多的动物也因自身过敏而接受治疗。
 
-Watch
+
 
 虽然没有可靠的数据表明宠物过敏的普遍程度，但坊间证据表明，大约 10%的动物可能有某种类型的过敏。Rover.com 的 [兽医健康专家加里·里希特博士说，最常见的宠物过敏是跳蚤、植物和尘螨——与人类没有什么不同。在一些罕见的情况下，](https://www.rover.com/blog/the-dog-people-panel/dr-gary-richter) [宠物实际上可能会对对方](https://www.wsj.com/articles/yes-your-dog-can-be-allergic-to-your-cat-pet-allergies-11600028900) 过敏。
 

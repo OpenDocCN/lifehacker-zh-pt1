@@ -4,7 +4,7 @@
 
 任何对新工作的薪水感兴趣的人都可以去 Glassdoor，因为该网站充斥着数千家公司各种职位的众包薪水。如果你从表面上看 Glassdoor 的薪水，那么你会对这份未来工作的薪水有一个相当不错的了解。正确
 
-Watch
+
 
 也许不会。因为 Glassdoor 的 [工资数据是通过 自我报告的工人工资和人工智能生成的算法组合起来的](https://help.glassdoor.com/article/What-are-Salary-Estimates-in-Job-Listings#:~:text=The%20purpose%20of%20salary%20estimates,guarantee%20the%20accuracy%20of%20estimates) t ，这些算法梳理了数百万个数据点，所以网站上显示的大多数(如果不是全部)工资单上都有一个很大的警告。(在极少数情况下，公司会自己提供薪资范围，尽管这些信息通常会被严格保密。
 

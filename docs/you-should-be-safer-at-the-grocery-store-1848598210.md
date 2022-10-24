@@ -4,7 +4,7 @@
 
 当我们想到食物中毒时，通常是在频繁的食物召回背景下，从 [沙拉](https://lifehacker.com/don-t-eat-these-recalled-salads-fda-says-1848344484) ，到 [洋葱](https://lifehacker.com/throw-your-onions-in-the-trash-cdc-says-1847907564) ，到 [干香料](https://lifehacker.com/check-your-spices-to-see-if-theyre-part-of-a-recall-ove-1845468692) 。
 
-Watch
+
 
 但是 [也有可能食物中毒](https://www.consumerreports.org/medical-conditions/surprising-ways-you-can-get-food-poisoning-a7726863758/) 如果感染了病毒或细菌的人(可能有也可能没有症状)上完厕所后没有彻底洗手，然后触摸会接触到食物的东西 你最终会吃东西(或食物本身)。事实上，根据美国食品药品监督管理局的说法，沙门氏菌、大肠杆菌和诺如病毒——食源性疾病的主要原因——经常通过这种方式传播。
 

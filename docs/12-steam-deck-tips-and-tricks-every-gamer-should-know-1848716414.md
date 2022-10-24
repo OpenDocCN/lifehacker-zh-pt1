@@ -4,7 +4,7 @@
 
 游戏玩家梦寐以求的掌上游戏机现在上市了。当然，我指的是 Valve 的 [Steam Deck](https://gizmodo.com/review-valves-steam-deck-is-glorious-but-unfinished-1848590583) ，一款类似于玩 PC 游戏的任天堂 Switch 的便携式手持设备。
 
-Watch
+
 
 尽管运行的是基于 Linux 的操作系统，但 Steam Deck 可以玩为 Windows 制作的游戏，这要归功于一个叫做 Proton 的漂亮的兼容层。不仅如此，Steam Deck 是一台成熟的电脑，能够加载到桌面模式，在那里你可以浏览网页、下载应用程序和播放音乐。你甚至可以在设备上安装 Windows 10，以防默认的 Steam OS 感觉太局限。
 

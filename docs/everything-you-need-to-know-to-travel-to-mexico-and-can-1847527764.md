@@ -4,7 +4,7 @@
 
 引用 COVID 的 Delta 变体，国土安全部 [今天早些时候](https://www.cnn.com/2021/08/20/politics/us-travel-restrictions-to-mexico-and-canada/index.html) 宣布，他们将延长加拿大和墨西哥的陆地入境边境限制，直到 9 月 21 日。但是这些限制对美国人有影响吗？乘飞机旅行怎么样？为了澄清任何困惑，这里有一份针对美国人的墨西哥和加拿大边境政策的完整概述。
 
-Watch
+
 
 ## **以美国公民身份进入墨西哥**
 

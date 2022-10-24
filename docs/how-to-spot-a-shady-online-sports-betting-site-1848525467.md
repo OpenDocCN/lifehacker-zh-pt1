@@ -4,7 +4,7 @@
 
 一大堆人打算在本周日的超级碗上下注。 [体育博彩在 30 个州以某种形式合法](https://lifehacker.com/where-exactly-is-sports-gambling-legal-1848333429) ，根据美国博彩协会 的预测，预计 3140 万美国人将在这项游戏上投入总计 76.1 亿美元。
 
-Watch
+
 
 但是在你加入人群之前，花几分钟确保你没有被欺骗或误导。正如 [Better Business Bureau 的卡门·米恩(Carmen Million)在](https://www.wbrz.com/news/betting-red-flags-to-lookout-for-bbb-warns/) 所说，“每个人都想参与进来，每个人都对此感到兴奋，但在投资之前，你必须花点时间进行调查。”
 

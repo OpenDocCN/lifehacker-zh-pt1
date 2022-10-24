@@ -4,7 +4,7 @@
 
 苹果正在延长几款面临已知屏幕问题的老款 MacBook 机型的免费维修资格。
 
-Watch
+
 
 首先，苹果将 13 英寸 MacBook Pro' s 背光服务计划 [延长了一年](https://www.macrumors.com/2021/01/17/apple-extends-13-macbook-pro-backlight-program/) 。该计划为有背光故障的部分 2016、2017 和 2018 MacBook Pros 提供免费维修。该计划于 2019 年 5 月开始，苹果将免费维修资格窗口延长至自第一次零售销售后五年，或自维修计划开始后三年，以时间较长者为准。这意味着客户现在至少可以在 2022 年 5 月之前更换旧 MacBook Pro 的背光。
 

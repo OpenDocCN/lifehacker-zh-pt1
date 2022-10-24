@@ -4,7 +4,7 @@
 
 一般来说，说谎不是一种被视为积极的品质。但不是所有的谎言都是平等的。谎言的范围相当广泛，从不会造成任何伤害的小谎言到会造成严重伤害的大谎言。
 
-Watch
+
 
 当一个人倾向于频繁撒谎时，“病态”和“强迫性”这两个词就会被频繁使用。但它们不是一回事。在 [对井+好](https://www.wellandgood.com/difference-between-compulsive-pathological-liar/) 的采访中，临床心理学家 Ramani Durvasula 博士分解了强迫性说谎和病理性说谎的区别。以下是需要了解的内容。
 

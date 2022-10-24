@@ -4,7 +4,7 @@
 
 从远处追踪乌克兰 [战争](https://lifehacker.com/how-to-talk-to-kids-and-teens-about-the-crisis-in-ukrai-1848589761) 的骇人消息会让你感到无能为力。虽然你可以做一些具体的事情来帮助在 s 下的乌克兰公民，一旦你这样做了，参与一些小的钓鱼活动也没什么错:黑客活动网站[wasterussiantime . today](https://wasterussiantime.today/)让你把 [机器人呼叫](https://lifehacker.com/why-you-shouldnt-speak-when-you-get-a-robocall-1847803297) 变成一种抵抗行为。
 
-Watch
+
 
 这个网站很简单。你点击屏幕中央的一个按钮，就可以自动拨打俄罗斯政府官员的电话，这样你就可以把他们联系起来，而你则可以坐下来倾听他们的困惑和烦恼。虽然这听起来只不过是一个恶作剧，但浪费俄罗斯官员时间的行为本身就是一种和平的民事干预。以下是关于参与黑客行动主义你需要知道的其他事情。
 

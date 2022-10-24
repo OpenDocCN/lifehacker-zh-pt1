@@ -4,7 +4,7 @@
 
 我很少根据食谱做饭。这不是因为缺乏欲望——更多的是时间和精力的问题。在漫长的一天烹饪、品尝和思考食物后，我很少想清理我的厨房，只是为了做一份全新的、合适的食谱。(我想吃零食，这是我平时晚饭做的。)
 
-Watch
+
 
 但是我最近特意尝试了一下“神魂颠倒厨房” [西葫芦黄油意大利面](https://smittenkitchen.com/2021/06/zucchini-butter-spaghetti/) ，这不仅是因为 [厨房](https://www.thekitchn.com/smitten-kitchen-zucchini-butter-pasta-review-23195709) 实质上已经宣布它是“夏季菜肴”，还因为我绝对信任 Deb Perelma n，而且我有稳定的新鲜西葫芦供应。
 

@@ -4,7 +4,7 @@
 
 有些人花了很多心思买蜡烛。他们可能会用 [【燃烧时间】](https://lifehacker.com/how-to-figure-out-a-candles-burn-time-1845730193) 【麝香】【投掷】等词汇来描述他们是如何做出选择的。但是，即使它真的完全是关于气味，它也很难抗拒装在美观的罐子里的蜡烛——大蜡烛知道这一点。
 
-Watch
+
 
 问题是，一旦你燃尽了蜡烛，你就剩下那个琥珀色的看起来像药剂师的玻璃罐子，或者完美的圆形不透明白色玻璃。你不想扔掉它们，但是你的储物空间有限，而且不确定空蜡烛罐是否值得拥有。好吧，也许这个抖音 [视频](https://www.tiktok.com/@ash_o_lie/video/6918771643611401478?) hack 会 [给你提供一些启发](https://www.wellandgood.com/upcycled-candle-planter/) 。
 

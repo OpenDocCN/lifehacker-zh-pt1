@@ -13,7 +13,7 @@
 
 通过 HomeKit，你可以将 Roku streamer 或电视添加到苹果智能家居设置中，允许你通过 iPhone、iPad、Mac、HomePod 或 Apple Watch 使用 Siri 语音命令来控制你的 Roku 设备。
 
-Watch
+
 
 另一个新功能 Airplay 2 可以让你通过 Roku 设备将 iPhone、iPad 或 Mac 上的媒体播放到电视上——除了其他功能外， [最终将为 Roku 用户提供一种从他们的 iPhone 或 macbook](https://lifehacker.com/what-hbo-max-lacks-1843710742)上访问 HBO Max 的简单方法。Airplay 还可以让你控制 Roku 电视的音量，改变输入，从苹果设备上打开或关闭电视，而不是用遥控器。
 

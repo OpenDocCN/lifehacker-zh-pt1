@@ -4,7 +4,7 @@
 
 本周，在力量跑 创始人杰森·菲茨杰拉德 [的帮助下，我们将全力以赴，培养一个稳固的跑步习惯。来得正是时候，因为 Lifehacker 自己的 Meghan Walbert，升级的共同主持人，一直在努力学习享受这个月的](https://strengthrunning.com/) [Lifehacker 健身挑战](https://lifehacker.com/c/lifehacker-fitness-challenge) 的锻炼。
 
-Watch
+
 
 除了是一名经验丰富的马拉松选手，Jason 还是一名美国赛道认证教练和 T2 力量跑播客 T4 的主持人。(他也是 Lifehacker 的常客！)
 

@@ -4,7 +4,7 @@
 
 今天的 [大型 PlayStation 5 软件更新](https://kotaku.com/the-ps5-is-getting-a-major-update-1847671904) 为游戏机带来了一系列急需的功能，除其他外，还增加了玩存储在外部固态驱动器(SSD)上的 PS5 游戏的能力。但它也悄悄地修复了[PS5 最烦人的怪癖](https://kotaku.com/the-ps5-s-screenshot-overlay-is-incredibly-annoying-1846772174) :你终于可以关掉那个该死的截图图标了。
 
-Watch
+
 
 PS5 于去年 11 月推出，其控制器内置了一个分享按钮。根据您调整设置的方式，您可以通过按住它一秒钟或按一次来抓图。但是没有取消确认图标的设置——一个灰色的小盒子，就像邀请他们的人离开后留在派对上的二级熟人一样，只是停留的时间太长了一点。
 

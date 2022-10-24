@@ -4,7 +4,7 @@
 
 虽然有些人一直喜欢老式(即二手)家具，但由于当前的 [家具短缺](https://www.furnituretoday.com/furniture-manufacturing/business-strong-but-material-prices-and-labor-shortages-plague-wood-segment/) 和 [运输延误](https://www.bloomberg.com/news/articles/2021-09-25/supply-chain-delays-furniture-buyers-feel-they-re-waiting-forever-for-a-couch) ，其他人对旧货店、跳蚤市场和庭院销售游戏很陌生。但是不管是否短缺，为你的家购买二手家具和其他物品有很多好处，包括成本、独特的设计、耐用性和使用现有物品的可持续性，而不是购买新的物品。
 
-Watch
+
 
 复古家具的缺点因家具而异(或者根本不存在)，但最常见的一种是一种熟悉的、有时挥之不去的气味，称为“旧货店气味”
 

@@ -4,7 +4,7 @@
 
 谷歌在 的“ [发布之夜”向我们概述了该公司即将发布的硬件，包括两款 5G Pixel 手机，一款新的 Nest 音频扬声器，以及一款带有专用遥控器的更新版 Chromecast。](https://lifehacker.com/preview/all-the-key-specs-google-didnt-share-at-todays-launch-n-1845230186) 
 
-Watch
+
 
 具有讽刺意味的是，所有宣布的事情都被提前泄露或大量传言，所以没有任何惊喜。其中一些设备甚至意外地比预期提前在商店货架上发布——所以你可能已经有了一台全新的 Chromecast。但如果你不是少数偶然发现这些早期下降的人之一，那么现在你可以抓住 Pixel 5 和 4a 5G 手机，带谷歌电视的新 Chromecast 和 Nest Audio 智能扬声器。
 

@@ -4,7 +4,7 @@
 
 自疫情开始以来，医院面临着越来越多的住院病人护理，随着全国范围内的高峰持续，可用床位再次变得稀缺。但是，由于疫情在全国的传播速度不同，你怎么知道你当地的医院是否不堪重负呢？一个名为 [*冠状病毒的 NPR 特别系列通过数字*](https://www.npr.org/series/885304437/coronavirus-by-the-numbers) 寻求帮助，与明尼苏达大学的 [新冠肺炎住院跟踪项目](https://carlsonschool.umn.edu/mili-misrc-covid19-tracking-project) 合作，制作一个简单的工具来搜索你所在地区医院的入住率，允许几种方法来跟踪冠状病毒相关的数据。
 
-Watch
+
 
 ### 按县搜索平均日产量
 

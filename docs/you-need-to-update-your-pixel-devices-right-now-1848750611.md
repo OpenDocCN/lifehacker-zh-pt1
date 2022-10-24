@@ -4,7 +4,7 @@
 
 安全更新是不容忽视的:它们修补了您的技术中可能危及您的隐私、安全和数据的关键问题。所以 w 当一个公司，像谷歌， [为一个设备](https://9to5google.com/2022/04/04/pixel-april-22-security-patch/) 掉了一个新的安全更新，像你的 Pixel，你应该记下并尽快安装更新。
 
-Watch
+
 
 谷歌在 4 月 4 日周一发布了针对 Pixel 设备的[4 月安全更新](https://source.android.com/security/bulletin/2022-04-01) 。新的更新涵盖了大部分像素系列，包括 Pixel 3a、Pixel 4、Pixel 4a、Pixel 4a 5G、Pixel 5、Pixel 5a、Pixel 6 和 Pixel 6 Pro(以及任何 XL 变体)。不幸的是，你不会看到像素 1，2 或 3 的更新。
 

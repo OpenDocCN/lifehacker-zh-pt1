@@ -4,7 +4,7 @@
 
 自 19 世纪 60 年代 以来，铸铁散热器就已经出现在 [左右，利用蒸汽加热手风琴形状的线圈，在冬天保持房间温暖。中央锅炉加热水，产生的蒸汽通过管道上升进入散热器，紧密的折叠](https://www.thisoldhouse.com/heating-cooling/21015031/take-a-good-look-at-vintage-radiators) [线圈保持热量的时间更长](https://www.residencestyle.com/install-cast-iron-radiators-this-winter/) ，即使在锅炉关闭后也能保持热度。但是当灰尘和污垢堆积在线圈上时，这些散热器就失去了效率，阻止了热量的传递。以下是正确清洁铸铁散热器的一些步骤。
 
-Watch
+
 
 ### 准备好空间，拿好工具
 

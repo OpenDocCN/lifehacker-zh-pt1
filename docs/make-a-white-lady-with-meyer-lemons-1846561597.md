@@ -4,7 +4,7 @@
 
 虽然我喜欢好喝的血腥玛丽，但我倾向于把它当成液体开胃菜，最好在吃鸡蛋之前喝。然而，白娘子是一种鸡尾酒，我可以在早餐时喝。清淡、明亮、有柑橘味和酸味——所有这些都是你在丰盛的早午餐中想要的。你可以用蛋清来做，但我通常不这么做，原因很简单，因为这增加了一个额外的步骤，而且我很少对做超过最低限度的事情感兴趣(至少在为自己做饮料的时候)。
 
-Watch
+
 
 幸运的是，这是一种没有太多大惊小怪的饮料。杜松子酒、柑橘和某种橙色利口酒都是你需要的，但我最喜欢的杜松子酒饮料是这种 [大卫·勒博维茨配方](https://www.davidlebovitz.com/french-white-lady-cocktail-savoy-gin-triple-sec-lemon-juice-pierre-ferrand-citadel/) ，它使用来自皮埃尔·费朗 的 [干库拉索。PF curaç ao 由苦的绿皮橙子制成，而不是通常的甜味和/或酸味，这是它保持美味和“干燥”的原因](http://maisonferrand.com/en/content/pf-dry-curacao-1/)
 

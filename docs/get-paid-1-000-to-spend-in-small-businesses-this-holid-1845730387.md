@@ -4,7 +4,7 @@
 
 不是每个人都在这个假期交换礼物，但是如果你是，你可以考虑去当地的小商店购物。经过八个月的疫情，我们附近的商店和餐馆比以往任何时候都更加支持我们。事实上，[140 万到 210 万](https://www.mckinsey.com/featured-insights/americas/which-small-businesses-are-most-vulnerable-to-covid-19-and-when) 美国小企业可能会因为疫情的前四个月而永久关闭。除了在当地商店购物之外，你还可以在这个假日季节参加小型商业活动，获得 1000 美元的报酬。下面是申请的方法。
 
-Watch
+
 
 
 

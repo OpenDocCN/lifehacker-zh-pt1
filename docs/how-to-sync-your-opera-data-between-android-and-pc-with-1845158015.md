@@ -4,7 +4,7 @@
 
 Opera 是数据隐私倡导者 的 [优秀浏览器选择，而](https://lifehacker.com/how-to-set-up-opera-s-mobile-vpn-for-secure-browsing-on-1832436689) [最新 Android 和桌面版本的浏览器](https://blogs.opera.com/mobile/2020/09/keep-in-sync-with-opera-for-android-60) 引入了两种新的跨设备同步方法，在不牺牲用户隐私的情况下更加方便。
 
-Watch
+
 
 Opera 已经允许用户在移动和桌面浏览器之间同步他们的书签、设置和打开标签，但过去需要用户创建一个帐户并在两个平台上登录，或者使用更有限的“Opera Touch”应用程序才能做到这一点。然而，在用户 [安装新的安卓](https://play.google.com/store/apps/details?id=com.opera.browser&hl=en_US) 和 [桌面更新](https://www.opera.com/computer) 之后，他们可以使用二维码在核心应用内的设备之间同步所有数据，而不需要账户。
 

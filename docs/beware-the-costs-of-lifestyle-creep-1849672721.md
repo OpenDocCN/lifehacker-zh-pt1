@@ -4,7 +4,7 @@
 
 也许你最近得到了晋升(祝贺你！)、或 [还清了一笔债务](https://lifehacker.com/everything-you-need-to-know-about-the-student-loan-forg-1849648709) (超级恭喜！)，或者你终于看到了一些投资回报。不管是什么原因，你突然有能力在日常奢侈品上花更多的钱。我们已经 [讨论过](https://lifehacker.com/how-much-do-small-daily-purchases-really-affect-your-l-1849328048) 有多少消息来源喜欢夸大小额购买的影响，比如你早上的冰咖啡，对你长期财务的影响。与此同时，我们很容易陷入挣得越多就花得越多的陷阱，这使得我们很难为未来存钱。
 
-Watch
+
 
 你收入和支出的平行增长可以归结为一个被称为“T1”“生活方式蠕变的概念和 g 假设我们目前与 [通货膨胀](https://lifehacker.com/how-to-see-through-inflation-prices-1848793300) 作战，现在不是让你所有的小奢侈品让你的预算不成比例的时候。这里有一些关于生活方式蠕变的成本的知识，以及你可以做些什么来避免它。
 

@@ -4,7 +4,7 @@
 
 在*光环无限*的故事模式公开之前，微软邀请用户在公开测试版中进入多人模式，该模式自 11 月 15 日以来一直在 Steam 上运行。默认情况下，Halo Infinite 开始时有 17 种多人模式，但如果你在离线模式下启动游戏，你会有 14 种隐藏模式。
 
-Watch
+
 
 这些模式是由[Redditor wicked soldier 991](https://www.reddit.com/r/halo/comments/r7q6pz/fun_fact_if_you_launch_infinite_offline_you_can/?context=3)发现的。虽然它们在离线模式下可用，但你可以将它们保存到你的游戏文件中，并在在线模式下启动*光环无限*时访问它们。
 

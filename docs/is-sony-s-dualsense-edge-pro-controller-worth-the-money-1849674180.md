@@ -4,7 +4,7 @@
 
 PlayStation 5 的 DualSense 控制器是我最喜欢的索尼最新游戏机。该垫握起来很舒服，感觉制作精良，其自适应触发器和触觉隆隆声为您的游戏体验增加了触觉沉浸感。然而，索尼将在明年年初推出一个名为 [的新版本，即双重感知边缘](https://www.playstation.com/en-gb/accessories/dualsense-edge-wireless-controller/) ，该版本承诺通过更多按钮和精细定制来扩展原有控制器的功能。
 
-Watch
+
 
 DualSense Edge 是一款“专业”控制器，类似于微软的 Xbox Elite 游戏手柄。这些设备拥有面向铁杆玩家和专业玩家的高端功能。例如，DualSense Edge 包括许多增强功能，如:
 

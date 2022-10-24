@@ -4,7 +4,7 @@
 
 上个月， [白宫宣布了](https://www.whitehouse.gov/briefing-room/statements-releases/2022/08/24/fact-sheet-president-biden-announces-student-loan-relief-for-borrowers-who-need-it-most/) 一项全面的计划，免除数百万美国人的学生贷款债务，取消一些借款人高达 10，000 美元的债务，取消接受佩尔助学金 的 [人的 20，000 美元债务。如果你申请了学生贷款，无论如何，它们都会对你的信用评分产生影响(毕竟它们是*贷款*)。对于数百万有资格获得学生贷款豁免的人来说，即将到来的贷款状况的改变将会导致你的信用评分发生变化，可能会变得更糟——哪怕只是一点点。这里有一些关于学生贷款豁免可能会如何影响你的信用评分的知识。](https://lifehacker.com/how-to-find-out-if-you-have-a-pell-grant-1849453465) 
 
-Watch
+
 
 ## 你的信用评分可能会下降——至少在短期内
 

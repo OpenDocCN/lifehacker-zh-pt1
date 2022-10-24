@@ -4,7 +4,7 @@
 
 如果你不想让你的伴侣、配偶或室友窥探你的谷歌搜索或 YouTube 观看历史，但你又不想求助于匿名模式，好消息是:你现在可以用 [将两者隐藏在密码验证](https://www.theverge.com/2021/5/24/22452122/google-my-activity-page-password-privacy-verification-web-and-app-history) 之后。
 
-Watch
+
 
 你在谷歌的所有活动，包括网页和地图搜索、YouTube 历史、和谷歌助手查询，都会被编译，并且默认情况下，在 activity.google.com 可见。这意味着任何能够访问您登录的设备的人都可以看到您搜索、观看、和询问的内容。
 

@@ -4,7 +4,7 @@
 
 上个月， [谷歌宣布端到端加密](https://blog.google/products/messages/helping-you-connect-around-world-messages/) (E2EE)将很快在 Android 上的谷歌消息应用中用于 RCS 消息。根据大量报道，该功能已经在 Google Messages 测试版中推出，这意味着它可能很快就会出现在该应用的常规版本中。
 
-Watch
+
 
 这是一件大事。将 E2EE 添加到任何形式的通信中都会为对话、以及其中的所有消息和文件增加一层额外的安全性。加密信息应用并不是什么新鲜事；WhatsApp、Facebook Messenger、苹果的 Messages、Signal、Telegram 和许多其他应用程序都提供 E2EE 对话，但在谷歌 Messages 中推出 E2EE 是一次重要的升级。
 

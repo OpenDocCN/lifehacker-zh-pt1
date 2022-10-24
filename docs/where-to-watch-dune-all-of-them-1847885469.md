@@ -4,7 +4,7 @@
 
 香料必须流动，当丹尼斯·维伦纽瓦期待已久的科幻改编特级大师弗兰克·赫伯特的 [*沙丘*](https://gizmodo.com/dune-is-the-jaw-dropping-sci-fi-epic-youve-been-waiting-1847598991) 于 10 月 22 日抵达美国时，它就会流动。但是，维伦纽夫的电影并不是唯一一部值得一看的*沙丘*——还有一部改编自 1984 年的 [邪教经典电影](https://gizmodo.com/7-things-i-liked-about-david-lynchs-dune-and-8-i-didnt-1843259620) ，两部广受好评的迷你剧记录了保罗·阿崔迪斯与腐败的哈肯南男爵的斗争，甚至还有一部 [纪录片](https://gizmodo.com/jodorowskys-dune-is-a-monument-to-divine-madness-and-d-1549078007) 讲述了我们可能在阿拉基斯沙漠中游泳时看到的巨型沙虫。以下是如何查看《沙丘》所提供的一切(呃，除了小说之外)。
 
-Watch
+
 
 * * *
 

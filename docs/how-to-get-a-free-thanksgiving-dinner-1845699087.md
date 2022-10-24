@@ -4,7 +4,7 @@
 
 今年感恩节，你只需下载一个应用程序并装满你的网上购物车，就可以得到一顿免费的晚餐。[何购物 app](https://www.newsweek.com/how-walmart-free-thanksgiving-dinner-offer-ibotta-1547960) [伊博塔](https://home.ibotta.com/about/) 旨在帮助家庭享受一顿不含部分成本的大餐。
 
-Watch
+
 
 ### 合格食品
 

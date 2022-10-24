@@ -4,7 +4,7 @@
 
 本周，在心理学家兼大屠杀幸存者伊迪丝·埃格尔博士的帮助下，我们正在从受害者、恐惧和绝望的精神监狱中挣脱出来。请听 Eger 博士与 Jordan 和 Alice 谈论我们的想法如何创造我们的感觉，以及如何改变你的想法语言可以让你对生活更加负责。
 
-Watch
+
 
 埃格尔博士是《纽约时报》畅销书 [*【选择:拥抱可能*](https://www.amazon.com/Choice-Dr-Edith-Eva-Eger/dp/1501130781?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-break-free-from-your-mental-prisons-with-psycho-1845275910&asc_source=&tag=kinjalifehackerlink-20) 的作者，这是她关于幸存的奥斯威辛集中营的回忆录。她的新书《礼物:拯救你生命的 12 课》是她应对生活中最复杂挑战的指南。
 

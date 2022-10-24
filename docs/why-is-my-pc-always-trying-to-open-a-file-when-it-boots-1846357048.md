@@ -4,7 +4,7 @@
 
 有时候，你的 Windows PC 似乎有自己的想法——启动程序、窗口、浏览器标签或其他任何东西，无需你的直接输入。对于这个活动来说，总有一个理由*。你的系统还没有 [变得有知觉](https://www.youtube.com/watch?v=I8a5L_e2qCM) 。然而，追踪造成这种混乱的原因总是一件有趣的事情。这正是我们将在本周的[**Tech 911**](https://lifehacker.com/c/tech/tech-911)Q&a 中讨论的内容。*
 
-Watch
+
 
 参考上图，Lifehacker 读者**阿比德米**写道:
 

@@ -4,7 +4,7 @@
 
 新年决心 [通常在雄心勃勃的时候会失败](https://www.inc.com/marla-tabaka/why-set-yourself-up-for-failure-ditch-new-years-resolution-do-this-instead.html)——当你专注于理财的时候，这真的会伤害到你。相反，专注于 快速、易于管理的个人理财任务，这些任务会让你在 2021 年保持良好的状态——就像下面你会发现的那些。
 
-Watch
+
 
 ### **为您的应急基金充值**
 

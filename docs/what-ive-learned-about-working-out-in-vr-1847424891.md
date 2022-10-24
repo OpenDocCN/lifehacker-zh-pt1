@@ -4,7 +4,7 @@
 
 我着手 [了解虚拟现实游戏是否能给你很好的锻炼](https://lifehacker.com/can-you-get-a-good-workout-with-virtual-reality-1847351527) ，上周你听说了 [一堆我最喜欢的](https://lifehacker.com/7-of-the-best-vr-games-that-will-actually-give-you-a-gr-1847397399) 。现在我已经在虚拟世界中冒险了，我已经带着我的观点回来了。
 
-Watch
+
 
 ## 虚拟现实游戏与实际锻炼相比如何？
 

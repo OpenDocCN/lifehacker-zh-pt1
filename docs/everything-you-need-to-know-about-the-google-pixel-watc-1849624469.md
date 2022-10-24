@@ -4,7 +4,7 @@
 
 谷歌备受期待的 Pixel Watch 终于来了。经过多年的猜测， [报废原型机](https://www.businessinsider.com/inside-google-shifting-smartwatch-strategy-2019-9) ，以及 [被 Fitbit 收购](https://gizmodo.com/its-done-the-google-fitbit-deal-is-complete-1846057104) ，该公司拥有了自己的智能手表，与它的 Pixel 设备系列巧妙地集成在一起。是什么让它在竞争中脱颖而出？它是做什么的？以下是你需要知道的关于 Pixel 手表的一切。
 
-Watch
+
 
 ## 像素手表的设计
 

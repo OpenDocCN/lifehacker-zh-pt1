@@ -4,7 +4,7 @@
 
 经过几个月的限制，仅限受邀者的封闭测试后，Xbox 云游戏现已公开发售。这项服务在技术上仍处于测试阶段，但现在包括了所有 Game Pass Ultimate 订户，为可以说是游戏 中最好的服务 [增加了更多价值。](https://lifehacker.com/which-pc-gaming-subscription-service-is-best-1845019353) 
 
-Watch
+
 
 [Xbox 云游戏测试版](https://www.xbox.com/en-US/xbox-game-pass/cloud-gaming) 支持运行最新版本 Android、iOS/iPadOS、macOS 或 Windows 10 的设备。微软还计划在未来将云流媒体技术引入 Xbox One 机型，并将支持即将推出的 Windows 11。
 

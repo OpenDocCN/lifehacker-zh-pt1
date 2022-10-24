@@ -4,7 +4,7 @@
 
 如果你今天早上检查了你的假期日历，你已经知道我们正在进行家长教师协会的全国教师感谢周 。虽然许多零售商提供限时优惠，以此感谢美国[320 万教育工作者](https://nces.ed.gov/fastfacts/display.asp?id=372#:~:text=How%20many%20teachers%20were%20there,in%20public%20schools%20(source).) ，但这里有 10 家公司为教师提供全年折扣。
 
-Watch
+
 
 ## [苹果](https://www.apple.com/us-edu/store)T3】
 

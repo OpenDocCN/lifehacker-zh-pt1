@@ -4,7 +4,7 @@
 
 关于 [他们是，他们的，还有](https://www.merriam-webster.com/words-at-play/how-to-use-theyre-there-their#:~:text=Their%20is%20the%20possessive%20pronoun,they're%20getting%20married.%22) 的区别，什么时候用[who vs . who](https://lifehacker.com/how-to-remember-the-difference-between-who-and-whom-1837581203)，以及 [affect 和 effect](https://lifehacker.com/how-to-use-affect-versus-effect-1836526644) 的区别，已经写了很多。但是重言式？听到这个词，你会想，*好吧，那些是什么鬼东西*？
 
-Watch
+
 
 用语法术语来说，一个 [同义反复](https://www.collinsdictionary.com/dictionary/english/tautology) 就是用不同的词把同一件事说两次。冒着同义反复的风险，这是不必要的重复或冗余。如果你是那种关心 [避免冗长](https://lifehacker.com/you-re-using-too-many-adjectives-and-other-common-writ-1847874443) 等常见写作错误的人，我们有你。这里列出了一些你无法忽视的最常见的同义反复。提前道歉。
 

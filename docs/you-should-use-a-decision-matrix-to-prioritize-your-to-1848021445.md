@@ -4,7 +4,7 @@
 
 尽管我们想完成永无止境的待办事项清单上的每一件事，我们也意识到一天中只有这么多的时间和精力。当你不确定如何将你面前的所有任务按重要性排序时(或者将什么委托给别人)，是时候创建一个“决策矩阵”了正如 Amy Drader，[Growth Partners Consulting 的一位顾问建议的那样](https://www.growthpartnersconsulting.com/post/prioritize-better-with-these-4-strategies) ，决策矩阵可以帮助你根据紧急程度和努力程度来优先 ti zet 工作。
 
-Watch
+
 
 ## **如何使用“决策矩阵”对任务进行优先排序**
 

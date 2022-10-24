@@ -4,7 +4,7 @@
 
 在我们这个辉煌的现代，很容易用让我们看起来不错并让我们过上最好生活的礼物来庆祝我们对晚期资本主义和跨国企业集团 的热爱。想炫耀你的海滩身材，同时公开宣布你对阿比的永恒的爱吗？一件" [结实的阿罗哈"泳衣](https://thetakeout.com/arbys-roast-beef-beefy-aloha-summer-2021-swimwear-colle-1847450003) 就能搞定。你找到像爱塔可钟那样真诚、疯狂、深爱的人了吗？在走上红毯之前，在你的婚纱下塞进一个 [辣酱包吊袜带](https://www.tacobelltacoshop.com/collections/weddings) 。需要远离日常生活的纷扰，花更多的时间在真正重要的品牌上？溜进一个滚烫的泡泡浴，点上几根 [熊猫快递蜂蜜香鸡香蜡烛](https://thetakeout.com/move-over-yankee-candle-panda-express-is-here-to-make-1841495014) ，用一个 [蜂蜜烤火腿 spa 套装](https://thetakeout.com/this-brand-was-made-for-you-and-me-a-holiday-swag-roun-1845701382) 宠爱自己，让所有的牵挂都溜走。这是网上商店的最高时代，似乎每个品牌都在这场游戏中。
 
-Watch
+
 
 有什么比把我们的血汗钱交给大型企业集团，让我们在自己的身体、家里、 [我们的肉体](https://thetakeout.com/why-mcdonalds-j-balvin-meal-might-cause-headaches-for-e-1845288853) 上宣传他们的品牌更能象征我们当前的历史时刻呢？嗯，事实上，是的，有:虽然我们最初认为所有这些品牌在线商店都是 [的一个计划，让我们为他们做所有的广告](https://thetakeout.com/why-fast-food-chains-really-want-you-to-wear-their-swag-1846344326) ，最近的一篇 [*格言*文章指出](https://www.adweek.com/commerce/kelloggs-dtc-cheez-it/) 这种直接面向消费者的业务实际上有另一个更有价值的目的:收集大量的消费者数据。
 

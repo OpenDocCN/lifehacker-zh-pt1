@@ -4,7 +4,7 @@
 
 一些人决定利用疫情期间在家的额外时间温习技能，这可能会让他们对潜在雇主更有吸引力。其他人可能会把时间花在吃饭和看电视上。不管怎样，你可能会对最新的“梦想工作”竞赛感兴趣，并且非常有资格参加，该竞赛包括 [获得 500 美元的报酬，吃披萨，狂看网飞秀](https://www.bonusfinder.com/about-us/blog/professional-binge-watcher-get-paid-500-to-watch-netflix-and-eat-pizza) 。以下是需要了解的内容。
 
-Watch
+
 
 ### 这个角色需要什么
 

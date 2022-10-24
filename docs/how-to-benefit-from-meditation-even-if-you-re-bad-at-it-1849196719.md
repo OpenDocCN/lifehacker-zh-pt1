@@ -4,7 +4,7 @@
 
 尽管不断听说的种种好处，但很难 [真正进入冥想](https://lifehacker.com/if-you-hate-meditating-try-these-alternatives-1847237707) 。很多 [尝试冥想](https://www.ucl.ac.uk/news/2019/may/meditation-needs-more-research-study-finds-25-suffer-unpleasant-experiences) 的人都觉得自己好像失败了。我就是那些人中的一个。你说你应该“理清思路”是什么意思？那是我保存所有想法的地方！
 
-Watch
+
 
 起初，我认为正念冥想不适合我。我以为我是一个焦虑的特殊球，永远无法成功地让我的心平静下来。幸运的是，我的一些同样焦虑，但更开明的朋友告诉我如何重新定义这种做法。让我告诉你——当你放弃只有一种正确方法的想法时，冥想会放松得多。这里告诉你，也是，如何克服冥想失败的心理障碍。
 

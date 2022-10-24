@@ -4,7 +4,7 @@
 
 本周，在作家兼倡导者克里斯汀·普拉特(又名 [、非裔极简主义者](https://www.instagram.com/afrominimalist/) )的帮助下，我们将学习如何削减我们的物品，拥抱极简主义的生活方式。克里斯汀自己从过度消费到极简主义的个人旅程是一个灵感，她帮助我们理解从我们的童年到所有权心理的一切是如何导致我们持有远远超过我们需要的东西。听听克里斯汀的建议，告诉你如何在不让自己不知所措的情况下开始整理，如何成为极简主义者，以及为什么成为极简主义者的第一步不是你所想的那样。
 
-Watch
+
 
 克里斯汀的新书 [*这位非洲裔女作家的生活指南*](https://www.simonandschuster.com/books/The-Afrominimalists-Guide-to-Living-with-Less/Christine-Platt/9781982168049?utm_medium=tiller_press_other&utm_source=author_post&utm_campaign=the_afrominimalists_guide_to_living_with_less&utm_content=the_afrominimalists_guide_to_living_with_less) 将于 6 月 15 日出版。
 

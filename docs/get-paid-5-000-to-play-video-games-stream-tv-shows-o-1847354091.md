@@ -4,7 +4,7 @@
 
 每个人在工作日都会花几分钟(或几个小时)的时间来处理一些个人事务。但是，如果你有整整一周的时间在网上做任何你想做的事情，会怎么样呢？一家公司是 [雇人](https://www.highspeedinternet.com/resources/chief-happiness-dream-job) 来做这件事。以下是关于这个职位需要了解的内容，以及如何申请。
 
-Watch
+
 
 ## 如何在网上玩游戏获得报酬
 

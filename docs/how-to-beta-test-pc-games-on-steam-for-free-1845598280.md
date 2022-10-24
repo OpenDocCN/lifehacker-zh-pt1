@@ -4,7 +4,7 @@
 
 Valve 正在更好地改变 Steam 游戏的 beta 访问方式。新的 Steam Playtest 功能让你更容易找到并注册自己的测试游戏，而不是强迫你输入游戏开发商的特殊密钥来加入测试版。
 
-Watch
+
 
 Playtest 不同于 Steam 的早期访问计划，该计划允许客户预购游戏——通常以折扣价——以访问未完成的版本。根据 Valve 的官方公告 的 [，Steam Playtest“对开发者和客户免费使用”。“它不支持商业或货币化，也不是 Steam 早期接入的替代品。您甚至可以在早期访问之前或同时使用 Steam Playtest。”](https://steamcommunity.com/groups/steamworks/announcements/detail/2954884882167446258)
 

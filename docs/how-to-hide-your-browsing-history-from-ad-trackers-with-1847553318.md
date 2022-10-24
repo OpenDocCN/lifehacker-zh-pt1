@@ -4,7 +4,7 @@
 
 随着 [iOS 15](https://lifehacker.com/the-10-coolest-ios-15-features-announced-at-wwdc-2021-1847048865) 、iPadOS 15、macOS Monterey 的更新，苹果正在自动将所有 iCloud 付费计划升级到 iCloud+。如果你为 iCloud storage 付费，你现在可以访问私人中继功能，并能够在线隐藏你的电子邮件地址。
 
-Watch
+
 
 ## iCloud 私有中继是如何工作的？
 

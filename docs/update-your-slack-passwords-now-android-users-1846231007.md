@@ -4,7 +4,7 @@
 
 上周末，一些懒散的 Android 用户收到了一封看似随机的电子邮件，敦促他们更新密码。这封邮件声称，Android 应用程序中的一个错误将密码数据错误地记录为明文，这很容易被黑客窃取。
 
-Watch
+
 
 如果你忽略了这封邮件，我不会责怪你——它有 [许多网络钓鱼诈骗的迹象](https://lifehacker.com/the-complete-guide-to-avoiding-online-scams-for-your-l-5420356)——但它是合法的。 [安卓警方与多个 Slack 代表确认](https://www.androidpolice.com/2021/02/05/that-slack-email-you-just-got-asking-to-reset-your-password-is-legit-not-a-scam/) 邮件来源于 Slack，安全问题真实存在，消息内的链接点击安全。尽管没有证据表明密码被盗或账户被黑，Slack 还是主动要求用户更新密码。
 

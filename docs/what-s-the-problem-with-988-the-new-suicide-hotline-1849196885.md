@@ -4,7 +4,7 @@
 
 到现在为止，你可能已经听说过，国家预防自杀生命线[最近有了一个新的三位数电话号码:988](https://lifehacker.com/the-suicide-prevention-lifeline-is-getting-a-new-number-1849154009) 。出于可以理解的原因，这种更容易记住的代码得到了媒体的大力推动，因为倡导者们试图确保任何需要救生索的人都像 911 一样，将这三个数字放在脑海中。(之前的号码是 1-800-273-8255，那个也还能用。)
 
-Watch
+
 
 然而，你可能也注意到了，在媒体的推动下，有一个反运动。许多倡导者大声疾呼——经常使用类似于在社会动荡时期 Instagram 上激增的 [信息图表——并鼓励人们*而不是*拨打新号码。但是为什么呢？](https://lifehacker.com/once-you-re-done-reposting-infographics-about-injustice-1848875824)
 

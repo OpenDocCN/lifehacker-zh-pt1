@@ -4,7 +4,7 @@
 
 [任天堂 Switch 在线的](https://lifehacker.com/should-you-subscribe-to-nintendo-switch-online-s-expans-1847871636) N64 模拟器让重温你过去最喜欢的 3D 游戏变得轻而易举。您可以在高分辨率和移动中体验宝石般的*时光陶笛*、*班卓琴和卡祖伊*以及*星狐 64* 。然而，这并不都是好事:如果你使用该服务重放 *Kirby 64:水晶碎片*，你可能会遇到这个 bug，它会在游戏中途破坏 Kirby。幸运的是，现在有了解决办法。
 
-Watch
+
 
 5 月 20 日星期五，一位 Redditor [第一个分享了游戏突破问题](https://www.reddit.com/r/NintendoSwitch/comments/uu2hpv/kirby_64_has_a_game_breaking_bug_in_under_water/) 。正如你从他们的帖子中看到的，当受到水下某些来源的伤害时，科比将会永久昏迷。在视频中，Kirby 在被虎鲸攻击后被冻结，对任何输入都没有反应。当时，解决这个问题的唯一方法是重新开始关卡，失去在那之前你所取得的所有进展。
 

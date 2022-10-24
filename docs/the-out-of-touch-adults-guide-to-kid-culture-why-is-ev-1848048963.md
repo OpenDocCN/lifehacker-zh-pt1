@@ -4,7 +4,7 @@
 
 电子游戏 *Elden Ring* 本周大热。YouTube 上的美杜莎纹身和明智的医疗建议也是如此。然而，Travis Scott，hidden social media algorithms，以及 YouTube 的厌恶计数器，显然 *并不*热门。
 
-Watch
+
 
 ## **为什么游戏玩家对 Elden Ring 如此炒作？**
 

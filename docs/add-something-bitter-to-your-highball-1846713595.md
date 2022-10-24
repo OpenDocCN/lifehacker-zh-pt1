@@ -4,7 +4,7 @@
 
 一杯 [高杯](https://skillet.lifehacker.com/how-to-make-a-really-good-highball-1843479746) 的美妙之处在于它的简单:豪饮与非豪饮相结合，后者通常以一种受欢迎的软饮料的形式出现。有些人把这两种配料放在一起会有很好的效果，但是我喜欢把我的放在一起稍微搅拌一下，也许可以用柑橘楔或者柑橘皮装饰一下。
 
-Watch
+
 
 如果你想上花式，可以用清冰( [Alcademics](https://www.alcademics.com/index-of-ice-experiments-on-alcademics.html) 是教程的好资源)，确保你的豪饮是你可以一口不畏缩地喝下去的东西；如果你想得到高纯度的，你可以加入一些苦味的东西，比如 [Punt e Mes](https://skillet.lifehacker.com/make-a-better-manhattan-with-punt-e-mes-1846700424) 或者另一种同样复杂的 amaro。这使你的配料数增加到三个，但这是值得的。
 

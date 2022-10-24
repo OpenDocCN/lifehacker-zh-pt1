@@ -4,7 +4,7 @@
 
 美国国税局表示，2017 年超过 13 亿美元的 [退税仍在待价而沽](https://www.irs.gov/newsroom/irs-has-refunds-totaling-1-point-3-billion-for-people-who-have-not-filed-a-2017-federal-income-tax-return)——这笔钱属于估计有 130 万人尚未提交当年的纳税申报表。然而，如果有人欠你钱，你必须赶快行动——只有一周的时间来认领，因为国税局将在 5 月 17 日之后停止扣留无人认领的 2017 年退款。
 
-Watch
+
 
 ### **认领或丢失**
 

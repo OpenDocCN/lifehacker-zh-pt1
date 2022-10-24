@@ -4,7 +4,7 @@
 
 Google Hangouts 将在今年晚些时候被 Google Chats 取代，为[越来越多的死亡 Google 服务](https://lifehacker.com/how-to-track-every-google-service-and-app-thats-shut-do-1833553690) 增加了一个条目。关闭计划在 10 月份的某个时候进行，但是谷歌已经开始转变了。虽然这一过程将主要发生在谷歌方面，但该公司警告用户，一些 Hangouts 消息和对话不会自动转移到聊天。
 
-Watch
+
 
 谷歌将在最终关闭前通知受影响的用户，但现在有一种方法可以保护你的谷歌视频数据，那就是将它备份到你的电脑或智能手机上。这将确保您所有的对话历史被安全存储，即使它不能被移植到 Google Chats。
 

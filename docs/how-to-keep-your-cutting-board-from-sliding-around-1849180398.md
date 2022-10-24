@@ -4,7 +4,7 @@
 
 为了吃西兰花，必须 [切西兰花](https://www.youtube.com/watch?v=-mXIL_LKvvI) ，切西兰花需要两样东西:一个(锋利的)刀片和一个(稳定的)表面。除了保持你的刀锋利，稳定你的砧板是更安全的切片、切块、切肉体验的关键部分。在不稳定的滑动表面上切割是危险的，但幸运的是，有许多方法可以让砧板保持不动。
 
-Watch
+
 
 你可以使用一条 [潮湿的洗碗巾或纸巾](https://lifehacker.com/stabilize-a-cutting-board-with-a-damp-towel-1193893676) 、 [橡皮筋](https://lifehacker.com/stabilize-a-cutting-board-with-rubber-bands-5928953) ，或者一块 [搁板衬垫、](https://lifehacker.com/stabilize-your-cutting-board-with-shelf-liner-5835937) 但是如果你做了大量的烘焙，你很可能还有另一个稳定工具:硅胶烘焙垫(或者 Silpat，如果你喜欢法国品牌的话)。
 

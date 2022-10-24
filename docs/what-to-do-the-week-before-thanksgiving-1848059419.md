@@ -4,7 +4,7 @@
 
 离感恩节还有 10 天，这是一段尴尬的日子。现在买易腐食品和开始烤馅饼还为时过早，但只是一点点。从现在到 11 月的第四个周四可能会有一整个周末，但是把所有事情都推到周六和周日会让这两天非常紧张，你应该在假期真正开始之前享受最后一个“正常”的周末。一些周末的工作是不可避免的，但是你可以做一些事情来分散它，尽可能让接下来的 10 天保持平稳。
 
-Watch
+
 
 ## 复习 [这些](https://lifehacker.com/what-to-do-this-week-to-prepare-for-thanksgiving-and-w-1847975430) [导读](https://lifehacker.com/what-you-should-do-two-weeks-before-thanksgiving-1848016466) 做你没做过的事
 

@@ -4,7 +4,7 @@
 
 随着 [macOS 12 Monterey](https://lifehacker.com/12-hidden-features-in-macos-monterey-worth-finding-1847972748) ，快捷方式应用首次亮相，实现了 iPhones、iPads、苹果手表和 HomePods 上的自动化。如果你已经在 Mac 上安装了快捷方式，你应该为你的电脑 尝试一些 [最好的自动化程序。当你这样做时，你会从这些有用的提示中受益，帮助你充分利用 Mac 上的快捷方式。](https://lifehacker.com/9-of-the-most-helpful-shortcuts-to-automate-tasks-on-yo-1847982949) 
 
-Watch
+
 
 ## 更新至 macOS 12 Monterey 的快捷方式应用
 

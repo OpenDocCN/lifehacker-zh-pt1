@@ -4,7 +4,7 @@
 
 西方目前正面临至少 1200 年来最严重的特大干旱。这已经导致多个州 [实施水资源限制](https://gizmodo.com/california-s-farmers-face-unprecedented-water-restricti-1847429075) ，而且看起来情况不会很快好转。为亚利桑那州、内华达州和墨西哥部分地区供水的米德湖的供水，目前处于自 1936 年胡佛大坝建成以来的最低水位。其他水库从 [鲍威尔湖](https://gizmodo.com/lake-powell-second-largest-reservoir-in-u-s-hits-rec-1847361776) 到 [加州的许多](https://gizmodo.com/7-shocking-satellite-images-reveal-the-wests-megadrough-1847080510) 也纷纷效仿。
 
-Watch
+
 
 所有这些都给加利福尼亚、亚利桑那以及更远的地方的农民带来了严重的问题。加州生产“全国三分之一以上的蔬菜和三分之二的水果和坚果”以及大量的乳制品，根据加州食品和农业部的说法 [。这意味着西方正在发生的事情将对整个国家产生影响。如果我们不迅速采取行动解决气候变化和我们如何管理水资源的问题，这可能会成为一个越来越难以管理的问题。](https://www.cdfa.ca.gov/Statistics/)
 

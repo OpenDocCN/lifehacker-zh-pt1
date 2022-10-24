@@ -4,7 +4,7 @@
 
 不要听信最近几周出现的虚假冠状病毒检测站点。是的，没错——根据 [【美国联邦贸易委员会】](https://www.consumer.ftc.gov/blog/2020/04/not-every-covid-19-testing-site-legit) 的说法，骗子装扮成医疗专业人员，进行虚假、不卫生的金钱和身份盗窃测试，同时可能传播病毒。
 
-Watch
+
 
 根据联邦贸易委员会:
 

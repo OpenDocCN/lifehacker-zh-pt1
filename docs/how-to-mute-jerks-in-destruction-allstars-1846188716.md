@@ -4,7 +4,7 @@
 
 任何上网的人都可以预测到这一点。给人们一个互联网连接和一个麦克风，一些人会很快透露他们有多烂。继昨天发布 PS5 专用的 [*毁灭全明星*](https://kotaku.com/destruction-allstars-a-new-ps5-exclusive-is-fine-1846185068) 之后，玩家几乎立即报告了严重的口头骚扰事件，由于游戏中令人困惑的缺乏防止这种行为的工具，情况更加恶化。
 
-Watch
+
 
 [滚动](https://twitter.com/search?q=destruction%20voice%20chat&src=typed_query) [通过](https://twitter.com/search?q=destruction%20allstars%20voice&src=typed_query) [社交](https://www.reddit.com/r/DestructionAS/comments/lb44sk/audio/) [媒体](https://www.reddit.com/r/DestructionAS/comments/laouu5/you_can_mute_the_voice_chat_in_destruction/) ，你会看到大量玩家抱怨*毁灭*的打扰式语音聊天，默认开启。更糟糕的是，其他玩家的声音通过 PS5 双感控制器表面的小扬声器传来。(是的，真的。)一些玩家聚集到流行的视频游戏论坛 ResetEra，分享关于种族侮辱、同性恋恐惧症和其他不可原谅的贬义语言的故事。据报道，在为 Ars Technica 评论游戏时，Sam Machkovech 听到了“一个关于黑暗网络和 QAnon 的另类播客”。
 

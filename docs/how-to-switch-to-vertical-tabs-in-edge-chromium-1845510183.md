@@ -4,7 +4,7 @@
 
 Edge 的实验性侧边栏从 8 月份开始在 Edge Canary 中提供，但这个备受欢迎的功能现在已经在浏览器的开发者版本中推出。这使它更接近我们大多数人使用的稳定版本。在那之前，你可以先看看 Edge Chromium 的开发和金丝雀版本中的特性。 (W e 推荐前者，日常使用会比后者稳定很多。)
 
-Watch
+
 
 1.  下载 [Edge Dev 或者 Edge Canary](https://www.microsoftedgeinsider.com/en-us/download)T3，打开浏览器。
 2.  单击窗口左上角的选项卡图标，使用垂直选项卡菜单。再次单击图标切换回水平标签栏。

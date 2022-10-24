@@ -4,7 +4,7 @@
 
 在诽谤了 [薯片土豆泥](https://lifehacker.com/no-you-cannot-turn-potato-chips-into-mashed-potatoes-1846301602) 后仅仅几天，我就重新登录了我的快乐屁股来赞美智能食品爆米花粉的优点。这可能看起来很虚伪，但两者之间有一个关键区别:粗燕麦粉是好的，而土豆泥是坏的。
 
-Watch
+
 
 
 

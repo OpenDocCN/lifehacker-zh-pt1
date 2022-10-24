@@ -4,7 +4,7 @@
 
 这是官方消息:没有哪个行业能免受劳动力和供应成本上升的影响。Shake Shack 首席执行官兰迪·加鲁蒂 [最近宣布所有商品的价格上涨](https://www.restaurantbusinessonline.com/financing/shake-shack-raise-prices-again-after-omicron-takes-its-toll)3.5%，仅在 10 月份就上涨了 3.5%。快餐曾经是那些忙碌生活的人的一种廉价而方便的选择，但随着多年来行业格局的转变，越来越成为一种“快速休闲”的标准，快餐的价格已经接近他们在餐馆就餐的价格。
 
-Watch
+
 
 有没有一个地方可以让一个人在不倾家荡产的情况下吃一顿又快又堵的饭？别担心，这里有五家连锁餐厅，你仍然可以用不到 10 美元的价格吃到一顿饭。
 

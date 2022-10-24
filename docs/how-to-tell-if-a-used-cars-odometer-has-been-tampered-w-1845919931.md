@@ -4,7 +4,7 @@
 
 进入疫情将近一年，许多以前依赖公共交通出行的人至少已经考虑冒险买一辆车。但这并不完全像我们现在的经济繁荣，这使得二手车今年特别受欢迎。
 
-Watch
+
 
 当然，那些卖二手车的人想尽可能多的从中获利。显然，将汽车的里程表调后(让它看起来比实际里程数低)不仅仅是电视和电影中发生在不可靠的二手车经销商身上的事情。根据 [国家公路运输安全管理局](https://www.nhtsa.gov/equipment/odometer-fraud#:~:text=Contact%20NHTSA's%20Vehicle%20Safety%20Hotline,Contact%20your%20State%20enforcement%20agency.)【NHTSA】的数据，每年有超过 45 万辆汽车因里程表读数错误而被出售，每年给购买者造成超过 10 亿美元的损失。
 

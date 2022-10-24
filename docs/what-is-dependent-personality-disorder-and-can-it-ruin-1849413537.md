@@ -4,7 +4,7 @@
 
 关于如何避免让你们的关系变得牢固，有无穷无尽的建议。你应该 [学习对方的爱情语言](https://lifehacker.com/there-are-seven-love-languages-now-and-one-might-be-yo-1848548099)； [开诚布公地交流](https://lifehacker.com/how-to-talk-to-your-partner-about-opening-the-relations-1846696287) 关于 [财政](https://lifehacker.com/the-most-common-relationship-money-conflicts-and-how-t-1849124414)[性](https://lifehacker.com/how-to-start-having-sex-again-with-your-spouse-after-a-1849373681)；和 [必要时寻求心理咨询](https://lifehacker.com/how-couples-should-decide-whether-counseling-is-worth-i-1848975355)——这些只是你在没有分手风险的情况下需要做的一些事情。关系是*工作是*。然而，一段良好关系的一些要素是你意识不到的。例如，你可能有人格障碍，这真的会影响你们的结合。我们已经谈了很多关于 [自恋型人格障碍](https://lifehacker.com/how-to-figure-out-if-youre-dating-a-narcissist-1844390450) 和 [边缘型人格障碍](https://lifehacker.com/what-to-do-if-you-think-your-partner-has-borderline-per-1849053402) 的浪漫含义，但是让我们来看看依赖型人格障碍会如何影响你们的关系——以及你能做些什么。
 
-Watch
+
 
 ## **什么是依赖型人格障碍？**
 

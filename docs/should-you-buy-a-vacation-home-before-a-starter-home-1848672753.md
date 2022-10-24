@@ -4,7 +4,7 @@
 
 在疫情高潮的时候，我的一个朋友——一个自称千禧一代的老人，要求匿名——收拾好他们在布鲁克林的四口之家，到北部寻求庇护。购买房产是一项不小的投资，但在城市基本关闭的时候，农村的价格感觉像是一个合适的举措。
 
-Watch
+
 
 快速浏览一下 [StreetEasy](https://streeteasy.com/for-sale/park-slope) 就会发现，你很难在布鲁克林区的公园坡(Park Slope)买到低于 100 万美元的房子，我的朋友就住在那里。然而，州北部的各种房源可能是布鲁克林价格的三分之一不到 的两倍 [。](https://www.zillow.com/homedetails/143-Grove-St-Middleburgh-NY-12122/32524091_zpid/)
 

@@ -4,7 +4,7 @@
 
 说到 [把东西挂在你的墙壁上](https://lifehacker.com/how-to-hang-pictures-without-destroying-your-walls-5829198) ，粘合剂只能做这么多。如果你需要安全地展示装裱好的艺术品或者安装壁挂式搁板，你可能需要做一些钻孔。以下是如何尽可能安全地做到这一点。
 
-Watch
+
 
 ## 考虑材料
 

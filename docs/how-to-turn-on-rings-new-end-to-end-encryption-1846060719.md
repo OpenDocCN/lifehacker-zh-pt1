@@ -4,7 +4,7 @@
 
 Ring just [为其选定数量的智能家居摄像头添加了端到端加密](https://blog.ring.com/2021/01/13/ring-launches-video-end-to-end-encryption/) n (E2EE)，为您的戒指设备录制的视频提供了额外的安全保护。这仍然不能让我们对铃声设备感到兴奋，确切地说，考虑到所有 [问题](https://techcrunch.com/2021/01/14/ring-neighbors-exposed-locations-addresses/)[平台](https://lifehacker.com/how-to-prevent-ring-from-sharing-your-data-with-marketi-1841768023) [有](https://lifehacker.com/how-to-kick-hackers-out-of-your-ring-account-1840507643) [经历过](https://lifehacker.com/if-you-use-amazons-ring-doorbell-devices-change-your-w-1839721221) ，但是如果你已经在使用门铃的话，这个功能值得了解一下
 
-Watch
+
 
 Ring 的视频在上传到 Ring 的云服务器时是加密的，但这一新功能通过额外的 AES 128 位加密层保护它们,只能在 Ring 的 E2EE 计划中注册的移动设备上解密和观看。(你可以在 [最近发布的白皮书](https://assets.ctfassets.net/a3peezndovsu/5jmqFoKyaCXpL2qBG46Zqn/72d138d896e7460c5bdae07992ad491e/Ring_Encryption_Whitepaper.pdf) 中了解更多关于 Ring 的 E2EE 政策。)
 

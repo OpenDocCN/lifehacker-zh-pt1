@@ -4,7 +4,7 @@
 
 微软目前正在为 [PC 游戏通行证](https://kotaku.com/the-12-best-games-on-xbox-game-pass-1841477023) 进行大促销。最近玩过该公司 2021 年秋季大发布之一的新订户可以免费使用该服务的网飞式游戏库三个月。这也是一个完美的时机，因为 Game Pass 的 PC 端目前有很多很棒的新东西。
 
-Watch
+
 
 你可以在微软的网站 上查看你是否有资格获得交易 [(个人电脑游戏通行证通常是每月 10 美元)，但你必须满足以下主要标准:](https://www.xbox.com/en-GB/xbox-game-pass/pc-game-pass/trial-offer?)
 

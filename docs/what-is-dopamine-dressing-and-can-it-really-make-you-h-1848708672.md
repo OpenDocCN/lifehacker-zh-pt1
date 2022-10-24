@@ -4,7 +4,7 @@
 
 无论你是否对早上穿的颜色有太多的考虑，你都可能意识到某些颜色的衣服所带来的一些文化意义。例如，在许多西方文化中，穿黑色传统上是一种标志，表明 [一个人正在服丧](https://www.metmuseum.org/art/collection/search/155840#:~:text=Black%20mourning%20dress%20reached%20its,a%20loved%20one%20or%20monarch.) (或至少参加葬礼、守灵或追悼会)。与此同时， [红色被认为是“权力色”，](https://news.artnet.com/art-world/rob-desalle-natural-history-of-color-1869513) 穿红色被认为是向自己和他人传达一个信息，即你是一个值得重视的人。
 
-Watch
+
 
 另一个更近的应用色彩心理学的例子是“多巴胺着装”的概念这一次，这个想法是用颜色、质地和风格来提升你的情绪。
 

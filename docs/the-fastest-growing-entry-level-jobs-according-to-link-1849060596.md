@@ -4,7 +4,7 @@
 
 无论你是刚毕业还是想进入一个新的领域，找到一份入门级的工作都是关键。LinkedIn [刚刚发布了一份增长最快的](https://www.linkedin.com/pulse/2022-guide-kickstarting-your-career-top-jobs-cities-launch-prudente/) 的名单，所以如果你正在寻找一些正在扩张的领域，可以考虑这些。
 
-Watch
+
 
 ## **增长最快的入门级工作**
 

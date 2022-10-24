@@ -4,7 +4,7 @@
 
 尽管新冠肺炎感染率和住院率在全国范围内都在下降，但一些灰色地带和潜在危险仍然存在: [百分之五十的美国成年人已经完全接种了](https://www.cnn.com/2021/05/24/health/us-coronavirus-monday/index.html) ，这是一个了不起的成就，也是常态即将到来的迹象，但很大一部分 [成年人仍然犹豫不决](https://www.newyorker.com/science/medical-dispatch/the-beginning-of-the-end-of-the-american-pandemic) 或 [完全反对接种疫苗](https://vitals.lifehacker.com/heres-your-covid-vaccine-rumor-roundup-1845935618) 。对于那些没有接受注射的人来说，感染的可能性仍然很大。
 
-Watch
+
 
 不管你怎么看，关于何时戴口罩都有相当多的灰色地带，无论是根据疾病预防控制中心的指导方针还是由独立企业制定的。例如，我继续在我进入的任何杂货店或加油站戴口罩，尽管根据疾病预防控制中心和我当地杂货店的规定，我在技术上不需要戴口罩。对我来说，这是为了让其他人感到安全，很大程度上是因为没有人知道我是否免疫(除了政府签发的一些假设的疫苗护照)。
 

@@ -4,7 +4,7 @@
 
 一些医疗事故与童年经历有着千丝万缕的联系: [孩子们因为某种原因呕吐了很多](https://lifehacker.com/a-guide-to-surviving-your-kids-nighttime-vomit-disaster-1834835112) ，他们 [磨破了膝盖](https://lifehacker.com/get-over-yourself-and-skateboard-with-your-kid-1825751641) 的皮肤，他们切除了扁桃体，他们还得了耳部感染。当然，这些事情也可能发生在成年人身上，但不太常见。尽管如此，由于一些疾病与孩子的关系如此密切，成年人可能需要一段时间才能意识到他们身体表现出的症状。耳部感染就是一个很好的例子。
 
-Watch
+
 
 在你成年后，你可能会耳朵感染，但如果你坚持认为这只会发生在孩子身上，你可能会推迟检查。让我们通过发现成人耳部感染的症状和原因来避免这种可能性。
 

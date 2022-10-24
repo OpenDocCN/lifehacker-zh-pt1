@@ -18,4 +18,3 @@
 *   **沃尔玛的**[2021 日](https://www.walmart.com/cp/walmart-black-friday-2021/1076614?&gclsrc=aw.ds&adid=22222222220449768976&wmlspartner=wmtlabs&wl0=e&wl1=g&wl2=c&wl3=528774242304&wl4=aud-1319366384141:kwd-1296693350617&wl5=9004331&wl6=&wl7=&wl8=&veh=sem&gclid=CjwKCAjw8cCGBhB6EiwAgORey_yfvbRmirZBolB8k-pv7EsZSNQs5HeZTy7SliKWdrs3yFRYBXmh5hoCPNwQAvD_BwE) 特卖活动持续到 6 月 23 日，而让亚马逊 Prime Day 的钱跑起来，因为该公司对电子产品、庭院和花园、家电、玩具、美容、和时尚等类别的大量商品都有类似的折扣。不需要会员资格，购物者超过 35 美元的订单可以获得免费的两天送货服务，并且可以在店内提货。如果您是沃尔玛+会员，还可以享受额外折扣和免费送货服务(12.95 美元/月)。
 *   Wayfair 正在进行 72 小时的 [清仓大甩卖](https://www.wayfair.com/daily-sales?domain=usatoday.com&cjevent=30fcdd0ad2ae11eb83a691e40a82b839&refID=CJ314743-CJ5370367&PID=CJ100088527&clickid=30fcdd0ad2ae11eb83a691e40a82b839&cjdata=MXxOfDB8WXww) ，为积压或停产商品提供高达 80%的优惠。最划算的似乎是庭院家具、电视柜、梳妆台和茶几。不需要会员资格。
 
-Watch

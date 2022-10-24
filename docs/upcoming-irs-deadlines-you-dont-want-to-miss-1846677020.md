@@ -4,7 +4,7 @@
 
 2020 年的纳税季是一个混乱的大杂烩，缺少刺激支票退税、新的信贷，当然还有不断变化的最后期限。考虑到最近的 IPX 1031 调查， [32%的美国人](https://www.ipx1031.com/americas-biggest-tax-procrastinators-2021/) 没有不知道联邦纳税截止日期 [延长至 5 月 17 日](https://www.irs.gov/newsroom/tax-day-for-individuals-extended-to-may-17-treasury-irs-extend-filing-and-payment-deadline) ，在接下来的两个月里，对其他重要的国税局截止日期的复习可能是合适的。
 
-Watch
+
 
 ### 零工的纳税截止日期仍为*4 月 15 日*—日
 

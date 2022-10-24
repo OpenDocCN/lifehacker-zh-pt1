@@ -4,7 +4,7 @@
 
 我们都知道 Instagram 对任何人来说都不是很好，但对青少年来说尤其不好。脸书自己的数据(去年秋天公布，当时 Meta 还不存在)显示了 Instagram 对青少年用户心理健康的负面影响，尽管有人说更广泛的研究 [并不支持这样明确的结论](https://www.npr.org/2021/10/06/1043138622/facebook-instagram-teens-mental-health) 。
 
-Watch
+
 
 不管怎样，如果你是一个青少年的父母或看护者，你可能想对他们的 Instagram 使用情况有更多的了解。Meta 最近推出了一套名为监管的父母控制系统， [，提供有限的监控功能](https://about.fb.com/news/2022/03/parental-supervision-tools-instagram-vr/) ，目前仅在美国可用。
 

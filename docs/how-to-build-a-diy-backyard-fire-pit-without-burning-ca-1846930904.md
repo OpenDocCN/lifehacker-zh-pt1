@@ -4,7 +4,7 @@
 
 如果你还没有在 [疾控中心放宽限制](https://www.cdc.gov/coronavirus/2019-ncov/vaccines/fully-vaccinated-guidance.html) 后 [装备好你的后院](https://lifehacker.com/how-to-decorate-your-deck-to-start-having-people-over-a-1846840252) 来迎接游客，现在是时候添加最好的庭院特色:火坑了。大多数火坑都涉及相当多的繁重劳动，包括购买砖块或水泥块，搅拌混凝土，或挖出一块地方放石头。虽然这可能是一个有趣的长期项目，但有一种更简单的方法可以在你的后院获得同样安全、坚固的结构，而无需成为有执照的承包商。
 
-Watch
+
 
 ## 遵循当地的消防法规
 

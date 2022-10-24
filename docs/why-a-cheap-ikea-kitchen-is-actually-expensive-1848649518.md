@@ -4,7 +4,7 @@
 
 雷诺的普通厨房 [价格约为 25000 美元](https://www.homeadvisor.com/cost/kitchens/remodel-a-kitchen/#estimator) ，高端价格接近 40000 美元。价格取决于很多因素，从你的地理位置(比如南方就便宜很多)到你的品味和厨房的大小。然而，无论你怎么划分，翻新厨房都是一项昂贵的工程。
 
-Watch
+
 
 所以毫不奇怪，从 [宜家](https://www.ikea.com/us/en/rooms/kitchen/) 购买厨房是一个诱人的选择。毫无疑问，宜家厨房在账面上要便宜得多——平均来说 [大约是](https://www.remodelingcalculator.org/ikea-kitchen-remodel-cost/) 的一半，根据你的选择，甚至可能更低。宜家在一个地方出售你的厨房所需的一切，从电器到地板、橱柜、台面和饰面，所以这也是一种相当方便的改造方式。
 

@@ -4,7 +4,7 @@
 
 共享经济似乎允许你将你拥有的每一项技能和每一件东西转化为收入流。除了开车送外卖和遛狗，你还可以把自己的家、汽车、 [、房车](https://lifehacker.com/how-to-rent-an-rv-for-1-a-day-1849134033) 、车库、和/或停车位出租给陌生人套现。在过去的几年里，后院游泳池也通过 Swimply 进入了画面 [，该公司为私人业主提供按小时出租服务。](https://lifehacker.com/how-to-rent-someone-s-pool-this-sumer-or-rent-out-your-1846839586) 
 
-Watch
+
 
 列出你的游泳池似乎是被动收入的一个简单来源——如果你已经支付了前期费用，你也可以这样做，对吗？尤其是当你读到关于人们 [在短短两年内赚了 177，000 美元](https://www.entrepreneur.com/article/431987) 的头条新闻时。
 

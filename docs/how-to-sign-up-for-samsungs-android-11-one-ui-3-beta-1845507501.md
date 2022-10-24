@@ -4,7 +4,7 @@
 
 我从来都不是三星如何对待测试版操作系统更新的粉丝。不可否认，我这么说是出于嫉妒，因为我似乎永远没有“资格”在我的任何设备上安装它们。(另一方面，我的 Pixels 总是在某种 Android beta 中注册，它的 [是一个更容易和更通用的过程](https://lifehacker.com/four-ways-to-install-the-new-android-11-public-beta-1843983079) 。)
 
-Watch
+
 
 尽管如此，三星现在正在以一种针对 One UI 3 的公共测试版的形式将 Android 11 引入其旗舰手机。我使用这种措辞是因为三星表示，目前谁可以注册使用它是有限制的。对于 [Galaxy Note 20 系列手机](https://us.community.samsung.com/t5/Note20/Note-20-20-Ultra-OneUI-3-Android-11-Mega-Thread/td-p/1495817) ，以下用户符合条件:
 

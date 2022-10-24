@@ -4,7 +4,7 @@
 
 “ [如何切洋葱](https://lifehacker.com/leave-onion-roots-intact-for-easier-slicing-and-dicing-1833271164) ”之于美食视频如同“如何做一只完美的猫眼”之于化妆教程；这两个话题都做得很烂，但人们还是不断点击，因为这两个话题都非常重要。你永远不知道什么时候你会学到新的东西。我原以为我对洋葱切片和切块很有研究，直到我看到了来自 [*库克画报*](https://www.cooksillustrated.com/how_tos/10213-how-slicing-impacts-onions) 的人们的这封信息丰富的信件。
 
-Watch
+
 
 原来你切洋葱的方向很重要。你破坏的细胞壁越多，洋葱就会变得越软，尤其是在烹饪后:
 

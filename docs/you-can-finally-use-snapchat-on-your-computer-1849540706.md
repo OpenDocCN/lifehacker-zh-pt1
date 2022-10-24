@@ -4,7 +4,7 @@
 
 Snapchat 是少有的从未从手机转移到桌面的社交媒体应用。Instagram 有一个网络应用，WhatsApp 有一个桌面应用，但是，直到现在，如果你想拍照，你总是需要你的手机在你身边。不过从今天开始，你可以在你的 Mac 或 PC 上接收这些对话，无论你是给朋友发送一张快速照片，还是加入一个群组的视频通话。
 
-Watch
+
 
 然而，这不一定是“新闻”。自 7 月份以来，Snapchat 为 Snapchat+用户提供了一款网络应用。从仲夏开始，每月 3.99 美元，你就可以用笔记本电脑抓拍朋友了。当然，如果你没有那样做，你只是省了 8 美元，因为 Snap Inc. [今天](https://www.theverge.com/2022/9/15/23354689/snapchat-for-desktop-web-version-rollout?utm_campaign=theverge&utm_content=chorus&utm_medium=social&utm_source=twitter) 正式向所有人推出该功能。
 

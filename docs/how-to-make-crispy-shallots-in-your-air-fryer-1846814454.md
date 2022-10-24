@@ -4,7 +4,7 @@
 
 我经常使用我的小型空气油炸锅，尤其是现在天气变暖了，我不惜一切代价避开我的烤箱。它的用途非常广泛——我可以用它来做一份完整的培根鸡蛋早餐——但我*要靠它来做最后一分钟的装饰和收尾工作，从 [松脆的马槟榔](https://skillet.lifehacker.com/you-should-air-fry-some-capers-1846772526) ，到 [烤大蒜](https://skillet.lifehacker.com/you-should-roast-garlic-in-your-air-fryer-1846574579) ，到 [香脆的葱花](https://skillet.lifehacker.com/air-fry-your-scallions-for-the-perfect-garnish-1846184934) 。*
 
-Watch
+
 
 你可能已经猜到了，我发现了一种新的食物可以加入到空气油炸食品中——空气油炸青葱。它们不是我最快的空气油炸食谱，但它们是非常不干涉的，而且肯定比传统油炸葱少得多。
 

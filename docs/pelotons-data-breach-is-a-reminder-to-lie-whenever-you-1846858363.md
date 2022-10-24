@@ -4,7 +4,7 @@
 
 Peloton 遭遇了数据泄露。好消息是什么？关于你锻炼习惯的信息随后被外人随意获取，这并不那么糟糕。然而，Peloton 的延迟反应更令人担忧。
 
-Watch
+
 
 正如 [Pen Test Partners](https://www.pentestpartners.com/security-blog/tour-de-peloton-exposed-user-data/) 在最近的一篇博客文章中描述的那样，该公司以前使用的一些 API 可以被任何人查询——经过认证的*和*未经认证的用户都一样。该公司后来改变了这一做法，只允许前者，但鉴于任何对数据感兴趣的人都可以简单地注册一个免费的 Peloton 账户，这并没有多大的保护作用。
 

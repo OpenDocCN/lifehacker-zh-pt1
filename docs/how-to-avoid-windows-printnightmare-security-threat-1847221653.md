@@ -4,7 +4,7 @@
 
 微软最近发布了紧急补丁，以修复 Windows 的打印假脱机程序代码中被称为“打印噩梦”的重大零日安全漏洞，但他们没有解决这个问题。安全研究人员发现，即使打了补丁(通过 [TechRadar](https://www.techradar.com/news/microsofts-emergency-printnightmare-patch-doesnt-actually-fix-the-issue-at-all) )，该漏洞仍然存在于几个版本的 Windows 上，使用户容易受到严重的网络安全威胁。
 
-Watch
+
 
 通过利用 PrintNightmare bug，黑客可以控制 PC 并安装恶意软件、勒索软件、窃取或破坏重要数据等，而无需物理接触计算机。你知道，真正的黑帽子。
 

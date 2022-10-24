@@ -4,7 +4,7 @@
 
 5 月 24 日更新:三星延长了三星云用户的数据传输期限。我们已使用新的截止日期更新了下面的文章，并添加了有关将 Samsung Cloud 与 OneDrive 同步的额外信息。
 
-Watch
+
 
 三星云存储服务正在被淘汰。关闭是 [分阶段发生的，取决于你住在哪里](https://www.samsung.com/uk/support/mobile-devices/changes-to-gallery-sync-samsung-cloud-drive-and-premium-storage/?merchant=17946&cid=uk_paid_affiliate_awin-TechRadar_0_none_Editorial+Content_0_none_none&awc=17946_1617393103_04ade1a80e2f17f72ed4f6231c44ab83&affiliatename=TechRadar&affiliateid=103504&clicktimestamp=1617393103) ，但三星最近延长了所有“ [第 1 组](https://support.samsungcloud.com/#/eof_notice/group) ”地区的截止日期，其中包括美国、澳大利亚、英国和欧洲大部分地区。第一组用户现在可以在 7 月 30 日之前免费直接将三星云数据与微软 OneDrive 同步，而无需先下载到另一台设备上。
 

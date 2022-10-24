@@ -4,7 +4,7 @@
 
 MAC 相对容易进行故障诊断，但有时您可能需要查看某人的屏幕或控制他们的笔记本电脑。奇怪的是,“信息”应用程序可以帮你做到这一点。“信息”应用程序中有一个内置的屏幕共享工具，可供每台运行 macOS Mojave 10.14 和更高版本的 Mac 使用，比使用第三方远程控制应用程序更安全、更简单。
 
-Watch
+
 
 在 macOS Monterey 中，苹果在 FaceTime 应用程序中添加了屏幕共享功能，通过 [其共享播放功能](https://lifehacker.com/how-to-finally-use-shareplay-to-watch-videos-together-1847943309) 。但这只适用于运行 macOS Monterey 12.1 的 macOS，而且它不能让你控制别人的 Mac。在这里，我们将重点介绍“信息”应用程序，以及如何使用它来共享或控制他人的屏幕。
 

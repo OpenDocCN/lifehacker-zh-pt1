@@ -4,7 +4,7 @@
 
 疫情带走了我们太多东西——但你知道它不需要带走什么吗？我们孩子笨拙地摆姿势的学校照片(配以传统的蓝色或灰色背景)，就是这样。
 
-Watch
+
 
 今年秋天，一些全日制或非全日制学生可能仍然会过传统的学校照相日。但在全虚拟学校的孩子的父母可能会认为，他们学校的照片集中应该有 2020-21 图像的地方会有一个缺口。但是学校图片公司 Lifetouch 与 Shutterfly 合作，为父母创造了一种从手机上拍摄和设计自己的 [学校图片](https://lifetouch.com/picture-day-snaps-at-home/?fbclid=IwAR0PTTmDzMdQYzDCLvuzwzO1KiVDUaCKg9VxsL0ofqpnbj61T6Oapv8i2hI) 的方式。
 

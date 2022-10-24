@@ -4,7 +4,7 @@
 
 Xbox Game Pass 正在轰轰烈烈地拉开 2022 年的序幕。加入一对可怕的益智游戏和一个备受期待的 [*留下 4 个死亡*](https://kotaku.com/everything-is-left-4-dead-now-1847096864)是一个有史以来经典 RPG 的重制版汇编。另外，有史以来最伟大的游戏之一(即*外太空*)回归了。下面是未来几周 Xbox Game Pass 的 [一切](https://news.xbox.com/en-us/2022/01/04/coming-soon-to-xbox-game-pass-january-2022/) 。
 
-Watch
+
 
 **1 月 4 日**
 

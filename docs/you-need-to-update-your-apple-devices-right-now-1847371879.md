@@ -4,7 +4,7 @@
 
 确保您立即安装最新的 iOS、iPadOS 和 macOS Big Sur 系统更新，以修补黑客正在积极利用的危险安全漏洞。
 
-Watch
+
 
 iOS 和 iPad 的更新还修复了一个令人讨厌的错误，即阻止一些 iPhone 用户通过手机的触控 ID 解锁 Apple Watch。然而，关键的一点是，所有 iPhone、iPad 和 Mac 用户都需要立即安装更新，以保护他们的设备和数据免受最新安全漏洞的影响。
 

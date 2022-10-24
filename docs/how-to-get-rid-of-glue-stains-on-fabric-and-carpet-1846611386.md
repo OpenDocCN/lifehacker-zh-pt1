@@ -4,7 +4,7 @@
 
 胶水是让我们摆脱无数困境的家用工具。从让我们有机会抢救那些我们认为已经永远损坏的物品，到让我们的一些疫情手工艺项目成为可能，胶水完成了我们的工作。但与此同时，让它如此有用的东西——它的粘性——如果它最终出现在你的衣服、地毯或其他家用织物表面，也会造成一些损害。
 
-Watch
+
 
 好消息是，仅仅因为一个项目以胶水污渍结束——除了你刚刚修复和/或制作的东西——并不意味着污渍表面被破坏了。多年来，我们已经介绍了各种各样的方法来从不同的表面和材料上去除胶水，但是 Spruce 的优秀人员做了一个更好的，并且创建了 [一个彻底的胶水去除指南，](https://www.thespruce.com/remove-glue-from-clothes-2146914) 包括一个有用的 [信息图](https://www.thespruce.com/thmb/ioDnK6HizNvezxu2oNaBn3-f5vA=/1500x0/filters:no_upscale():max_bytes(150000):strip_icc():format(webp)/remove-glue-from-clothes-2146914_FINAL2-5c34fcb946e0fb0001951dab.png) 。以下是一些亮点。
 

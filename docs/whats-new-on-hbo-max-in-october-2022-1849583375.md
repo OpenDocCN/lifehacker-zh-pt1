@@ -4,7 +4,7 @@
 
 好莱坞对特许经营如此着迷，它正在制作你从未听说过的衍生产品和前传。以彭尼沃斯为例，这个节目揭示了布鲁斯·韦恩的端庄男仆阿尔弗雷德错综复杂的身世，你可能会惊讶地得知，他的青年时代一直在挫败法西斯分子推翻英国政府的企图。
 
-Watch
+
 
 如果这对你来说是新闻——如果我告诉你这部剧即将首播第三季呢？—很可能是因为它最初是在 Epix 上播出的，Epix 是一个付费网络，它的存在可能只是一个谣言。但不用担心:对于新一季来说，这个( [显然相当不错](https://www.rottentomatoes.com/tv/pennyworth) )节目正在转移到 HBO Max，与所有其他华盛顿的东西 [大卫·扎斯拉夫还没有](https://www.esquire.com/entertainment/movies/a40794876/batgirl-hbo-movie-cancelled/) [记忆模糊](https://gizmodo.com/dc-universe-young-justice-warner-discovery-hbo-max-1849426104)。即使他们觉得有必要加上搞笑的副标题“蝙蝠侠管家的起源”
 

@@ -4,7 +4,7 @@
 
 这种情况在我们大多数人身上都会发生:在所有最新的 [网络钓鱼诈骗](https://lifehacker.com/how-to-boost-your-phishing-detection-skills-and-avoid-e-5873050) 和*中，你可能 [完全是最新的](https://lifehacker.com/the-most-common-email-keywords-that-everyone-should-kno-1847658343) ，而*仍然会上当受骗。虽然意识到你刚刚点击了一些诈骗链接肯定会引起恐慌，但接下来你可以采取一些简单的步骤来最大限度地减少损失，保护你的设备和数据。
 
-Watch
+
 
 ## **如果您在可疑网站输入了信息**该怎么办
 

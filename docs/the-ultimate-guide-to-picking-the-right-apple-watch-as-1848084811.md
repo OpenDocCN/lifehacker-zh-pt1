@@ -4,7 +4,7 @@
 
 如果你要给有 iPhone 的人买礼物，他们的清单上很可能有 Apple Watch(如果他们还没有的话)。 [Apple Watch 是全球最受欢迎的智能手表](https://www.idc.com/promo/wearablevendor/vendor)；唯一的问题是，有相当多的选择。在系列 3、系列 7、SE 和其他之间，你如何知道这个假期应该买哪个作为礼物？
 
-Watch
+
 
 在我们进入手表本身之前，我们先来谈谈 Apple Watch 的几个怪癖。虽然其他苹果产品也有变化，但苹果手表变得稍微复杂一些:
 

@@ -4,7 +4,7 @@
 
 俱乐部会所可能感觉像一个独家...好吧，俱乐部，但是一旦你最终 [亲自尝试](https://lifehacker.com/how-to-set-up-clubhouse-1846208087) ，你会发现它并不适合你。你是否发现 [众多](https://lifehacker.com/how-to-use-twitter-spaces-to-make-your-own-clubhouse-1846400495) [会所](https://lifehacker.com/how-to-try-reddits-clubhouse-like-talks-feature-early-1846732895) ~~敲竹杠~~ [竞争对手](https://lifehacker.com/the-best-new-features-in-telegrams-massive-update-1846774695)更吸引人，你只是不喜欢开放式音频对话格式，你发现应用程序不断获取你手机的联系人与其 [隐私政策](https://www.vox.com/recode/22278601/clubhouse-invite-privacy-contacts-app) 有点不一致
 
-Watch
+
 
 如果你再也不回来了，你应该彻底注销你的账户，并确保你的个人数据也被删除。这样，如果 Clubhouse 不小心暴露了你的信息或者黑客侵入了他们的服务器，你的信息就不会被泄露。
 

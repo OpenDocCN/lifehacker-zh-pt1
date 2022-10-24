@@ -10,7 +10,7 @@
 
 > 我也有同样的问题，苹果公司给我发了两次新 iPhone，我想他们不知道该怎么办。还是希望软件问题。
 
-Watch
+
 
 苹果公司 [正在积极调查](https://www.macrumors.com/2020/11/18/apple-investigating-iphone-12-display-issues/) 的问题，而现在说这是硬件问题(希望不是)还是某种可以通过未来软件更新解决的怪癖(万岁)还为时过早。
 

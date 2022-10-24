@@ -4,7 +4,7 @@
 
 随着 [iOS 15 更新](https://lifehacker.com/36-of-the-best-new-ios-15-features-for-iphone-1847674175) ，苹果正在进一步改进“查找我的”功能。这项功能通常可以让你找到、定位并删除丢失的苹果设备——但现在，某些运行 iOS 15 的 iPhone 甚至在 iPhone 关机后仍可跟踪(这是小偷做的第一件事)。它是如何工作的？而且是不是已经不可能完全关掉 iPhone 了？
 
-Watch
+
 
 ## 离线 iPhone 追踪是如何工作的？
 

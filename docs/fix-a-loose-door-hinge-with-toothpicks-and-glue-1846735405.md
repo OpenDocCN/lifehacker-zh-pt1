@@ -4,7 +4,7 @@
 
 松动的门铰链已经够烦人的了，但更糟糕的是，当你试图在意识到孔已经被剥开并且螺钉无法卡住之前将它拧回去。但是有一个聪明的方法，用一堆牙签来固定一个松动的门铰链，由 TikToker [水星星尘](https://www.tiktok.com/@mercurystardust/video/6948387603582405894?amp%3Bsender_web_id=6923208287039440389&amp%3Bis_from_webapp=v1&amp%3Bis_copy_url=0&is_copy_url=0&is_from_webapp=v1&sender_device=pc&sender_web_id=6894290565573576198) 带给我们。它是这样工作的。
 
-Watch
+
 
 ### 首先，取下旧铰链
 

@@ -4,7 +4,7 @@
 
 无论是万圣节糖果，选举周压力饮食，还是即将到来的感恩节晚餐，我们都需要谈谈当我们突然吃得比平时多时该如何反应。你不需要马上通过锻炼消耗掉那些卡路里，或者以某种方式向自己证明你已经“赢得”了它们。好好享受食物，然后继续生活。
 
-Watch
+
 
 在我们谈论如何处理这些偶尔的放纵之前，我想花点时间指出 [暴食症](https://www.womenshealth.gov/mental-health/mental-health-conditions/eating-disorders/binge-eating-disorder) 是一种过度饮食导致内疚，然后节食或限制性行为的情况。这是周期性的，所以节食往往会导致更多的暴饮暴食。如果你经常遇到这种情况，比如每周一次，寻求专业帮助。治疗可能包括谈话疗法、营养咨询，有时还包括药物治疗。如果你不知道从哪里开始， [聊天，发短信或者拨打国家饮食失调协会热线这里](https://www.nationaleatingdisorders.org/help-support/contact-helpline) 。
 

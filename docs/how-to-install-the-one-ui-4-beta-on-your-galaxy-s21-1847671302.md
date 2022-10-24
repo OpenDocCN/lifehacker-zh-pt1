@@ -4,7 +4,7 @@
 
 我们正在迅速接近传闻中的 [Android 12](https://gizmodo.com/here-are-all-the-big-new-features-coming-in-android-12-1846917540) 的发布日期(所有证据都指向该软件将于[10 月 4 日](https://www.engadget.com/android-12-release-date-leak-181243366.html) ) ，随着这个日期的临近，Android 智能手机制造商正在为新的更新准备他们的设备。三星也不例外: T he 公司刚刚为 One UI 4 推出了第一个测试版，如果你有一台 Galaxy S21 设备，现在就可以安装。
 
-Watch
+
 
 一个 UI 是三星的 Android“皮肤”本质上，这是该公司对 Android 操作系统的继承，将谷歌的功能和系统带到 Galaxy 手机上，同时增加了三星特有的选项和 T2 的外观和感觉。一个 UI 4，那么，就是三星的 Android 12 皮肤。在该公司向公众发布之前，它需要通过一个测试程序测试该软件，以消除任何错误或问题。
 

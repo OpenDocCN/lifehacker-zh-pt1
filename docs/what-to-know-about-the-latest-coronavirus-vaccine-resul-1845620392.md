@@ -4,7 +4,7 @@
 
 辉瑞和 BioNTech [今天宣布](https://www.pfizer.com/news/press-release/press-release-detail/pfizer-and-biontech-announce-vaccine-candidate-against) 他们的候选疫苗在他们的研究中对志愿者预防新冠肺炎病毒有 90%的有效性。这是令人鼓舞的消息，但在这一声明和实际有效的可用疫苗之间还有很长的路要走。
 
-Watch
+
 
 ### 这是哪种候选疫苗？
 

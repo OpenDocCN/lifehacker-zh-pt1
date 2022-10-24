@@ -4,7 +4,7 @@
 
 随着 6 月 21 日至 22 日亚马逊优惠日的到来，该公司有一个 [花费 10 美元，获得 10 美元](https://www.amazon.com/b?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-get-a-10-credit-for-amazon-prime-day-1847057772&asc_source=&language=en_US&linkCode=ll2&linkId=6a013ca1d8cc27804ded3720eeac66c6&node=17879387011&ref_=as_li_ss_tl&tag=kinjalifehackerlink-20) 的促销活动，如果你从包括少数族裔和退伍军人在内的小企业主名单中购物。当然，亚马逊也从中受益，因为你需要一个 Prime 会员才能获得 10 美元。
 
-Watch
+
 
 ## 亚马逊在帮助小企业吗？
 

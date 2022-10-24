@@ -4,7 +4,7 @@
 
 流行的网络智慧认为 [亚马逊是邪恶的](https://gizmodo.com/is-amazon-evil-and-am-i-evil-for-using-it-1824070880) 和 [你应该停止给他们你的钱](https://lifehacker.com/how-to-stop-giving-amazon-your-money-1823468097) 。然而，美国有 7660 万家庭使用亚马逊 Prime 服务，所以，要么是我们中的一些人没有理解这个信息，要么是我们已经听天由命了。如果你要和魔鬼做交易，你也可以尽可能地从中获得最大利益——这就是为什么值得了解你的[Prime Membership](https://www.amazon.com/amazonprime?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/the-best-amazon-prime-benefits-you-dont-know-about-1849154312&asc_source=&tag=kinjalifehackerlink-20)除了对环境有害的[对经济有害的](https://www.vox.com/recode/22836368/amazon-antitrust-ftc-marketplace) (但如此方便)两天送达的好处。
 
-Watch
+
 
 这些服务包括送餐的各种补贴、各种形式的娱乐，甚至还有存储数字记忆的空间。这里有九个你可能知道的 Prime 会员的非运输福利。
 

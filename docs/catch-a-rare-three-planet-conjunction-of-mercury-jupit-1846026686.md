@@ -4,7 +4,7 @@
 
 在花了一周的时间粘在电视和我们的设备上之后，我们都可以离开屏幕休息一下。幸运的是，夜空为我们准备了一整个周末的娱乐节目，以一种罕见的水星、木星和土星三行星会合的形式出现。上一次出现这种特殊组合是在 2015 年 10 月。下面介绍一下这个 [周末的天文亮点](https://earthsky.org/tonight/planetary-trio-low-in-west-at-dusk#link=%7B%22role%22:%22standard%22,%22href%22:%22https://earthsky.org/tonight/planetary-trio-low-in-west-at-dusk%22,%22target%22:%22_blank%22,%22absolute%22:%22%22,%22linkText%22:%22EarthSky%22%7D) 需要了解的内容，以及如何看到一些行星。
 
-Watch
+
 
 ### 我们不是刚进行了一次行星会合吗？
 

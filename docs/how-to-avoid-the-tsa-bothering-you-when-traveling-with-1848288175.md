@@ -4,7 +4,7 @@
 
 在很大程度上，航空旅行涉及处理一个接一个的麻烦。从往返机场，到与航班上不守规矩或不讲道理的乘客打交道，这往往不是一次非常愉快的经历。
 
-Watch
+
 
 但是你可以做一些事情来使这个过程的至少某些部分变得更顺利一些。这包括知道当 [带着处方药](https://www.tsa.gov/travel/travel-tips/can-you-pack-your-meds-pill-case-and-more-questions-answered) 通过运输安全管理局(TSA)检查站时该怎么做。以下是打包和旅行时需要记住的事项。
 

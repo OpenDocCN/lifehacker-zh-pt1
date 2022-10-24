@@ -4,7 +4,7 @@
 
 Chrome 桌面用户长期以来一直能够为浏览器配备第三方扩展，以跟踪价格并帮助你找到最佳交易，但这些插件在 Android 上不起作用。幸运的是， [谷歌在 Chrome mobile 中推出了一项新功能](https://www.smartdroid.de/chrome-preisnachlaesse-tabs-alarm/) ，它将密切关注你在后台打开的购物标签上的价格下跌。
 
-Watch
+
 
 新的 Android 价格跟踪功能是 Chrome 版本 90 更新的一部分，现在可以从开始使用。Chrome 更新后，您可以通过以下步骤启用价格跟踪:
 

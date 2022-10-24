@@ -4,7 +4,7 @@
 
 四年前的这个时候， [民调显示](https://www.cnn.com/2016/10/23/politics/hillary-clinton-donald-trump-presidential-polls/index.html) 希拉里领先唐纳德·川普 12 个百分点，给了很多人对选举结果的虚假安全感。购买了选举之夜香槟，贾维茨中心的玻璃天花板下充满了气球，期待着美国历史上第一位女总统的选举。我们知道结果如何。
 
-Watch
+
 
 因此，现在的大多数当前民调都显示乔·拜登领先于现任总统，这有可能增加许多人已经经历了数月(或者在某些情况下，自 2016 年以来)的 [选举相关焦虑](https://lifehacker.com/s/voter-guide) 。为了帮助我们度过接下来的几周，FiveThirtyEight 的 Nate Silver 有一些处理与投票相关的焦虑的小贴士。
 

@@ -4,7 +4,7 @@
 
 [求职焦虑](https://lifehacker.com/how-to-defeat-your-job-search-anxiety-1847510894) 够痛苦的。接下来是不断检查收件箱的痛苦过程，最终看到一封来自 [未来雇主](https://lifehacker.com/how-to-pitch-yourself-to-a-prospective-employer-1847328429) 的电子邮件，试图也未能控制住你的希望，只是打开它读道:“*我们很遗憾地通知你...*"或者可怕的， " *你是个很好的候选人。**很不幸**...*帽子“不幸”总是刺痛。
 
-Watch
+
 
 除了 [反弹并继续寻找不同的前景](https://lifehacker.com/how-to-bounce-back-after-a-job-rejection-and-land-the-r-1847264673) 之外，你会怎么处理你的工作拒绝邮件？所有的工作拒绝都需要个人回应吗？如果是，你的回答是什么？我采访了职业专家 [丹·肖贝尔](https://danschawbel.com/) 和 [珍妮·福斯](https://www.jobjenny.com/) 。以下是他们的建议，可以让你从容应对工作拒绝，甚至把“不幸”变成机会。
 

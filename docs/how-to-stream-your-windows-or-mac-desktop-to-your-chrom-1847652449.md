@@ -4,7 +4,7 @@
 
 对于很多人来说，[chrome book](https://gizmodo.com/12-things-you-didnt-know-you-could-do-on-your-chromeboo-1846728714)就是他们需要的全部电脑。除了一些繁重的图像和视频编辑工作，如今在网络浏览器中没有什么是你不能做的。如果你需要在 Chrome OS 中运行完整的 Windows 或 macOS 桌面应用程序，这很容易设置——只要你有另一台 Windows 或 macOS 计算机可以链接到那个。如果你在家里的一个房间使用 Chromebook，而在另一个房间使用 MacBook，或者如果你想在办公室的 Windows 电脑上运行程序，那么这是非常完美的。
 
-Watch
+
 
 尽管谷歌 [正在研发](https://www.zdnet.com/article/google-is-making-it-easier-to-run-your-window-apps-on-chromebooks/) ，但目前在 Chrome 操作系统上运行 Windows 或 macOS 的完整桌面应用程序实际上是不可能的。如果你需要这种功能， [CrossOver](https://www.codeweavers.com/crossover) 可能就是你要找的——尽管目前它只能给你的 Chromebook 带来 Windows 软件。
 

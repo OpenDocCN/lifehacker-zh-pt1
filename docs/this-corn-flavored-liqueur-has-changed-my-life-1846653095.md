@@ -4,7 +4,7 @@
 
 如果你对我的生意有哪怕一半的了解，你就会知道我对玉米非常感兴趣。我会把它吃掉。我会把它 [生吃](https://skillet.lifehacker.com/you-know-you-dont-have-to-cook-corn-right-1797841831) 。我就把它 [腌](https://skillet.lifehacker.com/you-should-put-pickled-corn-on-everything-1827544519) 吃了。我会在它浸泡在氢氧化钙中后吃它(这时它就变成了“玉米粥”)我就 [喝了它](https://skillet.lifehacker.com/you-should-absolutely-add-corn-milk-to-your-coffee-1844763624) 。我想我从来没有遇到过一种我不喜欢放进嘴里的玉米或者玉米味产品。虽然我知道 Nixta Licor de Elote 并不是为了满足我的特定需求而创建的，但我确实感觉它就是。
 
-Watch
+
 
 我对制造 Nixta 的人唯一的疑虑是，他们没有送我一个全尺寸的玉米形状的瓶子，但他们肯定知道他们不需要。他们送来的两个小份足以满足我对更多玉米饮料的渴望，我非常乐意为这些东西支付全价零售。(这是一个已经装满了免费样品的酒吧推车的人的高度赞扬。)
 

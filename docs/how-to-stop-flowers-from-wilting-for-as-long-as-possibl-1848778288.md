@@ -4,7 +4,7 @@
 
 收到一束花总是让我感到温暖。这对我来说是经常发生的事，因为我有很多很多的追求者。同时，养花也给我带来很多压力。毕竟一束花，很像爱情，转瞬即逝。枯萎是不可避免的——但不一定是立即的。如果护理得当，你的花束可以在 [前后持续 7 到 12 天](https://www.goodhousekeeping.com/uk/house-and-home/gardening-advice/a561997/how-to-help-cut-flowers-last-longer/) ，这取决于花的种类。
 
-Watch
+
 
 ## 什么导致切花枯萎
 

@@ -4,7 +4,7 @@
 
 水蛭。寄生虫。甚至可能是 [臭虫](https://lifehacker.com/what-to-do-if-you-find-bed-bugs-in-your-hotel-room-1849101627) ？房东被骂了很多，但没有一个是好的。 [这对夫妇](https://twitter.com/ohJuliatweets/status/1539089785859473409?s=20&t=hy7VzKj3O1b4AbvBHVmR7g) 经营着一个“15 人 Airbnb 帝国”，上周在推特上迅速走红，突显出网上日益普遍的共识:每个人都讨厌房东。
 
-Watch
+
 
 这种对房东的负面看法不仅仅是另一种“极度在线”的蜂群思维。作为现实世界中的一名单口喜剧演员，我看到憎恨房东是一个非常安全的——甚至可能是*hack*——笑点。还有比成为黑客笑点更能彰显某人公众地位的标志吗？
 

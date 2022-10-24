@@ -4,7 +4,7 @@
 
 有一条潜规则规定，任何圣诞喜剧都必须有一个场景，其中一个角色完全被节日灯串缠住。虽然这种情况在屏幕上可能很有趣，但当它发生在你的客厅时，你很难从中找到幽默。
 
-Watch
+
 
 事实上，几乎所有关于这些透明或彩色小灯串的事情都很烦人，也很麻烦——包括知道要买多少英尺来装饰你的圣诞树。幸运的是，[Real Simple 的编辑整理了一份方便的指南](https://www.realsimple.com/holidays-entertaining/holidays/christmas/how-many-feet-christmas-lights-tree) 来帮助你计算出你的树需要多少英尺长的灯。以下是需要了解的内容。
 

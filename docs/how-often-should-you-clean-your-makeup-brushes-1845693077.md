@@ -4,7 +4,7 @@
 
 我小时候学到的第一个化妆技巧是永远不要共用 [睫毛膏](https://www.instyle.com/news/dangers-sharing-makeup-eye-infections-mascara?amp=true) 或口红。尽管无害，生活在我们睫毛内和脸上的 [微生物](http://www.bbc.com/earth/story/20150508-these-mites-live-on-your-face) 足以让我害怕卫生。既然对冠状病毒的恐惧——一种更恰当的恐惧(——已经重新将我们的集体注意力集中到了清洗和消毒上，为什么我们的化妆刷没有呢？以下是如何清洁它们的方法。
 
-Watch
+
 
 ### 你应该多久清洗一次刷子？
 

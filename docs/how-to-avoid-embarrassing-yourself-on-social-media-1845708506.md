@@ -4,7 +4,7 @@
 
 尽管天主教教义认为他是地球上最接近基督的化身，但教皇对人类的愚蠢并不陌生。本周早些时候，教皇方济各成为 Instagram 上一个经典口渴陷阱的受害者， [喜欢巴西模特娜塔莉亚·加里博托页面上的一个下流帖子。](https://www.nydailynews.com/news/world/ny-vatican-probes-pope-francis-instagram-account-over-racy-photo-like-20201118-sss2fgalwfbbjegpy7llr4zvy4-story.html)
 
-Watch
+
 
 想到教皇弗朗西斯很有趣，他发誓独身，经常亲吻人们的婴儿，随意浏览社交媒体上衣着暴露的女性的帖子。事实上，这可能不是八十多岁的老人自己；教皇的 700 万粉丝 Instagram 账户无疑是由一组工作人员运营的，其中至少有一人在本周处理梵蒂冈官方事务时偶尔性奋。
 

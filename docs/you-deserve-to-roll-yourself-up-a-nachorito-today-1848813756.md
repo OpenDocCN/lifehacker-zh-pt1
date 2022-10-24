@@ -4,7 +4,7 @@
 
 祝福今天，祝你们四月二十日快乐。像你们中的许多人一样，我在 [亢奋和](https://twitter.com/clairelizzie/status/1510774732961902594) 饥饿的时候花了一些时间在互联网上。虽然我在处理零食时想出了一些真正伟大的创新，但 redditor /u/Vainquisher 可能胜过了我所有的努力，上周发布了一个绝对轰动的消息，他们建议 [用玉米饼吃掉你的玉米片，这样你就可以用剩菜](https://www.reddit.com/r/shittyfoodporn/comments/tz4t17/does_anyone_else_make_nachos_on_a_tortilla_that/) 做墨西哥卷饼。
 
-Watch
+
 
 结合 [无限玉米卷循环](https://lifehacker.com/eat-a-taco-over-a-tortilla-to-create-another-taco-1802006752) 与 [将薯片放在东西里](https://lifehacker.com/add-potato-chips-to-your-next-batch-of-cookie-dough-1847901658) ，“吃你的玉米片出来一个玉米饼”是 peak stoner food 的有力竞争者。
 

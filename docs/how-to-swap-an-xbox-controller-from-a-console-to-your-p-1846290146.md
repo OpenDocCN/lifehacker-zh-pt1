@@ -4,7 +4,7 @@
 
 Xbox Series X|S 控制器上有一个相对不为人知的功能，它使在多台设备上使用它变得更加容易:控制器的“同步”按钮有内置的快捷方式，让你可以在最近使用的 Xbox 主机和 PC 或移动设备之间自动切换。
 
-Watch
+
 
 奇怪的是，这个方便的功能基本上是隐藏的。微软几乎没有在任何官方文档中提到它，直到最近在 Reddit 和 Twitter 上的帖子，该功能才在 video 0-w 上显示出来，这很奇怪，因为这是目前 Xbox Series X|S 控制器基本上独有的功能。你不能用一个 [PlayStation 4 或 5 游戏手柄](https://lifehacker.com/how-to-use-a-playstation-5-controller-with-steam-1845742247) ，Switch 的 Joycons 或 Pro 控制器，甚至 Xbox One 或 [Xbox Elite 控制器](https://lifehacker.com/how-to-use-an-xbox-series-x-or-elite-controller-with-st-1846022283) 来做到这一点。
 

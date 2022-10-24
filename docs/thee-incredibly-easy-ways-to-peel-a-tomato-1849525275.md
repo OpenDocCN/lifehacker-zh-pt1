@@ -4,7 +4,7 @@
 
 即使你喜欢的吃西红柿的方法是“像咬苹果一样咬”，在你的生活中也会有你不得不削西红柿皮的时候。也许你会处理你夏天的收获，或者简单地做一点点 [腌番茄沙拉](https://lifehacker.com/this-naked-tomato-salad-may-replace-your-caprese-1798634063) 。但是你*会*在那些皮需要脱落的时刻到来。
 
-Watch
+
 
 你应该如何剥西红柿取决于你对裸西红柿的需求有多迫切。幸运的是，有三种简单的方法可以去掉这些皮(然后，保存好皮和 [做番茄酱](https://lifehacker.com/eating-trash-with-claire-tomato-skin-salt-and-peach-sk-1794819973) 作为额外的奖励)。
 

@@ -4,7 +4,7 @@
 
 自从所有非白痴的人开始盖住他们的气孔并为了更大的利益而隔离自己以来，我们就在一年之内，许多人开始想知道当我们苍白的身体重新回到阳光下时，后疫苗世界会是什么样子，或者更可能是我们曾经在愉快的往昔享受的黑暗的酒吧。
 
-Watch
+
 
 具体来说，*纽约时报* [奇观](https://www.nytimes.com/2020/12/20/style/self-care/feeling-socially-awkward-even-extroverts-are-a-little-rusty.html?action=click&module=Top%20Stories&pgtype=Homepage) 如果什么曾经是随意的，没有什么谈话可能不会只是怪异，因为他妈的毕竟这个时候没有社交:
 

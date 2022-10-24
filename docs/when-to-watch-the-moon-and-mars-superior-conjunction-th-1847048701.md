@@ -4,7 +4,7 @@
 
 如果你的工作需要整天盯着屏幕，这个月天空会给你充足的理由来享受一些急需的喘息。周四，远北半球部分地区的日环食将产生一个 [【火环】](https://lifehacker.com/when-to-see-the-ring-of-fire-solar-eclipse-this-month-1847007018) 当月亮穿过太阳的正面时，一个和一个非常正确的在那之后，6 月 13 日周日，月亮和火星将紧密地挂在天空，用肉眼或双筒望远镜可以看到。
 
-Watch
+
 
 这两个天体将在所谓的会合中相遇，这发生在两个物体在我们的天穹上达到“相同的”赤经[时。](https://earthsky.org/astronomy-essentials/definition-conjunction-astronomy/) 你可以把它想象成两个天体在稍纵即逝的时刻保持着相同的经度，只是为了再次彼此远离。
 

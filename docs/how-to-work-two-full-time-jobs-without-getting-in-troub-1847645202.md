@@ -4,7 +4,7 @@
 
 根据最近来自 [【福布斯】](https://www.forbes.com/sites/jackkelly/2021/08/15/the-remote-trend-of-working-two-jobs-at-the-same-time-without-both-companies-knowing/?sh=72e62fd717f3)[【华尔街日报】](https://www.wsj.com/articles/these-people-who-work-from-home-have-a-secret-they-have-two-jobs-11628866529)[商业内幕](https://www.businessinsider.com/second-jobs-secret-salary-income-money-remote-work-overemployed-2021-8) 的报道，远程工作出现了一个新趋势:同时(并且秘密地)拥有两份全职有薪工作——，享受两份薪水带来的所有福利。如果你在家工作，每周实际工作时间明显少于 40 小时，你可能会想:这合法吗？如果合法，我该怎么做？
 
-Watch
+
 
 不出所料，这很复杂。理论上来说，做两份全职工作并不违法。但实际上，这一点也不简单。以下是你在尝试之前应该考虑的。
 

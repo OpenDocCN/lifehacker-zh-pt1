@@ -4,7 +4,7 @@
 
 [与功能齐全的浏览应用相比，应用内浏览器是垃圾](https://lifehacker.com/dont-use-in-app-browsers-for-anything-important-1849401900) ，但它们也是一个主要的隐私和安全风险。许多应用程序使用一种称为 Javascript 注入的方法，将数据追踪器偷偷放到你通过应用程序内浏览器访问的网站上，这种方法会在页面加载时向页面添加额外的代码。这些追踪器可以收集浏览历史、登录数据，甚至键盘输入和文本输入。
 
-Watch
+
 
 虽然 Javascript 注入并不总是用于邪恶的手段，但它是一个潜在的安全威胁，直到现在，很难在应用内浏览器中检查它。幸运的是，安全研究人员 Flix Krause 的新应用程序命名工具 [InAppBrowser](https://inappbrowser.com/) ，检查应用程序的内置浏览器是否使用潜在危险的 Javascript 注入来跟踪你的数据。
 

@@ -4,7 +4,7 @@
 
 在一个完美的世界里，健康应该归结为建立一种习惯和挑战你的身体[。可惜，](https://lifehacker.com/dont-overthink-these-things-when-youre-getting-into-fit-1848957097) [a 组健身班](https://lifehacker.com/how-to-join-a-group-fitness-class-alone-1841581847) 很少是完美世界。无论你是报名参加 [普拉提](https://lifehacker.com/what-to-know-your-first-time-at-pilates-class-1825362143)[Crossfit](https://lifehacker.com/what-to-know-your-first-time-trying-crossfit-1820799104)，还是任何其他 [团体锻炼体验](https://lifehacker.com/when-group-classes-help-and-when-they-hurt-1706231508) ，都很容易让你的小我碍事。
 
-Watch
+
 
 这个帖子的灵感来自于 [这个 r/Yoga thread](https://www.reddit.com/r/yoga/comments/uhfwpf/does_this_annoy_you_students_not_following_the/) ，在这里，当其他人在集体瑜伽课上做自己的姿势而忽视指导时，发帖人很恼火。对面在 r/Crossfit，有一种 [常见的](https://www.reddit.com/r/crossfit/comments/2hvwj0/fellow_crossfitters_cheating_during_wods_should/) [抱怨](https://www.reddit.com/r/crossfit/comments/lntwwr/anyone_else_feel_like_cheating_is_out_of_control/) 关于看别人 [【作弊】自己健身](https://www.reddit.com/r/crossfit/comments/cky7mn/cheating_at_wods/) 。我很同情这种挫败感:为什么别人可以创造令人印象深刻的数字，而你是遵守规则的笨蛋？
 

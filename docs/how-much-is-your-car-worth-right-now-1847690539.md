@@ -4,7 +4,7 @@
 
 虽然二手车价格*可能*已经 [在 8 月](https://www.cars.com/articles/have-used-car-prices-finally-reached-their-plateau-441202/) 趋于平稳，但由于供应短缺，需求仍然非常高，平均挂牌价中值 [比去年 8 月上涨 34.3%](https://www.cars.com/articles/have-used-car-prices-finally-reached-their-plateau-441202/) 。即使你不打算卖掉你的车，检查一下你的资产看看它们值多少钱总是一个好主意——而且这样做不需要太多努力。
 
-Watch
+
 
 ## **二手车市场为何如此火爆**
 

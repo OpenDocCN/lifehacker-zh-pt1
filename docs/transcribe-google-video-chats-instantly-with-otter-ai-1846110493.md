@@ -4,7 +4,7 @@
 
 Otter.ai 是一项可靠的服务，它可以神奇地将你的对话转换成文字——通常在事后几乎不需要编辑。尤其是如果你的通话质量很好，而且你的主题不像我一样含糊不清。
 
-Watch
+
 
 现在，如果你安装一个简单的 [Chrome 扩展](https://chrome.google.com/webstore/detail/otterai/bnmojkbbkkonlmlfgejehefjldooiedp?hl=en) ，你就能使用 otter.ai 实时自动转录你的 Google Meet 通话。如果你的工作依赖 Google Meet 与同事联系，这将非常有用。
 

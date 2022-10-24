@@ -4,7 +4,7 @@
 
 如果你有一个蹒跚学步的孩子，而那个蹒跚学步的孩子在发脾气，你知道没有一个万无一失的方法每次都能让他们摆脱出来。蹒跚学步的孩子发脾气是世界上最纯粹的发泄沮丧的方式，逻辑在这些兽性的情感展示中没有位置。然而，偶尔，父母能够设计出一种策略，既能在孩子发脾气的时候安抚孩子*又能让*找到他们到底在烦恼什么的根源。而这就是 [这位老妈](https://www.tiktok.com/@bareyoursoul/video/6906243476166348037?_d=secCgsIARCbDRgBIAIoARI%2BCjxxLgYDqs%2FJY4yoGQQX1Jqjr18NNFiafrRKuz%2Bev6OqnjP%2BzO2QDurZRLkJOOWOnFJ5UZrWBIBLxk8DkSkaAA%3D%3D&language=en&preview_pb=0&sec_user_id=MS4wLjABAAAA-urxM-eTO3o8kR1ItylBD6a_tG6hhnYeYQq7vAjNlWDwmNAEzPWJxl_Su2Vq-eWo&share_item_id=6906243476166348037&share_link_id=8418F7F0-C6A7-4DD9-BFC5-A7A955F40276&timestamp=1608240682&tt_from=copy&u_code=d7mej85ij7dc28&user_id=6727451730230952965&utm_campaign=client_share&utm_medium=ios&utm_source=copy&source=h5_m) ，在抖音身上，已经成就了。
 
-Watch
+
 
 先自己看 [@bareyoursoul 的视频](https://www.tiktok.com/@bareyoursoul/video/6906243476166348037?_d=secCgsIARCbDRgBIAIoARI%2BCjxxLgYDqs%2FJY4yoGQQX1Jqjr18NNFiafrRKuz%2Bev6OqnjP%2BzO2QDurZRLkJOOWOnFJ5UZrWBIBLxk8DkSkaAA%3D%3D&language=en&preview_pb=0&sec_user_id=MS4wLjABAAAA-urxM-eTO3o8kR1ItylBD6a_tG6hhnYeYQq7vAjNlWDwmNAEzPWJxl_Su2Vq-eWo&share_item_id=6906243476166348037&share_link_id=8418F7F0-C6A7-4DD9-BFC5-A7A955F40276&timestamp=1608240682&tt_from=copy&u_code=d7mej85ij7dc28&user_id=6727451730230952965&utm_campaign=client_share&utm_medium=ios&utm_source=copy&source=h5_m) ，然后我们再来讨论:
 

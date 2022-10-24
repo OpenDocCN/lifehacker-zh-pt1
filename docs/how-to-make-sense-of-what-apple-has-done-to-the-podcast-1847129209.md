@@ -4,7 +4,7 @@
 
 今年 4 月，苹果 [对其播客应用](https://www.apple.com/newsroom/2021/04/apple-leads-the-next-chapter-of-podcasting-with-apple-podcasts-subscriptions/) 进行了一些早该进行的修改，这是该公司对播客市场总体做法的一部分，该做法将允许播客制造商通过苹果自主开发的应用对其内容收取订阅费。不幸的是，事实证明，这些变化让许多长期使用该应用的用户感到沮丧——但还是有办法管理它们的。
 
-Watch
+
 
 iOS 14.5 版本推出的这款应用程序经过彻底改造，提供了更多推荐，改变了播客页面(用户现在“关注”播客，而不是“订阅”播客)，是的，允许付费订阅。但这也带来了一些问题: [用户在跨设备同步播客剧集时遇到了问题，或者看到他们随机下载旧剧集](https://www.macrumors.com/2021/04/29/users-despair-at-apple-podcasts-app-after-update/) ，即使他们不得不应对应用程序导航工具的变化。今年 5 月，苹果发布了 iOS 14.6 更新，提供了一些修复，但仍有很多需要习惯。
 

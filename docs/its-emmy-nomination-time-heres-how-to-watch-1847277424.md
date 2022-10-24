@@ -4,7 +4,7 @@
 
 在奇怪的一年后，今年的艾美奖承诺回归传统形式，9 月 19 日由艺人塞德里克主持现场直播仪式。尽管新冠肺炎迫使电视艺术与科学学院在 2020 年获得的创意，疫情并没有完全结束艾美奖。与疫情有关的拍摄延迟意味着许多粉丝的最爱和过去的艾美奖竞争者——包括 [*【继位】*](https://www.avclub.com/tv/reviews/succession)[*【奇闻趣事】*](https://www.avclub.com/tv/reviews/stranger-things)[*【了不起的麦瑟尔夫人】*](https://www.avclub.com/tv/reviews/the-marvelous-mrs-maisel)——将没有资格获得今年的奖项。然而，有资格并获得提名的节目名单包括: [*东镇之马*](https://www.avclub.com/tv/reviews/mare-of-easttown)*我可能会毁了你**黑客**尖声尖气的地下铁道*和*航班* *乘务员。*
 
-Watch
+
 
 今年大流行后的艾美奖的其他变化包括:选集系列和特技演员获得自己的类别的新类别。电视学院尚未废除表演类别的性别标签，但获奖者现在可以要求他们的雕像和提名证书上有性别中性的术语“演员”和“表演者”2020 年底，学院还决定将《综艺谈话与综艺小品系列》 [崩为单一类别](https://www.avclub.com/scott-aukerman-writing-emmys-the-show-inventing-emmy-1798282010)；但是在深夜节目制作人的强烈反对和游说下，他们在今年二月推翻了这条规定。
 

@@ -4,7 +4,7 @@
 
 在机场闲逛是没有人认为的好时光[正如美国运输安全管理局](https://lifehacker.com/surprising-foods-you-can-and-cant-take-through-airpor-1849099435) [警告的那样，在这个繁忙的夏季旅行季节](https://lifehacker.com/surprising-foods-you-can-and-cant-take-through-airpor-1849099435)等待时间会比平时长，看来(不幸的是)明智的选择是早点到达机场。
 
-Watch
+
 
 当飞往某个地方时，我总是渴望地盯着我的同路人，他们可以进入那些专属机场候机室，幻想着享受这样的奢华是什么样子，总是认为是我力所不及的。但事实证明，进入机场休息室只是一些航空公司奖励卡提供的众多额外待遇之一。
 

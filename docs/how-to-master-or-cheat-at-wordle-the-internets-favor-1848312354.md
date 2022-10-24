@@ -4,7 +4,7 @@
 
 互联网最爱两样东西:一股清新潮流，和 [文字游戏](https://lifehacker.com/our-13-favorite-free-games-to-play-over-video-chat-1844648370) 。Wordle 两者皆是，甚至 [都有爱情故事](https://www.nytimes.com/2022/01/03/technology/wordle-word-game-creator.html) 在混。周日，2022 年的第二天，在线文字游戏迅速走红，超过 30 万人玩。
 
-Watch
+
 
 它最初是一个猜字游戏，由布鲁克林的软件工程师 Jost Wardle 为他热爱文字游戏的伙伴发明的。从那以后，你可能会看到 ppeople 发灰色、绿色和黄色的推文。如果你想成为乐趣的一部分，下面是 T4 的工作方式。
 

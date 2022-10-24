@@ -4,7 +4,7 @@
 
 个人对消费的选择不会单独解决气候危机。但是对于我们当中最富有的人来说，某些形式的污染快乐将不得不消失。位居榜首的是巨型房屋，这是世界上最富有的 1%的人的碳足迹是最贫穷的 10%的人的 175 倍的一个关键原因。这就是为什么，在我们公平地让一切去碳化的斗争中，我们需要禁止豪宅。
 
-Watch
+
 
 豪宅没有官方的标准，但在建筑领域，术语 [往往](https://www.theplancollection.com/house-plan-related-articles/house-plans-over-five-thousand-square-feet) [指的是 5000 平方英尺(465 平方米)或更大的](https://www.reference.com/science/many-square-feet-mansion-5deaf04e7986eac2#) [到](https://www.homelight.com/blog/buyer-what-is-a-mansion/) 房子。建筑评论家、博客[mcmanson Hell](https://mcmansionhell.com/)的作者凯特·瓦格纳(Kate Wagner)倾向于不同的定义。
 

@@ -4,7 +4,7 @@
 
 从今天开始，所有 Instagram 用户都可以在自己的图片和视频帖子中省略赞和观点。如果你真的想要一个完全“无赞”的体验，这款应用现在可以让你隐藏赞，并查看你时间线中所有帖子的*计数。* 
 
-Watch
+
 
 Instagram 考虑在测试这些新功能时，从应用程序中完全删除公开的赞数。然而， [公司表示，](https://about.instagram.com/blog/announcements/giving-people-more-control) 公司选择为那些喜欢“关注分享的照片和视频，而不是帖子获得多少赞”的用户提供可选赞，同时保留该功能。
 

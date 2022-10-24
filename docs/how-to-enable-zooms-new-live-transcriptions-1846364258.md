@@ -4,7 +4,7 @@
 
 Zoom 为免费用户带来了实时转录功能。付费用户已经可以使用服务有一段时间了，但是免费用户很快也可以选择为他们的会议添加自动化的、人工智能驱动的封闭式字幕。
 
-Watch
+
 
 直播转录 [今秋推出所有账户，](https://blog.zoom.us/update-on-live-transcription-for-free-accounts/) 但是你可以通过 [这个申请表](https://docs.google.com/forms/d/e/1FAIpQLSccQQ2W-K8naaltkBIbuv6BfJvisy0NZS2qWIKd0gSMUWGGpQ/viewform) 申请提前接入。多语言缩放主机，请注意:在推出时，t 该功能只识别英语。
 

@@ -4,7 +4,7 @@
 
 iOS 15 现在可以作为 iPhones 的空中升级正式下载，它不仅仅是新的壁纸可以试用。一旦你安装了大的更新，有一系列的新功能可以测试，其中一些可能会改变你使用 iPhone 的方式。以下是 iOS 15 从 [到 iOS 14](https://gizmodo.com/17-things-you-can-do-in-ios-14-that-you-couldn-t-do-bef-1844975020) 巨大升级的 19 种方式，以及如何开始使用它们。
 
-Watch
+
 
 * * *
 

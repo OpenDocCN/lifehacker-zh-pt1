@@ -4,7 +4,7 @@
 
 之前，我们解释了 [半浴室](https://lifehacker.com/the-actual-difference-between-a-half-3-4-and-full-bat-1848773483) 和全浴室[的区别，以及其他](https://lifehacker.com/two-half-baths-dont-equal-full-and-other-real-estate-b-1848791689)与厕所相关的数学，以及为什么你可能会开始看到提到 [【主卧室】](https://lifehacker.com/why-you-should-stop-using-the-phrase-master-bedroom-1848204457) (而不是“主卧室”)的房源。但是当涉及到房地产列表中的条款时，这些仅仅是个开始。
 
-Watch
+
 
 以下是你在为你的新家搜寻房源时(或者在浏览你永远买不起的的房产时)可能遇到的一些其他常用单词、短语和首字母缩写。
 

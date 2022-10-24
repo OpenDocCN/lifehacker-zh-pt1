@@ -4,7 +4,7 @@
 
 当你租了一个 Airbnb，你显然是住在了别人的私有财产上。那些业主对如何经营他们的 DIY 酒店 [都有不同的想法，他们中的许多人喜欢安全摄像头](https://www.theatlantic.com/technology/archive/2019/03/what-happens-when-you-find-cameras-your-airbnb/585007/) 和其他记录设备。一方面，这很有道理:房主担心他们租到的 randos 会在他们的房子里把房子拆了或者犯罪。另一方面， [挺让人毛骨悚然的](https://lifehacker.com/how-to-find-hidden-cameras-in-your-airbnb-1829779293) ，尤其是录音设备被隐藏起来，你都没有察觉的时候。
 
-Watch
+
 
 让你的 Airbnb 房东是否被允许记录你的问题变得复杂的是，Airbnb 的规则与当地监管记录的实际法律之间存在重叠。
 

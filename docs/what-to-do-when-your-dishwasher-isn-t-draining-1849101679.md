@@ -4,7 +4,7 @@
 
 你做了所有正确的事情 [正确清洁](https://lifehacker.com/how-to-properly-clean-your-dishwasher-1844633991)[正确装载](https://lifehacker.com/how-to-properly-load-a-dishwasher-1837836635) 你的洗碗机。那么为什么机器底部会有一滩死水呢？当你信赖的洗碗机拒绝排水时，你能做什么？如果你最不想要的就是花钱请修理工——或者更糟，买一台全新的机器——你可能会很幸运。像许多 [洗碗机事故和故障](https://lifehacker.com/jammed-lemon-seeds-and-other-dishwasher-mishaps-and-ho-1848954814) 一样，积水通常可以通过自己的一点点故障排除来解决。以下是当你的洗碗机排水不正常时应该做的事情。
 
-Watch
+
 
 ## 快速解决方案:运行处置
 

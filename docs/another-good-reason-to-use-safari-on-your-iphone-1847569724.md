@@ -4,7 +4,7 @@
 
 我们最近谈到了 [如何在 Safari 中对广告追踪器](https://lifehacker.com/how-to-hide-your-browsing-history-from-ad-trackers-with-1847553318?rev=1629901758027) 隐藏你的浏览历史，这很棒，但许多人一直犹豫使用 Safari 的一个原因是仅仅是因为与其他浏览器相比看起来有点无聊 c 。但是苹果试图在 [iOS 15](https://lifehacker.com/the-10-coolest-ios-15-features-announced-at-wwdc-2021-1847048865) 和 iPadOS 15 中改变。现在，您将拥有一个带有可定制背景的模块化起始页，您应该会从中获得一些乐趣。
 
-Watch
+
 
 但是默认情况下，Safari 会在这里显示很多东西。你可以看到你的收藏夹、阅读列表和隐私报告，更不用说烦人的“与你共享”部分，它填充了在“信息”应用程序中共享的链接。幸运的是，您可以添加、删除和重新排序任何您想要的模块。
 

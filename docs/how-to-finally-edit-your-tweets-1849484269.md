@@ -4,7 +4,7 @@
 
 只要有推特，就有需要第二次机会的推特。多年来，Twitter 用户一直恳求公司实现编辑功能，但 Twitter 很少对其平台进行彻底的改变——除了一些明显的例外，包括 280 个字符的限制和选择谁可以回复你的推文。无论有多少用户抱怨，Twitter 从未改变，直到现在。似乎在 15 年的博客直播我们的每一个想法之后，编辑按钮终于成为了现实。
 
-Watch
+
 
 Twitter [周四早上在一条不经意的推文](https://twitter.com/Twitter/status/1565318587736285184?ref_src=twsrc%5Etfw%7Ctwcamp%5Etweetembed%7Ctwterm%5E1565318587736285184%7Ctwgr%5E2376c6985f552b05ac3d8879279a850f34a26988%7Ctwcon%5Es1_c10&ref_url=https%3A%2F%2Fkinja.com%2Fembed%2Finset%2Fiframe%3Fautosize%3D1id%3Dtwitter-1565318587736285184) 里掉了这条消息，好像什么都没有。“哦，*这个*？哈，这真的只是老推特总部的又一个星期四。“如果 Twitter 发现了一些重要的东西，比如火星上的生命或癌症的治疗方法，我希望新闻会像这样发布。
 

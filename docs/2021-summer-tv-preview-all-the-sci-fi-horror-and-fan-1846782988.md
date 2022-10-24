@@ -4,7 +4,7 @@
 
 电视仍在恢复正常播放的过程中，正从与 covid 相关的延迟中恢复过来。该剧仍需要在 2021 年首次亮相，尽管一些新赛季、中断回归和首次亮相需要更多的时间才能播出，但仍有大量新鲜的夏季电视节目在路上。
 
-Watch
+
 
 这个列表是对过去的一次冲击，因为我们列出了 2021 年的节目，但如果你正在寻找 2022 年要看的节目，你可以在这里找到 [链接。](https://gizmodo.com/summer-tv-stranger-things-the-boys-obi-wan-kenobi-ms-m-1848901697) 我们之前发布了一份庞大的 2021 年夏季电影预告 (现在我们也有一份[2022 年夏季](https://gizmodo.com/2022-summer-movies-marvel-disney-pixar-netflix-jurassic-1848892805) )，你也可以看看 2022 年 8 月 [，](https://gizmodo.com/best-streaming-movies-august-2022-sci-fi-fantasy-horror-1849355614) 会上映什么，所以一定要去看看。2021 年夏天的电视选择没有那么多，但这并不意味着你会缺少娱乐选择。
 

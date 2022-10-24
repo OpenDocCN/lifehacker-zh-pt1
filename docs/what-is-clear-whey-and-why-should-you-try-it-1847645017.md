@@ -4,7 +4,7 @@
 
 尽管有很多不同种类的蛋白粉，我还是更喜欢原味乳清。它的奶油味道和质地不仅是制作 [奶昔](https://lifehacker.com/when-do-you-actually-need-protein-shakes-1846113197) 的绝佳选择，也是制作其他乳制品主题餐的绝佳选择，比如 [酸奶冻糕](https://lifehacker.com/mix-protein-powder-into-your-yogurt-1846042865) 。但另一种伟大的蛋白粉终于赢得了我的心，这是一个奇怪的:清澈的乳清。
 
-Watch
+
 
 只是听起来像:乳清蛋白粉，溶于水就清澈了。结果是它尝起来更像柠檬水或果汁，而不是奶昔。它几乎完全是水果口味，可能会让你想起能量饮料，而不是奶昔。这是因为 [使乳清澄清的化学物质](https://blog.milkspecialties.com/formulating-clear-protein) 要求它处于酸性溶液中——而酸和水果味很好地搭配。
 

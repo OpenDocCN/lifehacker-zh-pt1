@@ -4,7 +4,7 @@
 
 如果你正在摇动台式电脑中的 AMD 组件，花点时间确保你的 CPU 不会无意中超频。最近 AMD 显卡驱动程序更新中的一个 bug 会自动触发 AMD CPUs 上的“自动超频”选项，即使用户没有明确打开它。
 
-Watch
+
 
 AMD 在给 [Tom 的硬件](https://www.tomshardware.com/news/amd-confirms-its-gpu-drivers-are-overclocking-cpus-without-asking) 的声明中确认了这个 bug，但是到目前为止还没有官方的修复发布，尽管 [很多 AMD 用户都在经历这个问题](https://old.reddit.com/r/Amd/comments/tx1zse/amd_confirms_its_gpu_drivers_are_overclocking/) 。这使得任何拥有 AMD CPU 和 GPU 的人都面临不必要的超频风险。(注意，这只适用于使用 AMD CPU *和* GPU 的用户。配备英特尔 CPU 和 AMD GPU 或 AMD CPU 和 Nvidia GPU 的平台没有风险。)
 

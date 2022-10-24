@@ -4,7 +4,7 @@
 
 如果花生酱是你厨房和餐具室的主要食品，检查一下它的品牌和标签，看看它是否是 Skippy Foods，LLC 发布的自愿召回的一部分。根据公司发布的消息——该消息也发布在 [美国美国食品药品监督管理局(FDA)网站](https://www.fda.gov/safety/recalls-market-withdrawals-safety-alerts/voluntary-class-ii-recall-announced-limited-number-jars-skippyr-reduced-fat-creamy-peanut-butter) 上——产品被召回是因为它们可能已经被小金属片污染。(厚花生酱不应该是这样工作的。)下面是要知道的。
 
-Watch
+
 
 ## 为什么会有花生酱召回？
 

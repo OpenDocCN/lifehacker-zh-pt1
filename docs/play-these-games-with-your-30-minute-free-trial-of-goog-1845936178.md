@@ -4,7 +4,7 @@
 
 谷歌现在让你测试 Stadia Pro 30 分钟，不需要支付信息。时间不多，但能看到你是否喜欢流媒体服务，而不必担心取消免费试用版，否则会自动转换为付费的订阅，这很棒。但是在如此有限的时间内检查服务，你应该玩什么？
 
-Watch
+
 
 在我们开始之前，要知道谷歌 Stadia 的“微小试用”不同于它提供的免费版本 [*【命运 2】*](https://lifehacker.com/try-cloud-gaming-with-stadias-free-to-play-destiny-2-1845719433)和*超级炸弹人在线 R* ，以及 Stadia Pro 典型的 30 天试用。这两个都需要一个有效的 Stadia 帐户和你的信用卡信息——即使你不打算购买任何东西——这可能会让一些人感到不安，如果他们只是想看看 Stadia 在他们的设备或 [家庭网络](https://lifehacker.com/how-well-does-google-stadia-work-we-did-a-speed-test-1839870376) 上是否能正常工作。
 

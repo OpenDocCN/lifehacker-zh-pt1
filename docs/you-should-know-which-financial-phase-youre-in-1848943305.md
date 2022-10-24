@@ -4,7 +4,7 @@
 
 你可能经历过每月或每年预算和支出的波动(或每周一次； [嘿，膨胀](https://lifehacker.com/how-to-see-through-inflation-prices-1848793300) )。有时看起来你似乎只是在拼命坚持。但是如果你从长远和宏观的角度考虑你的财务状况，有一个总的结构可以帮助你按照你的目标去挣钱、存钱和消费。
 
-Watch
+
 
 那么理财规划 的 [阶段是什么，为什么需要了解它们呢？](https://www.kiplinger.com/personal-finance/604519/which-of-the-3-financial-phases-are-you-in) 
 

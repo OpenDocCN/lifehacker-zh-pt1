@@ -4,7 +4,7 @@
 
 透明模式是苹果 AirPods Pro 最好的功能之一。通过混合使用内部和外部麦克风，您可以通过耳塞听音乐，而不会完全隔绝周围的世界。但并非所有的耳朵都生来平等，有些人可能希望让更多的声音通过——这就是为什么苹果允许你定制 AirPods Pros 的透明模式，无论是放大所有声音还是让它们专注于某些频率。这只是你应该使用 的许多有用的 AirPods Pro 功能之一，我们会告诉你如何做。
 
-Watch
+
 
 这是 AirPods Pro 的另一个 [简洁的辅助功能，针对听力损失的人。即使这并不能描述你，但尝试这些设置并根据你的喜好调整 AirPods Pro 的透明模式也是一个好主意。](https://lifehacker.com/how-to-enable-noise-cancellation-when-you-re-wearing-a-1847492028)
 

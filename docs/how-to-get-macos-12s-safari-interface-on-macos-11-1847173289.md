@@ -4,7 +4,7 @@
 
 作为今年晚些时候即将发布的 macOS 12 Monterey 更新的一部分，苹果的 Safari 浏览器将进行视觉上的彻底改革，这里有几种方法可以在 macOS 12 更新之前试用新浏览器，包括现在在 macOS 11 上使用的方法。
 
-Watch
+
 
 ## macOS 12 的 Safari 会有什么变化？
 

@@ -4,7 +4,7 @@
 
 当我在大学的时候，我喜欢上了烘焙，把它作为一种减轻压力的方式，这种压力来自于我不喜欢的课程，我的目标是找到一份我并不真正想要的工作。有一年圣诞节，我爸送我奈杰尔·劳森的 [*如何做国内女神*](https://www.nigella.com/books/how-to-be-a-domestic-goddess) ，我舍友包了一本肯·海德里奇的 [*派*](https://www.amazon.com/Pie-Tried-True-Delicious-Homemade/dp/155832254X?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/theres-no-shame-in-a-cookie-crumb-crust-1848222599&asc_source=&tag=kinjalifehackerlink-20) 。我不再那么经常烘焙了——这和我在学校必须上的合成化学实验室太相似了——但是如果被迫的话，我可以烘焙，这要感谢劳森和海德里希。
 
-Watch
+
 
 我还在纠结馅饼，多半是因为不耐烦。糕点不能仓促做成(虽然它可以是 [流线型](https://lifehacker.com/do-you-really-need-to-chill-your-pie-dough-1848111393) )，这就是为什么我总是被碎饼干做成的面包皮所吸引。
 

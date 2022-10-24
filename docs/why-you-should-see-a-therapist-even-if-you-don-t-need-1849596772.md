@@ -4,7 +4,7 @@
 
 虽然围绕心理健康和治疗的 [污名正在消退](https://jamanetwork.com/journals/jamanetworkopen/fullarticle/2787280) ，但它仍然存在。许多人认为 [疗法](https://lifehacker.com/the-different-types-of-therapy-and-how-they-work-1847279080) 是只有当你积极地与自己的心理健康作斗争时才会求助的东西，或者是只有软弱和不成功的人才会使用的东西。对于那些因为这样或那样的原因去接受治疗的人来说，最令人惊讶的副作用之一是突然发现在他们的个人和职业圈子里有多少人也在接受治疗，并且已经接受了很多年。在这一点上，这几乎是一个笑话:每个人都在接受治疗，每个人都以接受治疗为耻。
 
-Watch
+
 
 这里有[越来越多的](https://lifehacker.com/advisor/online-therapy/most-affordable-online-therapy/) 在线治疗平台和提供者方面的便利选择——当你生活在一个你甚至不必离开你的房子去从事自我护理的时代，你几乎没有借口不至少考虑一下治疗的好处。这就是为什么你应该去看治疗师，即使你认为你没有任何精神或情感上的需要。
 

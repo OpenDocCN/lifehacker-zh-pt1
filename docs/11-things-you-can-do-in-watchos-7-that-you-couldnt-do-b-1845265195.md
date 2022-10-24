@@ -4,7 +4,7 @@
 
 苹果针对苹果手表的 [wa tchOS 7](https://gizmodo.com/watchos-7-is-the-dystopian-software-upgrade-i-didnt-kno-1844500201) 升级刚刚推出，这不仅意味着最近推出的 [Apple Watch 系列 6](https://gizmodo.com/the-best-smartwatch-you-can-buy-is-also-an-underwhelmin-1845203547) 的全新更新操作系统，还意味着苹果智能手表的新功能可以追溯到 2017 年的 Apple Watch 系列 3。安装无线更新后，您可以充分利用这些新功能。
 
-Watch
+
 
 * * *
 

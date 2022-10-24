@@ -4,7 +4,7 @@
 
 听着，如果咖啡是给你带来真正快乐的日常小习惯之一，我们不是来告诉你削减开支或少花钱的。花在牛油果吐司和拿铁上的钱会阻碍你成为百万富翁的陈词滥调 [过于简单，嗯，愚蠢的](https://www.marketplace.org/2020/08/14/now-that-millennials-arent-buying-avocado-toast-and-lattes-can-they-afford-a-home) 。所以，喝你喜欢的，为你买得起的“最好的”咖啡买单。
 
-Watch
+
 
 但是如果你想在喝咖啡的习惯上省下一两块钱，这里有一些方法可以保持高质量和低成本。
 

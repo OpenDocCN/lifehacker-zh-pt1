@@ -4,7 +4,7 @@
 
 在过去的七个月里，旅行奖励信用卡持卡人不得不做出一些艰难的决定。随着旅行机会的减少，你可能会考虑取消你的奖励信用卡 ，尤其是如果年费很高的话。您可能也想到了用 [兑换积分和里程](https://twocents.lifehacker.com/should-you-travel-using-points-cash-or-both-1845075491) 的最佳方式。
 
-Watch
+
 
 5 月，Chase [为 Chase Sapphire Reserve 和 Chase Sapphire Preferred 持卡人提供了另一种兑换选择](https://media.chase.com/news/pay-yourself-back-feature-new-options-to-redeem-ultimate-rewards) :在 9 月 30 日之前，杂货店、家装店和餐饮(餐厅、外卖和送货应用)有机会获得 25%至 50%的现金返还。
 

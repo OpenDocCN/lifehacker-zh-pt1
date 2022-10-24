@@ -4,7 +4,7 @@
 
 如果你还不知道，今天是全国炸鸡日，一些连锁餐厅在他们的炸鸡菜单上提供折扣和赠品。考虑到在一场激烈的" [鸡肉三明治大战](https://www.restaurantbusinessonline.com/food/brief-history-chicken-sandwich-wars) 中存在鸡肉短缺，“不清楚美国人是否需要*更多的*奖励来吃鸡肉，但是嘿——一言为定。
 
-Watch
+
 
 ## 在哪里可以买到免费又便宜的全国炸鸡日的鸡肉
 

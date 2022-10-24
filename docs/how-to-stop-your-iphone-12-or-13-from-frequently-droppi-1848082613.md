@@ -4,7 +4,7 @@
 
 如果您的 iPhone 无法停止掉线，则很难进行故障诊断。毕竟，你不能再仅仅是 [切换到 Cingular Wireless](https://www.youtube.com/watch?v=sR4i2uJdvZE) 了，而没有掉话最少的网络支持，你该怎么办？然而，如果您的问题与 iPhone 12 或 iPhone 13 有关，有一个新的修复方法可以帮助您。
 
-Watch
+
 
 苹果在 11 月 17 日周三推出了新的更新。现在，如果你正在使用 iPhone 11 或更早的版本，你可能甚至不知道这个更新的存在。同时，如果你不关注 iPhone 的更新，不管你有哪部 iPhone，你可能也不知道它。
 

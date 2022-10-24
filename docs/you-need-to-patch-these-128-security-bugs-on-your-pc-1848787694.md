@@ -4,7 +4,7 @@
 
 网络安全经常出现在新闻中，这是有充分理由的。坏人总是在寻找软件中的漏洞，以利用这些漏洞谋取私利:你运行 Windows 和各种应用程序的个人电脑处于十字路口，所以当微软像本月一样发布修补安全缺陷和漏洞的更新时，你应该尽快安装它们。
 
-Watch
+
 
 这些来自微软 [的最新安全更新修补了惊人的 128 个安全漏洞](https://thehackernews.com/2022/04/microsoft-issues-patches-for-2-windows.html) ，不仅仅是 Windows，还有其他程序，包括 Office、Skype for Business、Edge、Defender、Exchange Server 等等。虽然漏洞的数量令人担忧，但更令人*担忧的是本次更新修补的两个零日漏洞，包括一个被主动利用的漏洞。*
 

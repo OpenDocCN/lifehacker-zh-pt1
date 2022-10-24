@@ -4,7 +4,7 @@
 
 本周，美国顶级猫头鹰主题休闲餐饮连锁店之一 Hooters 公布了其食品服务员的新制服政策。令人惊讶的是，新制服的特色甚至是更暴露的短裤。
 
-Watch
+
 
 愤怒的猫头鹰 [服务器](https://www.tiktok.com/@sick.abt.it/video/7018428182353284358?_d=secCgYIASAHKAESPgo8jaLSoUNHqwQuYH/Xhr7NcdaeYQ8kl6o+IJrzVzkE9Yrs/SP6rjOuCjOZ5MK3xUXqRhbDIl6/q77v5simGgA=&amp;checksum=487573acc85760a254e825776d898e9b0f40a441b210c01e23c01f8795d6eacc&amp;language=en&amp;preview_pb=0&amp;sec_user_id=MS4wLjABAAAAprfwLfUHv5DmasPiA5_5ohWL5A5f7ZL1ZB9DdktbfMwo1kYyw9-Anso6gexpbpYV&amp;share_app_id=1233&amp;share_item_id=7017990142585588998&amp;share_link_id=1BBD03A1-3B55-45F7-BB16-A2CB9750E90F&amp;source=h5_m&amp;timestamp=1634344228&amp;tt_from=copy&amp;u_code=db43hde2adbjgl&amp;user_id=6797500778161423365&amp;utm_campaign=client_share&amp;utm_medium=ios&amp;utm_source=copy&amp;_r=1&is_copy_url=1&is_from_webapp=v1) 走上 [抖音公开谴责新制服](https://www.tiktok.com/@ggnguyen/video/7016712553254374661?referer_url=https://www.nbcnews.com/&referer_video_id=7016712553254374661&refer=embed&is_copy_url=1&is_from_webapp=v1) ( [虽然有些报道称新装备](https://www.tiktok.com/@jazzzzzzzzzz.y/video/7019007874068155653?is_from_webapp=v1&q=hooters%20new%20shorts&t=1634393444964) 能赚更多钱)，指出它们基本上就像内衣，有点恶心。在数百万抖音人的关注和媒体的小骚动之后，猫头鹰餐厅改变了方向。
 

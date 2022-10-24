@@ -4,7 +4,7 @@
 
 欢迎来到 Burning Questions，在这个系列节目中，地球人回答了关于如何应对气候变化的最常见的问题。许多人想做一些事情，任何事情来帮助解决气候危机。我们回答您关于如何帮助改变您的生活的问题，以及将拯救我们的系统。查看我们的过去 [*燃题这里*](https://gizmodo.com/earther/earther-originals/burning-questions) *。*
 
-Watch
+
 
 坦率地说，这个夏天糟透了。剧烈的， [气候驱动的](https://gizmodo.com/satellite-images-reveal-greece-s-hell-on-earth-1847480916) [灾害](https://gizmodo.com/a-stifling-new-heat-wave-is-baking-the-u-s-1847372144) 遍布全球的 [死亡数百人](https://gizmodo.com/the-worst-european-floods-in-100-years-have-left-120-de-1847306704) 造成数十亿的损失似乎每周都有。上个月发布的政府间气候变化专门委员会报告敲响了迄今为止气候问题上最黯淡的警钟之一。就在本周，从路易斯安那州的到 T21 的人们的生活被艾达飓风颠覆了。越来越多的人意识到他们后院的气候危机，并以前所未有的方式感受到它的全部和可怕的重量。 
 

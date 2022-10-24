@@ -4,7 +4,7 @@
 
 苹果今天早些时候举行了一场简短而甜蜜的 iPhone 12 活动 ，涵盖了五款即将发布的设备:iPhone 12、iPhone 12 Pro、iPhone 12 Mini、iPhone 12 Pro Max 和新款 HomePod Mini。如果你错过了直播，我们有一个单独的帖子来详细介绍每个新设备的硬件规格。然而，在本帖中，我们将向您展示何时何地可以预订 iPhone 12、iPhone 12 Pro 和 HomePod Mini，以及它们何时可以在商店货架上销售。
 
-Watch
+
 
 ### iPhone 12、iPhone 12 Mini、iPhone 12 Pro 和 iPhone 12 Pro Max
 

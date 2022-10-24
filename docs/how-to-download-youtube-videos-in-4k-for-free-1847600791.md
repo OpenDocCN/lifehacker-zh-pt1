@@ -4,7 +4,7 @@
 
 我们正在迅速进入以 4K 为标准分辨率的时代，每天都有新的 4K 内容在 YouTube 上 [发布。不幸的是，你不能使用 YouTube 的标准选项以全分辨率离线观看这些视频。](https://lifehacker.com/how-to-find-hdr-content-on-youtube-1829374364) 
 
-Watch
+
 
 Youtube 高级会员(12 美元/月)可以 [保存视频和音乐，以便在手机上离线播放](https://lifehacker.com/how-to-download-youtube-videos-on-your-phone-1847317812) ，但最高分辨率为 1080p。YouTube 创作者可以下载他们上传的视频的 MP4 版本，但分辨率只能是 720p，最高。
 

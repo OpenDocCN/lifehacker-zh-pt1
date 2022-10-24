@@ -4,7 +4,7 @@
 
 说到更新，尤其是苹果的更新，我通常会说尽快安装。毕竟，这些更新通常要经过几周，甚至几个月的测试，有足够的时间来发现和清除大的错误。然而，即使有好玩的新功能 [像万能控制](https://lifehacker.com/how-to-enable-universal-control-between-your-mac-and-1848665891) ，你也要被警告关于 macOS 12.3。根据它的修复历史，安装这个最新的更新可能会损坏你的 Mac。
 
-Watch
+
 
 ## 对于大多数 MAC 电脑来说，macOS 12.3 是一个安全的更新
 

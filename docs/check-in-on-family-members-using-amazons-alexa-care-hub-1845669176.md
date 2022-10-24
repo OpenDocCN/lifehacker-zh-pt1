@@ -4,7 +4,7 @@
 
 Alexa 的 [护理中心](https://www.aboutamazon.com/news/devices/alexa-can-now-help-make-the-remote-caregiving-experience-easier) 现已上线，让的老年人和有特殊需求的用户可以通过 Echo 设备更好地接触到他们的家人和护理人员。通过 Care Hub，这些用户可以直接向 Alexa 寻求帮助——这将触发设备通知连接的家庭成员——或者他们的家庭成员可以使用它来虚拟地查看亲人，了解他们上次使用 Echo 设备做某事的大致时间。
 
-Watch
+
 
 ### 如何建立保健中心
 

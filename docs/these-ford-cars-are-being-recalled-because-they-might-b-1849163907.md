@@ -4,7 +4,7 @@
 
 福特汽车公司宣布，由于火灾风险，它将再次发布召回公告——这一次，超过 10 万辆混合动力卡车和 SUV， [路透社报道](https://www.reuters.com/business/autos-transportation/ford-issues-new-fire-risk-recall-expands-earlier-call-back-2022-07-08/) 。就在不到一个月前，汽车制造商召回了大约 300 万辆汽车，因为它们有可能会失控。
 
-Watch
+
 
 以下是关于福特最新问题需要了解的内容，以及如果你有一辆车被召回，该怎么做。
 

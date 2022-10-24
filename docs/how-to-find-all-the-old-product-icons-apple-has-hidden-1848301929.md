@@ -4,7 +4,7 @@
 
 作为一个终身 Mac 用户，我总是喜欢了解我的电脑的一些隐藏功能， [，比如改变鼠标光标颜色的能力](https://lifehacker.com/12-hidden-features-in-macos-monterey-worth-finding-1847972748/slides/5) 。所以你可以想象我偶然发现 [这个 Reddit 帖子](https://www.reddit.com/r/mac/comments/rvgtn1/today_i_learned_that_within_macos_monterey_almost/?utm_source=share&utm_medium=web2x&context=3) 时的喜悦，其中用户 OOF_V2 分享了一个隐藏在 m acOS 中的苹果产品图标宝藏。
 
-Watch
+
 
 在所有苹果电脑的系统文件夹中，你会发现自 2000 年以来苹果生产和销售的几乎每一台机器的图标。这包括 IMAC、MacBooks、Mac Pros、Mac minis，甚至 Mac 服务器(我个人最喜欢的是 eMac，如果有人还记得那台笨重的电脑的话)。你还会发现许多 iPhones，甚至一些 iPod touches。
 

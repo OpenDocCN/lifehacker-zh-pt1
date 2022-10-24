@@ -4,7 +4,7 @@
 
 本周，我们将在内科医生和《大西洋月刊》特约撰稿人詹姆斯·汉布林的帮助下，学习如何更好地护理我们的皮肤。收听詹姆斯向爱丽丝和乔丹解释为什么少洗实际上可能对你的皮肤更好，护肤品牌如何欺骗我们，以及围绕皮肤微生物群的新兴科学。
 
-Watch
+
 
 詹姆斯是《如果我们的身体会说话:操作和维护人体指南 的作者，他的最新著作是 [*清洁:皮肤的新科学*](https://www.amazon.com/Clean-Science-Skin-James-Hamblin/dp/0525538313/ref=pd_lpo_14_img_0/146-0251147-5511655?_encoding=UTF8&asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-take-care-of-your-skin-microbiome-with-physicia-1845551403&asc_source=&pd_rd_i=0525538313&pd_rd_r=a1af8a2d-cc0f-49eb-b46a-2b2bc4bd567f&pd_rd_w=1cb7g&pd_rd_wg=Gwelm&pf_rd_p=7b36d496-f366-4631-94d3-61b87b52511b&pf_rd_r=B5P1V2HF7WE0PNMA3GBG&psc=1&refRID=B5P1V2HF7WE0PNMA3GBG&tag=kinjalifehackerlink-20) 。
 

@@ -4,7 +4,7 @@
 
 今年，我成功地避免了所有黑色星期五/网络星期一的事情，除了在一台冷煮咖啡机上的小小挥霍。如果你想以一种更大的方式提升你的生活——以一部新手机的形式——你应该知道你现在可以以最低的价格买到三星的旗舰 Galaxy S20 Android(S20 和 S20+)。为了不被超越，苹果粉丝也可以在翻新的 iPhones 上获得一些相当大的节省。
 
-Watch
+
 
 我们先从**三星**说起。前往亚马逊，在那里你会发现银河 S20 仅售 750 美元。更大的星系 S20+花$ [900](https://smile.amazon.com/dp/B082XXZ5K3/ref=as_li_ss_tl?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-score-great-deals-on-samsung-androids-and-refurb-1845775337&asc_source=&ie=UTF8&language=en_US&linkCode=sl1&linkId=3ae978576f932bc5d8f0ee306fc1fa0b&sa-no-redirect=1&tag=kinjalifehackerlink-20) 就能拥有。快速浏览一下亚马逊价格追踪网站 camelcamelcamel，可以证实这些确实是亚马逊对 [Galaxy S20](https://camelcamelcamel.com/product/B082XY23D5) 和 [Galaxy S20+](https://camelcamelcamel.com/product/B082XXZ5K3) 的最低报价。这些价格是两款手机的基本款(128GB)，S20 可以选择云蓝色和宇宙灰色；或者 S20+的云蓝色、宇宙灰色或宇宙黑色。
 

@@ -4,7 +4,7 @@
 
 一份 [最近的 LendingTree 报告](https://www.lendingtree.com/credit-cards/study/cardholders-ask-get-better-terms-from-credit-cards/) 建议这是一个合适的时机，要求你的信用卡贷款 er 降低你的利率，取消滞纳金，或免除年费，注意到这种请求的成功率已经超过 80%。你所要做的就是拿起电话问——不知道该说什么也会有所帮助。当你打电话时，有一些提示要记住。
 
-Watch
+
 
 ### **试试总没坏处**
 

@@ -4,7 +4,7 @@
 
 COVID 疫苗 [终于被授权并推荐给 6 个月大](https://lifehacker.com/when-kids-under-5-can-finally-get-their-covid-vaccines-1849070799) 的儿童，全国各地的小孩终于可以接种疫苗了。但是具体在哪里呢？这一轮疫苗接种比你为自己或你的大孩子所做的更难安排。
 
-Watch
+
 
 ## 在药房接种 COVID 疫苗的最小年龄是多少？
 

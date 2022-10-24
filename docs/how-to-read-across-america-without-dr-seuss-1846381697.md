@@ -4,7 +4,7 @@
 
 今天是 [全美阅读日](https://www.nea.org/professional-excellence/student-engagement/read-across-america) ，这意味着全国数百万学生将在今天(甚至整个星期)以苏斯博士为主题的活动来庆祝。1998 年，美国国家教育协会(National Education Association)创立了这一天，以纪念苏斯博士的生日，但这一天不再与这位著名的儿童书籍作者有官方联系，但学校仍经常将这一节日与一位在他的一些经典书籍中使用种族主义意象的作者联系起来。
 
-Watch
+
 
 家长和教育工作者越来越意识到——并大声疾呼——西奥多·苏斯·盖泽尔著名的儿童书籍中，以及他所描绘的政治漫画、漫画和广告中的一些人物的种族主义描述，这在 2019 年的一项研究中有详细说明， [*关于青年文学多样性的研究*](https://sophia.stkate.edu/cgi/viewcontent.cgi?article=1050&context=rdyl) *。*正如迪阿纳·詹金斯和杰西卡·雅莫斯基当时为 [NPR](https://www.npr.org/sections/codeswitch/2019/02/26/695966537/classic-books-are-full-of-problems-why-cant-we-put-them-down) 所写的:
 

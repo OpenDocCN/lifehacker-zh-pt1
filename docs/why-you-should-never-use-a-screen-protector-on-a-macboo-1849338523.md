@@ -4,7 +4,7 @@
 
 乍一看，给你闪亮的新 MacBook 装上屏幕保护器似乎很诱人。毕竟，我们中的许多人在闪亮的新 iPhones 上安装了屏幕保护器，以保护这些昂贵的显示屏。你可能会认为同样的理念也适用于你的 MacBook 的屏幕，它的 [可能比你的 iPhone 显示屏修复](https://www.macscreenrepair.com/macbook-air-screen-repair-cost/) 的成本更高。但事实并非如此。
 
-Watch
+
 
 ## MacBook 显示器不同于 iPhone 显示器
 

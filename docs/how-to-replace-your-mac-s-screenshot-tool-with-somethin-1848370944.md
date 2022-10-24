@@ -4,7 +4,7 @@
 
 你的 [Mac 的标准截图工具](https://lifehacker.com/how-to-take-prettier-screenshots-on-a-mac-1828009545) 包含了大多数人捕捉屏幕上显示的图像所需的基本功能，但它还可以更好。它不允许你拍摄 [滚动截图](https://lifehacker.com/5-ways-to-take-long-screenshots-on-your-iphone-1847376761) (你捕捉整个网页的长截图)，其他工具——包括下面讨论的两个——更好地绕过一些网站阻止你截图的尝试。(最近尝试通过 Safari 截图网飞？祝你好运。)
 
-Watch
+
 
 ## 浅盐湖
 

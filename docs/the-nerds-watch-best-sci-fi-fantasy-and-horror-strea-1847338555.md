@@ -4,7 +4,7 @@
 
 虽然许多电影院已经恢复了全部功能，但更安全的娱乐选择仍然是流媒体，选择呆在家里享受的粉丝们不断获得大量新内容。在每月 的 [月初，大部分流媒体——网飞](https://gizmodo.com/the-nerds-watch-best-sci-fi-fantasy-and-horror-strea-1847153622)[【Hulu】【亚马逊】【迪士尼+】和](https://io9.gizmodo.com/5-international-fantasy-shows-to-check-out-on-netflix-1844727449)[HBO Max](https://io9.gizmodo.com/10-sci-fi-and-fantasy-deep-cuts-on-hbo-max-1846260338)——做一点洗牌，增加新电影，拿走一些。io9 是来帮你缩小决策范围的。
 
-Watch
+
 
 欢迎来到 T he Nerd's Watch，我们的每月专栏，在这里我们策划了最有趣的 [【科幻】](https://io9.gizmodo.com/the-best-sci-fi-fantasy-or-horror-movies-io9-rewatche-1845793415) ，以及 [恐怖电影](https://io9.gizmodo.com/the-10-scariest-g-rated-movies-1845392685) (以及电视节目)即将来到最大的流媒体服务。2021 年 8 月有许多新内容，让我们开始吧。
 

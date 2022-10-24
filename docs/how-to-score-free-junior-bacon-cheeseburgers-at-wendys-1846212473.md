@@ -4,7 +4,7 @@
 
 昨天我们告诉你周五在麦当劳 免费赠送 [中号薯条(至少购买 1 美元)。今天，我们又回到了另一项快餐交易——这一次是由每个人都喜欢的马尾姜提供的。从现在起到 2 月 21 日，只要你在温蒂汉堡店](https://lifehacker.com/gorge-yourself-on-mcdonalds-fries-every-friday-from-no-1846204322) 购物，就可以免费获得一份 [初级培根芝士汉堡。以下是你需要知道的。](https://www.wendys.com/offers-coupons)
 
-Watch
+
 
 ### 如何在这个月获得免费的初级培根芝士汉堡
 

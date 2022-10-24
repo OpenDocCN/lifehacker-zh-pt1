@@ -4,7 +4,7 @@
 
 美国宠物主人 [平均每年在宠物医疗费用上花费数百美元](https://www.investopedia.com/articles/pf/06/peteconomics.asp#basic-pet-care-costs) 。如果你是他们中的一员，你可能想知道你的兽医账单是由你的灵活支出账户(FSA)还是你的健康储蓄账户(HSA)支付。简短的回答是否定的——但也有一些例外。
 
-Watch
+
 
 ### **情感支持或服务动物可以获得资格**
 

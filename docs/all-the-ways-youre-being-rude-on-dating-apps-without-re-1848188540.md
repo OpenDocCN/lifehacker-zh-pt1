@@ -4,7 +4,7 @@
 
 在 [内，每一个交友 app](https://lifehacker.com/13-of-the-best-dating-apps-to-find-love-or-mess-around-1848181275) 的直接消息都是一场精致的舞蹈。你想表现得更主动，但又不显得太强势。你想在不失去某人兴趣的情况下保持冷静。你想在不吓跑别人的情况下调情。
 
-Watch
+
 
 如果你甚至远程在线，你已经看到了人们搞糟这个舞蹈的截图。有“揶揄”这种简单的冒犯，直接从 1995 年开始，当然还有“ [因塞尔行为](https://www.newsweek.com/woman-bumble-dating-app-messages-rude-man-incel-1594236) ”
 

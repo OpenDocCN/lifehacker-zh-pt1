@@ -4,7 +4,7 @@
 
 作为一名马拉松运动员，我知道将身体推向极限是什么感觉。我知道当你感觉身体强壮时，你会渴望多跑一英里，或者在一场大赛前挤出最后一次长跑。我也知道勉强避免因为加油和恢复不足而导致严重的倦怠和受伤是什么感觉。
 
-Watch
+
 
 如果你是任何类型的运动员，你可能都见过“过度训练”的警告一些跑步者忽略了过度 [的迹象，直到他们的身体关闭以示抗议](https://www.buzzfeednews.com/article/briannasacks/overtraining-syndrome-burnout-rest) 。虽然你很难在举重房找到我，Lifehacker 的高级健康编辑 [Beth Skwarecki](https://lifehacker.com/author/bethskwhttps://lifehacker.com/author/bethskw) 指出，许多去健身房的人会说这样的话，“你不能连续两天进行力量训练，否则你会过度训练。”过度训练和一般的疲劳有什么不同？
 

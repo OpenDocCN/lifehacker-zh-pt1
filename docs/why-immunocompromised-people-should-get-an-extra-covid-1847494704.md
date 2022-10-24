@@ -4,7 +4,7 @@
 
 如果你有中度到重度免疫缺陷——包括如果你做过器官移植或如果你正在接受癌症治疗—[CDC 现在建议](https://www.cdc.gov/coronavirus/2019-ncov/vaccines/recommendations/immuno.html) 你接受额外剂量的新冠肺炎疫苗。
 
-Watch
+
 
 ## 这适用于谁？
 

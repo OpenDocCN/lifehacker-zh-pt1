@@ -4,7 +4,7 @@
 
 Clubhouse 肯定有所发现，因为其他所有社交媒体平台都推出了自己的实时语音聊天版本。Twitter、Discord、脸书、LinkedIn、Spotify 和 Telegram 都在开发类似的功能，但最新加入这一趋势的公司是 Reddit，它最近宣布了“Reddit Talks”
 
-Watch
+
 
 Reddit Talks 将允许 subreddits 举行现场音频讨论，对社区中的每个人开放。在早期测试阶段，只有 subreddit 的版主可以主持讲座，但任何 Android 或 iOS 用户都可以旁听。主持人可以在一次演讲中为其他听众分配演讲权限，而“受信任的社区成员”将来将能够主持他们自己的演讲。
 

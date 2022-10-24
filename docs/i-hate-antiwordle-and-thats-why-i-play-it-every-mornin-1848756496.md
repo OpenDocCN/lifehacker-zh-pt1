@@ -4,7 +4,7 @@
 
 在所有的单词变体中，只有几个让我印象深刻。我最经常玩的是原版 Wordle。多德尔和是日常事务中很好的补充。当我无聊的时候，较大的多单词很有趣，与运行 [Absurdle](https://lifehacker.com/try-this-game-if-youre-already-too-good-at-wordle-1848356298) 的 AI 斗智斗勇，把它逼到墙角，真的很满足。但是当我只想玩一个能让我对着手机破口大骂的小游戏时，没有比 [Antiwordle](https://www.antiwordle.com/) 更好的选择了。
 
-Watch
+
 
 我建议你在输掉一场正规的 wordle 游戏后，立即尝试 Antiwordle。在这里，失败是最重要的。你很会输？完美。
 

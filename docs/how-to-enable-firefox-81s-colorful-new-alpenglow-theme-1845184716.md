@@ -4,7 +4,7 @@
 
 Mozilla】为 [Firefox 引入了一个新的“朝霞”界面主题，作为其 81 版本更新](https://www.mozilla.org/en-US/firefox/81.0/releasenotes) 的一部分。与桌面用户可能熟悉的传统明暗主题不同，Alpenglow 为你的浏览器窗口添加了橙色和紫色，其色调会根据你桌面的系统级主题设置动态变化。
 
-Watch
+
 
 例如，如果你打开了 Windows 10 的 light 模式，Firefox 的标题将有一个多彩的橙色和紫色渐变，一个半透明的 URL 栏，和暗紫色的图标。
 

@@ -4,7 +4,7 @@
 
 [划手](https://lifehacker.com/how-to-do-intervals-on-a-rowing-machine-1838974151) 正在闹着玩。Hydrow 似乎在强行把自己插入我们的 Instagram feeds(或者那只是我的？)，甚至 Peloton 也在卖其中一款。我们或许可以将这些机器的无处不在归功于世界上的 Crossfit 盒子 ，因为赛艇运动员提供了一种残酷的锻炼，但当你不使用它们时，它们也会整齐地靠墙站着。那么赛艇运动员适合你吗？让我们来看看。
 
-Watch
+
 
 ## 划船不是力量训练
 

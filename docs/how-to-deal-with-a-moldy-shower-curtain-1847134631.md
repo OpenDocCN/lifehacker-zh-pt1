@@ -4,7 +4,7 @@
 
 不管你多久清洁一次瓷砖、固定装置和浴缸/淋浴，你可能仍然会发现自己在处理一个恼人的、反复出现的问题:浴帘上的霉菌。有一天你放入一个新的衬垫，似乎仅仅几天后霉菌就会重新出现。
 
-Watch
+
 
 那么为什么会发生这种情况，你能做些什么呢？霉菌修复专家迈克尔·鲁比诺在为 mindbodygreen 撰写的一篇文章中对其进行了分解 [。以下是需要了解的内容。](https://www.mindbodygreen.com/articles/shower-curtain-mold-prevention-and-treatment)
 

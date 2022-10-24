@@ -4,7 +4,7 @@
 
 在 Windows 中，并非所有用户都是平等的。在没有管理员访问权限的情况下，您可以使用电脑，但不允许您安装某些应用程序或执行命令，并且您通常被阻止完全控制电脑。但现在，你可以在任何 Windows 10 机器上授予自己系统权限，只需简单地通过 [插入 Razer 键盘或鼠标](https://www.bleepingcomputer.com/news/security/razer-bug-lets-you-become-a-windows-10-admin-by-plugging-in-a-mouse/) 。那似乎...不好。
 
-Watch
+
 
 通常，不同的“用户权限”对 Windows 来说是一件好事。它保护您的系统免受滥用这些特权的人的侵害，不管是恶意的还是无意的。当您拥有管理员(或系统)权限时，您可以完全控制 Windows，因此将该权限授予任何人都是危险的。
 

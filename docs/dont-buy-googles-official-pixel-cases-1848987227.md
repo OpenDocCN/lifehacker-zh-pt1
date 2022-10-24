@@ -4,7 +4,7 @@
 
 智能手机和手机套齐头并进。毕竟我们随身携带的这些袖珍电脑，价格昂贵，易碎；保护它们才有意义。像谷歌这样的智能手机制造商知道这一点，并制作他们自己的外壳，和他们的设备一起卖给你。然而，当谷歌问你在挑选新的 Pixel 手机时是否想要他们的一个外壳时，说不。
 
-Watch
+
 
 [据 The Verge](https://www.theverge.com/2022/5/24/23140038/pixel-6-pro-google-phone-case-yellowing-discoloration-stains-warping) 报道，围绕谷歌官方 Pixel 6 案件，Reddit 和亚马逊上都有数十条投诉，围绕三个似乎与这些案件重复出现的主要问题: [素材发黄](https://www.reddit.com/r/GooglePixel/comments/uww0tq/pixel_6_case_made_by_google_is_trash/?utm_source=share&utm_medium=web2x&context=3)；机箱 [不适合手机](https://www.amazon.com/Google-Pixel-Pro-Case-Shock-Absorbing/product-reviews/B09HLDKDHL/?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/dont-buy-googles-official-pixel-cases-1848987227&asc_source=&tag=kinjalifehackerlink-20)；而且，如果它们真的适合手机， [外壳本身是翘曲的](https://tinyurl.com/2p96jdj9) ，所以按钮周围的材料会突出来。有些人甚至指责手机壳划伤了他们的手机，这当然是你买手机壳来防止的。
 

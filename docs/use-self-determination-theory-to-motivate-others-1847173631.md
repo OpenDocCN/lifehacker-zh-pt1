@@ -4,7 +4,7 @@
 
 你可能知道有一个糟糕的老板是什么样的。你甚至可能 [知道做一个](https://lifehacker.com/how-to-ease-your-guilt-about-failing-upwards-1847150876) 是什么感觉。当然，在工作中(如果生活中) [没有人喜欢事无巨细的管理者](https://lifehacker.com/why-your-annoying-boss-micromanages-you-1790380406) ，但是一个不愿意实际领导团队或向直接下属汇报的老板也同样糟糕。
 
-Watch
+
 
 无论你是管理工作中的人，还是仅仅管理你的人际关系，你都不需要陷入这两个陷阱中的任何一个。你可以从心理学领域吸取一些经验，在自我决定理论的帮助下，创造一个环境，让那些指望你给予指导和支持的人茁壮成长。
 

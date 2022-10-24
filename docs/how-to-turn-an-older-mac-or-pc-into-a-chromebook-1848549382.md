@@ -4,7 +4,7 @@
 
 在你把运行缓慢的旧电脑带到电子垃圾处理场之前，试着安装一个 Chrome 操作系统，让它重新发挥作用。谷歌已经打开了 [Chrome OS Flex](https://chromeenterprise.google/os/chromeosflex/) 的下载大门，这是其多功能 OS 的一个新版本，如果你的旧 Mac 或 PC 难以接受其原生操作系统的更新，这可能是一个完美的解决方案。
 
-Watch
+
 
 Flex 旨在通过安装一个更精简、以云为中心的操作系统来更新旧电脑。虽然它没有 Chrome 的所有功能，但谷歌承诺，它基本上会让你的 Mac 或 PC 看起来和感觉上都像运行 Chrome OS 的 Chromebook。
 

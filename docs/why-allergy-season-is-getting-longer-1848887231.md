@@ -4,7 +4,7 @@
 
 如果过敏季节似乎一年比一年糟糕，你可能没有想到。研究花粉时间和运动的科学家发现，过敏季节真的变得越来越长，而且可能更严重。
 
-Watch
+
 
 关于这个主题的一个很好的读物是 [这篇来自](https://theconversation.com/pollen-season-is-getting-longer-and-more-intense-with-climate-change-heres-what-allergy-sufferers-can-expect-in-the-future-179158) 的对话，它给出了一些最近研究的可读摘要。在过去的几十年里，花粉季节已经变得更长了，春季过敏季节比以前提前了 3 到 22 天，秋季花粉季节开始得更晚。
 

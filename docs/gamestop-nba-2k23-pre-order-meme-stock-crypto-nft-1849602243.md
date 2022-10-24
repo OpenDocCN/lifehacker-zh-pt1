@@ -4,7 +4,7 @@
 
 "你有什么想预订的吗？"几乎没有人 [走进走出一个 GameStop](https://kotaku.com/gamestop-daycare-mario-kart-switch-babysitter-meme-1849565530) 没有听到这些话。当 GameStop 在游戏正式发行前的几个月赚取现金时，员工们会根据他们能获得多少预购订单来衡量。但最近，这一战略遭到了一次系统检修的破坏，副本要么姗姗来迟，要么根本就没有，一些员工担心他们会为此付出代价。
 
-Watch
+
 
 在过去的几天里，GameStop subreddit 的 [被](https://www.reddit.com/r/GameStop/comments/xrmnjy/preorders_are_just_not_showing_up/?utm_source=share&utm_medium=ios_app&utm_name=iossmf) [当前员工](https://www.reddit.com/r/GameStop/comments/xpngd9/how_do_i_push_preorders_when_we_cant_get_crap_in/?utm_source=share&utm_medium=ios_app&utm_name=iossmf) 抱怨电脑问题，从 [borked 库存搜索](https://www.reddit.com/r/GameStop/comments/xrdju5/update_to_the_previous_post/) 到在商店收到他们的货物之前就被完全清除的预购历史记录。“当我们进不去垃圾货时，我如何推进预购？” [写着](https://www.reddit.com/r/GameStop/comments/xpngd9/how_do_i_push_preorders_when_we_cant_get_crap_in/?utm_source=share&utm_medium=ios_app&utm_name=iossmf) 一帖。“顾客感到不安是可以理解的，我们的常客现在甚至只是线下订购，因为我们无法满足利基产品……”
 

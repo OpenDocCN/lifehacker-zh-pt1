@@ -4,7 +4,7 @@
 
 三十年来，原版《捉鬼敢死队》已经见证了其作为科幻喜剧经典的声誉稳步提升。正如不断展出的收藏品、卡通、视频游戏、重启等所证明的那样，这部电影与一代儿童和年轻人有着强大的联系，他们在这部电影中发现了一种自作聪明的喜剧情感——也是这种态度在比利·穆雷的化身。
 
-Watch
+
 
 这部电影充满欢乐的 brio 已经被制作了很多，而且毫无疑问将继续被制作，这是理所当然的；其松散的，无政府主义的幽默；以及它的反建制论调。这部电影热衷于在大会上尖刻地嘲笑别人；正如许多人讨论过将新续集转变为 [的严肃决定的人所指出的，这部怀旧主题的温暖毯子是一部适合孩子的 IP](https://www.avclub.com/ghostbusters-afterlife-is-a-dispiriting-nostalgia-exer-1847831687) ，原版电影可能会在这样一个可爱的舒适食品电影院呕吐。它的粉丝当然有:点击 [任何](https://www.reddit.com/r/movies/comments/osmdrl/ghostbusters_afterlife_official_trailer/) [随机](https://www.reddit.com/r/RedLetterMedia/comments/qjyqtp/just_watched_ghostbusters_afterlife/)[Reddit](https://www.reddit.com/r/ghostbusters/comments/dbhw61/supposed_plot_leak_spoilers_obviously/)[线程](https://www.reddit.com/r/RedLetterMedia/comments/e8aeyf/soo_about_ghostbusters_afterlife/) [讨论新电影](https://www.reddit.com/t/ghostbusters_afterlife/) ，你会发现几十条评论，如果不是几百条的话，严厉批评把不敬的原著视为某些神圣文本的想法。
 

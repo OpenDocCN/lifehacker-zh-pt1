@@ -4,7 +4,7 @@
 
 如今有如此多的表情符号唾手可得，它们几乎已经成为自己的语言。尽管如此，有时你会发现没有一个完全符合你想说的。解决办法？将两者混合在一起创造你自己的。
 
-Watch
+
 
 你所需要做的就是把你的手放在 Gboard 键盘 [Android](https://play.google.com/store/apps/details?id=com.google.android.inputmethod.latin&hl=en_US&gl=US) 上，它允许你通过其“表情厨房”功能混合两种不同的表情符号来创建新的表情符号。(iOS 用户将不得不使用 [网站](https://emoji.kitchen) 来创建他们的混搭。)
 

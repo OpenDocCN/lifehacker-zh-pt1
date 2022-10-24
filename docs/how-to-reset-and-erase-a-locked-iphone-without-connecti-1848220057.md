@@ -4,7 +4,7 @@
 
 [iOS 15.2 充斥着大大小小的功能](https://lifehacker.com/16-of-the-best-ios-15-2-feature-updates-worth-knowing-a-1848199396) 。除了数字遗产和应用隐私报告等功能，还有一个我们期待多年的功能；无需先将锁定的 iPhone 连接到 Mac 或 PC，即可完全抹掉并重置它。
 
-Watch
+
 
 如果您或您认识的人忘记了密码，这项新功能将会派上用场。如果你已经尝试输入密码几次，你的 iPhone 会锁定你一段时间，你会看到一个安全锁定屏幕。
 

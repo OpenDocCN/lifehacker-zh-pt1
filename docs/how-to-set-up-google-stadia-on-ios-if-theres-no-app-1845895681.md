@@ -4,7 +4,7 @@
 
 正如你所记得的，苹果公司以铁腕手段经营其应用程序商店。在该公司允许游戏流媒体服务拥有常规应用之前，库比蒂诺将会是寒冷的一天——除非服务 [将每个可流媒体游戏提交给苹果](https://www.theverge.com/2020/8/6/21357771/apple-cloud-gaming-microsoft-xcloud-google-stadia-ios-app-store-guidelines-violations) 审查，这是不可能的。你可以打赌苹果会想从用户为流媒体订阅支付的任何费用中抽取的分成。
 
-Watch
+
 
 为了解决这个问题，流媒体服务正在转向你的网络浏览器。这正是今天你能够在 iOS 和 iPadOS 上通过 Safari 传输 Google Stadia 的方式。嗯，从技术上来说，通过一个在你的设备上运行的渐进式网络应用程序*而不是*，Safari UI 会把它弄乱，给人一种你在运行一个原生 iOS 或 iPadOS 应用程序而没有 Stadia 的错觉。
 

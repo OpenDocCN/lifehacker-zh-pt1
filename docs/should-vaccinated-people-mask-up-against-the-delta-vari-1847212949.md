@@ -4,7 +4,7 @@
 
 洛杉矶县 [最近要求居民](https://www.latimes.com/california/story/2021-06-28/as-delta-variant-spreads-l-a-county-recommends-everyone-mask-indoors) 再次开始在公共场合戴口罩，原因是导致新冠肺炎病毒的 [Delta 变种](https://lifehacker.com/how-worried-should-we-be-about-the-delta-variant-1847151295) 带来的风险增加。几天后，疾病预防控制中心主任 [说](https://thehill.com/policy/healthcare/560871-cdc-director-vaccinated-people-safe-from-delta-variant-do-not-need-to-wear) 接种疫苗的人仍然是“安全的”，在大多数公共场合仍然不需要戴口罩。谁是对的，为什么是相互矛盾的信息？
 
-Watch
+
 
 ## 疫苗对德尔塔病毒仍然非常有效
 

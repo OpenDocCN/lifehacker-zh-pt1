@@ -4,7 +4,7 @@
 
 美国宇航局最新的火星探测器去年夏天发射到太空，在 [近七个月的太空旅行](https://lifehacker.com/how-to-watch-nasas-mars-rover-launch-live-1844548465) 后，它现在正在最后降落到红色星球。火星 2020 [毅力](https://www.nasa.gov/perseverance) 火星车将于 2 月 18 日周四登陆火星，你可以现场观看整个过程。以下是方法。
 
-Watch
+
 
 ### 如何观看火星车着陆
 

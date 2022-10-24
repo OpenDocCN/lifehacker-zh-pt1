@@ -4,7 +4,7 @@
 
 苹果公司的 M1 苹果电脑速度很快。然而，不仅仅是硬件决定了这种性能——当应用已经针对苹果芯片进行了适当的优化时，这种速度的部分就来了。如果你想在你的 M1 iMac、MacBook Air、MacBook Pro 或 Mac mini 上获得最好的游戏体验，你需要知道哪些游戏是为了充分利用技术而设计的。
 
-Watch
+
 
 我们已经介绍了 [如何检查你 Mac 上的应用程序是否是 M1 优化的](https://lifehacker.com/the-difference-between-universal-and-intel-apps-and-wh-1847613701) 。我们还介绍了 [如何检查热门应用是否是为苹果芯片](https://lifehacker.com/use-this-website-to-see-what-software-runs-on-m1-macs-1845750628) 设计的。这一次，重点是真正的游戏。这并不是 Mac 真正出名的地方，但如果苹果电脑是你唯一的硬件，你可能会想知道如何最好地在上面玩游戏。
 

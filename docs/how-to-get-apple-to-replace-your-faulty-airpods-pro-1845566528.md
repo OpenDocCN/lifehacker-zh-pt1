@@ -4,7 +4,7 @@
 
 苹果 Airpods Pro 的一些用户在过去几个月里一直报告他们的耳塞主动降噪(ANC)出现了奇怪的问题。对某些人来说，ANC 根本不起作用；其他人在使用该功能时会听到奇怪的静电声或者噼啪声或者爆裂声。
 
-Watch
+
 
 其中一些 ANC 性能问题是由 [坏固件引起的，该固件已经被修复](https://lifehacker.com/how-to-check-if-your-airpods-pros-noise-cancellation-is-1841020978) ，但是错误报告仍然存在。如果你遇到这个问题，苹果将免费更换你的 AirPods Pro。这是一个受欢迎的解决方案，但是替换计划有一些限制:
 

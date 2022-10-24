@@ -4,7 +4,7 @@
 
 现在你知道了，乔·拜登总统的政府正在推进一项计划，该计划将使数百万美国人获得高达 10，000 美元的联邦学生贷款减免(如果他们获得佩尔助学金 ，则最高可获得 20，000 美元 [)。但如果你是那些在疫情冻结还款期间继续偿还贷款的人之一，你可能会想，你是否能收回这些钱。虽然](https://lifehacker.com/how-to-find-out-if-you-have-a-pell-grant-1849453465) [一直都有可能获得退款](https://lifehacker.com/how-to-get-a-refund-on-federal-student-loan-payments-yo-1846790933) ，但即将到来的宽恕改变了一些事情。
 
-Watch
+
 
 ## **获得联邦学生贷款还款**
 

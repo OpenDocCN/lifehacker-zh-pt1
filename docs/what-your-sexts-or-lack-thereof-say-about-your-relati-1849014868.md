@@ -4,7 +4,7 @@
 
 配备高性能摄像头的智能手机的兴起是许多现代创新之一，这些创新只是强化了人类存在的一个持久不变的事实:我们都是好色的。见鬼，创新本身是好色的——很长一段时间以来，流行的观点认为，只要有人想出如何让新技术变得性感 ，它就会成功 [。难怪我们用来发送工作邮件或与亲戚保持联系的设备也被用来满足我们最基本的欲望。](https://www.thrillist.com/vice/how-porn-influenced-technology-8-ways-porn-influenced-tech-supercompressor-com) 
 
-Watch
+
 
 色情短信现在是一种文化常态，或者看起来是这样。在 Lifehacker 上，你可以找到关于 [拍摄你最好的裸照](https://lifehacker.com/how-to-take-your-best-nudes-ever-1846640354) 的指南，关于 [的提示，如果你的裸照泄露了该怎么做](https://lifehacker.com/how-to-regain-a-sense-of-control-when-your-nudes-leak-1846932209) ，以及 [如何隐藏手机上的敏感内容](https://lifehacker.com/how-to-hide-nudes-personal-data-and-pictures-of-your-1847288475) 。似乎每个人都在做这件事，但如果你担心你做得不够——或者做得太多——不要担心:性短信已经足够主流，正在被研究——同样，一切都是好色的，即使是学术界。因此，下面是科学可以告诉你的关于你的性短信(或没有性短信)对你的人际关系意味着什么。
 

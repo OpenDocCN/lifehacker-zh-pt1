@@ -4,7 +4,7 @@
 
 在 600 多万接种过约翰逊/让桑 COVID 疫苗的人中，至少有 9 人患上了一种罕见的血栓。因此，FDA 和 CDC 已经 [宣布](https://www.fda.gov/news-events/press-announcements/joint-cdc-and-fda-statement-johnson-johnson-covid-19-vaccine) 暂停使用这种疫苗。这种停顿可能会持续至少一周。
 
-Watch
+
 
 FDA 和 CDC 的发言人表示，暂停的最初原因是为了让全国的医疗保健提供商有时间关注这种罕见的并发症，并让 CDC 的疫苗接种实践咨询委员会审查证据，并决定是否改变他们关于谁应该接种疫苗的建议。
 

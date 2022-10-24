@@ -4,7 +4,7 @@
 
 谷歌正在用极简主义的、多种颜色的变体来取代人们熟悉的 T2 图标。虽然这些新图标有着更具凝聚力的风格，但很多人对重新设计并不感兴趣。
 
-Watch
+
 
 幸运的是，你可以在任何设备上恢复 Gmail、Drive、Meet、Calendar 和所有其他更新的谷歌图标的老派图标。第三方 Chrome 扩展可以 [将图标还原为旧的桌面设计](https://chrome.google.com/webstore/detail/restore-old-google-icons/iellnmonjokmoagdlggagdmfjgpiahmb) ，但随着新图标在 Android 和 iOS 上更加明显——也更加令人讨厌，你可能也想将它们切换到那里。
 

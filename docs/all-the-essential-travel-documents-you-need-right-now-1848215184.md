@@ -4,7 +4,7 @@
 
 全球疫情无疑使出国旅行变得更加复杂，尤其是因为出境和入境时需要额外的文书工作，证明你的疫苗接种和检测状况。但事实是，你总是需要某些必要的国际旅行文件——COVID 只是提醒我们在出发前做好充分准备是多么重要。
 
-Watch
+
 
 [疾病预防控制中心](https://www.cdc.gov/coronavirus/2019-ncov/travelers/map-and-travel-notices.html) 和 [国务院](https://travel.state.gov/content/travel/en/traveladvisories/COVID-19-Country-Specific-Information.html) 都汇编了关于新冠肺炎限制和国际旅行者文件要求的国家特定信息。你也可以在谷歌上搜索“[国家]入境要求”，或其他类似的内容，在政府或旅游局的官方网站上搜索，这些网站会告诉你你需要什么。要知道规定经常变化，所以在你旅行前的几天继续检查以确保你没有错过任何东西。
 

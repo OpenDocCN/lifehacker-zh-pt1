@@ -4,7 +4,7 @@
 
 iCloud Keychain 一直有点像一个孤岛:一个隐藏的、安全的天堂，只要你留在苹果严格的生态系统内。要访问和添加密码，你*必须*使用 Safari，而且没有可靠的方法导出密码。但慢慢地，iCloud Keychain(或 iCloud 密码)变得不那么像围墙花园了。
 
-Watch
+
 
 例如，你现在可以在 Windows 电脑 上使用 [iCloud 密码，包括第三方浏览器。在 macOS Monterey 中，Apple 添加了一个简单、通用的 CSV(纯文本、未加密)导入和导出功能，该功能在其他密码管理器中得到广泛支持，如 Bitwarden、LastPass 和 1Passwords。这一更改意味着现在可以根据您的需要更容易地移入和移出 iCloud 钥匙串。它是这样工作的。](https://lifehacker.com/how-to-finally-use-your-icloud-passwords-on-windows-1847507307)
 

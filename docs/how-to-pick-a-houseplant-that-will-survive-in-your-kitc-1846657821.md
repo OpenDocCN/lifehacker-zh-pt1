@@ -4,7 +4,7 @@
 
 如果你的生活空间已经种满了植物，你可能会考虑给家里的其他房间添加一些绿色植物——包括厨房的 T2。而且，就像 [你家里的任何其他房间](https://lifehacker.com/find-the-best-spots-for-houseplants-in-your-home-with-t-1791629296) 一样，你的厨房有自己的小气候，这要归功于它获得的阳光量、新鲜空气的获取、湿度水平和温度。
 
-Watch
+
 
 因此，虽然不可能找到一种适合每个厨房的植物，但有些种类比其他种类更适合房间。在 t [他的文章《云杉](https://www.thespruce.com/10-houseplants-that-will-thrive-in-your-kitchen-5079926) 中，室内植物专家柯里·西尔斯建议一些植物可以为你的厨房增添一份美丽(并且也有相当大的存活机会)。以下是一些选择。
 

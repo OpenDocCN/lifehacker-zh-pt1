@@ -4,7 +4,7 @@
 
 学生贷款减免 [将不会被包括在](https://www.cnbc.com/2021/05/24/student-debt-forgiveness-reportedly-dropped-from-bidens-annual-budget.html) 拜登总统的年度白宫预算中，这进一步降低了全面取消 1 万美元贷款的希望，更不用说 5 万美元了。虽然选择仍然存在——国会，行政行动——但似乎更有可能的是，贷款豁免将只能通过改革 T4 现有的贷款救济项目来扩大。以下是你需要知道的。
 
-Watch
+
 
 ## **学生贷款减免是怎么回事？**
 

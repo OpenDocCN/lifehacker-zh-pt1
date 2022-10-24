@@ -4,7 +4,7 @@
 
 当谈到数据泄露时，我讨厌说“这是一种规范”，但我们又来了。一家名为 Socialarks 的社交媒体管理公司最近遭遇了数据泄露，全球约 2.14 亿脸书、Instagram 和 LinkedIn 账户的个人数据超过 408GB。来自安全侦探的研究人员称，这大约是 3.18 亿条个人记录，他们发表了一份关于该漏洞的全面报告。
 
-Watch
+
 
 好消息是，如果像这样的大规模数据泄露有什么好处的话，那就是你的密码是安全的，任何与你账户相关的财务信息也是安全的。这是因为 Socialarks 只是通过收集脸书、Instagram 和 LinkedIn 上的公共信息来建立其现已泄露的数据库——这是这些公司 [倾向于反对](https://about.fb.com/news/2020/10/taking-legal-action-against-data-scraping/) 的做法。
 

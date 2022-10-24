@@ -4,7 +4,7 @@
 
 [谷歌在今年的 I/O 大会上登台](https://lifehacker.com/how-to-watch-google-i-o-2022-and-what-to-expect-1848905197) 约两个小时，宣布了令人兴奋的新产品，如 Pixel 6a、Pixel 7 和 Pixel Watch。虽然硬件往往会在这些活动中抢尽风头，但该团队肯定不会掩盖 Android:在 Android 13 的新功能和一般的 Android 更新之间，谷歌在软件方面有很多可谈的。
 
-Watch
+
 
 在 Android 部分，谷歌透露，他们认为该操作系统有“三大主题”:“以手机为中心”、“超越手机”和“一起更好”。您将在下面看到这三个主题，以及每个类别中具体宣布的内容。
 

@@ -4,7 +4,7 @@
 
 像大多数电脑一样，智能手机有时会过热。在炎热、阳光明媚的天气，或者使用要求苛刻的应用程序和游戏时，这尤其是个问题。 [我们过去已经谈论过一般的冷却解决方案](https://lifehacker.com/how-to-stop-your-phone-from-overheating-1847723875) ，但是当涉及到 Pixel 6 和 6 Pro 时，这些技巧可能还不够。这些设备似乎比普通手机更容易过热——当你的手机价格超过 900 美元时，你会希望它比普通手机表现得更好。
 
-Watch
+
 
 Redditors [在 r/googlepixel 周日的一个帖子](https://old.reddit.com/r/GooglePixel/comments/ug8ja9/pixel_6_pro_getting_extremely_hot_when_using/) 中表达了他们对 Pixel 6s 散热解决方案(或缺乏散热解决方案)的负面体验。用户 u/_Sway 开始了对话，抱怨他们的 Pixel 6 Pro 在使用大量移动数据时明显发热，这有烧穿电池的额外副作用。
 

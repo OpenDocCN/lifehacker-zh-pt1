@@ -4,7 +4,7 @@
 
 我喜欢上 [一整头烤蒜](https://skillet.lifehacker.com/how-to-roast-a-whole-head-of-garlic-1820407305) 的戏剧。这是一种总能给人留下深刻印象的味道，但提取丁香可能会有点乱(即使是用泡菜叉 提取 [)，而且(除非你用](https://skillet.lifehacker.com/easily-extract-roasted-garlic-cloves-with-this-tool-1832429698) [空气油炸锅](https://skillet.lifehacker.com/you-should-roast-garlic-in-your-air-fryer-1846574579) )将它烤到柔软和可涂抹的阶段至少需要 50 分钟。
 
-Watch
+
 
 幸运的是，你可以在烤大蒜之前把时间减少一半。你会得到稍微不同的味道，但它仍然是甜的，深的，可涂抹的——所有你想要烤大蒜的东西。
 

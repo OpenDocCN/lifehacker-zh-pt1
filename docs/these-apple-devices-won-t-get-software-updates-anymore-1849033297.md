@@ -4,7 +4,7 @@
 
 尽管苹果以软件更新支持其产品而闻名，但每年仍有一些设备被排除在更新周期之外。在 WWDC 2022 上，该公司宣布了一系列令人兴奋的软件更新，但异常多的设备不会上船。如果你期待着 [iOS 16](https://lifehacker.com/how-to-install-the-ios-16-and-ipados-16-betas-1849023051) 和 [macOS Ventura](https://lifehacker.com/the-best-new-macos-ventura-features-coming-to-your-macb-1849027260) ，克制你的兴奋，直到你检查你的苹果设备是否将被支持。
 
-Watch
+
 
 即使你的设备已经被切断，好消息是你仍然有可能在一段时间内收到关键的安全更新。苹果在放弃软件支持后，在安全更新方面有着良好的记录；毕竟公司还在用安全补丁支持卡在 iOS 12 上的设备，所以你的设备应该还能保护一段时间。你只是不会得到苹果在 WWDC 承诺的任何 [令人兴奋的新功能。](https://lifehacker.com/the-best-new-features-in-ios-16-and-ipados-16-1849023814)
 

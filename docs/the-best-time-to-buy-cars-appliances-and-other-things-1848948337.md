@@ -4,7 +4,7 @@
 
 2022 年对于普通消费者的钱包来说是艰难的一年。美国劳工统计局报告说，美国在过去 12 个月面临 8.3%的通货膨胀率，几乎影响到每个行业。由于 [的工资没有以](https://www.nytimes.com/2022/04/01/business/economy/jobs-fed-wages.htmlhttps://www.nytimes.com/2022/04/01/business/economy/jobs-fed-wages.html) [相称的](https://www.nytimes.com/2022/04/01/business/economy/jobs-fed-wages.html) [的速度上涨到](https://www.nytimes.com/2022/04/01/business/economy/jobs-fed-wages.html) 的通货膨胀率，数百万美国人别无选择，只能勒紧裤带。
 
-Watch
+
 
 尽管通货膨胀上升，生活并没有停止，这意味着你将不得不在这些不理想的情况下购买一些产品。当所有产品都面临价格上涨时，你可以在需求通常不高的月份购买，这样对自己最有利。
 

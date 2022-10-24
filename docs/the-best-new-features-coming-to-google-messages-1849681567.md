@@ -4,7 +4,7 @@
 
 在美国，传递信息是一个复杂的话题。对于 iPhone 用户来说，绝大多数是 iMessage。对于 Android 用户来说，这是一个难以预料的事情。WhatsApp 是第三方选项之王，其次是 Facebook Messenger、Telegram 和 Signal。谷歌的默认选项 Messages 一直是标准的短信应用，缺乏其他应用的功能。最近，谷歌想要改变这种情况。
 
-Watch
+
 
 许多这些变化 [取决于 SMS 的继任者 RCS](https://lifehacker.com/whats-rcs-messaging-and-why-should-you-care-1832235783) 。有了它，谷歌能够添加与短信不兼容的功能，并使默认消息选项与人们倾向的任何第三方选项保持一致。这种转变并不完美，尤其是苹果不肯让步。但即使没有苹果，谷歌也成功地将其 Messages 应用变成了一个竞争者，这在很大程度上要归功于最近的一系列新功能。
 

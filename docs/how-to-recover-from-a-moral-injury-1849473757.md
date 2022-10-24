@@ -4,7 +4,7 @@
 
 我们大多数人都熟悉 [创伤后应激障碍](https://www.mayoclinic.org/diseases-conditions/post-traumatic-stress-disorder/symptoms-causes/syc-20355967) ，或 PTSD，它是由目睹或经历创伤性事件引发的。患有创伤后应激障碍的人通常会经历一系列精神健康症状，如噩梦、闪回、严重焦虑和无法控制的事件记忆。心理学家开始发现，除了 PTSD ( 与身体安全感有关)之外，当一个人目睹或做出违背个人价值观和信仰的行为时，人们还会产生所谓的。
 
-Watch
+
 
 [灵魂控制台:治愈道德伤害。](https://www.psychologytoday.com/us/blog/soul-console)T3】
 

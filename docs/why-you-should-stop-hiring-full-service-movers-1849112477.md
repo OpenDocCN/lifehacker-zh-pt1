@@ -4,7 +4,7 @@
 
 买卖房子是一场充满压力的马拉松式的无休止的复杂过程——但是当你终于借完了一手推车的现金，签了大约一千张纸，你终于可以放松下来，享受你的新家了，对吗？哈哈，不行你当然不行，因为最糟糕的还在后面: [你得动](https://lifehacker.com/advisor/moving/best-long-distance-moving-companies/) 。
 
-Watch
+
 
 搬家的后勤工作已经够糟糕了。 [费用是另一回事](https://lifehacker.com/advisor/moving/cheap-moving-companies/)——搬家费用 [被认为是“本地”搬家的平均费用为 1250 美元](https://www.moving.com/movers/moving-cost-calculator.asp) ，而长途搬家(1000 英里)可能要花费你大约 5000 美元。如果你认为雇佣全方位服务搬运工至少会减轻你一点负担，一百万个恐怖故事会让你打消这个念头:M 超过当他们坐在你的车道上时，报价突然改变，你的整个生活都在盒子里，从不出现、损坏或丢失物品的搬运工——甚至是拿你的东西当人质的 [搬运工](https://www.today.com/news/couple-say-moving-company-held-their-belongings-hostage-6C10809670) 。
 

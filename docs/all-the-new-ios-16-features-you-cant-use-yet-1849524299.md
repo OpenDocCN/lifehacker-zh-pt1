@@ -4,7 +4,7 @@
 
 经过几个月的测试， [iOS 16](https://lifehacker.com/the-best-new-features-in-ios-16-and-ipados-16-1849023814) 终于在今天作为一个稳定的公开版本发布了。它充满了受欢迎的新功能(或 iPhone[)新功能，如可定制的锁屏小工具和](https://gizmodo.com/apple-iphone-14-android-dynamic-island-esim-proraw-1849519233)[编辑和撤销 iMessages](https://lifehacker.com/you-can-finally-edit-and-undo-sent-messages-on-iphone-1849167883) 。并不是所有的功能都为发布日做好了准备。
 
-Watch
+
 
 对于苹果来说，这并不是特别奇怪的事情，因为苹果有着随着时间推移推出新功能的历史。他们在 WWDC 发布了一系列新的铃声和口哨声，然后在全年对它们进行计量。这一次，几个沉重的、基于服务器的功能仍然需要时间，比如新的共享 iCloud 库。我们只能希望它们能在 iOS 16.1 发布时上市；那个更新 应该和 iPadOS 16 和 macOS Ventura 一起发布，希望在 10 月。
 

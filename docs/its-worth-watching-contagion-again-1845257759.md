@@ -4,7 +4,7 @@
 
 自从今年早些时候看了《传染病》( Contagion )( T1 ),我就一直在想那个家伙在兜售“连翘”,这是宇宙中羟氯喹的翻版。在 2011 年的电影中，疫情的错误信息在一个博客中得到人格化，他声称疾控中心正在压制假的治愈方法。人们蜂拥而至，洗劫了一家药店。
 
-Watch
+
 
 *传染病*是经过充分研究，咨询了科学家和医生，以形成它如何描述致命的疫情的发展和应对。 [二月](https://lifehacker.com/what-the-movie-contagion-can-and-cant-teach-us-about-ep-1841433460) 看的，我很欣赏它教育观众接触者追踪、污染物、疫苗生产需要时间的事实，甚至 [像 R0](https://vitals.lifehacker.com/what-is-the-coronaviruss-r0-and-why-does-it-matter-1841264885) 这样的流行病学概念。
 

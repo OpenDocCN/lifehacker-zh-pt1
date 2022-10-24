@@ -4,7 +4,7 @@
 
 谷歌密码管理器是一个包罗万象的谷歌账户密码管理服务，但实际上管理你的管理器可能有点棘手。它没有特定的应用程序或扩展(像密码管理器一样，如 [1Password](https://lifehacker.com/why-1password-is-now-the-best-password-manager-for-mac-1848947731) 或 Bitwarden 通常会有)，但它深深地编织在谷歌的产品中。
 
-Watch
+
 
 你保存在谷歌浏览器中的密码放在那里。Android 上保存的密码也是如此，谷歌密码管理器可以说发挥了最大的作用，允许你在手机上保存和自动填充 Chrome 上的密码。
 

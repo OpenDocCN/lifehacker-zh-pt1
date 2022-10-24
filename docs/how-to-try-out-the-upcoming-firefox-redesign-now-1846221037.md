@@ -8,7 +8,7 @@
 *   **个性化的新标签页:**您可以更改新标签页的外观和布局，包括出现的链接、推荐和新片段的数量。
 *   信息栏和通知变化: Firefox 的通知将会有更多的颜色，使消息更有个性。
 
-Watch
+
 
 这些是我们根据 [早期外观和](https://techdows.com/2021/01/an-early-look-at-firefox-proton-user-interface.html) 泄露了解到的主要变化；火狐 89 的质子设计的最终版本可能包括更多的调整和更新。重新设计将于 5 月份推出，但你可以通过安装 Firefox Beta、Nightly、或 Dev build 和在浏览器的实验设置中打开新的界面变化来获得早期的外观。
 

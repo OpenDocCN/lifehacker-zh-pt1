@@ -4,7 +4,7 @@
 
 我今天没打算做这种饮料。我计划做一种含有很多金巴利的饮料，因为我喜欢金巴利。遗憾的是，我没有堪帕里了。酒店不远，但外面很冷，在我的城市不断上升的 COVID 病例并没有让冒险出去的想法变得更有吸引力。
 
-Watch
+
 
 因此，我拿起一瓶 Luxardo's Bitter Bianco，这是我在 8 月份 用来调制 [鸡尾酒的，然后就再也没有写过。](https://lifehacker.com/how-to-make-a-white-negroni-that-isnt-yellow-1844729177)
 

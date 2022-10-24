@@ -4,7 +4,7 @@
 
 我们不太可能过上没有追踪器的网上生活，但是我们很感激这些公司尽他们所能，至少在技术上让追踪用户变得更加困难。如果你是火狐的粉丝，Mozilla 刚刚推出了一个新的“全面 Cookie 保护”模式，基本上隔离了一个网站的所有 Cookie。借用 Mozilla 的比喻，每个网站都有自己的“饼干罐”，饼干就在那里；它们不能与任何其他网站共享。
 
-Watch
+
 
 正如 Mozilla [中写的](https://blog.mozilla.org/security/2021/02/23/total-cookie-protection/) :
 

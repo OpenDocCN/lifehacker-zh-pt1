@@ -4,7 +4,7 @@
 
 我们正在经历一个人类历史上前所未有的时代。世界比以往任何时候都更加紧密地联系在一起，同时也以几乎无法理解的方式分崩离析。
 
-Watch
+
 
 生活在这两个生存挑战的交汇点上常常会让人迷失方向。滚动你的推特，你可以看到感觉像迈克尔·贝电影的图像: [着火的海洋](https://gizmodo.com/not-to-alarm-anyone-but-the-gulf-of-mexico-is-on-fire-1847223588)；一艘满载被疏散者的 [船](https://twitter.com/meteogr/status/1423771527577800717) 从火焰之墙中转向；一个社区曾经矗立的 [房屋的地基](https://gizmodo.com/wildfire-devastates-canadian-town-thats-been-suffering-1847209313) 。不同的是，它们是真实生活的视频和照片，当你在等拿铁咖啡或在课间消磨时间时，由遭受影响的人从气候危机的前线传到你的手掌中。
 

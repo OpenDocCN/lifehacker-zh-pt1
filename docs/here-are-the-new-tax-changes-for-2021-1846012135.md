@@ -4,7 +4,7 @@
 
 新的一年带来了新的税收变化——其中一些被埋没在长达 5593 页的 [年终立法](https://rules.house.gov/sites/democrats.rules.house.gov/files/BILLS-116HR133SA-RCP-116-68.pdf) 中，可能被你忽略了。除了 [COVID 救济支票](https://twocents.lifehacker.com/how-to-get-your-second-covid-relief-check-1845935356) 和提高失业福利，这些是你应该知道的一些关键的税收变化。
 
-Watch
+
 
 ### **更高的标准扣除额**
 

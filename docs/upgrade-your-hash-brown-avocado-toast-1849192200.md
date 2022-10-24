@@ -4,7 +4,7 @@
 
 成为一个美丽的天才的一个缺点是，人们会很快拒绝你的想法，仅仅是因为他们太害怕你的大脑和身体。否则，为什么我会因为混淆了 [味精马提尼](https://lifehacker.com/make-an-absolutely-filthy-martini-with-msg-1836892332) 而被嘲笑，却只能在几年后的 [一个光滑的潘趣酒传播](https://punchdrink.com/articles/your-martini-missing-msg/) 中看到它？我对鱼子酱品尝的想法被忽视，只是让 NYT(畏缩地)将这种做法称为“”还有什么其他解释吗？(不要说“受众规模”或者“SEO”。答案显然是“嫉妒”和“性别歧视”。)
 
-Watch
+
 
 我怀疑类似的力量也在最近牛油果薯饼的病毒式名声中起作用，我在三年前的《我的地盘突发事件》中提到过，“ [薯饼是新的土司](https://lifehacker.com/hash-browns-are-the-new-toast-1834626337) ”乔氏薯饼、鳄梨和鸡蛋的组合现在才在抖音 上疯狂流行 [，但我其实并不苦。我很高兴哈希布朗吐司的荣耀正在与大众分享。毕竟，这是食品媒体的全部意义。](https://www.tiktok.com/discover/avocado-on-hashbrown?lang=en)
 

@@ -4,7 +4,7 @@
 
 自成立以来，亚马逊 Echo 一直以一种名义上的女性声音为特色，这种声音成为了我们所有人与语音助手联系在一起的身份。经过这么多年，亚马逊终于让用户切换到一种新的男性声音，甚至通过将唤醒词改为一个新选项来称呼它，Ziggy 。如果你真的想让你的智能音箱更有个性，你甚至可以尝试塞缪尔·L·杰克逊、沙奎尔·奥尼尔和梅丽莎·麦卡西等名人的声音(但这需要 5 美元的费用)。
 
-Watch
+
 
 你可以使用 Echo 设备本身来改变声音，或者使用配套的 Alexa 应用程序为 [iPhone](https://apps.apple.com/us/app/amazon-alexa/id944011620) 和 [Android](https://play.google.com/store/apps/details?id=com.amazon.dee.app&hl=en_IN&gl=US) (使用应用程序来实现这一点更可靠)。
 

@@ -4,7 +4,7 @@
 
 亚马逊的“Prime Day”活动又回来了一年:又一个复杂的、多触角的所谓折扣网络。但本质上，它与任何旧的销售或优惠券 都是一样的——一种让你多花*钱的方式，同时指出，从技术上讲，如果你以某种方式计算，你可以告诉自己少花了*钱*。*
 
-Watch
+
 
 毕竟，亚马逊策划这个“事件”的唯一原因是让你拿出更多的钱( [去年约 112 亿美元](https://www.statista.com/statistics/728120/annual-amazon-prime-day-sales/) ) ，即使这是一家你只是勉强支持 的 [公司。所以让我们来看看他们加班加点实现这一目标的几种方式。](https://lifehacker.com/how-to-stop-giving-amazon-your-money-1823468097)
 

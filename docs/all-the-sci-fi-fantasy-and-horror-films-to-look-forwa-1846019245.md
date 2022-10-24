@@ -4,7 +4,7 @@
 
 你没有经历 [似曾相识](https://gizmodo.com/one-of-deja-vus-most-striking-features-is-just-an-illus-1823472385) 。来自我们 2020 年电影预告 的大量电影 [再次出现在我们 2021 年的预告中。但好消息是，仍然有很多值得期待的好东西。](https://gizmodo.com/io9s-guide-to-all-the-movies-you-should-give-a-damn-abo-1840780568)
 
-Watch
+
 
 去年的这个时候，我们还不知道新冠肺炎·疫情会改变我们所知道的整个世界，包括在这个过程中推迟或移动数百部电影的发布。现在是 2021 年，疫苗开始注射，我们有希望在今年看到这些电影。因为，嗯，这些是我们非常想看的电影，我们认为你可能会同意。
 

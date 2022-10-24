@@ -4,7 +4,7 @@
 
 在约会应用上认识人可能很有趣，但大多数人在刷卡时最不想看到的是他们过去的面孔。幸运的是，避开你的前任——或者任何你不想在 Tinder 上看到的人——很容易，这要感谢 [应用程序新的阻止联系人列表](https://www.tinderpressroom.com/2021-06-04-Tinder-Gives-Members-More-Control-With-New-Feature-Allowing-You-to-Block-Your-Ex) 。
 
-Watch
+
 
 有两种方法可以在 Tinder 上阻止某人:阻止保存在手机联系人中的联系人，或者将他们的电话号码或电子邮件地址添加到您的阻止列表中。
 

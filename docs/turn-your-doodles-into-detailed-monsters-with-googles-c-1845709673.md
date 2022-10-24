@@ -4,7 +4,7 @@
 
 我花了很多空闲时间画画，我的很多画碰巧都是关于怪物的。 [很好玩的爱好](https://lifehacker.com/try-doodling-when-youre-stuck-on-a-big-project-or-need-1837351952) ，轮到我 DM a [桌面角色扮演环节](https://lifehacker.com/how-to-create-your-first-dungeons-dragons-character-1820441940) 的时候就派上用场了。然而，我知道有很多人希望他们能把潜伏在他们想象中的生物带入生活，但是他们不喜欢画画。如果这听起来像你，看看谷歌的 [奇美拉画师网络应用](https://storage.googleapis.com/chimera-painter/index.html) ，它使用人工智能根据简单的彩色编码涂鸦“画”出详细的怪物。
 
-Watch
+
 
 与其他任何绘图工具相比，它非常简单:它提供了五种画笔大小、一个橡皮擦工具和一个“清除”按钮，可以擦除整个选中的绘图。当应用程序打开时，你可以暂时保存最多四幅画，但是你可以随时自由保存你的作品。你也可以上传图片作为参考。
 

@@ -4,7 +4,7 @@
 
 肯塔基 被 [大洪水淹没的惊人图像说明了巨大的降雨可能造成的破坏程度，这已经导致整个兰草州的 河流](https://weather.com/news/news/2021-03-02-kentucky-flooding-rivers-rise-impacts) [大规模决堤](https://www.kentucky.com/opinion/op-ed/article249669198.html) 。周一，州长安迪·贝希尔宣布进入紧急状态，在一份声明中宣布国民警卫队已经动员起来应对洪水。美联社报道，肯塔基州和邻近的西弗吉尼亚州的 13000 名居民周一停电。
 
-Watch
+
 
 随着气候变化引发的 [使极端天气事件在未来更加常见](https://www.epa.gov/climate-indicators/weather-climate) ，当务之急是知道如何为你生活的地方发生的洪水做好准备——即使 [你认为你在一个安全的区域](https://www.washingtonpost.com/weather/2020/06/29/flood-risk-climate-change/?arc404=true) 。
 

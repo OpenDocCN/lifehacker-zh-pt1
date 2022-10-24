@@ -4,7 +4,7 @@
 
 你上一次尝试新事物是什么时候？本周，在记者汤姆·范德比尔特的帮助下，我们将讨论为什么过了一定年龄后我们会失去学习的欲望，以及我们能做些什么来重新点燃这种欲望。请听汤姆讲述我们应该继续追求新技能和爱好的原因，包括这样做带来的认知益处，以及这对你与世界的整体互动意味着什么。
 
-Watch
+
 
 汤姆是畅销书《交通:为什么我们以我们的方式开车》(以及它对我们的影响) 和 [的作者，你可能也喜欢:在一个无尽选择的时代品味](https://www.amazon.com/gp/product/B013ZNK4LS/ref=dbs_a_def_rwt_hsch_vapi_tkin_p1_i3?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-be-a-beginner-with-journalist-tom-vanderbilt-1846430119&asc_source=&tag=kinjalifehackerlink-20) ，他的最新著作是 [初学者:终身学习的快乐和变革力量](https://www.amazon.com/Beginners-Transformative-Power-Lifelong-Learning-ebook/dp/B082S311FG/ref=pd_sim_3?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-be-a-beginner-with-journalist-tom-vanderbilt-1846430119&asc_source=&pd_rd_i=B082S311FG&pd_rd_r=d158509e-473c-4087-a354-b287c1f50f6f&pd_rd_w=7IbdB&pd_rd_wg=u5JaM&pf_rd_p=5dadc1ab-1aea-4988-b62f-4dbe559e6cca&pf_rd_r=07FA8TXTSDXAXKNXWX9K&psc=1&tag=kinjalifehackerlink-20) 。
 

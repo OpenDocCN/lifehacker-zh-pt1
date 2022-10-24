@@ -4,7 +4,7 @@
 
 BeReal 的受欢迎程度在另一个层面。毕竟，任何在排行榜上超过抖音的应用程序都值得认真对待，尤其是当 [应用程序使用起来如此简单](https://lifehacker.com/what-is-the-new-social-media-app-bereal-and-do-you-r-1848780094) 。你看到通知，拍下照片，分享到应用程序。但这回避了一个问题:每天分享你当前位置的照片会给你带来危险吗？贝雷尔安全吗？
 
-Watch
+
 
 ## 从隐私角度看 BeReal 的地位
 

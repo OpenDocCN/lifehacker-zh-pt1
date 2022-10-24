@@ -4,7 +4,7 @@
 
 如果你空间不足或者买不起一整套壶铃收藏，一个质量好的可调节壶铃是你能为 at- 家庭力量训练所做的最好投资之一。
 
-Watch
+
 
 我有两个泰坦 的 [可调节比赛铃，轻则 12 公斤(26 磅)，重则 32 公斤(70 磅)。以免我开始听起来像一个商业广告，](https://www.titan.fitness/endurance/kettlebells/adjustable/12-kg---32-kg-adjustable-competition-style-kettlebell/422501.html) [壶铃国王使一个就像它一样](https://www.kettlebellkings.com/12-32kg-adjustable-competition-style-kettlebell/) ， [钢铃也是如此](https://www.bellsofsteel.us/all-products/conditioning/kettlebells/adjustable-kettlebell/) 。壶铃王的标价大约是 300 美元，其他的是 250 美元，尽管它们有时会打折。我的价格接近 200 美元。
 

@@ -4,7 +4,7 @@
 
 我认为 [华夫饼](https://lifehacker.com/waffle-is-the-new-wordle-1848793653) 是独一无二的: s 在一个网格中有 9 个单词，可以猜 10 到 15 次。但是在我写了这篇文章之后，读者 Carl Knecht [在推特上写道:“华夫饼给你信，Squardle 让你为他们工作。”](https://twitter.com/rialtus/status/1514688347414806528)
 
-Watch
+
 
 我点了一下，是真的。华夫饼就像一个魔方。提供了信件，你的工作是进行巧妙的交换。它很优雅，而且非常简单，不需要键盘。如果你想进入 square Wordles(我现在确信它会有自己的变体)，Waffle 是一个不错的开始。
 

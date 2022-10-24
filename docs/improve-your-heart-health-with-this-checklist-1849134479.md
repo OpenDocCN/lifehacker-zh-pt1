@@ -4,7 +4,7 @@
 
 如果你想减少因心脏病发作或中风而过早死亡的机会，你可能听说过几种方法: [多锻炼](https://lifehacker.com/how-much-exercise-do-i-really-need-1823708126)[吃“好脂肪”，](https://lifehacker.com/omega-3s-aren-t-so-great-for-your-heart-after-all-1823578728) 也许要注意你智能手表上的心脏健康指标。但是有很多东西被认为对我们的心脏有好处，有时候要知道从哪里开始会有点不知所措。
 
-Watch
+
 
 幸运的是，美国心脏协会有一个工具，可以将你的个人和生活方式风险因素分为八类。虽然 AHA 已经有了一个类似的七点模型，但他们刚刚推出了更新的版本，称为“生命的本质 8”，这样命名是因为他们的 [增加了睡眠](https://www.heart.org/en/health-topics/sleep-disorders/sleep-and-heart-health) 作为因素之一。有一个在线的 [测验](https://mlc.heart.org/) 可以让你很容易地判断出自己的立场。
 

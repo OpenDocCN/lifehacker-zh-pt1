@@ -4,7 +4,7 @@
 
 [根据美国疾病控制和预防中心](https://www.cdc.gov/poxvirus/monkeypox/response/2022/world-map.html) 的数据，2022 年全球 37 个不同国家已有超过 2000 例猴痘确诊病例。诚然，我们 [可能还没有为猴痘](https://lifehacker.com/we-are-not-ready-for-monkeypox-1849035126) 做好准备，但疾病预防控制中心正在让任何愿意倾听的人做好准备，告诉他们如何降低在性交时感染猴痘的风险。
 
-Watch
+
 
 ## 猴痘是如何传播的？
 

@@ -4,7 +4,7 @@
 
 如果你一直在考虑升级你的电脑，这是一年中最好的时机之一。从黑色星期五到网络星期一，你很有可能在组件上获得很好的交易(即使 [你永远也不会在你的假日存货中得到](https://www.reddit.com/r/buildapc/comments/k3xlbq/1st_timers_this_is_a_very_bad_time_to_build_a_pc/) 那款旗舰 Nvidia 或 AMD 显卡)。W 不管这是你第一次升级还是第五十次升级，在穿上你的装备 [让自己](https://smile.amazon.com/s?asc_campaign=InlineText&asc_refurl=https://lifehacker.com/how-to-upgrade-your-pc-with-your-new-black-friday-buys-1845776133&asc_source=&k=antistatic wrist strap&ref=nb_sb_noss_2&sa-no-redirect=1&tag=kinjalifehackerlink-20) 接地之前，有几件事你需要做*。*
 
-Watch
+
 
 ### 你收到合适的装备了吗？
 

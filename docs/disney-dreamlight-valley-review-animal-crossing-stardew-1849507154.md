@@ -4,7 +4,7 @@
 
 几乎令人惊讶的是，像 [*迪士尼梦幻光谷*](https://kotaku.com/disney-dreamlight-valley-gameloft-ps5-pc-xbox-switch-ip-1848851631) 这样的游戏花了这么长时间才最终制作出来。新游戏 [现在在早期版本](https://www.amazon.com/xbox-game-pass/s?asc_campaign=InlineText&asc_refurl=https://kotaku.com/disney-dreamlight-valley-review-animal-crossing-stardew-1849507154&asc_source=&k=xbox game pass&tag=kinjakotakulink-20) 中推出，结合了*动物穿越*和*星谷*的生活模拟游戏，除了与著名的迪士尼人物、电影和世界的致命结合。最终的结果可能会完全消耗掉一些人。而且，作为一个不太喜欢《动物穿越》的人,《梦之光谷》更注重叙事的世界以一种任天堂的流行生活方式吸引了我——sim 从来没有。
 
-Watch
+
 
 由 Gameloft 开发的 [迪士尼的*梦幻光谷*](https://disneydreamlightvalley.com/) 是一款第三人称生命模拟游戏，它遵循了与最近其他迪士尼主题视频游戏类似的剧本，如 [*扭曲仙境*](https://kotaku.com/disney-twisted-wonderland-villains-black-butler-hogwart-1848402075) 或 [*王国之心*](https://kotaku.com/kingdom-hearts-sora-super-smash-bros-ultimate-tetsuya-n-1849065582) ，所有迪士尼标志性和心爱的角色在一个巨大的 IP wonderland 中共存。但是也像那些其他游戏一样，在*梦幻光谷*中，一些可怕的东西已经感染了世界，并引发了各种只有你能解决的问题。在这种情况下，它是一种叫做“遗忘”的东西，表现为黑暗的卷须和遍布山谷的多刺藤蔓。清理这些东西有助于像米奇和史高治·麦克老鸭这样的角色记住他们是谁，他们在哪里，以及自从令人毛骨悚然的藤蔓出现并接管以来所有失踪的朋友。
 

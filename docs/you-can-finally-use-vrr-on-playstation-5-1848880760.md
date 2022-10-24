@@ -4,7 +4,7 @@
 
 在最近的系统更新之后，PlayStation 5 终于支持 VRR(可变刷新率)。VRR 是一种视频设置，它可以动态调整电视或显示器的刷新率，以匹配游戏的 FPS(每秒帧数)。这可以防止令人讨厌的图形问题，如当显示器的刷新率与游戏 FPS 不匹配时出现的丢帧、挂钩和屏幕撕裂。查看我们的 [VRR 讲解员了解更多关于技术的信息](https://lifehacker.com/whats-a-variable-refresh-rate-and-why-does-that-matter-1840854715) 以及为什么它对游戏很重要。
 
-Watch
+
 
 ## PlayStation 5 VRR 要求
 

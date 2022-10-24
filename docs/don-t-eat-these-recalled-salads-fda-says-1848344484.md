@@ -4,7 +4,7 @@
 
 根据美国美国食品药品监督管理局 (FDA)的 [公告，如果你最后一次购物或送餐包括袋装沙拉，你会想要检查标签，看看它是否是因受到单核细胞增生李斯特菌污染的风险而被召回的产品之一。](https://www.fda.gov/safety/recalls-market-withdrawals-safety-alerts/dole-fresh-vegetables-inc-announces-voluntary-recall-certain-salads-processed-its-springfield-oh-and) 
 
-Watch
+
 
 如果你觉得你以前读过这篇文章——甚至可能读过两遍——那就不是似曾相识了。除了此次召回，都乐鲜菜还在 2021 年 12 月和两次因李斯特菌问题主动召回袋装沙拉产品。如果在这些事件之后，你继续购买包装沙拉，这里有一些关于最近召回的信息。
 

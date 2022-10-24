@@ -4,7 +4,7 @@
 
 除非你已经在岩石下生活了 18 个月，否则你知道房地产市场是疯狂的。价格失控，需求失控，房产 [卖得比疫情开始前](https://www.nar.realtor/blogs/economists-outlook/buyer-competition-intensifies-4-offers-for-every-home-sold-in-february-2021) 更快，报价更多。如果你最近考虑过买房，或者尝试过，你可能已经感受到了这场竞争的压力。
 
-Watch
+
 
 对经济增长的各种衡量表明，购房热潮 [可能会稍微放缓](https://fortune.com/2021/11/29/housing-market-real-estate-predictions-2022-forecast/) ，但不太可能很快就能以合理的价格买到房子而不陷入竞购战。
 

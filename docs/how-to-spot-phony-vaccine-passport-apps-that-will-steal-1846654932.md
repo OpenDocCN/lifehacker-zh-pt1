@@ -4,7 +4,7 @@
 
 作为一个政策问题，疫苗护照的使用仍然不清楚。在美国没有官方的、联邦政府认可的“疫苗护照”，但是 T2 的公司已经在为那些想要旅行或参加大型活动的接种过疫苗的人开发护照应用程序。随后，疫苗护照的模糊状态为骗子窃取你的个人信息提供了机会，这就是为什么 [商业改善局发布了关于虚假应用的警告](https://www.bbb.org/article/scams/24048-bbb-scam-alert-covid-19-vaccine-passports-are-coming-scams-are-sure-to-follow) 。
 
-Watch
+
 
 ### **注意什么**
 

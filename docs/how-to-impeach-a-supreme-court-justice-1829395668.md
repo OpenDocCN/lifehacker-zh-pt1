@@ -4,7 +4,7 @@
 
 弹劾不只是针对总统。宪法 [允许弹劾其他官员](https://en.wikipedia.org/wiki/Impeachment_in_the_United_States#Federal_officials_impeached) ，包括最高法院大法官。迄今为止，该法院还没有一名法官通过弹劾被成功罢免——*。* 
 
-Watch
+
 
 流程与总统的两个步骤相同。众议院可以投票，以简单多数，弹劾法官或其他联邦官员。然后参议院举行类似审判的程序，然后投票决定是否定罪。如果三分之二的参议院投票定罪，大法官将被免职。
 

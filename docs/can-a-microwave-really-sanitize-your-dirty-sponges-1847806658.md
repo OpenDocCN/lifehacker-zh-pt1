@@ -4,7 +4,7 @@
 
 就从这里开始吧:厨房海绵很恶心。发表在 Nature.com 科学报告 上的一项 [2017 年研究发现，用过的厨房海绵藏有多达 362 种*不同*类型的细菌，在](https://www.nature.com/articles/s41598-017-06055-9?utm_medium=affiliate&utm_source=commission_junction&utm_campaign=3_nsn6445_deeplink_PID100085446&utm_content=deeplink) [中，每平方厘米有 450 亿个细菌](https://www.npr.org/sections/thesalt/2017/09/11/548926054/can-you-really-not-clean-your-kitchen-sponge) 的惊人密度。根据该报告，厨房环境比厕所容纳更多的微生物，“主要是因为厨房海绵的贡献，它被证明是整个房子中最大的活性细菌库。”*厕所多？*哎呀。
 
-Watch
+
 
 那么，除了每周扔掉你的海绵，你还能做些什么来限制这些讨厌的细菌在我们的盘子和厨房台面上到处传播呢？有人说: [微波它们](https://www.canr.msu.edu/news/sanitizing_kitchen_sponges) 。这种想法并不新鲜，而且一直受到质疑。纽约时报报道说，虽然微波可以杀死弱小的细菌，但“最强壮、最难闻和潜在致病的细菌将会存活。”
 

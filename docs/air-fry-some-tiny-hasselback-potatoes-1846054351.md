@@ -4,7 +4,7 @@
 
 如果你有一个空气油炸锅，你知道它能让 [炸土豆](https://skillet.lifehacker.com/use-your-air-fryer-to-make-extra-crunchy-potatoes-1842910110) 。桌面对流烤箱内的超热空气可以快速订购各种各样的土豆:新鲜的、冷冻的和剩余的(是的， [甚至是剩余的薯条](https://skillet.lifehacker.com/this-is-actually-the-best-way-to-reheat-fries-1845275861) )。
 
-Watch
+
 
 在我看来，所有的土豆都很漂亮，但一口大小的哈塞尔贝克小鱼(如果你是瑞典人，就叫“哈塞尔贝克斯波特蒂斯”)是我目前对土豆的痴迷。我已经开始称它们为“小麻烦”和“小麻烦”，因为它们又小又可爱，做起来有点乏味，但不比普通大小的哈塞尔土豆更乏味。
 

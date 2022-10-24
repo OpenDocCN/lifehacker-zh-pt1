@@ -4,7 +4,7 @@
 
 这是大流行后旅行的一个怪癖:由于被压抑的需求，公司正在 [提高机票和酒店](https://www.cnbc.com/2021/05/23/covid-travel-rising-airfares-and-hotel-rates-are-making-vacations-more-expensive.html) 的价格，但他们也为他们的忠诚信用卡提供创纪录的签约奖金。由于这些奖金可以抵消旅行成本的增加，在预订下一趟航班或酒店之前，您可能需要考虑机票或酒店信用卡。以下是目前最受欢迎的一些优惠。
 
-Watch
+
 
 ## [**西南快速奖励卡**](https://creditcards.chase.com/a1/southwest/NAEP65kPlus521?CELL=6RRW&jp_cmp=cc/SWA_Brand_Exact_SWA_SEM_US_NA_Standard_NA/sea/p25772051702/Southwest+Reward+Card&gclsrc=aw.ds&gclid=CjwKCAjwtdeFBhBAEiwAKOIy59Wo8z8eG9u27pO8NKHLHf50bQraa9fg-ypYsoCkZz_IRfW8ecJAohoCyIYQAvD_BwE)T5】
 

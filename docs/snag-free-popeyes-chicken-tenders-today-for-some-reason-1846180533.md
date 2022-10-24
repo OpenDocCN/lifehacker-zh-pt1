@@ -4,7 +4,7 @@
 
 上周，视频游戏供应商 GameStop 和股市之间出现了一系列问题。(你可以在这里阅读一篇 [优秀讲解者](https://twocents.lifehacker.com/what-s-causing-the-gamestop-stock-trading-frenzy-1846144589) 。)不知何故，结果是，今天许多大力水手商店都免费提供鸡块——对不起，是“鸡块”。以下是关于促销需要了解的内容。
 
-Watch
+
 
 ### 今天如何在大力水手获得免费的鸡块
 

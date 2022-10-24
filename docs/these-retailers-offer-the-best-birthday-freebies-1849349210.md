@@ -4,7 +4,7 @@
 
 如果你正在寻找战胜生日忧郁的方法，别再犹豫了。首先，你的一天可能充满了 [免费早餐、午餐和晚餐](https://lifehacker.com/where-to-get-free-breakfast-lunch-and-dinner-on-your-1849157226) — 在这之间的所有时刻，有少数零售商也有兴趣宠你一天。因此，如果你想在生日那天尽情享受一些老式的美国消费主义，但又不想花一点时间，那就去看看这些零售商，看看有没有免费赠品。
 
-Watch
+
 
 [**AMC 剧院。**](https://www.amctheatres.com/faqs/amc-stubs/about-amc-stubs/rewards-and-benefits/birthday-gift) 你不需要成为 [AMC 的高级影院订阅](https://lifehacker.com/are-movie-theater-subscriptions-actually-worth-it-1848880483) 的会员，就可以兑现生日奖励。如果你是他们的免费服务 AMC Stubs 的会员，你可以享受免费的大份爆米花，在你生日的那个月的任何一天都可以兑换(但是如果你碰巧是 AMC A-List 的会员，你也可以得到免费的大杯苏打水)。
 

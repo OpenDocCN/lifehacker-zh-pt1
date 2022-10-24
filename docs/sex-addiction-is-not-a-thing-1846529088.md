@@ -4,7 +4,7 @@
 
 在亚特兰大 的温泉浴场杀死八人，其中六人是亚裔美国女性的男子告诉警方他有“性瘾”其他男人在犯下强奸或其他罪行后也说过同样的话，但大多数专业人士并不认为性瘾是一种真正的障碍，它当然不能成为一个人做出可怕行为的借口。
 
-Watch
+
 
 一些声称有性瘾的人可能躲在这个词后面作为借口；其他人可能真的认为自己有问题。(《华盛顿邮报》 [指出](https://www.washingtonpost.com/nation/2021/03/18/sex-addiction-atlanta-shooting-long/#click=https://t.co/kEK5FmaDqr) 泰德·邦迪和哈维·韦恩斯坦都声称自己有性瘾，老虎伍兹 [在几段婚外情后住进了戒毒所](https://www.reuters.com/article/us-woods-addiction/tiger-woods-case-puts-spotlight-on-sex-addiction-idUSTRE61I61S20100219) 。)
 

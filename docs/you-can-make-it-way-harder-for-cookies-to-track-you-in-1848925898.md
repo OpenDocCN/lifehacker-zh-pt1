@@ -4,7 +4,7 @@
 
 [微软 Edge](https://lifehacker.com/our-favorite-tips-for-microsofts-new-edge-chromium-brow-1841041653) 是少有的同时提供 [隐私性和多功能性](https://lifehacker.com/6-of-the-best-internet-browsers-for-protecting-your-pri-1847604085) 的浏览器。一个这样的隐私功能自动删除任何浏览数据，包括 cookies 和网站数据。这意味着您可以在每次退出并重新启动 Edge 时留下一张白纸，使第三方 cookies 难以跨会话和设备跟踪您。它是可定制的。
 
-Watch
+
 
 开始时，c 点击工具栏上的三点**菜单**按钮，选择**设置。** " 从侧边栏进入"**隐私、搜索和服务**"部分，找到 " **选择每次关闭浏览器时要清除的内容。**
 

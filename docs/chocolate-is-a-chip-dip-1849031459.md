@@ -4,7 +4,7 @@
 
 我想我可以完全靠蘸酱维持生活。 [早餐吃酸奶蘸](https://lifehacker.com/how-to-make-your-own-labneh-and-how-to-eat-it-1796785416) ， [午餐吃甜菜蘸](https://lifehacker.com/make-this-3-ingredient-dip-with-charred-beets-1847885634) ， [晚餐吃甜椒奶酪](https://lifehacker.com/make-this-one-batch-of-pimento-cheese-and-use-it-in-eve-1780206751) 或鹰嘴豆泥。我可以整天把蔬菜、面包片和薯条蘸到各种蘸有奶油的碗里，我会很开心。
 
-Watch
+
 
 “甜点呢？”你问。那又怎么样，的确如此。我既喜欢 [这种充满活力的水果蘸](https://lifehacker.com/this-3-ingredient-whipped-dip-is-as-pretty-as-it-is-del-1828423544) 和 [这种经典、怀旧的 Dunkaroo](https://lifehacker.com/make-homemade-dunkaroos-and-relive-the-1990s-1796396955) ，但没必要搞得太复杂。巧克力——也就是热软糖之类的东西——是一种完美的甜点蘸酱，最好和咸薯片一起食用。
 

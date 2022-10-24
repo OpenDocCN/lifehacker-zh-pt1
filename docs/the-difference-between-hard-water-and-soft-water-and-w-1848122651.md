@@ -4,7 +4,7 @@
 
 当一切都按照预期的方式运行时，你可能会认为自来水在成分、以及它如何影响你的家庭和身体方面都是非常一致的。但现实中，事实并非如此。根据社区的不同，自来水有多种不同的方式，但今天我们将特别关注其中一种:硬水与软水。
 
-Watch
+
 
 那么，硬水和软水之间到底有什么区别呢？而为什么这是一个值得讨论的话题？下面是需要了解的内容，由美国地质调查局[水科学学院提供。](https://www.usgs.gov/special-topic/water-science-school/science/hardness-water?qt-science_center_objects=0#qt-science_center_objects)
 

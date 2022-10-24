@@ -4,7 +4,7 @@
 
 Google Chats 正式取代了 Gmail 中的 Hangouts。Gmail 的聊天集成去年首次为谷歌工作区和企业谷歌账户推出，但现在在安卓和网络浏览器 上对普通用户 [开放。(抱歉，还不支持 iOS。)](https://9to5google.com/2021/04/04/new-gmail-chat-turn-on/) 
 
-Watch
+
 
 目前，Gmail 的聊天功能在技术上还处于早期访问阶段，需要手动启用。下面是如何做到这一点。
 

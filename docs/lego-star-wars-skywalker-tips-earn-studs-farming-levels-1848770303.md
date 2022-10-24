@@ -4,7 +4,7 @@
 
 [*乐高星球大战:天行者传奇*是一款非常不错的游戏](https://kotaku.com/lego-star-wars-skywalker-saga-review-kotaku-ps5-xbox-tt-1848746867) 。事实上，我想说这可能是有史以来最好的《星球大战》游戏之一。一个很大的原因是它包含了所有电影中如此丰富的角色和船只，从最广为人知的到那些只听说过的真正的《星球大战》。然而，其中许多都是锁着的，必须使用饰钉购买。游戏中的其他东西，如升级和额外的东西，也需要螺柱解锁或访问。
 
-Watch
+
 
 耳钉并不是《天行者传奇》[](https://kotaku.com/lego-star-wars-skywalker-saga-younglings-lightsaber-com-1848758996)*中引入的新概念。自从最初的*乐高星球大战*于 2005 年 发布 [以来，这些小东西一直是乐高游戏的主要组成部分。在那款游戏以及此后的每一款 TT 开发的乐高游戏中，饰钉都被用作解锁几乎所有东西的货币。这意味着你需要一大堆，尤其是一些更昂贵的额外费用或秘密。](https://en.wikipedia.org/wiki/Lego_Star_Wars:_The_Video_Game)* 
 

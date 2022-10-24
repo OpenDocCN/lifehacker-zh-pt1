@@ -4,7 +4,7 @@
 
 购买一辆新车一直是一项重大投资，在每个人都感受到通货膨胀压力的时候，考虑到现在的成本，以及随着时间的推移与使用和维护它相关的费用尤为重要。随着汽油价格徘徊在 5 美元/加仑左右，汽车的燃油效率可能会成为购买时的决定性因素。
 
-Watch
+
 
 直到最近，经销商贴在车窗上的燃油成本估算为买家提供了相当准确和有用的信息。但是 [据《消费者报道》](https://www.consumerreports.org/buying-a-car/car-window-sticker-fuel-estimates-are-inaccurate-outdated-a1072412298/) ，情况不再是这样了。
 

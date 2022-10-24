@@ -4,7 +4,7 @@
 
 为了吸引突然增加的远程劳动力，阿拉伯联合酋长国(UAE)提供了一种新的签证，允许国际雇员在那里生活和工作一年。虽然自 2020 年 10 月以来，类似的计划已经在迪拜[推出(尽管仅限于该市)，但这项政策——于 2021 年 3 月颁布——将开放该国的其他地区。这里有一些关于签证和如何申请签证的知识。](https://www.visitdubai.com/en/business-in-dubai/dubai-for-business/work-remotely-from-dubai-b)
 
-Watch
+
 
 ### 税收激励
 

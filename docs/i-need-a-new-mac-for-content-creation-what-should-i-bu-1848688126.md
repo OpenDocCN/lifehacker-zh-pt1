@@ -4,7 +4,7 @@
 
 欢迎来到 Gizmodo 的第一期“你应该买什么小玩意？”亲爱的读者，我们帮助你选择适合你需求的小工具。
 
-Watch
+
 
 我们从一个正在升级 macOS 设备的内容创建者的及时请求开始。汽车博客作者和前 [Jalopnik](https://jalopnik.com/) 编辑 Jason Torchinsky 需要一个新的台式机*和*笔记本电脑或者可以兼而有之的东西。Jason 希望留在苹果生态系统中，需要能够运行 Photoshop、Illustrator、3D 软件和几十个浏览器标签的 macOS 设备，同时连接到多个显示器。
 

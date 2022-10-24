@@ -4,7 +4,7 @@
 
 [被解雇是毁灭性的](https://lifehacker.com/what-to-do-and-not-do-if-you-ever-get-fired-or-laid-o-1849003222) 。见鬼，即使让 [出乎意料地被叫去开会](https://lifehacker.com/how-to-respond-to-an-unexpected-meeting-with-your-boss-1849397793) 对一个员工来说也是可怕的，如果他们的思绪游离于*可能性*之外，他们可能会被解雇。虽然这种经历对被解雇的人来说是艰难的，但对做解雇决定的人来说也是艰难的，尤其是如果决定权不在他们手中。如果你有机会让某人离开，这里有一些不做傻事的方法。
 
-Watch
+
 
 ## **开门见山，直奔主题**
 

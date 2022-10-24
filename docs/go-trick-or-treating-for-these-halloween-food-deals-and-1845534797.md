@@ -4,7 +4,7 @@
 
 当然，我们现在都很恐慌和紧张，但至少有免费(或更便宜)的食物。除了下周的 [选举日提供](https://lifehacker.com/soothe-your-anxiety-with-these-election-day-deals-and-f-1845528035?rev=1604091763880) 外，一些餐馆还在万圣节吸引人们来吃他们的糖果前餐。这里是你能得到的和你能得到它的地方。
 
-Watch
+
 
 ### 苹果蜂的
 

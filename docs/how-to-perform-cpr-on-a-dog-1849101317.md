@@ -4,7 +4,7 @@
 
 人类不配拥有狗。他们是 [美丽的](https://lifehacker.com/your-dogs-white-fur-can-be-even-whiter-1848842959) ，他们是 [忠诚的](https://lifehacker.com/how-to-prepare-your-dog-for-an-extended-separation-1848601512) ，他们是 [有趣的](https://lifehacker.com/everything-you-should-know-before-you-bring-a-dog-home-1786968286) 有他们在身边。和狗在一起的生活是美好的——这让它在出问题时变得更加可怕。我们希望你的狗在一生中健康快乐，但是如果出现医疗紧急情况，你应该做好准备。以下是如何给你的狗做心肺复苏术。
 
-Watch
+
 
 ## **如何知道你的狗需要 CPR**
 

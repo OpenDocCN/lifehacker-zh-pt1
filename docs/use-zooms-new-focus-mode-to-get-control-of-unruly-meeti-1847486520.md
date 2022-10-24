@@ -4,7 +4,7 @@
 
 有时候大变焦的叫声会 [变得有点](https://lifehacker.com/how-to-overcome-zoom-fatigue-1846347171)e 特别是涉及到孩子的时候。但是 Zoom 意识到了这一点，作为回应，推出了一种新的聚焦模式——这种模式会禁用所有人的*其他人的*视频馈送——来帮助你保持对大型或者特别是烦躁群体的控制。
 
-Watch
+
 
 当您启用聚焦模式时， 参与者可以看到主持人(和共享屏幕)，但看不到其他参与者。然而， *主持人将*继续查看他们视野中的所有参与者。记住，F ocus 模式只限于视频，所以如果参与者声音太大，你 [可以 mut e 他们都](https://support.zoom.us/hc/en-us/articles/203435537-Muting-and-unmuting-participants-in-a-meeting) ，太。
 

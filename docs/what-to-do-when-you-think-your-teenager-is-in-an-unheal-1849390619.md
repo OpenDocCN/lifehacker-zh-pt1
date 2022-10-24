@@ -6,7 +6,7 @@
 
 这个数据是几年前的——全球的研究显示，自从疫情开始以来 [亲密伴侣间的暴力行为呈上升趋势](https://news.harvard.edu/gazette/story/2022/06/shadow-pandemic-of-domestic-violence/#:~:text=The%20American%20Journal%20of%20Emergency%20Medicine%20said%20that%20domestic%20violence,of%20lockdown%20orders%20during%202020.) 。即使你的孩子没有受到身体上的虐待，他们也可能会受到精神上的虐待，这是很难发现的。这里有一些需要注意的警告信号，以及当你怀疑你的孩子正处于不健康或虐待关系中时如何提供帮助的信息。
 
-Watch
+
 
 ## 青少年关系中需要警惕的危险信号
 

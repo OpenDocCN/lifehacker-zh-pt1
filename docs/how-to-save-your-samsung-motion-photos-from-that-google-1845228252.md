@@ -4,7 +4,7 @@
 
 当一个平台的技术不能与另一个平台的技术很好地配合时，这不是很有趣吗？各种三星机器人的所有者正在体验这种喜悦的第一手，因为三星相机的动态照片似乎无法与谷歌照片(Google Photos)一起工作——这是一种流行的、免费、精彩的照片备份解决方案。
 
-Watch
+
 
 奇怪的是，正如 [安卓警察](https://www.androidpolice.com/2020/09/29/google-photos-isnt-playing-nice-with-samsungs-new-enhanced-motion-photos) 报道的那样，这不是以前*的问题。三星的动态照片并不是什么新技术，谷歌照片从 2019 年年中左右开始支持它们。但是，现在尝试将一张照片上传到 Google 相册，您可能会遇到问题。*
 

@@ -4,7 +4,7 @@
 
 似乎有一百万种方法可以把东西装到你的车上。你可以使用 [粘合剂](https://jalopnik.com/a-good-adhesive-saves-you-time-and-money-on-silly-car-r-1848007323)[铆螺母](https://jalopnik.com/this-little-wonder-is-a-rivet-and-a-nut-in-one-and-bett-1847259327) ，螺栓或者如果你是某种类型的野蛮人，还有拉链。自攻螺钉也被大量使用，甚至在有更好的选择时也是如此。这是另一种把东西粘在一起保持长久的方法。
 
-Watch
+
 
 在过去的几周里，我们用 [轮式推车](https://jalopnik.com/these-little-dollies-help-you-move-your-broken-car-out-1848341019) 轻松地移动我们的汽车项目，用 [空气锤](https://jalopnik.com/no-stuck-part-will-stay-in-your-way-when-you-have-an-ai-1848379418) 敲掉卡住的零件，用 [管道镜](https://jalopnik.com/this-borescope-displays-your-dying-engine-in-high-defin-1848422271) 再次查看发动机内部。本周最酷的工具是铆钉枪，这是将两部分连接在一起的另一种方式。
 

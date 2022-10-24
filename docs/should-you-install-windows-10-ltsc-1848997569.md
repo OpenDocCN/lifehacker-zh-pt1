@@ -4,7 +4,7 @@
 
 对于大多数人来说，Windows 是事实上的 PC 操作系统，但这并不意味着它是完美的。Windows 10(和 Windows 11)预装了大量你可能不想要的微软应用程序，如 Edge 和 Windows Media Player，并且默认情况下会打开某些数据跟踪设置。它也因错误和损坏的更新而臭名昭著，这些更新会使你的电脑崩溃。
 
-Watch
+
 
 大多数人认为唯一的选择是 Linux，或者会跳到苹果的 Mac 电脑上，但实际上有一个名为 Windows 10 Enterprise LTSC 的 Windows 10 版本，它没有该操作系统的许多最大缺点，但完全稳定，支持所有正常的 Windows 应用程序和进程。
 

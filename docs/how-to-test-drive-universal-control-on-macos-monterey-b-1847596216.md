@@ -4,7 +4,7 @@
 
 苹果在 WWDC 2021 年 的 [宣布的最令人兴奋的功能之一是通用控制。这项功能可以让你在多台 MAC 和 iPads 之间无缝切换光标和键盘。事实上，它是如此的无缝，没有设置的必要。您可以将光标从一个设备滑动到另一个设备，只需将光标从一个屏幕的边缘推至旁边的屏幕。](https://lifehacker.com/the-10-coolest-ios-15-features-announced-at-wwdc-2021-1847048865)
 
-Watch
+
 
 这项功能将在 macOS Monterey 和 iPadOS 15 中提供，但在发布时不会提供。但是多亏了张的开发，测试这个功能还是有可能的。如果您的两台 MAC 电脑运行的是 macOS Monterey Beta 5，您可以使用 Plist 文件来启用隐藏代码。遗憾的是，现在还没有办法在 iPad 上启用这一功能，所以你需要等到最终版本才能在 MAC 和 iPad 之间使用它。
 

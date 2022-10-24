@@ -4,7 +4,7 @@
 
 可以是一顿饭，一份小吃，甚至一份 [派对主题](https://lifehacker.com/a-dips-drinks-theme-will-give-your-super-bowl-party-a-1848508639) 。 [蘸](https://lifehacker.com/make-a-better-faster-onion-dip-with-burnt-onions-1843998650) 是完美的食物，把东西蘸 [蘸](https://lifehacker.com/how-to-turn-any-vegetable-into-a-delicious-smoky-dip-1831349613) 然后放进嘴里就是完美的食物输送系统。 [逢低](https://lifehacker.com/make-these-party-dips-that-go-beyond-french-onion-1821395062) 不必复杂；莱恩酸奶油可以蘸着吃，尤其是当你和调味薯片一起吃的时候。但是有三个因素可以让任何蘸酱成为你派对上的焦点(即使是一个人的派对)。
 
-Watch
+
 
 一两年前，人们对艾莉森·罗曼(Alison Roman)的 [辣洋葱和智利](https://www.alisoneroman.com/recipes/labneh-dip-with-sizzled-scallions-and-chile) 蘸酱失去了对乳制品的热爱。作为一个 [labneh](https://lifehacker.com/how-to-make-your-own-labneh-and-how-to-eat-it-1796785416) 的爱好者，围绕这个 dip 的炒作对我来说是有道理的；纽约拉伯尼的蘸酱一定会大受欢迎。但是罗曼蘸酱的与众不同之处在于它包含了三样东西:一点点香喷喷的油，一点点新鲜的香草，以及放在上面的松脆的东西。用这些配料完成你的蘸酱，你的蘸酱肯定也会大受欢迎，即使基本的乳制品基础相当简单( Roman 的只是 labneh 和柠檬汁的混合物)。
 

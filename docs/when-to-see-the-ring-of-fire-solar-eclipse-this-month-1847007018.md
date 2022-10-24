@@ -4,7 +4,7 @@
 
 如果你是一个天文爱好者，你最近很少从拥挤的天体日历中得到喘息:在上个月的 [超级花血月](https://lifehacker.com/when-to-see-this-months-super-flower-blood-moon-1846908884)[和四月的](https://lifehacker.com/when-to-see-the-lyrid-meteor-shower-light-up-the-night-1846673034) [流星雨](https://lifehacker.com/how-to-watch-the-eta-aquarid-meteor-shower-1846780809) 之间，观星工业综合体一直在全力运转，给人们足够的理由熬夜到凌晨
 
-Watch
+
 
 这个月也没有什么不同，因为 6 月 10 日日环食即将发生，笼罩着月球的边缘，看起来像一个闷烧的火环。听听约翰尼·卡什的笑话，准备好迎接星空下的夏日夜晚吧。
 

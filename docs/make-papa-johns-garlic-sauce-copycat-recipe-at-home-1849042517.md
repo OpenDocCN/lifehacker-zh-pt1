@@ -4,7 +4,7 @@
 
 我对约翰爸爸特制的大蒜和 T2 非常着迷。我通常会多点一个杯子 ( [)来蘸我的面包皮，如果我没有吃完我的披萨，我会把多余的杯子留着以后吃冷冻披萨。话虽如此，](https://thetakeout.com/recipe-shrimp-scampi-papa-johns-garlic-sauce-1831530253) [我并不经常点棒约翰](https://thetakeout.com/papa-johns-epic-pepperoni-stuffed-crust-pizza-review-1848825226) ，主要是因为我们在芝加哥有非常棒的披萨选择，如果我从大型连锁店订购，我更喜欢小凯撒(价格合理！)和达美乐的(平均质量！)。可是该死的，*那个蒜酱*。
 
-Watch
+
 
 这款棒约翰的拿手菜奶油滑滑，还带有轻微的蒜味，它让我真的想吃掉我的面包皮，而不是扔掉它们。这个非常的概念是天才，即使我不是 ol' [棒约翰本人](https://thetakeout.com/papa-john-joins-tiktok-shows-off-his-mansion-1843464387) 的粉丝。
 

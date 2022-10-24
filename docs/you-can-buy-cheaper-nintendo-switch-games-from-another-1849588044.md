@@ -4,7 +4,7 @@
 
 鉴于最近美元的强势，许多美国的购物者正在 [向海外零售商寻求更好的产品交易](https://lifehacker.com/you-should-order-a-bunch-of-shit-from-europe-and-japan-1849194362) ，现在省钱的最好地方之一就是任天堂网店。我们已经介绍了 [如何从其他地区的电子商店购买游戏](https://lifehacker.com/how-to-play-japanese-and-european-eshop-games-on-your-r-1847556998) 这样你就可以访问北美没有发布的游戏、演示和其他内容，甚至可以提前玩新游戏。
 
-Watch
+
 
 由于任天堂 Switch 不受地区限制，这是一个简单的过程，根据您购买的游戏，当汇率对美国客户如此有利时，您可能会节省相当多的钱。
 

@@ -4,7 +4,7 @@
 
 盐是一种极其常见的成分，我们大多数人都认为这是理所当然的。这是一种简单的无机(意思是“非碳基”)分子，由两种微小的离子钠和氯组成，但它调味和保存的能力使它变得有价值——如此有价值以至于 [进入了“薪水”一词](https://www.npr.org/sections/13.7/2014/11/08/362478685/from-salt-to-salary-linguists-take-a-page-from-science#:~:text=Being%20so%20valuable%2C%20soldiers%20in,as%20the%20word%20%22salary.%22)
 
-Watch
+
 
 盐通过吸收水分来保存食物，抑制有害细菌的生长，而 [促进有益细菌的生长](https://lifehacker.com/how-to-ferment-your-own-pickles-without-freaking-out-1846360151)——那么，为什么罐装的盐会有保质期呢？
 

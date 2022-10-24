@@ -4,7 +4,7 @@
 
 现在不是购买 iPhone 的好时机。如果你想玩最新款的苹果手机，这很糟糕；如果你想买一款更老、更经济的型号，这也很糟糕。 [行业观察人士](https://www.cnet.com/tech/mobile/why-right-now-is-the-worst-time-to-buy-an-iphone/) 预计苹果将在 9 月份发布 iPhone 14，如果/当发布时，整个苹果的价格结构几乎肯定会发生变化——所以如果可以的话，请再多拿一会儿那部屏幕破裂的手机。
 
-Watch
+
 
 ## **九月意味着苹果新品(通常)**
 

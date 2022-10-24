@@ -4,7 +4,7 @@
 
 许多人不喜欢占据我们智能手机屏幕空间的摄像头剪裁。我们在过去已经看到了一些雄心勃勃的应用程序，比如将一个变成一个老派的通知 LED ，但是苹果用 iPhone 14 Pro 的 [动态岛](https://lifehacker.com/should-you-buy-the-iphone-14-or-14-pro-1849506382) 拿走了创意蛋糕。虽然谷歌完全有可能正在为 Android 开发类似的东西，但你不需要等着去发现——开发者已经在努力将这一功能引入你的智能手机。
 
-Watch
+
 
 一个这样的例子是 [Pixel Island](https://www.androidheadlines.com/2022/09/android-dynamic-island-pixel-app.html) ，但由于它处于早期开发阶段，所以不能在 Play Store 上下载。然而，我们现在有一个动态岛应用程序准备就绪:Android 开发商 Jawomo 似乎是第一个正式将动态岛风格的通知横幅带到非苹果手机的应用程序 [dynamicSpot](https://play.google.com/store/apps/details?id=com.jamworks.dynamicspot) 。
 

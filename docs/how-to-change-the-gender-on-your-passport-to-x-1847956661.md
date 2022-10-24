@@ -4,7 +4,7 @@
 
 周三，美国国务院 [宣布](https://www.state.gov/issuance-of-the-first-u-s-passport-with-an-x-gender-marker/) 已经为“非二元、阴阳人和性别不一致的人”颁发了第一本带有 X 性别标记的护照，这是不分男女的人的权利的一个里程碑。
 
-Watch
+
 
 “值此护照发放之际，我想重申，国务院致力于促进所有人的自由、尊严和平等，包括 LGBTQI+人士，”国务院发言人 Ned Price 在声明中说。
 

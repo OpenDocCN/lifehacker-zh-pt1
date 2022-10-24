@@ -4,7 +4,7 @@
 
 虽然在疫情之后说“不要花费太多”很容易，但事实是，根据最近的一份[creditcards.com 报告](https://www.creditcards.com/credit-card-news/future-spending-poll/) 显示，不到一半的美国人打算用旅行或购物犒劳自己，即使这意味着为此负债。考虑到这一点，这里有一些关于如何控制开支的建议，这样你就不会欠下太多的债务。
 
-Watch
+
 
 ## 在你疯狂购物之前，重新评估你的财务状况
 

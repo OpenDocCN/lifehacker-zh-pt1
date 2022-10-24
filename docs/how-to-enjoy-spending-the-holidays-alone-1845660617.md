@@ -4,7 +4,7 @@
 
 节假日通常是家人团聚、重温家乡乐趣、庆祝朋友感恩节、T2 和 T3 的时候。但今年，冠状病毒是我们没有计划的客人，也绝对不想邀请到我们家里。有一个 [无数个](https://lifehacker.com/its-okay-to-say-a-myriad-of-1845104278) 的理由为什么 [大型家庭聚会今年不应该发生](https://www.cdc.gov/coronavirus/2019-ncov/daily-life-coping/holidays.html#:~:text=Limit%20the%20number%20of%20attendees,gatherings%20as%20much%20as%20possible.) 以及为什么 [去你的家乡旅游](https://www.cdc.gov/coronavirus/2019-ncov/travelers/travel-during-covid19.html) 不是一个好主意。是时候面对现实了:你可能会一个人过节。
 
-Watch
+
 
 在经历了一个漫长的社交疏远的夏天后，在假期里可能很难面对更多的孤立。在 [雪松西奈](https://www.cedars-sinai.org/blog/signs-of-holiday-depression.html) 发表的一篇文章中，临床心理学家 [迈克尔·维特](https://www.drwetter.com/) 博士指出:“孤独和寂寞的感觉也往往会在假期中加剧，特别是对那些最近失去亲人的人或那些没有强大的朋友和家人网络的人来说。”幸运的是，有种方法可以减轻假期中的孤独感，甚至当你独自一人的时候。
 

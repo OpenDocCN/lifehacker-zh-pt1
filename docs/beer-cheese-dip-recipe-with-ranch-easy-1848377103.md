@@ -4,7 +4,7 @@
 
 威斯康星以 [闻名，有的](https://thetakeout.com/i-crammed-the-entire-state-of-wisconsin-into-a-corn-dog-1837017842) [伟大的](https://thetakeout.com/intro-to-the-cannibal-sandwich-1845877135) [美食](https://thetakeout.com/the-only-rule-of-wisconsin-brats-is-that-there-are-many-1798262963) [对美国的贡献](https://thetakeout.com/what-is-a-relish-tray-and-why-is-it-a-wisconsin-and-mi-1842105294) ，但没有一个比 [其](https://thetakeout.com/how-to-use-wisconsin-cheese-spread-recipe-ideas-1834831340) [芝](https://thetakeout.com/what-is-wisconsin-bread-cheese-1839511002) [精选](https://thetakeout.com/meet-instagrams-wisconsin-cheese-curd-influencers-1846153617) 更受人喜爱。绿湾正好坐落在奶酪之乡，为了向我们北方的邻居表达可传播的敬意，我们想出了一个简单的比赛日食谱，庆祝来自乳制品之州的配料。这份食谱是经典 [隐谷牧场啤酒奶酪酱](https://www.hiddenvalley.com/recipe/ranch-beer-cheese-dip/) 的翻版，但补充了一种秘密成分:冷包切达奶酪酱。
 
-Watch
+
 
 [冷包奶酪酱](https://thetakeout.com/how-to-use-wisconsin-cheese-spread-recipe-ideas-1834831340) 是一种美味的奶酪产品，装在小桶里，通常在超市的奶酪区。它放在 [芝士球](https://thetakeout.com/recipe-homemade-cheese-ball-1830776586) (你知道，节日开胃菜涂抹的那种)里或者单独放在一些饼干里都很好吃。在芝加哥，我们喜欢吃热腾腾的薯条蘸着吃。中西部受欢迎的品牌包括 Merkts 和 Kaukauna，尽管你可以在 Aldi 找到更实惠、同样美味的版本。
 

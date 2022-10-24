@@ -4,7 +4,7 @@
 
 [*光环无限*](https://kotaku.com/halo-infinite-the-kotaku-review-1848159022) 从今天开始有季节性活动。就像 *Infinite* 之前的活动一样，一大堆化妆品可供选择，其中一些很酷，所有都是免费的。然而，这个事件比流行的多人射击游戏更需要时间，要求你在接下来的 14 天里每天至少玩一场比赛。
 
-Watch
+
 
 “ [冬季应急](https://www.halowaypoint.com/news/winter-contingency-event-launch) ”活动从今天开始持续到 1 月初。(趣闻:《冬季应变》是的名字[一个来自*光环的早期等级*](https://halo.fandom.com/wiki/WINTER_CONTINGENCY):Reach。)活动的正式结束日期是 1 月 3 日星期一。但是微软的一名代表， *Halo Infinite* 的发行商，向 *Kotaku* 证实，它将一直活跃到美国东部时间 1 月 4 日星期二下午 1:00。
 
